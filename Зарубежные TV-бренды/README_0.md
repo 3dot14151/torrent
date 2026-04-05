@@ -6,7 +6,7 @@
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048659.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047753.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Тайны бычьей акулы / Secrets of the Bull Shark (2020) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047621.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PBS Nature: Сокровище Карибского моря / Treasure of the C
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047150.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Планета рептилий / Planet Reptile (2025) HDTVRip [H.264/720p-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046846.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.265/2160p] [4K, SD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046779.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG. Дикий Вьетнам / Wild Vietnam (2024) WEB-DL [H.264/1080p] (сер
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046778.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PBS Nova: Загадка пустыни Наска / Nazca Desert Mystery (2022)
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046702.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG. Акулий рай / Shark Eden (2010) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046693.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043763.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043536.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC. Horizon: Видим ли мы одно и то же? / Horizon: Do You See 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042217.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRemux (сезон 1, се
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042215.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042203.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042179.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NG. Доисторические хищники / Prehistoric Predators (2007-20
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042173.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG: Малика, королева львов / Malika: The Lion Queen (2022) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041850.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041246.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040764.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NG: Самые страшные стихийные бедствия: Извер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040275.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ BBC: Земля Один потрясающий день / Earth One Amazing Day
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040248.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ BBC - Великие мастера: Загадки Иеронима Босха 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039991.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ BBC. Идеальная планета / A Perfect Planet (2021) WEBRip [H.265/2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039973.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039736.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NG. Опасные встречи / Dangerous Encounters (2006-2011) DVDRip (24 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039091.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038480.jpg" />
 </div>
 
 

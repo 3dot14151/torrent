@@ -1,136 +1,3 @@
-###  Публикация: 1193799   (261920) от 22.12.2017
-
-И.А. Дьяков | Микропроцессорные системы. Архитектура микроконтроллеров семейства MCS-51 (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлена схемотехника однокристальных микроЭВМ, рассмотрены вопросы программирования на языке Асcемблер.
-Предназначено для студентов всех форм обучения направлений 230100.62 – Информатика и вычислительная техника, 010400.62 – Прикладная математика и информатика, 230104.65 – Системы автоматизированного проектирования.
-С 80-х годов 20 века в микропроцессорной технике (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D559BA62FE17758AB8532ED0B3F2108CC3F205BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193950   (261806) от 23.12.2017
-
-План электрификации РСФСР [2-е изд.] (1955) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261806.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1920 г. Государственная Комиссия по электрификации России (ГОЭЛРО), в обстановке не окончившейся еще иностранной военной интервенции и гражданской войны, в условиях глубочайшей хозяйственной разрухи в нашей стране, разработала рассчитанный на 10—15 лет великий государственный план переустройства народного хозяйства Советской республики на основе крупной машинной (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688C25ACDF9A727C2AC61A2DD1EE4D641C8DF672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193938   (261777) от 23.12.2017
-
-А.Е. Козлов | Социальное обеспечение в СССР (1981) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материальное обеспечение престарелых и нетрудоспособных — проблема, которая не была и не могла быть решена в эксплуататорском общество. К. Маркс и Ф. Энгельс, а затем В. И. Ленин сформулировали и обосновали принципы социального обеспечения при социализме. В книге рассказывается о становлении и организации социального обеспечения в нашей стране, о правовых основах, (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FE279F2AF99134B55EE64694246CD67A81925B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193935   (261756) от 23.12.2017
-
-А.И. Астайкин и др. | Приборы физической электроники (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены различные типы вакуумных и плазменных приборов физической электроники, особенности их работы и основные характеристики.
-Последовательно описаны принципы и физические основы работы приборов с сосредоточенным (пролетные и отражательные клистроны, триоды) и распределенным (ЛБВ, ЛОВ, приборы М-типа) взаимодействием. Рассмотрены физические основы использования (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9955D5BECB740D6247424E16530EEC819756E97D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194079   (261754) от 23.12.2017
-
-В.Н. Смирнов | Строительство городских мостовых сооружений (2010) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261754.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены современные технологии строительства городских мостовых сооружений (городских мостов, эстакад, путепроводов, виадуков). Учитывая, что современные крупные города характеризуются наличием не только автомагистралей, но и железнодорожных узлов, часто расположенных в пределах города, освещены технологические особенности сооружения городских (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF5360D945BCDCFA1AAFCB93D519CC4118D882E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839078   (261691) от 27.11.2025
 
 А.И. Кострикин, Ю.И. Манин | Линейная алгебра и геометрия (1986) [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261691.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261690.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261686.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261661.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261648.jpg" />
 </div>
 
 
@@ -269,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261619.jpg" />
 </div>
 
 
@@ -295,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261602.jpg" />
 </div>
 
 
@@ -321,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261596.jpg" />
 </div>
 
 
@@ -347,7 +214,7 @@ J.E. Goodman, J. O’Rourke, C.D. Tóth | Handbook of Discrete and Computational
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261591.jpg" />
 </div>
 
 
@@ -373,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261470.jpg" />
 </div>
 
 
@@ -400,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261469.jpg" />
 </div>
 
 
@@ -426,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261451.jpg" />
 </div>
 
 
@@ -454,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261444.jpg" />
 </div>
 
 
@@ -480,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261340.jpg" />
 </div>
 
 
@@ -506,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261337.jpg" />
 </div>
 
 
@@ -532,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261295.jpg" />
 </div>
 
 
@@ -560,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261264.jpg" />
 </div>
 
 
@@ -586,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261181.jpg" />
 </div>
 
 
@@ -613,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261164.jpg" />
 </div>
 
 
@@ -639,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260975.jpg" />
 </div>
 
 
@@ -665,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260920.jpg" />
 </div>
 
 
@@ -676,6 +543,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC4DAA584599490FD7770BE1FE5664F5E78A591A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838501   (260902) от 23.11.2025
+
+С.С. Мокульский, П.А. Марков (гл. ред) | Театральная энциклопедия [5 томов] (1961-1967) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Театральная Энциклопедия — первое научно-справочное издание по театральному искусству на русском языке — освещает историю и теорию театра с древнейших времён до наших дней. Настоящее издание рассчитано па деятелей театрального искусства — актёров, режиссёров, художников, преподавателей и учащихся специальных учебных заведений, работников газет, радио и телевидения, (   Читать дальше...   )Жанр: ЭнциклопедияИздательство: Советская ЭнциклопедияФормат: DJVU, PDFКачество: Обработанный скан, OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642028BA408623003AC5CD212D6F3E023EFC6969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838496   (260897) от 23.11.2025
+
+Л.Б. Януш | Русские паровозы за 50 лет (1950) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260897.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге содержится обзор паровозов построеных и эксплуатировавшихся на железных дорогах Российской империи и СССР за первую половину XX века.
+Книга написана известным специалистом и историком Леонидом Борисовичом Янушем.
+Книга состоит из четырех разделов - развитие отечественного паровоза, товарные паровозы, пассажирские паровозы и бестендерные паровозы.
+Описание (   Читать дальше...   )Жанр: история техникиИздательство: МашгизФормат: DJVU, PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91250BB8F57C596AE202318E137CEDBD62723BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838489   (260896) от 23.11.2025
+
+Г.Н. Яковлев (ред.) | Алгебра и начала анализа [2 книги] (1987 - 1988) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является учебником по алгебре и началам анализа, написанного в соответствии с действующей программой поматематике для техникумов на базе неполной средней школы. При подготовке третьего издания книга существенно переработана, упрошено изложение, приведена в порядок система упражнений, ряд обязательных тем из второй части перенесен в. первую, а именно неопределенный (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A0CFCBB370CA5CF8748296DCFDDF98544AF7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838405   (260884) от 23.11.2025
+
+Алексей Викторович Галай | Книга о шахматах (для ленивых и любознательных) (2022) [FB2, DOCX, EPUB]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для начинающих шахматистов, понимающих шахматную нотацию, знающих, как ходят фигуры, но плохо представляющих, куда, зачем и почему они ходят. При этом совершенно неважно, сколько лет вы занимались шахматами, в каких турнирах играли, и каков ваш шахматный рейтинг. Если вы вдруг заметили, что плохо представляете, куда, зачем и почему ходят шахматные (   Читать дальше...   )Жанр: Научно-популярная литература, учебное пособиеИздательство: СамиздатФормат: FB2, DOCX, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907501E69CEA73F269ECE3F9613319626D2AAF28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838331   (260874) от 26.11.2025
+
+Книжная серия | Охрана окружающей среды [10 книг] (1981 - 1988) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг от издательства "Вища школа", посвящённая проблемам сохранения экосистемы и биологического разнообразия.Жанр: ПриродоведениеИздательство: Вища школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DA2183BBA7CB89689E9206C4EF8545CD449784
 ```
 
 https://mybot314.ru/tekegram_catalog/

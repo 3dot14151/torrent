@@ -1,3 +1,119 @@
+###  Публикация: 928486   (522443) от 16.08.2015
+
+VA - Top 30 Progressive Tracks Vol.1 & Vol.2 (Compiled by DJ Zen) (2015) [FLAC|Lossless|WEB-DL]<Progressive Trance, Psybient, Downtempo, Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lab's Cloud - Found The Way (09:31)
+ 02. AstroPilot & CJ Catalizer - Time Tides (07:19)
+ 03. AstroPilot - Here & Now (Voiceless Version) (N.A.S.A.'s Long Days & Pleasant Nights Remix) (08:02)
+ 04. Suduaya - Children Of The Sun (06:57)(   Читать дальше...   )Жанр: Progressive Trance, Psybient, Downtempo, Psy-Trance |Продолжительность: 04:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1D1398F684437EA1D7EA40D4B9D459805E98C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313913   (522353) от 11.07.2019
+
+Thought Beings - Explorers (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Explorers (3:17)
+02. Shakedown (3:03)
+03. Forbidden Worlds (3:38)
+04. Alpha Centauri (3:47)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64F6AE447234CA4E30E5650276576E5075CCC2B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313747   (522261) от 11.07.2019
+
+VA - Synthwave, Vol. 5 (Retro Dreams) (2018) [MP3|320 Kbps] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brandon - Retro Dreams (4:10)
+02. Abobo - Nightdrive Overdrive (Road to the Pool Party) (4:28)
+03. Dead Man Dancin' - This Is Goodbye (4:08)
+04. Retouch - Light Years (4:27)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9CFD6514519AEE1DB65CCFD2BB6728F29098063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241117   (522204) от 15.08.2018
+
+VA - 2 Years Suanda Base (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirkie Coetzee - Aurora (Extended Mix)
+02. Ahmed Helmy - Quasar (Extended Mix)
+03. Mantra - Take Me Higher (Extended Club Mix)
+04. HamzeH - Orbit (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622618FB6B38DF537453E58212088AEA4F2A3675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241110   (522200) от 15.08.2018
 
 VA - Black Hole House Music 08-18 (2018) [MP3|320 Kbps] <House>
@@ -6,7 +122,7 @@ VA - Black Hole House Music 08-18 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522200.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Vocal Anthems Ibiza (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522199.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Kiez Beats: Synthwave, Vol. 5 (Retro Dreams) (2018) [FLAC|Lossless|WEB-DL|t
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522175.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ V.A. - Cafe Del Mar XXIV (Volumen Veinticuatro) (2018) 2CD [FLAC|Lossless|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522131.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Kiez Beats: Synthwave, Vol. 6 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522124.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ TWO LANES - Lights (2020) EP, Extended Edition [FLAC|Lossless|WEB-DL|tracks] <El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521895.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Freebeat Music Records • Compilations Collection - 214 Releases (2008-202
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521800.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Lounge Chill (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521794.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Markus Schulz-Global DJ Broadcast-Top 20 July 2019 [MP3|320 Kbps] <Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521415.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Trance 100 (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521207.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Lubomyr Melnyk - Piano Music (2015) [FLAC|Lossless|tracks + .cue] <Modern Classi
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521151.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520485.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Moonbeam - The Secret: Remixes (Live Edition) (2012) [MP3|320 кб/с]<Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520351.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ VA - Groove Culture Ibiza (Compiled By Micky More & Andy Tee) (2019) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520337.jpg" />
 </div>
 
 
@@ -415,7 +531,7 @@ VA - Trance Wars (1-3) (2000-2002) [FLAC|Lossless|tracks] <Goa Trance, Psy-Tranc
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520334.jpg" />
 </div>
 
 
@@ -444,7 +560,7 @@ VA - Best Of The Best Suanda Vol.5 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520259.jpg" />
 </div>
 
 
@@ -473,7 +589,7 @@ VA - Ori Uplift & Rich Triphonic - Uplifting Only 288 (2018) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520257.jpg" />
 </div>
 
 
@@ -502,7 +618,7 @@ VA - Deep House Summer '18 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520256.jpg" />
 </div>
 
 
@@ -531,7 +647,7 @@ VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520255.jpg" />
 </div>
 
 
@@ -560,7 +676,7 @@ VA - Melodic Morning (1-5) (2000-2003) [FLAC|Lossless|tracks] <Goa-Trance, Psy-T
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520223.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ VA - Female Vocal Trance 2018 Vol. 2 (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520134.jpg" />
 </div>
 
 
@@ -618,7 +734,7 @@ Lane 8 - Summer 2022 Mixtape (2022-06-29) [MP3|320 Kbps] <Progressive House, Dee
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519827.jpg" />
 </div>
 
 
@@ -632,119 +748,6 @@ Lane 8 - Summer 2022 Mixtape (2022-06-29) [MP3|320 Kbps] <Progressive House, Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E92E28596FCA3C727966A43D577C35FB24A36676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560575   (519784) от 30.06.2022
-
-Faderhead - Years Of The Serpent (2021) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro, Industrial, Synthwave>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Black Everything (4:22)
- 02. Too Dead For Life (3:27)
- 03. Your Broken Ghost (3:57)
- 04. Deal With My Pain (3:53)(   Читать дальше...   )Жанр: EBM, Dark Electro, Industrial, SynthwaveПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5790C0C9769DA1046A69380704411B138ACBA04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314488   (519443) от 14.07.2019
-
-VA - Pop Bangers, Vol. 2 (2019) [MP3|320 Kbps] <Deep House, Tech House, Progressive House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Croatia Squad – Back to LifeЖанр: Deep House, Tech House, Progressive House, Big RoomПродолжительность: 02:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFACC620FA51C3C8016C244EE6CCE715A23D2F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241502   (519380) от 18.08.2018
-
-VA - Progression Vol.7 (Mixed By Jon Bourne) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Szabo - Budapest (Original Mix)
-02. Danny Chen feat. Nicole Rodriguez - Everything We Lost (Monoverse Remix)
-03. Anden State - Flame (Original Mix)
-04. Westlake (US) - Bengala (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FAF2C7C6B74DC2AD9873A5E8DF31FA1B7E075C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182386   (519364) от 14.07.2019
-
-Rena Jones - Discography 4 Releases (2005-2013) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Modern Classical, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoes (04:35)
- 02. Shadows (05:06)
- 03. Wishes (04:14)
- 04. Returning To The Source (05:13)(   Читать дальше...   )Тип издания: CD, WebЖанр: Modern Classical/IDM/DowntempoПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D2A1A44D3193912F8AAF26E1F3C7B8B732ADD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

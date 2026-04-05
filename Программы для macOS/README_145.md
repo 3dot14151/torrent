@@ -1,3 +1,55 @@
+###  Публикация: 1669210   (173063) от 15.10.2023
+
+Mirror for Fire TV  2.8 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров Fire TV. Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Fire TV. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Fire TV с 2012 и новее. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). Поэтому (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.09.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5602838BCDD134474A8EEF1158E452B9F4907DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669214   (173062) от 15.10.2023
+
+Mirror for Hitachi TV 1.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для зеркального отображения экрана вашего Mac на любом Hitachi Smart TV. Никаких проводов и дополнительного оборудования не требуется. Вы также можете передавать отдельные видеофайлы с вашего Mac на телевизор. Кроме того, это приложение работает без Apple TV или Airplay. Наше приложение также работает на телевизорах Hitachi Roku.Тип издания: macOS SoftwareРелиз состоялся: 05.10.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF3F51D9F4AAAE78B11E1D944CE237484C2228B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669215   (173060) от 15.10.2023
 
 Mirror for Roku TV 2.10 [En]
@@ -6,7 +58,7 @@ Mirror for Roku TV 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173060.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Mirror for Hisense TV 3.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173056.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Mirror for Android TV 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172999.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ AVID Sibelius Ultimate Complete for Mac 2023.8 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172959.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Wondershare Filmora for Mac  12.4.3 Intel/ARM [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172939.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ AYVY 1.22.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172866.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Native SQLite Manager 1.26.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172854.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Micro Snitch 1.6.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172839.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ TechSmith Camtasia 2023 Studio 2023.3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172668.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Magic Battery 8.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172666.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Imagenomic Realgrain for PS (Mac) 2.1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172659.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Scrivener 3.3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172618.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Imagenomic Portraiture for Photoshop for PC 4.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172564.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Adobe Illustrator for Mac 2024 v.28
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172545.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ BatchOutput DOC for Mac 2.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172521.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ ScreenFloat-Better Screenshots 1.5.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172515.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Piezo 1.8.1 fc3 Beta [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172514.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ Repix Pro 2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172506.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ HoudahSpot 6 v.6.4.1 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172502.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ Tembo 3.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172501.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Texifier 1.9.23 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172496.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ TurboCollage 7 v.7.2.10 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172495.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ Storyist 4 v.4.3.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172492.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ Widgetter - Desktop Widgets for Mac 1.16.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172483.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ Widgetter - Custom Desktop — это прямая линия, позволяю�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ED519D9687A02F501932767151B932545DDC825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669978   (172482) от 18.10.2023
-
-System Dashboard 4.9.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172482.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Dashboard показывает использование процессора, памяти, сети и диска в небольшом и «легком» окне. Так же отображает все важные характеристики вашей системы на одной странице.Тип издания: macOS SoftwareРелиз состоялся: 23.04.2023Разработчик: © 2018-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:259BDBBC3147041E4387248C7425F17F8D6CB62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669870   (172460) от 18.10.2023
-
-Duplicate Photos Fixer Pro 4.10 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
-Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2022 Systweak SoftwareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Японский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DB69813E279E389D2DFF5102A466755612C29E
 ```
 
 https://mybot314.ru/tekegram_catalog/

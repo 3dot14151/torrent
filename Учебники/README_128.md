@@ -1,3 +1,57 @@
+###  Публикация: 1810448   (9318) от 04.08.2025
+
+В.В. Прасолов | Дифференциальная геометрия (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие по дифференциальной геометрии.
+Дифференциальная геометрия - раздел математики, изучающий свойства гладких кривых, поверхностей и многообразий, используя методы дифференциального исчисления.
+Дифференциальная геометрия имеет широкое применение в математике и физике. Она является основой для общей теории относительности Эйнштейна и используется в квантовой (   Читать дальше...   )Жанр: МатематикаИздательство: СамиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C280E7356C12B08006BAC2DBEF752F87C7B3C1B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810412   (9315) от 04.08.2025
+
+J. Stewart, L. Redlin, S. Watson | Algebra and Trigonometry, 4th edition (2016) [PDF] [En]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Решение задач и математическое моделирование вводятся на раннем этапе и укрепляются повсеместно, предоставляя студентам прочную основу в принципах математического мышления. Всесторонняя и равномерно развивающая, книга дает полное представление о концепции функций и включает в себя значительный объем материала об использовании графических калькуляторов, чтобы помочь (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113BF2278034796D3C7FA09CB13018BFC39C4923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810437   (9314) от 04.08.2025
 
 В.А. Топоногов | Дифференциальная геометрия кривых и поверхностей (2012) [DJVU]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9314.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ A.H. Robbins, W.C. Miller | Circuit Analysis: Theory and Practice (2012) [PDF] [
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9308.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ J. Stewart | Calculus, 8th edition (2016) [PDF] [En]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9304.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9241.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9232.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8521.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8430.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8279.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8270.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8257.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8256.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8255.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8107.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7909.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7873.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6129.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4150.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3867.jpg" />
 </div>
 
 
@@ -474,32 +528,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817717   (3231) от 12.09.2025
-
-Павел Довгалюк | Базовые алгоритмы. Реализация на Python и C++ на примере классических игр (2025) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3231.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дается базовая алгоритмическая подготовка, классические алгоритмы разобраны одновременно на двух языках — C++ и Python на примере широко известных и интуитивно понятных компьютерных игр. Наглядно излагается реализация циклов, перебора, рекурсии, эвристики, рассматривается работа с деревьями решений, на примере шахмат предлагается знакомство с прямоугольными (   Читать дальше...   )Жанр: Программирование, учебное пособиеИздательство: БХВ-ПетербургФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA519649DAC87FBC2CDBCDE91DEB738CD8C4085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818551   (2366) от 17.09.2025
 
 Н.А. Слузова | Компьютерное моделирование (2025) [PDF]
@@ -508,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2366.jpg" />
 </div>
 
 
@@ -535,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2046.jpg" />
 </div>
 
 
@@ -561,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1859.jpg" />
 </div>
 
 

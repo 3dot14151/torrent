@@ -1,3 +1,32 @@
+###  Публикация: 966481   (220002) от 17.12.2015
+
+Bloodhound Gang - Hard-Off (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Dad Says That's For Pussies
+02. Dimes
+03. American Bitches
+04. Chew Toy(   Читать дальше...   )Жанр: Alternative, Punk-RockПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374408E7C58FC12E69A537EB3ACEE98BCE6811A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269688   (219999) от 15.12.2018
 
 АСТЕРА - Темный век (2018) [MP3|320 Kbps] <Heavy Metal>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219999.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Beacon Street Union - The Eyes Of The Beacon Street Union (1968) Reissue, 2010, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219975.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Scorpions - Love At First Sting [24 KT + Gold CD] (1984/2012) [MP3|320 кб/с]<
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219953.jpg" />
 </div>
 
 
@@ -98,7 +127,7 @@ The Who - WHO (2019) Deluxe Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219915.jpg" />
 </div>
 
 
@@ -127,7 +156,7 @@ Outlaw Blood - Outlaw Blood (1991) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219907.jpg" />
 </div>
 
 
@@ -156,7 +185,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219883.jpg" />
 </div>
 
 
@@ -185,7 +214,7 @@ Nightwish - Decades: Live in Buenos Aires (2019) Live [MP3|320 Kbps] <Symphonic 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219869.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ Darkened Nocturn Slaughtercult - Necrovision (2013) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219825.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ Revealing Chaos - Materia (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219817.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ Hypnos - Oniros (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Female 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219802.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ Dec Burke - Life in Two Dimensions (2021) [FLAC|Lossless|image + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219785.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ Coffin Hag - Prairie Tyrant (2023) [MP3|320 Kbps] <Psych Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219751.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ Jovian Queen - Jovian Queen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219730.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ M.A.G.S. (MAGS) - Destroyer (2023) [FLAC|24/44.1|tracks|WEB-DL] <Alternative & I
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219698.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Cathalepsy - Blood and Steel (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219684.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ Gary Moore - Gold (2013) 2CD, Compilation, Remastered [MP3|320 Kbps] <Hard Rock,
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219680.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Distorted Force - Angelic Bloodshed (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219674.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ Asceta - Asceta (2022) [FLAC|Lossless|tracks + .cue] <Prog Rock, Avantgarde>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219656.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ Moundrag - Hic Sunt Moundrages (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219649.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ Antivalent - Lifelong (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219645.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ Bon Jovi - Bon Jovi (1984) Remastered, 1998, Mercury [OGG Vorbis|480 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219633.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ Vatic - Mercer 217 (2022) [MP3|320 Kbps] <Progressive Metalcore, Nu Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219626.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ Hanoi Rocks - Oriental Beat mix (1982) The 40th Anniversary Re(al)mix 2022, 2023
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219607.jpg" />
 </div>
 
 
@@ -678,7 +707,7 @@ Seraina Telli - Simple Talk (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219603.jpg" />
 </div>
 
 
@@ -707,7 +736,7 @@ Woven Man - Sardonic Waters (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219599.jpg" />
 </div>
 
 
@@ -721,35 +750,6 @@ Woven Man - Sardonic Waters (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42E4FF549ED004B496B440CB9035B31C3E0A4B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084110   (219597) от 18.12.2016
-
-Nautilus Pompilius (Наутилус Помпилиус) - Архив. Цифровая реставрация оригинальных записей (1983-2001) 23CD [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219597.jpg" />
-</div>
-
-
-###  Подробнее
-
-1983 - Переезд (1997)
-1985 - Невидимка (1997)
-1986 - Разлука (1998)
-1987 - Подъем (Таллинн 87) (1997)Жанр: RockПродолжительность: 18:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF75C7BB770F5D4F7DFC8CF44FEA363A7D43B20C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 545243   (484223) от 10.09.2012
+
+Black Mirror / Черное зеркало Трилогия [Ru] (Repack) 2003-2011 | Sash HD
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Mirror III завершит историю ужасных событий семьи Гордонов, наполненную чередой загадочных убийств, связанных с ними и с проклятием замка "Чёрное Зеркало". Действие этой части начинается через несколько минут после окончания Black Mirror II. Замок горит, и Эдриан пытается скрыться в лесу. Но его, как главного подозреваемого, арестовывает полиция...
+     Находясь под стражей, парень страдает от непонятных кошмаров, которые не дают ему спать по ночам и преследуют днем. За отсутствием улик преступления Эдриана отпускают на свободу. Его гложет множество вопросов, на которых нет ответа, и страхи. Вскоре главный герой начинает подозревать, что его прошлое связано со злом.
+ В игре вас ждут 6 частей, на протяжении которых вы побываете в Уиллоу-Крик и районах, расположенных вблизи замка "Чёрное Зеркало", а также во множестве новых локаций. Кроме этого в игре вы повстречаете 50 новых персонажей.
+(   Читать дальше...   )Тип издания: RePackРазработчик: Cranberry ProductionsЖанр: AdventureЯзык озвучки: AнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E74B7537F45C08C3BC4B0F52D408EAF88904A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159599   (483656) от 20.08.2017
+
+Real Myst (2000) [En] (1.11) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновленная версия Myst – хита среди приключенческих игр. Теперь – со свободным перемещением на 360°, улучшенной анимацией и многим другим! С самого начала создатели хотели видеть игру именно такой. Так что потушите свет, включите звук погромче и приготовьтесь окунуться с головой в этот сюрреалистический мир...Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Приключение, От первого лица, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BCC41404E744AD0E2BF000B1526750A89CF854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938025   (483501) от 17.09.2015
+
+Nightmares from the Deep The Cursed Heart (2012) [Ru/Multi] (Build_7278.286428) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в захватывающее пиратское приключение! Вы владелец музея, преследующий пирата-нежить, который похитил вашу дочь. Вы быстро поймете, что пират запутался в трагической, многовековой история любви и хочет воскресить свою возлюбленную, используя жизненную силу вашей дочери. Вам ничего не осталось сделать, только покинуть свой безопасный современный музей (   Читать дальше...   )Тип издания: RepackРазработчик: Artifex Mundi sp. z o.o.Жанр: Adventure / Casual Quest / Hidden Object / PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78293DCD9B48435E692D93961A12073CFE35F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055936   (483297) от 24.09.2016
 
 Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
@@ -6,7 +87,7 @@ Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483297.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Vernon’s Legacy (2016) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483100.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ Pavilion (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482965.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ Virginia (2016) [Ru/Multi] (1.02a) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479633.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Samorost 3 (2016) [Ru/Multi] (1.4.465) Repack Other s [Cosmic Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479523.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ INFRA (2016) [En] (2.0.0) License HI2U [Part 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478924.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ Blasphemous (2019) [Ru/Multi] (2.0.27/dlc) Repack Other s [Digital Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478517.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ Beholder 2 (2018) [Ru/Multi] (1.6.15770) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478068.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ Mages of Mystralia (2017) [Ru/Multi] (25464) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477842.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ Cursed Mountain / Проклятая гора (2009) [Ru] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477689.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ The Vanishing of Ethan Carter Redux (2015) [Ru] (1.01) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477637.jpg" />
 </div>
 
 
@@ -293,7 +374,7 @@ Blue Horizon (2017) [Ru/En/Ge] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477579.jpg" />
 </div>
 
 
@@ -319,7 +400,7 @@ The Great Perhaps (2019) [Ru/Multi] (1.32.14) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476690.jpg" />
 </div>
 
 
@@ -345,7 +426,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License CODEX [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475612.jpg" />
 </div>
 
 
@@ -371,7 +452,7 @@ DARQ (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474792.jpg" />
 </div>
 
 
@@ -397,7 +478,7 @@ Edge of Twilight (2016) [Ru/Multi] (1.0) License CODEX [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472371.jpg" />
 </div>
 
 
@@ -423,7 +504,7 @@ The Room Dilogy (2014-2016) [Ru/En] (1.0.1/1.0.4) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472354.jpg" />
 </div>
 
 
@@ -449,7 +530,7 @@ Dark Fall Трилогия [Ru/En] (Repack) 2002-2009 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471290.jpg" />
 </div>
 
 
@@ -476,7 +557,7 @@ Warlock: The Curse of the Shaman / Чернокнижник: Проклятье 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470588.jpg" />
 </div>
 
 
@@ -502,7 +583,7 @@ Tormented Souls (2021) [Ru/Multi] (1.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469751.jpg" />
 </div>
 
 
@@ -528,7 +609,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.0/dlc) SteamRip CHRONOS [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467930.jpg" />
 </div>
 
 
@@ -556,7 +637,7 @@ Firewatch (2016) [Ru/En] (1.03) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467844.jpg" />
 </div>
 
 
@@ -582,7 +663,7 @@ The Raven: Legacy of a Master Thief (Episode 3: A Murder of Ravens) (2013) [En] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462156.jpg" />
 </div>
 
 
@@ -599,84 +680,6 @@ The Raven — Legacy of a Master Thief — это увлекательное к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C4D3F7320135F1D4F674FD929921D33788479C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557683   (461841) от 26.09.2014
-
-The Testament of Sherlock Holmes / Последняя воля Шерлока Холмса (2012) [Ru/En] (1.0u?) Repack Audioslave
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461841.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой запутанной истории вы сыграете роль Шерлока Холмса. На карту поставлена ваша репутация непогрешимого детектива, так что, расследуя это сложнейшее дело, будьте предельно внимательны и максимально тщательно анализируйте любую полученную информацию. Обследуйте места происшествий, разыщите улики, восстановите цепь событий и сделайте выводы, опираясь на новую игровую систему дедукции. Весьма ценным будет умение выстраивать разговор с каждым персонажем так, чтобы выведать необходимые сведения, несмотря на стремление собеседника направить вас по ложному следу. Острый глаз и острый ум — ваши главные инструменты, используйте их на полную мощь, решайте самостоятельно, что важно, а что — нет, не поддаваясь на уловки. Распутайте клубок злодеяний и восстановите доброе имя знаменитого детектива.(   Читать дальше...   )Тип издания: RePackРазработчик: Frogwares Game Development StudioЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: Английский / РусскийЯзык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CEAF858B1F557AA83DE479AC9A024CF11E30D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348826   (461527) от 08.08.2022
-
-Blade Runner (1997) [Multi] (1.0.1016) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461527.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1997 году Westwood Studios выпустила игру, которая завоевала любовь игроков и критиков по всему миру и получила немало наград, в том числе титул «Лучшая приключенческая игра года» от AIAS. Игра Blade Runner, действие которой разворачиваются параллельно сюжету классического научно-фантастического фильма Ридли Скотта «Бегущий по лезвию», вышедшего в 1982 году, вернулась (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood Studios, Inc.Жанр: Приключение, От третьего лица, ФантаcтикаЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756ABF6EB675588AEC8CBDDA47ACE6E51DAE9F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246366   (460756) от 11.09.2018
-
-Flynn & Freckles (2018) [En/Es] (3.0.0.5) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flynn & Freckles — молодой пират по имени Флинн решил отправиться на поиски самого ценного сокровища: меча капитана Фрекла. Но оружие оказалось одержимо духом старого капитана. Теперь вместе им предстоит столкнуться со всеми опасностями, поджидающими их на пути, и отыскать оставшиеся сокровища. Flynn & Freckles — экшен, в котором вам предстоит много исследовать (   Читать дальше...   )Тип издания: LicenseРазработчик: Rookie Hero GamesЖанр: Adventure, Casual, PuzzleЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAEA2A30F76DD76954D37738878F22FFD64EB8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

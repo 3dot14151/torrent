@@ -1,3 +1,55 @@
+###  Публикация: 1555562   (568595) от 04.06.2022
+
+Г.В.Зайцев (ред.) | Цифровая обработка сигналов в многофункциональных радиолокаторах: Методы, Алгоритмы, Аппаратура (2015) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография подготовлена коллективом авторов, работающих в ОАО «Головное системное конструкторское бюро Концерна ПВО «Алмаз-Антей» имени академика А.А. Расплетина» над проектированием систем цифровой обработки сигналов (ЦОС) для многофункциональных радиолокационных комплексов. Описаны принципы разработки устройств ЦОС, алгоритмы частотно-временной обработки, методы (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEBD49BFDD840EA6BA9A103B1B9AE7363F05AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151968   (568586) от 21.07.2017
+
+М.Г. Бакулин и др. | Технология MIMO. Принципы и алгоритмы (2014) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены принципы построения и алгоритмы формирования и обработки сигналов в системах связи с технологией MIMO (многоантенных систем), положенные в основу систем: LTE, WiMax и Wi-Fi. Изложены фундаментальные основы многоантенных систем с пространственно-временным кодированием, давших толчок развитию этой технологии, а также приведены последние достижения в этой (   Читать дальше...   )Жанр: Связь, электроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1FD7CC28A993CA68D25F2057B915BE1BCB8755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152076   (568436) от 21.07.2017
 
 Д.Рутковская и др. | Нейронные сети, генетические алгоритмы и нечеткие системы (2013) [PDF]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568436.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568432.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568118.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568073.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567090.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566972.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566958.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566844.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566838.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565517.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565139.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563650.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563011.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560515.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559566.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559554.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559434.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559426.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559425.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559423.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559326.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559325.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559323.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559315.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4C489F5BE0A4F861ACE3320BB4F1819EBE597F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044287   (559313) от 23.08.2016
-
-Л. Гальперштейн, П. Хлебников | Самодельные громкоговорители (1944) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559313.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в занимательной форме описывается принцип действия динамического громкоговорителя и возможность его изготовления своими руками.Жанр: Электроника, радиотехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD83AB85DB4675EBAF6F730AD69C84C4E52A2A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044384   (559310) от 23.08.2016
-
-В.П. Шейко | Антенны любительских радиостанций (1962) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559310.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге даётся популярное изложение основ антенной техники и приводится описание антенно-фидерных устройств, применяемых в радиолюбительской практике.Жанр: Электроника, радиотехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEC79704B045CBF705CD9D4C782F6AB4A82618D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 520447   (630353) от 09.07.2012
+
+Test Battlefield BC 2 Multiplayer only [Ru] (Rip) 2010 | Nexus
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тестовая версия игры для открытой тест группы.
+
+Только для владельце аккаунта, которые успели зарегистрироваться по ссылке http://sso.emulatornexus.com/register.php или http://emulatornexus.com/forum/ucp.php?mode=register
+Для желающих протестировать, комментарии (без флуда) просьба сразу в тему.(   Читать дальше...   )Тип издания: RipЖанр: Action, 3D, 1st persoonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035088   (629807) от 15.07.2016
+
+Adobe Media Encoder CC 2015.3 (v10.3) Multilingual
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Media Encoder CC 2015.3 - это программа кодирования, которая позволяет кодировать аудио- и видеофайлы в различные форматы распространения для различных приложений и аудиторий. Такие видео- и аудиоформаты характеризуются повышенной степенью сжатия. Используя эту программу, можно экспортировать видео в форматы, поддерживаемые различными устройствами, от DVD-проигрывателей (   Читать дальше...   )Язык интерфейса: Английский / Голландский / Испанский / Итальянский / Китайский (упрощенный) / Китайский (традиционный) / Корейский / Немецкий / Польский / Португальский / Русский / Турецкий / Французский / Чешский / Шведский / Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91D0D17C13436D7957C09814A529686C7243C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952964   (629792) от 15.07.2016
 
 Singularity (2010) [Ru] (1.1) Repack =nemos=
@@ -6,7 +61,7 @@ Singularity (2010) [Ru] (1.1) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629792.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Navitel / Навител Навигатор v9.6.2674 Full и другие  [Ru/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629790.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Kerish Doctor 2015 4.60 DC 20.04.2015 RePack by D!akov (Upd. 16.06.2015) [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629129.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ Men of War: Assault Squad 2 / В тылу врага: Штурм 2 (2014) [Ru/Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629119.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ ELEX II (2022) [Ru/Multi] (1.03) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629026.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ CyberLink PowerDVD Ultra 17.0.1808.60 RePack by qazwsxe [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628910.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ Adobe After Effects CC 2017 (v14.2.1) Multilingual Update 3
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628904.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628896.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628088.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ Profileschool | Adobe Photoshop. Коммерческая ретушь (2013) PC
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628086.jpg" />
 </div>
 
 
@@ -269,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627824.jpg" />
 </div>
 
 
@@ -295,7 +350,7 @@ Ryse: Son of Rome (2014) [Ru] (1.0.0.153/upd3/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627823.jpg" />
 </div>
 
 
@@ -321,7 +376,7 @@ Navitel / Навител Навигатор v9.6.2674 RePack [Ru/En] - толь�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627822.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627821.jpg" />
 </div>
 
 
@@ -373,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627628.jpg" />
 </div>
 
 
@@ -400,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_627387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_627387.jpg" />
 </div>
 
 
@@ -427,7 +482,7 @@ Phase One Capture One Pro 12.0.3.22 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627335.jpg" />
 </div>
 
 
@@ -453,7 +508,7 @@ Norton Security 22.5.0.120 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627157.jpg" />
 </div>
 
 
@@ -481,7 +536,7 @@ Realtek High Definition Audio Driver 6.0.9273.1 WHQL (x64) (Unofficial) [Multi/R
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627077.jpg" />
 </div>
 
 
@@ -507,7 +562,7 @@ Hearthstone Heroes of Warcraft-v2.7.9166 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627041.jpg" />
 </div>
 
 
@@ -533,7 +588,7 @@ Garmin: City Navigator Europe NT 2016.10 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627039.jpg" />
 </div>
 
 
@@ -559,7 +614,7 @@ System Shock 2 (1999) [Multi] (2.4) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627038.jpg" />
 </div>
 
 
@@ -585,7 +640,7 @@ Pybursa.com | Профессиональные Python курсы online (2014) P
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627033.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627027.jpg" />
 </div>
 
 
@@ -625,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FA94BCB311EA6CF76B87E8FFDFBEA7EABDF3C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144456   (626912) от 22.06.2017
-
-V-Ray 3.50.04 for 3ds Max 2015-2017 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626912.jpg" />
-</div>
-
-
-###  Подробнее
-
-V-Ray — мощный инструмент визуализации, поддерживающий Depth of Field (глубина резкости), Motion Blur (эффект «размытия» в движении), Displacement (карта смещения, с увеличением детализации трехмерных объектов). Кроме этого, V-ray имеет собственные источники освещения, систему солнце-небосвод для реалистичного освещения естественным светом, и физическую камеру с (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5FE998289A964B2FF8BD107FB66058E46E2685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349852   (626873) от 14.06.2011
-
-Юрий Петухов | Сборник произведений (1983-2009) [FB2]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_626873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Петухов родился в Москве. В 1969—1971 гг. служил в Советской армии в Южной группе войск (Венгрия). В 1971 году вышел из рядов ВЛКСМ по идейным соображениям. В 1972—1985 гг. работал в НИИ оборонных отраслей. В 1983 году вышла первая книга Петухова «Через две весны».
-
-В 1990—1991 гг. романами-антиутопиями «Бойня» и «Сатанинское Зелье» Петухов открывает (по собственным (   Читать дальше...   )Жанр: Фантастика, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

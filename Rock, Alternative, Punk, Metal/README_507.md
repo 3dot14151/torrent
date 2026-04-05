@@ -1,3 +1,148 @@
+###  Публикация: 1043049   (576549) от 14.08.2016
+
+The Lou Gramm Band - The Lou Gramm Band (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baptized By Fire 3:56
+02. Made To Be Broken 3:32
+03. Willing To Forgive 3:30
+04. That's The Way God Planned It 4:06(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ABD14964B33C9A56375B6924824C09037DC0264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042948   (576546) от 14.08.2016
+
+Mark Wood - Voodoo Violince (1991) [FLAC|Lossless|image + .cue] <Hard Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monkeybats (3:55)
+ 02. I Want To Take You Higher / Stand (3:51)
+ 03. VooDoo Violince (5:08)
+ 04. Right-Engl-Boogie (3:29)(   Читать дальше...   )Жанр: Hard Rock, InstrumentalПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E61840C673C1ED66392C91DEA496250436FEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042986   (576532) от 14.08.2016
+
+Andy Timmons - Ear X-tacy 2 (1997) [FLAC|Lossless|tracks + .cue] <Hard Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Was Then, This Is Now.flac
+02. Last One.flac
+03. Is This What You Want.flac
+04. A Night To Remember.flac(   Читать дальше...   )Жанр: Hard Rock, InstrumentalПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE876C19A314A694ADB7CD9B32632BF08729724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303070   (576458) от 19.05.2019
+
+Possessed - Revelations Of Oblivion (2019) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chant Of Oblivion
+02.No More Room In Hell
+03.Dominion
+04.Damned(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4665A96B05D1D9FA63699BCEEE78B78A42AF082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151100   (576363) от 17.07.2017
+
+Aversio Humanitatis - Abandonment Ritual (2011) 2012, Self Mutilation Services,  Razed Soul Productions [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576363.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. What Remains In the World (04:34)
+2. Life Is Worth...? (07:14)
+3. Those Who Appreciated The Nothingness (08:52)
+4. Freedom Is Slavery (05:55)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2084D482B72120D3837668FF276A0505325A42A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042862   (576299) от 14.08.2016
 
 Naprimer (Например) - За горизонт событий (2016) [MP3|320 Kbps] <Rock>
@@ -6,7 +151,7 @@ Naprimer (Например) - За горизонт событий (2016) [MP3|3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576299.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Piper - Can't Wait (1977) Reissue, 1990, A&M Records [MP3|320 Kbps] <Power Pop, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576217.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Nothing But Thieves - Nothing But Thieves (2015) Deluxe Edition [FLAC|Lossless|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576139.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ V/A - Соль - Наши музыкальные традиции [Часть 2]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575950.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Dire Straits - 123 Albums: 6 Studio, 4 Live, 21 Compilations, 4 EP's & Singles, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575822.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ Coldplay - Kaleidoscope (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575806.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ Asmodai - Welcome to My Nightmare (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575787.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ Cold In May - Written in Cold (2022) [MP3|320 Kbps] <Gothic Rock, Synth Rock, Fu
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575770.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575681.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575677.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ Asmodai - 3 Relise (2021-2022) [MP3|320 Kbps] <Industrial Metal, Witch House>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575672.jpg" />
 </div>
 
 
@@ -322,7 +467,7 @@ Badlands - 3 альбома (1989 - 1998) [FLAC|Lossless|image+.cue|tracks+.cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575664.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575575.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ VA - British Mod Sounds Of the 1960s (2022) 4 x CD, Compilation, Limited Edition
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575569.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ Radio Birds - Contemporary American Slang (2015) [MP3|320 кб/с]<Southern Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575486.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ Def Leppard - Diamond Star Halos (2022) Limited Edition [FLAC|Lossless|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575455.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Roger Waters - Amused To Death (1992) Remastered /2015/ [MP3|320 кб/с]<Progre
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575412.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ Roger Waters - Amused To Death (1992) /Remastered 2015/ [FLAC|tracks+.cue]<Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575193.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ Tankard - A Girl Called Cerveza (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575176.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ Jake Chisholm - No More Sorrow (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574923.jpg" />
 </div>
 
 
@@ -589,7 +734,7 @@ Testament - Dark Roots Of Earth (2012) Deluxe Edition [FLAC|Lossless]<Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_574890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574890.jpg" />
 </div>
 
 
@@ -609,163 +754,6 @@ Testament - Dark Roots Of Earth (2012) Deluxe Edition [FLAC|Lossless]<Thrash Met
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527885   (574885) от 27.07.2012
-
-ГРАЙ - О земле родной (2011) [MP3|320 кб/с]<Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песнь о земле родной
-02. Пшеничная
-03. Зимняя сказка
-04. Весна
-05. Средь лесов
-06. Лешак
-07. Уходи далёко, горе
-08. Плач о долюшке
-09. Воин храбрый, ясный сокол
-10. Вставай с коленЖанр: Folk MetalПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8EF6530988731436EB63A8B3A680895D79A3DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361805   (574849) от 11.07.2011
-
-VA - Happy Hippie Hits (2009) 5 CD Box Set [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:49:11
---------
-1. James Brown - I Got You (I Feel Good)           3:18
-2. Santana - Soul Sacrifice                        4:55
-3. Martha Reeves & The Vandellas - Dancing In The Street 2:33
-4. Jimmy Ruffin - What Becomes Of The Broken Hearted     3:03
-5. The Edwin Hawkins Singers - Oh Happy Day        5:04
-6. The Box Tops - The Letter                       1:54
-7. Cupid's Inspiration - Yesterday Has Gone        2:37
-8. The Temptations - Run Away Chils, Running Wild  4:55(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9181F0AE606251A88817A97ED35E72BB42551F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043130   (574802) от 15.08.2016
-
-Satisfied Drive - Live (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weight of the World (4:03)
-02. Sunset (4:26)
-03. Wasting My Love (3:15)
-04. Long Way Back (3:36)(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECFBEC1E6C59DD1CF88A60C22BE4433AC02A961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043119   (574800) от 15.08.2016
-
-Diesel - Into The Fire (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574800.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love Under Cover (3:42)
-2. Into The Fire (3:57)
-3. Starting Over (4:18)
-4. Fortune Favors The Brave (4:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7EB991A57FB68E4E3DD4BFEF0DC3D96AF76ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043112   (574792) от 15.08.2016
-
-Christina Skjolberg - Come And Get It (2014) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come And Get It — 3:35
-02. Runaway — 3:00
-03. Close The Door — 4:45
-04. Bullet — 3:12(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15931FD1F7F89E8EB5CE648BBBF404D6798A55BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

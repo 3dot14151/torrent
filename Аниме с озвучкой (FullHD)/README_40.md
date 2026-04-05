@@ -1,3 +1,108 @@
+###  Публикация: 1753821   (33510) от 21.12.2024
+
+Sayounara Ryuusei, Konnichiwa Jinsei | Goodbye, Dragon Life | Прoщaй, жизнь дрaкoнa [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно человек убил древнейшего божественного дракона. Благородное существо приняло свою гибель, но переродилось человеком по имени Долан, жителем маленькой деревушки. Гуляя по полям очередным спокойным днём, он встречает ламию Селину, которая ищет себе мужа. Странная парочка становится друзьями, но их союзу угрожают опасные повороты судьбы.Производство: Япония, студия SynergySPЖанр: приключения, фэнтезиРежиссер: Нисида КэнъитиЯзык озвучки: Русский закадровый (Dream Cast), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3EE82F01C9D200ED84F2979405F727A3B9AE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754393   (33397) от 22.12.2024
+
+Мастера меча онлайн: Альтернативная Призрачная пуля II | Sword Art Online Alternative: Gun Gale Online II [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33397.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Боевые лоли с пушками снова в деле! Карен, в мире Призрачной Пули больше известная как ""Розовый Демон"", добилась уже многих своих хотелок: от комплексов избавилась (почти), лучшую подругу в игру затащила, ""Схватку Отрядов"" с ней выиграла, даже жизнь пары своих друзей спасла, причём в обеих реальностях...
+Остаётся (   Читать дальше...   )Производство: Япония / Студия A-1 Pictures, MarcoЖанр: Приключения, фантастикаРежиссер: Сакой МасаюкиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CD058D45D5EAA8E6FAA393E35006289145388C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761819   (33297) от 23.12.2024
+
+Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | Восхождение Героя щита [ТВ-3] [2023, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Угроза из другого мира было устранена, но времени на передышку у Наофуми совсем нет: помимо волн страшных чудовищ, для защиты от которых и были призваны герои, появилась более серьёзная проблема. Близится возрождение одного из четырёх зверей-хранителей, Феникса, который по силе ничуть не уступает Духу черепахи. Преграды на пути нашего героя становятся всё труднее (   Читать дальше...   )Производство: Kinema Citrus, Studio PomeloЖанр: приключения, фэнтезиРежиссер: Хага ХитосиЯзык озвучки: Японский, русский (Crunchyroll, AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEDDE5FF23856F190387A2B18D71B2C70623C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767931   (33280) от 23.12.2024
+
+Tokidoki Bosotto Rossiya-go de Dereru Tonari no Alya-san | Alya Sometimes Hides Her Feelings in Russian | Аля иногда кокетничает со мной по-русски [2024, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алиса - ученица из русско-японской семьи, пользующаяся большой популярностью в школе. Холодная и равнодушная к окружающим, она прекрасно учится и хороша в спорте. Обычно она очень строга к своему однокласснику Масатике, но иногда заигрывает с ним на русском языке, не подозревая, что на самом деле он понимает русский.Производство: Doga KoboЖанр: комедия, романтикаРежиссер: Ито РётаЯзык озвучки: Японский, русский (Studio Band, TVShows)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDFE0A05816EE5C447251136D40AF8C90525CA67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729342   (33261) от 23.12.2024
 
 Beyblade Burst Chouzetsu | Beyblade Burst Turbo | Бейблэйд Бёрст: Турбо [2018, TV, 51 эп.] WEB-DL 1080p rus
@@ -6,7 +111,7 @@ Beyblade Burst Chouzetsu | Beyblade Burst Turbo | Бейблэйд Бёрст: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33261.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Zhandou Wang: Jufeng Zhan Hun 5 | Infinity Nado 5 | Инфинити Надо 5 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33260.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Beyblade Burst God | Beyblade Burst Evolution | Бейблэйд Бёрст Эв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33258.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Beyblade Burst | Бейблэйд Бёрст [2016, TV, 51 эп.] WEB-DL 1080p r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33252.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33190.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33099.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Rekishi ni Nokoru Akujo ni Naruzo | Rekiaku | Я стану злодейкой, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33089.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33059.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32988.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32666.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32524.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32479.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ Gekijouban Bishoujo Senshi Sailor Moon Cosmos | Pretty Guardian Sailor Moon Cosm
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32323.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ Maou 2099 | Demon Lord 2099 | Повелитель демонов 2099 [2024, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32049.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31957.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31920.jpg" />
 </div>
 
 
@@ -432,7 +537,7 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31906.jpg" />
 </div>
 
 
@@ -458,7 +563,7 @@ Atri: My Dear Moments | Atri -My Dear Moments- | Атри [2024, TV, 13 из 13]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31707.jpg" />
 </div>
 
 
@@ -484,7 +589,7 @@ Blue Lock | Синяя тюрьма: Блю Лок [ТВ-1] [2022, TV, 24 из 2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31690.jpg" />
 </div>
 
 
@@ -510,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31655.jpg" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31204.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ Black Clover (2017) | Чёрный клевер [ТВ-1] [2017, TV, 170 эп. + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29198.jpg" />
 </div>
 
 
@@ -576,115 +681,6 @@ Black Clover (2017) | Чёрный клевер [ТВ-1] [2017, TV, 170 эп. + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B341CEE2EF639DA14A18876C4EFBF3EBAFE7B398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820998   (29197) от 30.09.2025
-
-Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEB-DL 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Момо Аясэ и Кэн Такакура продолжают бок о бок сражаться с нечистью и инопланетными существами, которые из раза в раз доставляют им новые проблемы. Более-менее разобравшись с собственными трудностями, Момо и Кэн отправляются на помощь Дзину Эндзёдзи, который утверждает, что видел призрака, а после этого в его семье стали происходить несчастья.
-Троица отбывает в проклятый (   Читать дальше...   )Производство: Япония, Science SaruЖанр: экшен, комедия, сверхъестественноеРежиссер: Ямасиро ФугаОзвучка: 1) Многоголосный дубляж от Studio Band (по заказу Амедиатеки)
-• Отсутствие озвучки во втором эпизоде c 1:40 до 2:45, 04:50 до 04:55, эти моменты заменены на японскую дорожку, а перевод диалогов добавлен в надписи.
-2) Многоголосная закадровая от TVShows
-3) Английский дубляж от Bang Zoom! EntertainmentПродолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89175EA06A9A0F545C0337A36E991DE9FEF63D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762043   (28919) от 02.02.2025
-
-Ji Jia Shou Shen: Baolie Feiche 5 | Screechers Wild 5! | Дикие Скричеры 5! [2024, TV, 30+1 эп. из 30 эп.] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перевод с Китайского от Яндекса:
-Автомобили Burst Speed из Вселенной Тяньюань (Tianyuan Universe) привнесли зрелую технологию метавселенной, чтобы помочь ученой Лин Лин создать виртуальное пространство метавселенной - супермир, - которое позволяет Burst Speed и людям сосуществовать в цифровой форме. Однажды пользователи Superworld Фейлун и Цинфэн, получив оборудование (   Читать дальше...   )Производство: Alpha Animation (Китай)Жанр: ПриключенияРежиссер: Лей ФанчанЯзык озвучки: Русский (Дубляж)Субтитры: ОтсутствуютПродолжительность: 30 эп. из 30 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1AD50E2C07CE89362E270DFA9922A393ACA98D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744108   (28685) от 04.02.2025
-
-Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansion | Невеста герцога по контракту [2023, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кому-то жизнь в романе может показаться сказкой, но для Ринко Ханасаки, новоиспечённой Релианы Макмиллан, эта история обернулась кошмаром. У неё любящая, дружная и обеспеченная семья, но все прелести новой жизни перечёркивает судьба девушки, которую Ринко знает по роману, что она когда-то читала: дочери Макмилланов суждено умереть молодой от рук своего жениха. Но (   Читать дальше...   )Производство: Typhoon GraphicsЖанр: романтика, фэнтезиРежиссер: Ямамото ДзюнъитиЯзык озвучки: Японский, русский (AniLibria, AniPlague)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302337D31ADC4ED11B788F37700A97ED24B89EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646241   (27657) от 14.02.2025
-
-Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все было как всегда. Асахи Кашиваги собирался в школу и смотрел утреннее шоу. Телепрограмма была очень хорошо известна парню, он знал все почти наизусть, но вдруг неожиданно начали показывать какой-то странный гороскоп, который напророчил парню роковое стечение обстоятельств. Парнишка не придал этому значения и пошёл в школу. Но к удивлению школьника, всё сказанное (   Читать дальше...   )Производство: PassioneЖанр: комедия, романтика, эттиРежиссер: Нагаяма НобуёсиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E199BE46A74C9D14ECCFEBF15715085309D9C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

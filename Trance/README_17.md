@@ -1,3 +1,61 @@
+###  Публикация: 1220919   (700672) от 21.04.2018
+
+VA - We Are Trance April (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swen Van Der Endt - Gisborne (Extended Mix)
+02. Cosmic Gate - Ar (Extended Mix)
+03. Remarq - Desiderium (Extended Mix)
+04. Julie Thompson - Only You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440C3DCA40998E88AC643DD4EEE3766B767E0797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220927   (700526) от 21.04.2018
+
+VA - Markus Schulz presents In Bloom Volume One (2018) (EP) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Markus Schulz & Jes - Calling for Love (Original Mix)
+02.Markus Schulz & Emma Hewitt - Safe from Harm (Club Mix)
+03.Andy Moor & Adina Butar - Wild Dream (Original Mix)
+04.Dave Neven & Ellie White - Try for Me (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B6818F69AC97EB468CB7AC3A5CD12AA278E2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288074   (699506) от 09.03.2019
 
 VA - The Art of Skullduggery (Mixed by Greg Downey & Stoneface & Terminal) (2019) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - The Art of Skullduggery (Mixed by Greg Downey & Stoneface & Terminal) (2019
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699506.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Artworx Vol.1. (Mixed by Nicholson) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698807.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Power Workout Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698801.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Hazem Beltagui - VIVID (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698800.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Space Trance Music (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698718.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Best Of Uplifting Trance (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697651.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Suanda Music Radio Top 20: March (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695817.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Nothing But... Total Trance Selections Vol.08 (2019) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695815.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Meteor Trance Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695194.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Purple Haze - Bergen (2018) Single [MP3|320 Kbps] <Electronic, Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695065.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Abora Recordings: Best Of 2019 (Mixed by Ori Uplift) (2020) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694277.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Vocal Trance feat. Jess Morgan (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694270.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - A State Of Trance (Mixed by Armin van Buuren) (2020) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694156.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Armin van Buuren - The Best Of Armin Only (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692749.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Best Of Female Vocal Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692677.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Workout Vol. 4 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691465.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Trance Classics - The Best Of (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688560.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Armin Van Buuren  - Live At Tomorrowland  (The Digital Festival) (2020) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688465.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Super8 & Tab - Past, Present & Future (2019) [MP3|320 Kbps] <Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688373.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Total Trance Selections Vol.04 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687582.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Workout Vol. 5 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687487.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Saad Ayub & Cristina Soto - Daylight (Amir Hussain Remix) (2018) Single [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687122.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ VA - Female Vocal Trance (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687110.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ VA - I Love Trance Ocean (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684332.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ VA - I Love Trance Ocean (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19A6927FFF2D84EC5966702B5A6856971C125FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289750   (684231) от 17.03.2019
-
-VA - I Love Hard Trance (2019) [MP3|320 Kbps] <Trance, PSY-Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Microbots — Cosmic Evolution (Scot Project Remix) 08:33
-02. Hanney Mackoll — Sexy Dance 05:17
-03. Heartworx — Circle of 5th 04:36
-04. Killer Emo — Dream About You 09:00(   Читать дальше...   )Жанр: Trance, PSY-TranceПродолжительность: 02:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DF1D3F44B5E803A6E68C8EA5D54E8A869AF321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135461   (681305) от 19.05.2017
-
-VA - Redux Presents The Uplifting Selection Vol.2 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riialto & F.G. Noise - Zika (original mix) (07:39)
-02. Six Senses - Return (original mix) (07:08)
-03. Eddie Lung - Sirius (The Enlightment remix) (07:25)
-04. Frank Dueffel - Entropy (original mix) (07:49)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D68E2FA44ADD1170CF3E59E715747DBCD41D9F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

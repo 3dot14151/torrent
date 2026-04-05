@@ -6,7 +6,7 @@ SiteSucker 5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240128.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vellum 3.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240127.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ EagleFiler 1.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240119.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ iShowU Studio 2 v2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240105.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Reflect Studio 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240102.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Dash 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240094.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Debookee v8.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240088.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Permute 3 v3.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240081.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.3.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240079.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ FontBook 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240075.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Exhibeo 2 v2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240067.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ LensFlare Studio 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240063.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AnyTrans for iOS 8.8.0.20201009 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240056.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ PDF Checkpoint 1.9.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240044.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Metadatics 1.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240027.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240013.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Dropzone 4 Pro v4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240012.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Wondershare AllMyMusic 3.0.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240009.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ EazyDraw 10.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239996.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Pixelmator Classic 3.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239986.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Cloud Outliner 2 Pro: Outline your Ideas & Plans 2.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239984.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ MetaImage  2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239977.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Amadine 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239972.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ SuperDuper! 3.5 beta1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239969.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Markster 2.12.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239962.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ AirFoil+Airfoil Satellite 5.10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239960.jpg" />
 </div>
 
 

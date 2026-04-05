@@ -1,3 +1,31 @@
+###  Публикация: 1072298   (341975) от 17.11.2016
+
+Александр Левичев | Asterisk: Профессиональный курс по open-source телефонии (2013) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Asterisk — свободное решение компьютерной телефонии (в том числе, VoIP) с открытым исходным кодом от компании Digium, первоначально разработанное Марком Спенсером. Приложение работает на операционных системах Linux, FreeBSD, OpenBSD и Solaris и др. Имя проекта произошло от названия символа «*» (англ. asterisk — «звёздочка»).
+
+Asterisk в комплексе с необходимым оборудованием (   Читать дальше...   )Производство: SkillFactoryЖанр: VoipПродолжительность: 21:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E913061AE0A722BFF840AFC302C60970077A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180378   (341958) от 03.11.2017
 
 Dr.Josh Axe | BurstFIT FIRE (2013) DVDRip [H.264] [EN]
@@ -6,7 +34,7 @@ Dr.Josh Axe | BurstFIT FIRE (2013) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341958.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341866.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341757.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341645.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341630.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341501.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ Thinknetica Pro, Антон Давыдов | Dry-rb: что, зачем и ка�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340652.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340629.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340605.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ Simulative | Симулятор «SQL для анализа данных» (2022
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340250.jpg" />
 </div>
 
 
@@ -275,7 +303,7 @@ Udemy, Denis Astahov | Основы работы с Git, GitHub и даже GitH
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340249.jpg" />
 </div>
 
 
@@ -304,7 +332,7 @@ Udemy, Антон Ларичев | Microservices - паттерны и прак�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340248.jpg" />
 </div>
 
 
@@ -330,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339579.jpg" />
 </div>
 
 
@@ -357,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339574.jpg" />
 </div>
 
 
@@ -386,7 +414,7 @@ Skillshare | Explaining How We Use Face-Tracking In Our Videos (Tiktok Filter) (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339573.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339571.jpg" />
 </div>
 
 
@@ -440,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339449.jpg" />
 </div>
 
 
@@ -466,7 +494,7 @@ Udemy | WebSockets: Полное Руководство / A Complete Guide to We
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339447.jpg" />
 </div>
 
 
@@ -494,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339446.jpg" />
 </div>
 
 
@@ -520,7 +548,7 @@ Mark Lauren | EFX: Postural Bodyweight Training (2014) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339390.jpg" />
 </div>
 
 
@@ -546,7 +574,7 @@ Skillshare | Create a Pixelated Glitch Effect using Adobe After Effects (2020) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339337.jpg" />
 </div>
 
 
@@ -572,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339336.jpg" />
 </div>
 
 
@@ -600,7 +628,7 @@ Paul Ekman Group | Facial Action Coding System (FACS) (2002) [.CCD] [EN]
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339281.jpg" />
 </div>
 
 
@@ -626,7 +654,7 @@ Mark Lauren | Mobility RX (2012) WEBRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339279.jpg" />
 </div>
 
 
@@ -653,7 +681,7 @@ Gumroad | Митч Леуве 7 книг + уроки / Mitch Leeuwe 7 Books + T
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339231.jpg" />
 </div>
 
 
@@ -664,33 +692,6 @@ Gumroad | Митч Леуве 7 книг + уроки / Mitch Leeuwe 7 Books + T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A8DC39DDF06E8795CD38D56AE792DD16C068242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419546   (339221) от 28.10.2020
-
-Вольница | Супер Сила 2: Школа моушен дизайна (2019) WEB-DL
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339221.jpg" />
-</div>
-
-
-###  Подробнее
-
-О чем Супер Сила?
-Мы не заучиваем параметры плагинов и эффектов, мы развиваем чувство стиля. Превращаем сложное в простое и наоборот из простых форм создаём визуально наполненные композиции. Развиваем арт-директорское чутье, учимся срезать углы по канонам Северного стиля.Производство: ВольницаЖанр: Создание эффектовПродолжительность: 17:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D582027747104A835543F63423546550F777C888
 ```
 
 https://mybot314.ru/tekegram_catalog/

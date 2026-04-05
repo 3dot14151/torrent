@@ -1,3 +1,135 @@
+###  Публикация: 1312936   (529215) от 06.07.2019
+
+Журнал | Elle UK №6 (июнь 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elle — французский женский журнал о моде, красоте, досуге и здоровье, издающийся с 1945 года. В середине 1980-х годах, при выходе на международный рынок, стал выпускаться ежемесячно, сохранив еженедельный формат для Франции.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226C1E343F5D937D89E39ED5099F5DF88E0C0025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312830   (529213) от 06.07.2019
+
+Газета | Ждём гостей №2 (113) (2019) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие кулинарные рецепты на все случаи жизни - к торжествам и праздникам и повседневные блюда. Журнал поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.
+Каждый рецепт пошагово обьясняется с фото.
+Приятного аппетита!Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4974C3D53AD29D31A7270D587E06037E55F6F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312979   (529210) от 06.07.2019
+
+Журнал | Lucy’s USA №43 (апрель 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Lucy's о моде и красоте издается с Декабря 2013г.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B6494B0482E93EA20ED9D56AEE47E6F3F7BEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052136   (529207) от 13.09.2016
+
+Журнал | Всё для женщины. Спецвыпуск. На нашей кухне №5 (сентябрь-октябрь 2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529207.jpg" />
+</div>
+
+
+###  Подробнее
+
+"На нашей кухне" - спецвыпуск журнала "Всё для женщины". В издании представлены лучшие рецепты, присланные в редакцию читателями от салатов, закусок, горячего до выпечки и десертов. На страницах выпуска опытные хозяйки проводят мастер-классы, делятся своими рецептами и секретами приготовления вкусных блюд.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87F111DA7E182C0D09D1A3E6B02F16D63B677C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312931   (529166) от 06.07.2019
+
+Журнал | The Fashionable Lampoon IT №16 (февраль 2019) [PDF] [It]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529166.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Fashionable Lampoon. Модный журнал для женщин и мужчин. Мода, сила которой заключается в эстетических исследованиях. Наши журналисты всегда самоироничные и уверенные в себе.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4E5D290E537935423A650E62A3A2FBFA4C0794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312984   (529163) от 06.07.2019
 
 Журнал | Vogue AU №5 (май 2019) [PDF] [En]
@@ -6,7 +138,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529163.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529160.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529099.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528991.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528950.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528920.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528631.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528553.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528358.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528229.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528222.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528176.jpg" />
 </div>
 
 
@@ -319,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528167.jpg" />
 </div>
 
 
@@ -345,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528125.jpg" />
 </div>
 
 
@@ -371,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528118.jpg" />
 </div>
 
 
@@ -397,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528101.jpg" />
 </div>
 
 
@@ -423,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528062.jpg" />
 </div>
 
 
@@ -449,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528009.jpg" />
 </div>
 
 
@@ -475,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527947.jpg" />
 </div>
 
 
@@ -501,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527733.jpg" />
 </div>
 
 
@@ -527,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527606.jpg" />
 </div>
 
 
@@ -538,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2D9FF0B47D90BCFB63FBB633F446B6CC36BC7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 368990   (527454) от 29.07.2011
-
-Журнал | Stereo & Video [Россия] №8 (2011) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stereo & Video первым встречает и представляет самые последние новинки Hi-Fi аудио- и видео-продукции на российском и мировом рынке, проводит сравнительные тесты с объективными оценками, делится впечатлениями от общения с интересными людьми и рассчитан на широкий круг читателей, интересующихся аудио- и видеоаппаратурой или заинтересованных в её приобретении.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02809296F0CA2C2203363B7FF0994090329331D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052866   (527361) от 15.09.2016
-
-Журнал | Аптека здоровья №15 Как сохранить слух (октябрь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли жить так, чтобы у вас ничего не болело? Можно! И стоит к этому стремиться. Что для этого нужно? Правильное питание, здоровый образ жизни и физическая активность. А если все-таки что-то болит? Попробуйте помочь своему организму справиться с болезнью самостоятельно, без лекарств. Используйте проверенные временем средства из арсенала народной медицины - не (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC24AE95CC0522B17EBB1581315C6E032E44BA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052619   (527358) от 15.09.2016
-
-Журнал | Лена. Креатив №5 (2016) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изысканные салфетки, связанные крючком, изумительные вышивки крестом и гладью, мастер-класс по обратному декупажу, украшения в технике квиллинг и многое другое... Всё для вас!Жанр: Домоводство, рукоделие, хобби, творчествоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BC7D7F5225DF629DAAAE07E0CCF547A65B702D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052876   (527341) от 15.09.2016
-
-Журнал | Аптека здоровья №16 Как помочь сердцу (октябрь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли жить так, чтобы у вас ничего не болело? Можно! И стоит к этому стремиться. Что для этого нужно? Правильное питание, здоровый образ жизни и физическая активность. А если все-таки что-то болит? Попробуйте помочь своему организму справиться с болезнью самостоятельно, без лекарств. Используйте проверенные временем средства из арсенала народной медицины - не (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EC37BC0B307887248866C2870151D2110732A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052861   (527316) от 15.09.2016
-
-Журнал | Аптека здоровья №14 Как избавиться от косточки на ноге (октябрь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли жить так, чтобы у вас ничего не болело? Можно! И стоит к этому стремиться. Что для этого нужно? Правильное питание, здоровый образ жизни и физическая активность. А если все-таки что-то болит? Попробуйте помочь своему организму справиться с болезнью самостоятельно, без лекарств. Используйте проверенные временем средства из арсенала народной медицины - не (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C00A0E7376EDF84436B5CF36EFF3414185D869
 ```
 
 https://mybot314.ru/tekegram_catalog/

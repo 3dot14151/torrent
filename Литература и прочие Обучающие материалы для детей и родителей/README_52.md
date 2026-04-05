@@ -1,3 +1,29 @@
+###  Публикация: 1468385   (1017297) от 07.05.2021
+
+Холли Риверс | Три правила фантома (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демельза обожает изобретать, мечтает стать знаменитым учёным и получить Нобелевскую премию. Есть только одно «но» – неожиданно открывшийся талант. Совершенно ненаучный! Демельза умеет призывать фантомы, призраки умерших, как её мама, папа, бабушка и долгие поколения предшественниц. Это умение требует соблюдения строгих правил, почти как настоящая наука, так что девочка (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: М.А. СклярФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFD6D51CE9C7A4E289C623903055ACEEF99DD09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468397   (1017293) от 07.05.2021
 
 Марлизе Арольд | Восьмой день. Замок Вечности. Книга 1 (2021) [FB2, EPUB, MOBI]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017293.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017273.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017253.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017241.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017122.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017121.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017114.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017109.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017095.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017092.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017088.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017039.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017010.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016980.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016979.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016945.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016942.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016934.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016931.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016930.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016923.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016916.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016885.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016834.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016826.jpg" />
 </div>
 
 
@@ -653,35 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2C95F9C2716F4288017ED36AECA801C2A2B3405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 337331   (1016819) от 09.05.2021
-
-Н.В. Нищева | Картотека подвижных игр, упражнений, физкультминуток, пальчиковой гимнастики (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие для врачей-логопедов, родителей и учителей начальной школы.
-В пособии представлена картотека подвижных игр, упражнений, физкультминуток, пальчиковой гимнастики - важной составляющей части для логопедов и всех тех, кто хочет развить в детях умение правильно и выразительно говорить и концентрировать свое внимание.
-
-А стихи и поговорки нужны и не только для (   Читать дальше...   )Жанр: Образование, воспитание и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9030F0F8A9027D17FF832A81CA100ED44584209
 ```
 
 https://mybot314.ru/tekegram_catalog/

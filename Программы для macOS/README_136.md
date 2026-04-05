@@ -1,3 +1,55 @@
+###  Публикация: 1652104   (206750) от 09.08.2023
+
+Splunk Enterprise for Mac 9.1.0.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Splunk Enterprise — это программный продукт, который позволяет вам искать, анализировать и визуализировать машинные данные, собранные с веб-сайтов, приложений, датчиков, устройств и т. д., составляющих вашу ИТ-инфраструктуру или бизнес. После того как вы определите источник данных, Splunk Enterprise индексирует поток данных и разбирает его на ряд отдельных событий, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2023Разработчик: © 2023 Splunk IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BB7FF9AB9754D1DEA3B5D71EB6FD4A26F0FE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651984   (206710) от 09.08.2023
+
+Serato DJ Pro Suite for Mac 3.0.10 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serato DJ – продукт, ориентированный как на профессионалов, так и на начинающих диджеев. Программа поддерживает такие звуковые эффекты, как Delay, Reverb, Flanger, Echo, PingPong Delay, Phaser, Distortion, High и Low Pass Filter, а также их комбинации. Полноценная поддержка MIDI, осуществлённая в программе, предоставляет возможность адаптации контроллера и программы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2023Разработчик: © 1999-2023 SeratoПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFC5CE2D566D194C1A81E41C02114F87DDE1A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652223   (206677) от 10.08.2023
 
 AlDente Pro fo Mac 1.2.22 [Multi/Ru]
@@ -6,7 +58,7 @@ AlDente Pro fo Mac 1.2.22 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206677.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206649.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Sublime Merge 2.0 Build 2087 Dev for Mac [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206564.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Direct Mail 6.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206489.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Kyno 1.8.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206446.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Airy 3.28 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206036.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ PCDJ DEX PRO 3.20.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205557.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ ExactScan Pro / Enterprise 23.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205555.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ UninstallPKG 1.2.1  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205541.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ AirRadar 7 v.7.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205510.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ CaptureGRID 4 v.4.27 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205394.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ BarLinks: Menu Bar Bookmarks 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205333.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ timeLAPSE for Mac 2.66 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205329.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Aspect Ratio Calculator for Mac 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205327.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ Auditory - Rec lecture & notes 1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205289.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ AYBO 1.22.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205277.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ The Clock - The Best World Clock 4.8 U2B [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205275.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ future.dj pro - mix everything 1.11.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205171.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ Duplicate File Doctor for Mac 1.2 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205124.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Overlay 4.26 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205113.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ FigrCollage Pro 3.3.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205112.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ Dropshare 5.35.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204614.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Wolfram Mathematica 13.3.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204580.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Movist Pro 2.8.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204547.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ Movist является простым в использовании и мощн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DDEB3DDDA21506D6A9C9F77A37743C26EE350BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655244   (204390) от 25.08.2023
-
-iThoughtsX 9.4 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204390.jpg" />
-</div>
-
-
-###  Подробнее
-
-iThoughtsX – приложение, позволяющее визуализировать ваши мысли с помощью построения графических диаграмм. Отлично помогает при мозговых штурмах и при необходимости упорядочить мысли или идеи. iThoughtsX можно использовать для различных задач - в том числе списков, мозговой штурм, планирования праздников, исследования, письма, управление проектом - и в самых разных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.08.2023Разработчик: © 2023 toketaWare LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4204954D7E2B67DB720254F0B85921D9FA862E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655451   (204337) от 26.08.2023
-
-iFastZip - Extract RAR & ZIP & 7Z for Mac 8.7 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте любой формат файла архива. Поддержка извлечений RAR, ZIP, 7Z, TAR, GZIP, GZ, BZIP2, LZIP, ACE, ISO, PAX, PKG, APK, LBR, MSI, JAR, XZ, LZMA, BZ, LZH, CAB, CPIO, SWF, SPK, MSI, SEA, NRG, MDF, TAZ, ACE, LBR, RPM, CPT и т. д.Тип издания: macOS SoftwareРелиз состоялся: 24.08.2023Разработчик: © 2022 Elimisoft IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467F984BE42B118D04ECA0EBD3820F6CAFC913DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

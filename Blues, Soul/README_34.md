@@ -6,7 +6,7 @@ VA - Winter Soul (2018) [MP3|320 Kbps] <R&B, Soul, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273018.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sonny Black - Heart And Soul (2015) [MP3|320 Kbps] <Blues, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270516.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Alastair Greene - Dream Train (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268873.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Van Morrison - The Prophet Speaks (2018) [MP3|320 Kbps] <Blues, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266656.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jon Lord - Blues Project Live (2011) [MP3|320 Kbps] <Blues, Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265160.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tina Schlieske - Evil Gal Blues (2008) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_264516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_264516.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Blues & Lonesome (The Music That Inspired The Rolling Stones) (2017) 2CD [M
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262882.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Peter Green’s Fleetwood Mac - Live At The BBC (1967-71,1995) (2019) 2CD [MP3|3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262586.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Anson Funderburgh & The Rockets - Blast Off: The Best Of Anson Funderburgh & The
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261807.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Van Morrison - Moving On Skiffle (2023) [MP3|320 Kbps] <Jazz, Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250038.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sax Gordon - Showtime! (2013) [MP3|320 Kbps] <Blues, Jazz, Funk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245535.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Brian Langlinais - Right Hand Road (2016) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244938.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Blue Tattoo Blues Band - Made That Way (2014) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243107.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ James Brown - James Brown's Singles Anthology, Vol. 2 (2021) All Tracks Remaster
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242307.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Johnny Gallagher And The Boxty Band - A 2020 Vision (2020) [MP3|320 Kbps] <Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229300.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Teeny Tucker - Put On Your Red Dress Baby (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228073.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Texas Guitar Killers (1995) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224608.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Peps and Blues Quality - Sweet Mary Jane (1969) Remastered, 1994, Sonet Grammafo
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222765.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222306.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mr Blues - Ain't No Saint (2019) [MP3|320 Kbps] <Blues, Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221129.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bob Lanza Blues Band - From Hero to Zero (2015) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219059.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Fiona Boyes - Box & Dice (2015) [MP3|320 кб/с] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218947.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dalannah Gail Bowen - Looking Back (2019) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218180.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Eric Mcfadden - Does ACDC (Acoustic Tribute) (2018) [MP3|320 Kbps] <Blues, Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217499.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Christmas Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216101.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Muddy Manninen - River Flows (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215027.jpg" />
 </div>
 
 

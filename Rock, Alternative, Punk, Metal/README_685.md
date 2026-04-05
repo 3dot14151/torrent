@@ -1,3 +1,32 @@
+###  Публикация: 1327693   (372148) от 26.09.2019
+
+Александр Пушной - Live Б2 (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372148.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. СБТП
+2. Берёза
+3. Рябина
+4. Поранья(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B27F551252EB54E832795F19824DEB49B010A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175980   (372023) от 21.10.2017
 
 Europe - Walk The Earth (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +35,7 @@ Europe - Walk The Earth (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372023.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Emyn Muil - Afar Angathfark (2020) [FLAC|Lossless|image + .cue] <Epic Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372020.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Enslaved - Utgard (2020) [FLAC|Lossless|image + .cue] <Black Metal, Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372014.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Behaviour - Simulate (2020) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Groove Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372012.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Medda (Robert Pessagno) - 4 Albums (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372009.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Necrophobic - Dawn Of The Damned (2020) 2xCD [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372008.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ System Decay - Crown (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Modern Metal,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371927.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Random Play - Beware Of The Dog (2020) [MP3|320 Kbps] <Hard Rock, Female Vocal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371916.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371876.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Steel Panther - 5 Studio Albums, 2 Live Albums, Other Tracks (2009-2019) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371872.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Rock & Run (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371754.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Woslom - Time To Rise (2010) 2014 Reissue [FLAC|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371698.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Girls (Christopher Owens) - 5 альбомов, 1 EP (2009 - 2015) [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371646.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Rikk Eccent - Black Halo (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371590.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ The London Quireboys - This Is Rock'N'Roll (2002) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371540.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ The Quireboys - Bitter Sweet & Twisted & Live (1993) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371535.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ The Quireboys - A Bit Of What You Fancy & Bitter Sweet And Twisted (1997) [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371410.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Motley Crue - Carnival Of Sins (2006) 2CD, Live [MP3|320 кб/с]<Glam Metal, Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371409.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ RavenEye - Nova (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371405.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The Horrors - 5 альбомов, 1 EP (2006 - 2017) [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371365.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Antimatter - Welcome to the Machine / Too Late (2016) [MP3|320 Kbps] <Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371311.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ In Flames - Sounds From The Heart Of Gothenburg (2016) Live [MP3|320 Kbps] <Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371308.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Motley Crue - The End: Live in Los Angeles (2016) Live [MP3|320 кб/с]<Glam Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371291.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Little Caesar - Amercian Dream (2012) [WavPack|Lossless]<Southern Rock/ Hard-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_371265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_371265.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Outer Limits & Jeff Christie - Outer Limits/Floored Masters-Past Imperfect (2008
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371256.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ Outer Limits & Jeff Christie - Outer Limits/Floored Masters-Past Imperfect (2008
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3FF94CA17F7E9C7DB5742F10D0929178F06FD02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069837   (371188) от 05.11.2016
-
-Sir Rod Stewart - And Some Of His Early Faces (2016) 2CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond Joe
-02. Engine 4444
-03. Maggie May
-04. Stay with Me(   Читать дальше...   )Жанр: RockПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF9A9AF4607AA9816425703BD42F3EE0BB9F599
 ```
 
 https://mybot314.ru/tekegram_catalog/

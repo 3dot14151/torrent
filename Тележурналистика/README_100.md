@@ -1,31 +1,3 @@
-###  Публикация: 1683282   (128687) от 10.12.2023
-
-Чудо техники с Сергеем Малозёмовым (10.12.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бодрый подъем! Будильники: как с их помощью вставь вовремя, но не навредить здоровью? Стоит ли покупать образцы, которые будят светом?
- Насколько эффективны домашние тренажеры — ручной велосипед, виброплатформа и устройство 5-в-1? Можно ли с их помощью реально что-то накачать или сбросить вес?
- Портативная кофеварка, которая сделает ароматный напиток и в машине, и (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B8AC9577B865E44631A2FE29A30F5E9CBF9EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684659   (127592) от 16.12.2023
 
 Живая еда с Сергеем Малозёмовым (16.12.2023) WEBRip [H.264/720p]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127592.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127385.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127361.jpg" />
 </div>
 
 
@@ -116,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127171.jpg" />
 </div>
 
 
@@ -142,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126470.jpg" />
 </div>
 
 
@@ -169,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126309.jpg" />
 </div>
 
 
@@ -196,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126276.jpg" />
 </div>
 
 
@@ -222,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126233.jpg" />
 </div>
 
 
@@ -250,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126129.jpg" />
 </div>
 
 
@@ -276,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125881.jpg" />
 </div>
 
 
@@ -305,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125019.jpg" />
 </div>
 
 
@@ -333,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124427.jpg" />
 </div>
 
 
@@ -360,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120629.jpg" />
 </div>
 
 
@@ -388,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120503.jpg" />
 </div>
 
 
@@ -414,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120470.jpg" />
 </div>
 
 
@@ -441,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119469.jpg" />
 </div>
 
 
@@ -470,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119102.jpg" />
 </div>
 
 
@@ -498,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118267.jpg" />
 </div>
 
 
@@ -524,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118246.jpg" />
 </div>
 
 
@@ -550,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118125.jpg" />
 </div>
 
 
@@ -577,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117053.jpg" />
 </div>
 
 
@@ -604,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116863.jpg" />
 </div>
 
 
@@ -631,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116426.jpg" />
 </div>
 
 
@@ -657,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116052.jpg" />
 </div>
 
 
@@ -683,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115826.jpg" />
 </div>
 
 
@@ -696,6 +668,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4905217290CFE5B1BA2BDC8C2DEF73683CD2AB5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702536   (115677) от 25.02.2024
+
+Чудо техники с Сергеем Малозёмовым (24.02.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что привлекает людей в микродомах? Насколько они финансово выгодны и не вредят ли здоровью?
+ Горе от ума! Как так выходит, что некоторые «умные» весы с анализом состава тела обманывают пользователей? Стоит ли верить их показателям? Чем различаются модели разных ценовых категорий, и какая начинка скрывается за большой стоимостью?
+ Обогреватель со встроенным увлажнителем (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DF5A55FC191F72C4DB9033002BB5F982413718
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1626063   (200020) от 12.04.2023
+
+Союз-Аполлон. Сила Притяжения (2023) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стыковка космических кораблей «Союз» и «Аполлон» стала следующим выдающимся событием после полета Гагарина, выхода Леонова в открытый космос и высадки американских астронавтов на Луну. 15 июля 1975 года командиры экипажей двух враждующих стран пожали друг другу руки на околоземной орбите. «Рукопожатие в космосе» – одно из названий этого проекта, который остается (   Читать дальше...   )Производство: Россия / AMALGAMA STUDIOЖанр: документальныйРежиссер: Дмитрий АлейниковЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3158CE09B67CD4E80AA65C24DA5FE446B9EA1C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625718   (199993) от 11.04.2023
+
+Йеллоустоун. Суровая зима / Yellowstone. The Wildest Winter (2017) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Национальный парк Йеллоустоун известен своей дикой природой и действующим вулканом. Он по праву считается местом, где природа сохранилась почти в первозданном виде. Заповедник — это уникальная экосистема, являющаяся домом для огромного количества животных и растений. Несмотря на фантастическую красоту природа Йеллоустоуна достаточно сурова и характеризуется резкой (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: документальный, познавательный, путешествияРежиссер: Сусана ХэнслипПеревод: двуголосый профессиональный (ТПО Ред Медиа)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1FDEC5D1512D075AB94CE9722CAEA71097FF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626717   (199778) от 16.04.2023
+
+Гости из других миров / Shock Docs: The Visitors (2022) WEBRip [H.264/720p] [VO]
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор бестселлеров Уитли Стрибер впервые за несколько десятилетий повторно посещает место своей травмирующей встречи с инопланетянами.Производство: СШАЖанр: документальныйРежиссер: Mark MarabellaПеревод: Одноголосый закадровыйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E325848FB863C6E479C83139B6107378D7F3FAB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626907   (199771) от 16.04.2023
+
+Краткая история русской культуры от Древней Руси до наших дней (2023) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о том, как развивалась русская культура от Древней Руси до наших дней.Производство: Россия / ИП Мотин Данил ВитальевичЖанр: документальный, мультфильмРежиссер: Данил МотинЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC9D95E3AA2F51EA2C5626C5602AA240CBC69BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627002   (199716) от 17.04.2023
+
+Космический камикадзе. Угол атаки Георгия Берегового (2013) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический корабль "Союз" - самый надёжный в истории освоения космоса - создавался для полёта к Луне. Но этого не случилось. В начале своей истории он терпел аварию за аварией. Возможно, своей нынешней славой "Союз" обязан одному человеку, который всё же укротил строптивый корабль. Этот человек вообще не должен был стать космонавтом. Но череда (   Читать дальше...   )Телекомпания: Россия / ВГТРКЖанр: документальный, космосРежиссер: Руслан Божко, Александр ОстровскийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E0358F944949871AC173BAFB23B8BDB0B35942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627016   (199709) от 17.04.2023
+
+Поцелуй Землю / Kiss the Ground (2020) WEB-DL [H.265/2160p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это уникальный фильм о роли земли в жизни человека и необходимости ее сохранения. В нем показана большая работа специалистов по экологии и сельскому хозяйству, которые ищут новые пути использования земли и борются с загрязнением окружающей среды. Фильм не только раскрывает проблемы земли, но и показывает, как люди могут помочь в ее охране. Благодаря отличной работе (   Читать дальше...   )Производство: США, Netflix, Big Picture, BenensonЖанр: документальный, природа, экологияРежиссер: Джошуа Тикелл, Ребекка ХарреллПеревод: многоголосый профессиональный (HDrezka Studio)Язык озвучки: русскийСубтитры: русские (For titles, SDH auto), английские (Forced, SDH)Продолжительность: 01:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0B41B6B18F3417EC5BDFAF937A2C7DE85C6AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627620   (199528) от 21.04.2023
 
 Ужас в Высокой пустыне 2: История Минервы / Horror in the High Desert 2: Minerva (2023) WEB-DL [H.264/1080p]
@@ -6,7 +162,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199528.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199384.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199329.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199307.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199168.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199070.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199039.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198991.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198954.jpg" />
 </div>
 
 
@@ -246,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198887.jpg" />
 </div>
 
 
@@ -272,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198886.jpg" />
 </div>
 
 
@@ -298,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198879.jpg" />
 </div>
 
 
@@ -324,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198746.jpg" />
 </div>
 
 
@@ -350,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198664.jpg" />
 </div>
 
 
@@ -378,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198606.jpg" />
 </div>
 
 
@@ -404,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198525.jpg" />
 </div>
 
 
@@ -430,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198519.jpg" />
 </div>
 
 
@@ -456,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198505.jpg" />
 </div>
 
 
@@ -483,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198470.jpg" />
 </div>
 
 
@@ -509,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198414.jpg" />
 </div>
 
 
@@ -520,162 +676,6 @@ CCCР считался читающей страной и в этом немал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24E785E81F8D3F6A60AF94BE875E8845F86B9E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633393   (198410) от 14.05.2023
-
-Они шли за Гитлером. История одной коалиции (2018) HDTV [H.264/1080i] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спросите сегодня где-нибудь в Европе: кто воевал против СССР во Второй мировой войне? Вам ответят: "Германия, – а подумав, добавят, – кажется, Италия". А как же те сотни тысяч венгров, румын, хорватов, французов, словаков, поляков, испанцев, которые вместе с Германией пришли в СССР. 22 июня нам объявили войну Италия, Словакия и Хорватия, 27 июня – Венгрия, (   Читать дальше...   )Производство: Россия, ВГТРК, Под знаком ПИЖанр: документальный, история, ВОВРежиссер: Михаил КузовенковЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 2x ~00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC37CF62A7429F13DD4B965B28C05E2AAF546E99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633614   (198407) от 16.05.2023
-
-Проклятые фильмы / Cursed Films (2020-2022) WEB-DL [H.264/1080p] (сезоны 1-2, серии 1-10 из 10)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о создании и интервью с людьми, принимавшими участие в производстве таких культовых хорроров, как «Экзорцист», «Полтергейст», «Омен», «Ворон» и «Сумеречная зона» (1-й сезон) + "Волшебник страны Оз", "Ребенок Розмари", "Сталкер", "Змей и радуга" и "Ад каннибалов" (2-й сезон).Производство: Канада, США, Low End, Muse Entertainment Enterprises / ShudderЖанр: документальный, история, ужасы, кинематографРежиссер: Джей ЧилПеревод: многоголосый профессиональный (Ozz.tv)Язык озвучки: русскийСубтитры: русские (Ozz.tv, forced + full), украинские (Ozz.tv, forced + full), английские (full + SDH)Продолжительность: 5x ~00:30:00 + 5x ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B8DB58414802B4C4F85FCBB6BFEC0933F9F7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621394   (198406) от 14.05.2023
-
-Затерянные в дикой природе / Lost in the Wild (2019) WEB-DL [H.264/1080p] (сезон 1, серии 1-7 из 8) (обновляемая)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Режиссёр-исследователь Джей Джей Келли и журналистка Кинга Филиппс отправляются в дикую природу, чтобы изучить загадочные случаи пропажи людей.Производство: США, Ping Pong ProductionsЖанр: документальный, мистикаРежиссер: Гриффин КенемерПеревод: Одноголосый любительский (datynet)Язык озвучки: русскийПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999ACDB082A7E4E66EDB65EBF2A0BCBD8F2DC2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634168   (198298) от 19.05.2023
-
-Неизменный: Майкл Дж. Фокс / Still: A Michael J. Fox Movie (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ об актёре Майкле Дж. Фоксе и его борьбе с болезнью Паркинсона.Производство: США, Concordia Studio, Apple TV+Жанр: документальный, история, биографияРежиссер: Дэвис ГуггенхаймПеревод: многоголосый любительский (OMSKBIRD)Язык озвучки: русскийСубтитры: русские (forced + full, APTV+, Яна Смирнова), украинские, английские (full + SDH), эстонские, латвийские, литовскиеПродолжительность: 01:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529B9113CE670F18E0CB0428DA8ECF9F5AB87AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 780703   (198272) от 19.05.2023
-
-Маршал Василевский (2012) IPTVRip
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработанные им военные операции до сих пор считаются блестящими. С одной стороны, он руководил миллионной армией, с другой - был спокойным и глубоко верующим человеком. На самом деле - он не собирался связывать свою судьбу с армией. Сын приходского священника и сам закончивший православную семинарию мечтал стать агрономом. Но Первая мировая война резко поменяла (   Читать дальше...   )Жанр: Документальный, биография, история, войнаПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612A042E1E1438DBBEF8FBDEDF2676FC8674AA3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628310   (198268) от 19.05.2023
-
-Великаны планеты / Big Beasts (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал-путешествие рассказывает о самых больших представителях животного мира, обитающих на планете Земля – от ледяных полюсов до влажных тропиков. Быть гигантом не так-то просто, потому что жизнь больших зверей сопряжена с неменьшими проблемами и трудностями.Производство: Великобритания, Plimsoll ProductionsЖанр: документальный, природа, флора, фаунаРежиссер: Дэвид ДжонПеревод: одноголосый профессиональный (Iyuno-SDI Group)Язык озвучки: русскийСубтитры: русские (Forced, Full, SDH), английские (Full, SDH), иврит, украинскиеПродолжительность: серии ~00:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0076538BE3E0E35E0E5B305BFF1B4B897E25810C
 ```
 
 https://mybot314.ru/tekegram_catalog/

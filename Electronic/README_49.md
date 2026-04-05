@@ -1,3 +1,61 @@
+###  Публикация: 1482665   (1007471) от 09.07.2021
+
+VA - Genome (2021) Point Source Electronic Arts [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Glitch, Abstract, Experimental>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Testube - Suction Pore (03:43)
+ 02. tokee - Happiness (04:29)
+ 03. proswell - support local dsp (05:29)
+ 04. Sytrjv - Hack Scribble (02:17)(   Читать дальше...   )Жанр: IDM, Glitch, Abstract, ExperimentalПродолжительность: 01:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6A39640AE41ABE99F11CF495D87E9E08A70C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482680   (1007464) от 09.07.2021
+
+Eluvium - For Thousands Of Miles (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open (06:53)
+ 02. Currents (07:08)
+ 03. Movements (04:13)
+ 04. Small Positives (05:28)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247A035CDC591A7D47D8AD15805E7357240C42F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482674   (1007460) от 09.07.2021
 
 Chase Dobson - perpetual motion (2021) c.db.sn [FLAC 2.0|48/24|tracks|WEB-DL] <Dub Techno, Techno>
@@ -6,7 +64,7 @@ Chase Dobson - perpetual motion (2021) c.db.sn [FLAC 2.0|48/24|tracks|WEB-DL] <D
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007460.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Robert Hood - The Blueprint EP (2021) Rekids [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007459.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Fractal - A Unique Hybrid (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007450.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Fractal - Human Error (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-DL] 
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007449.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Vocal Bliss Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007444.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007340.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ The Tin Box - Discography 14 Releases (2015-2021) Audiobulb Records, Hibernate R
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007309.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ Wil Bolton (aka CHEjU) - Discography 30 Releases (2010-2021) [FLAC|Lossless|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007232.jpg" />
 </div>
 
 
@@ -233,7 +291,7 @@ This Morn' Omina - Discography 23 Releases (1997-2021) Ant-Zen [FLAC|Lossless|tr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007212.jpg" />
 </div>
 
 
@@ -262,7 +320,7 @@ Airto - Eighteen Things I've Never Imagined (2018) Monumental Netlabel [FLAC|Los
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007197.jpg" />
 </div>
 
 
@@ -291,7 +349,7 @@ Baba Gnohm - Forgotten Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007195.jpg" />
 </div>
 
 
@@ -319,7 +377,7 @@ Dev Sk - This is my [peE]P (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007192.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ VA - Retro Active 1-7 (Rare & Remixed) (2004-2010) [FLAC|Lossless|image + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007120.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Yimino - Discography 13 Releases (2003-2021) Ominim Records [FLAC|Lossless|track
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007111.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ Dewtone Recordings - Label-Pack 56 Releases (2011-2021) [FLAC|Lossless|WEB-DL|tr
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007061.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ Jim Brickman - Jim Brickman’s Piano Bar: 30 Love Songs Of The 50s and 60s (202
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007008.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ Lucrecia Dalt - Discography 19 Releases (2011-2021) Human Ear Music, Pruna Recor
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006971.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Bloko Ono - Kev’s Dead (2021) Detroit Underground [FLAC|Lossless|WEB-DL|tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006914.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ Richie Hawtin (Plastikman, F.U.S.E., Concept 1, Circuit Breaker, Forcept 1, Robo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006806.jpg" />
 </div>
 
 
@@ -548,7 +606,7 @@ BLNDR - Callopsis (2021) Kizen Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006785.jpg" />
 </div>
 
 
@@ -577,7 +635,7 @@ Blochemy - Discography 7 Releases (2013-2021) CleanError, SunSeaSky [FLAC|Lossle
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006749.jpg" />
 </div>
 
 
@@ -606,7 +664,7 @@ Freeform | Simon Pyke - Discography 40 Releases (1995-2021) Warp Records, Freefa
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006720.jpg" />
 </div>
 
 
@@ -635,7 +693,7 @@ Cignol | Dr Nol - Discography 32 Releases (2010-2021) Alphabet Set, Furthur Elec
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006608.jpg" />
 </div>
 
 
@@ -664,7 +722,7 @@ B12 | Redcell (Michael Golding & Steven Rutter) - Discography 45 Releases (1992-
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006590.jpg" />
 </div>
 
 
@@ -678,61 +736,6 @@ B12 | Redcell (Michael Golding & Steven Rutter) - Discography 45 Releases (1992-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0062970CE8C131718EC5E99D3CF3D69699E1EA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156829   (1006562) от 15.07.2021
-
-Glacial Movements Records - Label-Pack 49 Releases (2006-2021) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Drone, Dark Ambient, Dub Techno, Experimental, Minimal>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Aerial View (01:05:07)Жанр: Ambient, Drone, Dark Ambient, Dub Techno, Experimental, Minimal •Продолжительность: 45:05:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D841A64E5959D59FB43C5A9AAACFBCE010B41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483854   (1006532) от 16.07.2021
-
-Conforce - Wavetable (2021) Sungate [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kawai (06:17)
- 02. Wave Trip (07:00)
- 03. Blofeld (06:53)
- 04. Richocet (05:57)Жанр: Techno, Deep TechnoПродолжительность: 00:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D6FA052638630F775A483255290F88482D5569
 ```
 
 https://mybot314.ru/tekegram_catalog/

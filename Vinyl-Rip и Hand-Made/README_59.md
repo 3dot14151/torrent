@@ -1,3 +1,38 @@
+###  Публикация: 738801   (149897) от 26.12.2013
+
+Оркестр Олега Лундстрема - В сочных тонах, В наше время (1983) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Big Band, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149897.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сочных тонах 1
+1. Блюз в до мажоре (C-jam Blues) - D. Ellington  8:50
+2. Звёздная пыль (Stardust) - H. Carmichae  4:50
+3. В сочных тонах (In A Mellotone) - D. Ellington  6:04
+В сочных тонах 2
+1. Четыре брата (Four Brothers) - J. Giuffre  2:36
+2. Стелла при свете звезд (Stella By Starlight) - V. Young  8:20
+3. Четыре плюс два (Four Plus Two) - O. Nelson  7:30
+В наше время 1
+1. Любви дороги (Love Roads) - О. Лундстрем  5:03(   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706CA4AE7C19AF2009643FA543D803E0B5AD08A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271128   (149848) от 23.12.2018
 
 Mariah Carey - Dance Remixes '99 (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, House>
@@ -6,7 +41,7 @@ Mariah Carey - Dance Remixes '99 (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149848.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ Supertramp - Crime Of The Century (1974) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149756.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Warfect - Studio Albums (4 releases) (2009-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149430.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ VA - Christmas Country By Country Music Stars 1982 - 2016 (2020) Unofficial Rele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149216.jpg" />
 </div>
 
 
@@ -122,7 +157,7 @@ Veli-Matti Jarvenpaa - Sarkijarven Bolero (1992) [FLAC 2.0|48/24|image+.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148732.jpg" />
 </div>
 
 
@@ -151,7 +186,7 @@ Fine Young Cannibals - Fine Young Cannibals (1985) [FLAC 2.0|48/24|image+.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148714.jpg" />
 </div>
 
 
@@ -180,7 +215,7 @@ Cliff Richard - The Best Of... (unknown) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148620.jpg" />
 </div>
 
 
@@ -209,7 +244,7 @@ Joanne Shaw Taylor - Reckless Heart (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147033.jpg" />
 </div>
 
 
@@ -238,7 +273,7 @@ Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146511.jpg" />
 </div>
 
 
@@ -267,7 +302,7 @@ VA - Песни из телефильма ''Тайна Снежной Корол
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146183.jpg" />
 </div>
 
 
@@ -296,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146130.jpg" />
 </div>
 
 
@@ -325,7 +360,7 @@ Vince Neil - Exposed (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Hard Rock, Glam Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146041.jpg" />
 </div>
 
 
@@ -354,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145212.jpg" />
 </div>
 
 
@@ -383,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144425.jpg" />
 </div>
 
 
@@ -412,7 +447,7 @@ VA - The Civil War - Original Soundtrack Recording. Traditional American Songs A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144407.jpg" />
 </div>
 
 
@@ -441,7 +476,7 @@ Opeth - Still Life (1999) Reissue 2012, Peaceville [FLAC|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142479.jpg" />
 </div>
 
 
@@ -470,7 +505,7 @@ VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142464.jpg" />
 </div>
 
 
@@ -499,7 +534,7 @@ Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142401.jpg" />
 </div>
 
 
@@ -528,7 +563,7 @@ The Pretty Reckless - Death by Rock and Roll (2021) [DSD128 2.0|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141809.jpg" />
 </div>
 
 
@@ -557,7 +592,7 @@ Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141802.jpg" />
 </div>
 
 
@@ -586,7 +621,7 @@ Soulfly (Max Cavalera; Sepultura) - Studio Albums (12 releases) (1998-2022) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141592.jpg" />
 </div>
 
 
@@ -615,7 +650,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141203.jpg" />
 </div>
 
 
@@ -650,7 +685,7 @@ Leonard Cohen - Thanks for the Dance (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140982.jpg" />
 </div>
 
 
@@ -679,7 +714,7 @@ Opeth - Blackwater Park (2001) Reissue, 2010, Music On Vinyl,  Sony Music Entert
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140599.jpg" />
 </div>
 
 
@@ -708,7 +743,7 @@ VA - Новогодняя Дискотека. Выпуск 1 (1998) [FLAC 2.0|48
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140587.jpg" />
 </div>
 
 
@@ -722,35 +757,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8DE0B547A24B3D13FFC667C536121492C55DC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272890   (140396) от 29.12.2018
-
-Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock And Roll (3:57)
-02. Celebration Day (3:38)
-03. Black Dog (3:45)
-04. Over The Hills And Far Away (6:16)(   Читать дальше...   )Жанр: RockПродолжительность: 02:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD99A40670FB185F5F35388448C365CC9DCA6CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

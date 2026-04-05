@@ -1,3 +1,56 @@
+###  Публикация: 1254503   (373374) от 14.10.2018
+
+Мой зверинец (1907) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы и стихи для детей младшего школьного возраста.Жанр: Детская проза. Стихи.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B8B81A5ED245FF455918388C6243588237C949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069571   (373350) от 04.11.2016
+
+Сара Джордан, Дэвид Уфберг | Беременность. Руководство пользователя. Основная информация, рекомендации по устранению неполадок, советы будущим родителям (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Планируете завести ребенка или уже "в процессе"? Вас ждет удивительное приключение под названием "беременность" - чудо создания новой жизни! Вы будете с замиранием сердца прислушиваться к движениям вашего малыша и вряд ли сможете сдержать слезы, когда впервые увидите его на УЗИ.
+И хотелось бы, конечно, чтобы вашу эйфорию не подпортили разного (   Читать дальше...   )Жанр: Литература для родителейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8723947F8186F8DE686344B0554B784B7F4D99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254501   (373342) от 14.10.2018
 
 Веселый театр "Петрушка" (1908) [PDF]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373342.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373341.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373339.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373334.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373333.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373332.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373331.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373329.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373328.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373324.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373197.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373195.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373132.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373113.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373089.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372996.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372882.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ C.В. Михалков, А.С. Пушкин, Б.С. Житков, Шарль П�
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372880.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372754.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372587.jpg" />
 </div>
 
 
@@ -542,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372555.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372526.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372325.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ Dorling Kindersley | Растения. Наглядный словарь (2000) 
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372320.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ Dorling Kindersley | Растения. Наглядный словарь (2000) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D42F1F47B10EFFD09176D7C075FAFD25A4967CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950170   (372202) от 25.10.2015
-
-Dorling Kindersley | Человек. Наглядный словарь (1996) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загляните внутрь человеческого организма! Эта книга рассказывает о строении и функциях внутренних органов, скелета, мозга, о тканях, клетках и многом другом. Около 3000 специальных терминов. Более 200 поразительных фотографий и рисунков. Детальное изображение всех систем и структур организма. Совершенно новый тип словаря. В Наглядном словаре можно своими глазами (   Читать дальше...   )Жанр: Научно-познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97627E43BDD93FD71EA1717B5E29BDE3A35638E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950242   (372179) от 25.10.2015
-
-Жан-Клод Корбей, Арман Аршамбо | Пятиязычный визуальный словарь / The Firefly Five Language Visual Dictionary (2009) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беспрецедентный по обилию информации и деталям, "The Firefly Five Language Visual Dictionary" содержит 6.000 цветных иллюстраций и 35.000 терминов на каждом из пяти европейских языков. Каждое ключевое слово или фраза связаны с иллюстрацией, которая делает перевод быстрым и точным.Жанр: Научно-познавательная литература для детейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5087C75DA4F61907429FF6C8A068F66D801A81CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

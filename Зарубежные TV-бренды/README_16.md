@@ -6,7 +6,7 @@ Nat Geo Wild: Дикие острова: Невиданные острова / U
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869825.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Города живые и мёртвые. Молога - Мышки�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869666.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869506.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869382.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Трагедия близнеца Титаника / Titanic's Tragic Twin:
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868533.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Строительство небоскреба "Шард" / The Tall
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867693.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867540.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BBC. Точность и погрешность измерений / Precision: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866524.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866219.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865954.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery. Города живые и мёртвые. Губаха HDTVRip [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865925.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Discovery. Города живые и мёртвые. Аксай HDTVRip [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865918.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Animal Planet:Дикие и опасные. Нападение леопарда 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865572.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NG: Суперспособности животных / Animal Superpowers (2012
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864413.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery. Города живые и мёртвые. Совза - Вытегр�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864261.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip (1-3 с
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864193.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ History Channel. Мифы и правда о Карле Великом / Karl de
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864186.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864180.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863435.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) BDRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862538.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862148.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Viasat History: Тени средневековья / Medieval Dead (2013-2016) 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860319.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ History Channel. Ланкастер на войне / The Lancaster at War (2009
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858978.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858771.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858653.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Discovery: Самогонщики (серии 1-6 + спецвыпуск) / Disc
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858526.jpg" />
 </div>
 
 

@@ -1,3 +1,133 @@
+###  Публикация: 1686620   (126448) от 23.12.2023
+
+Отступники / The Renegades (1912) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джим Карсон, старатель, и его хорошенькая жена поселяются в хижине на склоне горы недалеко от своего участка. У Джима вспыльчивый характер, который причиняет страдания его жене, но наступает день, когда она больше не может терпеть его жестокость и решает уйти от него. Она собирает кое-какие вещи и собирается уйти, когда молодой старатель в поисках воды останавливает (   Читать дальше...   )Производство: США, Lubin Manufacturing CompanyЖанр: короткометражный, драма, вестерн, немое киноРежиссер: нет сведенийАктеры: Эдгар Джонс, Клара Уильямс, Ferdinand Tidmarsh, Гарри Бергер, Ed HeptenstallПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:051E8B4B6FB4340236936987B8712964FBB638E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686849   (126223) от 24.12.2023
+
+Почему убивают судей / Perche si uccide un magistrato (1974) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Режиссёр Джакомо Соларис выпустил фильм о судье, который слишком много знал, потому что дружил с мафией, и которого поэтому убивают. Возмущённый прокурор требует, чтобы фильм запретили, но его тоже убивают. Режиссёр понимает, что на ход дела влияет кто-то сверху... Далее начинают погибать его друзья...Производство: Италия, Capital, Rizzoli Film S.p.a.Жанр: драма, криминалРежиссер: Дамиано ДамианиАктеры: Франко Неро, Франсуаза Фабиан, Пьерлуиджи Апра, Джанкарло Бадесси, Эннио Бальбо, Лучано Катеначчи, Джорджио Чериони, Тано Чимароза, Мико Кундари, Ева ЧемерисПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянскийСубтитры: русскиеПродолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034A0E7B750BD2C0D15CA1DD825C3B0D5992DD46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686944   (126204) от 24.12.2023
+
+Наша банда. Старый серый конь / Our Gang. The Ol' Gray Hoss (1928) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некогда бравый брандмейстер постарел и был списан на пенсию. Где и живет не очень весело и, видимо, не очень богато. Во всяком случае, он подрабатывает извозом. На стареньком коне, который тоже был списан из пожарной команды по возрасту. Но и тут не все ладно. Прогресс неумолим, и старика с его маршрута вытесняет таксист на новеньком ФордЕ. Банда с обостренным чувством (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джин Дарлинг, Аллен ’Фарина’ Хоскинс, Бобби «Уизер» 'Хатчинс, Мэри Энн Джексон, Гарри Спир, Pete the Pup, Jimmy Farren, Честер А. Бачман, Эд БранденбургПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9EE5CE387FE48B96D5D44F033A1AAC9B03E3DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823778   (126092) от 13.10.2025
+
+Семь лиц доктора Лао / 7 Faces of Dr. Lao (1964) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый китаец приезжает в аризонский город Абалоун и изменяет его жизнь навсегда. Жители города видят свои отражения в зеркале загадочного цирка мифических существ доктора Лао.Производство: США / George Pal ProductionsЖанр: фэнтези, детектив, вестернРежиссер: Джордж ПалАктеры: Тони Рэндалл. Барбара Иден, Артур О’Коннелл, Джон Эриксон, Ной Бири мл., Ли Патрик, Минерва Урекал, Джон Кволен, Фрэнк Крейг, Пегги РиПеревод: Многоголосый любительский (Вячеслав Саввов, Татьяна Дуброва, Ангелина Нельга)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2C31BCE9A902463F9F7557A7954062A5AA9C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823667   (125925) от 12.10.2025
+
+Во всём виноват Рио / Blame It on Rio (1984) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое друзей Виктор и Мэтью со своими дочерями отправляются отдохнуть в Рио. Колдовская атмосфера Рио, словно пропитанная эротикой и томными вожделениями, застаёт их врасплох. Виктор охотится за каждой женщиной, а Мэтью, верный своей супруге, скромно сопровождает его дочь Дженнифер в её развлечениях. Но возбуждающие бразильские ритмы и откровенные танцы на лунном (   Читать дальше...   )Производство: США / Sherwood, 20th Century FoxЖанр: мелодрама, комедияРежиссер: Стэнли ДоненАктеры: Майкл Кейн, Джозеф Болонья, Валери Харпер, Мишель Джонсон, Деми Мур, Жозе Левгой, Лупе Джильотти, Майкл Мена, Тесси Калладу, Ана Лусия ЛимаПеревод: профессиональный многоголосый (5 канал), профессиональный  двухголосый (HTB+), авторский (AVO Леонид Володарский; Андрей Гаврилов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D172ED455E33CE064A9AF4EC55216B07C41C1A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823723   (125883) от 12.10.2025
 
 Так хочет леди / The Lady Is Willing (1942) BDRip [H.264] [AVO]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125883.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125858.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125699.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125427.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125336.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125178.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125006.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124880.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124779.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124732.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124694.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124678.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124572.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124283.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124210.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124190.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123986.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123958.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123808.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123671.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123552.jpg" />
 </div>
 
 
@@ -541,138 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:772AE9E5639267D06F27B2AA447FDC219437768F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691110   (123512) от 10.01.2024
-
-Другой / Der Andere (1913) WEBRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один и самых первых фильмов о таком явлении, как расщепление сознания, это когда в одном человеке находятся две (или больше) вполне самостоятельные, непересекающиеся личности. Лично я во всю эту ерундовину не верю, но тем не менее...
-Во время беседы с друзьями известный берлинский юрист доктор Геллер скептически высказывается об идеях о раздвоении личности: он никогда (   Читать дальше...   )Производство: Германия, Vitascope GmbHЖанр: короткометражный, триллер, немое киноРежиссер: Макс МакАктеры: Альберт Бассерманн, Эммерих Ханус, Nelly Ridon, Ханни Вайсе, Leon Resemann, Otto Colott, Пауль Пассарге, Willy LenglingПеревод: немой с интертитрамиСубтитры: немецкие (интертитры), русские отдельным файломПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEDDEF190585C0F9A75998DBC7825743DA84ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691066   (123506) от 10.01.2024
-
-Шерлок Холмс в Нью-Йорке / Sherlock Holmes in New York (1976) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вольная интерпретация приключений Шерлока Холмса и доктора Ватсона в вечном противостоянии их и профессора Мориарти... Мориарти присылает Холмсу театральные билеты, однако сыщик полагает, что они отправлены певицей мюзик-холла Айрин Эдлер, в которую Шерлок влюблён вот уже много лет. Уверенный, что Айрин в опасности, он отправляется за океан в сопровождении своего (   Читать дальше...   )Производство: США / 20th Century Fox TelevisionЖанр: криминал, детективРежиссер: Борис СагалАктеры: Роджер Мур, Джон Хьюстон, Гиг Янг, Шарлотта Рэмплинг, Леон Эймс, Дэвид Хаддлстон, Джеки Кугэн, Джон Эбботт, Патрик Макни, Синье Хассо, Мария Грим, Уильям Бенедикт, Барджори Беннетт, Пол Соренсен, Джон СтэдменПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB101F58D366B370EF5729725095F1E889A6B1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689435   (123428) от 11.01.2024
-
-Неизвестный мастер / Tuntematon mestari (2018) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожилой арт-дилер Олави владеет небольшим художественным салоном. Покупателей все меньше - годы берут своё. Лишь изредка удаётся купить в расположенном по соседству аукционном доме «Дубровский» интересную вещицу и перепродать с небольшой наценкой. Олави мечтает, чтобы в его руки попал нераспознанный шедевр искусства, который можно продать с большой выгодой и обеспечить (   Читать дальше...   )Производство: Финляндия / Making Movies Oy, MamocitaЖанр: драмаРежиссер: Клаус ХярёАктеры: Хейкки Ноусилайнен, Пирьо Лонка, Амос Брозерус, Стефан Саук, Хенрикки Хаависто, Яани Кекалайнен, Юусо Куусисто, Кристоффер Мёллер, Юха Пиханен, Иро РиталаПеревод: любительский одноголосый (porcellus)Язык озвучки: русский, финскийСубтитры: английскиеПродолжительность: 01:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0145B66D6992E773C187C6DED53C52D6950BE23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691489   (123258) от 12.01.2024
-
-Доказательство съемки / The Evidence of the Film (1913) WEBRip [color]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123258.jpg" />
-</div>
-
-
-###  Подробнее
-
-О-о-очень авнтюрный и увлекательный фильм. История, где мы узнаем, что синематограф - это величайшее чудо двадцатага века, пригоден не только для развлечения скучающих повес и легкомысленных барышень, но и для весьма серьезных дел, например в сыскном деле и вообще в криминалистике.
-Мальчик-посыльный ошибочно обвинён в краже облигаций на сумму в 20 тысяч долларов. (   Читать дальше...   )Производство: США, Thanhouser Film CorporationЖанр: короткометражный, криминал, немое киноРежиссер: Лоуренс Марстон, Эдвин СанхаузерАктеры: Уильям Гарвуд, Мари Элайн, Флоренс Ла Бади, Райли Чамберлен, Миньон АндерсонПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC19D0B9BCA7A4352171915CCB6F3E716FFF3757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691778   (123094) от 13.01.2024
-
-Старый Скрудж / Old Scrooge (1913) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам повести Чарльза Диккенса «Рождественская песнь». История о скупом и эгоистичном ростовщике Эбенезере Скрудже. Сухом, черством и признающим в жизни только одну ценность - золото. И даже Рождество, по его мнению, это просто надувательство. И вот в сочельник к нему приходит..., кто бы вы думали? Дух бесплотный! Приходит и начинает его убеждать, (   Читать дальше...   )Производство: Великобритания, Zenith Film CompanyЖанр: короткометражный, фэнтези, драма, немое киноРежиссер: Leedham BantockАктеры: Сеймур Хикс, William Lugg, Leedham Bantock, J.C. Buckstone, Dorothy Buckstone, Леонард Кэлверт, Осборн Эдейр, Adela Measor, Ellaline TerrissПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596C4ECE35133D855C8151617EEFA0309CC9EA8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

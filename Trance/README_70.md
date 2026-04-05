@@ -1,3 +1,61 @@
+###  Публикация: 1783135   (25728) от 04.03.2025
+
+VA - The Best of Sounemot 2024 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A L O N 3 L Y & G-Monty - Garden Of Life (Original Mix) [6:55]
+02. AlphaCube vs Dreamira & Tsuki Shizumutoki - Revive Shift (Dreamskies Mashup) [7:29]
+03. DreamSkies & GeorD - The Death Of A Star (Original Mix) [6:45]
+04. Elgfrothi vs Dreamlife vs SounEmot & Grande Piano - Ephemeral Past (Dreamskies Mashup) [5:38](   Читать дальше...   )Жанр: TranceПродолжительность: 02:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C970E86DD787B81C685D10BAA88DB869F5310364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784950   (24781) от 13.03.2025
+
+VA - Black Hole Trance Music 03-25 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. nilsix, Orjan Nilsen & Mark Sixma - Untold (Extended Mix) (04:14)
+02. Mads Arp & Julie Harrington - Slow It Down (Daniel Wanrooy Extended Remix) (06:42)
+03. Driftmoon - Moonstruck (Extended Mix) (06:38)
+04. Dennis Sheperd & LK - Resonance (Protoculture Extended Remix) (06:12)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB65ABE6540D11807142D883B81405FEF73EA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786219   (24138) от 19.03.2025
 
 VA - Keep It Trance Vol. 27 (2025) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Keep It Trance Vol. 27 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24138.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - A State of Trance 2025 (Mixed by Armin van Buuren) (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23205.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Paul van Dyk - This World Is Ours (2025) [MP3|320 Kbps] <Trance, Progressive, El
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21728.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - A State of Trance - Classics Top 10, Vol. 1 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21727.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Black Hole Trance Music 04-25 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20907.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Rated Revisited Vol. 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20694.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - 12 Years Of Suanda Music (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20386.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - A State of Trance - Classics Top 10, Vol. 2 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20374.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Deep Trance Showcase V (2025) [MP3|320 Kbps] <Trance, Progressive, Electron
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19556.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - The Sound of 2025, Chapter 4: Paris (Day Mix) (2025) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19553.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - A State of Trance - Classics Top 10, Vol. 3 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18517.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Roman Messer - Serendipity (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18303.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 1 (2025) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18221.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Black Hole Trance Music 05-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18205.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Giuseppe Ottaviani - Eight (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18192.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Trance: The Vocal Session 2025 Playlist by ZYX Music (2025) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18090.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Trance Spring 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17661.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - A State of Trance - Classics Top 10, Vol. 6 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16895.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - In Search Of Sunrise 21 (Mixed by Markus Schulz) (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16872.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - D.Trance 110 (incl. EYE-Trance 18) (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16834.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Top 10 May 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16744.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Nothing But... Trancetopia, Vol. 29 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16464.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - 25 Years Of Anjuna Mixed By ANUQRAM (2025) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15731.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Top 11 March 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15638.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Top 11 March 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31D1D749DCC9FF5903369152535C0C04F702ABC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802269   (14394) от 16.06.2025
-
-VA - Black Hole Trance Music 06-25 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christina Novelli & Reigns - While My Angel Sleeps (Johan Gielen presents Airscape Extended Remix) (04:52)
-02. XiJaro & Pitch & Susana - Beauty In My Scars (Extended Mix) (06:57)
-03. Cosmic Gate & Diana Miro - Hear Me Out (Hel:sløwed Extended Remix) (06:31)
-04. Solarstone - shivelight (12”) (07:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26328EE99AF25863827F9F376EF31AB481E82122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804073   (13273) от 27.06.2025
-
-Armin van Buuren - Breathe (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Sam Gray - Dream A Little Dream (Extended Mix) [5:05]
-02. Armin van Buuren feat. JAI RYU - Let It Be For Love (Extended Mix) [5:29]
-03. Armin van Buuren feat. Louis III - Part Of Me (Extended Mix) [5:21]
-04. Armin van Buuren & David Guetta feat. Aldae - In The Dark (Extended Mix) [3:54](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3657B283B1EF5A5758CE7300385F93A4570046AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,88 @@
+###  Публикация: 1453541   (1026957) от 11.03.2021
+
+Формула-E 2021. Превью сезона (2021) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сезон 2021 года Чемпионата мира «Формулы E» — 7-й сезон чемпионата Формулы Е, турнира для автомобилей с электроприводом, признанный международной автомобильной федерацией как высший класс электрических гоночных автомобилей с открытыми колесами.
+Сезон 2020–2021 года станет первым сезоном проведённым в статусе чемпионата мира (под эгидой ФИА)Телекомпания: Eurosport HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA8C7DDA0CECCD64F787FDC8116374EA354D4B87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453548   (1026950) от 11.03.2021
+
+Серия Кубков NASCAR 2021. 2-й Этап. Дайтона 253. Гонка / NASCAR Cup Series 2021. Round 2. O'Reilly Auto Parts 253 (2021) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2021 года.
+21 февраля 2021 года
+2-й Этап. Дайтона (O'Reilly Auto Parts 253). Дайтона-Бич (штат Флорида, США).
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D533768C9F1676451C92869CA61A50FA6176F485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453602   (1026943) от 11.03.2021
+
+Формула-E 2021. Гран-при Эд-Диръия. 1-2 Этап / Formula E World Championship 2021. Diriyah E-Prix. Rounds 1-2 (2021) IPTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026943.jpg" />
+</div>
+
+
+###  Подробнее
+
+7-й сезон Чемпионата мира Формулы E 2021 года, среди автомобилей с электроприводом.
+1-й Этап:
+25 февраля 2021 года
+Практика 1(   Читать дальше...   )Телекомпания: Setanta Sports HDЖанр: СпортЯзык озвучки: Русский, Английский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:37:52 - 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD47335E841F4C63E07E81AEAA8D9F6FF516708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453619   (1026935) от 11.03.2021
 
 Формула-E 2021. 1-й Этап. Гран-при Эд-Диръия. Гонка / Formula E World Championship 2021. Round 1. Diriyah E-Prix. Race (2021) IPTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +91,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026935.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026780.jpg" />
 </div>
 
 
@@ -64,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026770.jpg" />
 </div>
 
 
@@ -93,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026767.jpg" />
 </div>
 
 
@@ -122,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026260.jpg" />
 </div>
 
 
@@ -148,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026127.jpg" />
 </div>
 
 
@@ -174,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025994.jpg" />
 </div>
 
 
@@ -203,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025990.jpg" />
 </div>
 
 
@@ -232,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025979.jpg" />
 </div>
 
 
@@ -261,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025128.jpg" />
 </div>
 
 
@@ -287,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025122.jpg" />
 </div>
 
 
@@ -313,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024078.jpg" />
 </div>
 
 
@@ -339,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023692.jpg" />
 </div>
 
 
@@ -365,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023690.jpg" />
 </div>
 
 
@@ -391,7 +476,7 @@ MotoGP. Этап 01. Гран-При Катара. Гонка (28.03.2021) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023618.jpg" />
 </div>
 
 
@@ -417,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022826.jpg" />
 </div>
 
 
@@ -443,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022805.jpg" />
 </div>
 
 
@@ -469,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022800.jpg" />
 </div>
 
 
@@ -495,7 +580,7 @@ MotoGP. Этап 02. Гран-При Дохи. Гонка. (04.04.2021) WEBRip [
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022539.jpg" />
 </div>
 
 
@@ -521,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021625.jpg" />
 </div>
 
 
@@ -547,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021581.jpg" />
 </div>
 
 
@@ -573,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021441.jpg" />
 </div>
 
 
@@ -599,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021221.jpg" />
 </div>
 
 
@@ -610,86 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96FEC2B892046C0D7029C5116715D1677D0100FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463277   (1020669) от 17.04.2021
-
-MotoGP. Этап 03. Гран-При Португалии. Квалификация. (17.04.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020669.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 апреля 2021, суббота. 16:10 МСК.
-Этап 3, Портиман. Гран-при Португалии. КвалификацияЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 01:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9173AE4992AA7C60C04CF926B43D63893EFD761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412982   (1020536) от 17.04.2021
-
-Информационно-аналитическая программа об авто- и мотоспорте от телеканала A21 Network - Fastline (2020) WEB-DL [H.264/720p] [Обновляемая]
-
->>След.
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-аналитическая программа об авто- и мотоспорте от телеканала: A21 Network Russian Motorsport TelevisionТелекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: ~45 минут выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797C7F011FF41BD24A463613713C95089182BC5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463537   (1020411) от 18.04.2021
-
-MotoGP. Этап 03. Гран-При Португалии. Гонка (18.04.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020411.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 апреля 2021, воскресенье. 15:00 МСК.
-Этап 3, Портиман. Гран-при Португалии. ГонкаЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Евгений Маслёнков)Субтитры: ОтсутствуютПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546EA5A38F7EC1C25B1154C32CD02F893F4B03DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

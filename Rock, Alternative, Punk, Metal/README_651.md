@@ -1,3 +1,38 @@
+###  Публикация: 558722   (413889) от 10.10.2012
+
+Чайф и  Ансамбль Изумруд - Изумрудные хиты (2005) [FLAC|Lossless]<Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_413889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вольный ветер
+02. Матаня (Среднеуральская)
+03. За полшага
+04. Африка
+05. Аргентина - Ямайка 5:0
+06. Сальто назад
+07. Всему своё время
+08. Никто не услышит (Ой-йо)
+09. Пиво
+10. С войны(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412890   (413838) от 01.10.2020
 
 Carach Angren - Franckensteina Strataemontanus (2020) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
@@ -6,7 +41,7 @@ Carach Angren - Franckensteina Strataemontanus (2020) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413838.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ Dawnlight - Until The Dark Sun Rises (2019) [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413837.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Legion Of The Damned - Malevolent Rapture (2006) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413836.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ Fairyland - Osyrhianta (2020) [FLAC|Lossless|tracks + .cue] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413834.jpg" />
 </div>
 
 
@@ -122,7 +157,7 @@ DevilDriver - Dealing with Demons I (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413832.jpg" />
 </div>
 
 
@@ -151,7 +186,7 @@ Heathen - Empire Of The Blind (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413830.jpg" />
 </div>
 
 
@@ -180,7 +215,7 @@ Cyanide Grenade - 2 CD: Quintessence of Death / Kind Of Virus (2017-2020) [FLAC|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413825.jpg" />
 </div>
 
 
@@ -209,7 +244,7 @@ VA - Pure... Rock 'n' Roll (2013) Box Set, 4 CD [FLAC|Lossless]<Rock 'n' Roll, O
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413760.jpg" />
 </div>
 
 
@@ -238,7 +273,7 @@ Bryan Adams - Get Up (2015) [FLAC|image+.cue]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413751.jpg" />
 </div>
 
 
@@ -267,7 +302,7 @@ Corey Taylor - CMFT (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413731.jpg" />
 </div>
 
 
@@ -296,7 +331,7 @@ Robert Plant - Digging Deep: Subterranea (2020) 2xCD [MP3|320 Kbps] <Classic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413730.jpg" />
 </div>
 
 
@@ -325,7 +360,7 @@ Amaranthe - Manifest (2020) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413719.jpg" />
 </div>
 
 
@@ -354,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_413677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_413677.jpg" />
 </div>
 
 
@@ -389,7 +424,7 @@ Amaranthe - Manifest (2020) [MP3|320 Kbps] <Melodic Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413615.jpg" />
 </div>
 
 
@@ -418,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413613.jpg" />
 </div>
 
 
@@ -447,7 +482,7 @@ Jon Lord - 15 альбомов (1971-2010) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_413567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_413567.jpg" />
 </div>
 
 
@@ -481,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413502.jpg" />
 </div>
 
 
@@ -510,7 +545,7 @@ The Joy Formidable - AAARTH (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413500.jpg" />
 </div>
 
 
@@ -539,7 +574,7 @@ Bon Jovi - 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413478.jpg" />
 </div>
 
 
@@ -568,7 +603,7 @@ Robert Plant - Digging Deep: Subterranea (2020) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413475.jpg" />
 </div>
 
 
@@ -597,7 +632,7 @@ Louna - Начало нового круга (2020) [MP3|320 Kbps] <Alternative 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413467.jpg" />
 </div>
 
 
@@ -626,7 +661,7 @@ Bon Jovi - 2020 (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413466.jpg" />
 </div>
 
 
@@ -655,7 +690,7 @@ Lake of Tears - By the Black Sea (2014) Live [FLAC|Lossless|image + .cue] <Goth 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413367.jpg" />
 </div>
 
 
@@ -684,7 +719,7 @@ Metric - Art of Doubt (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413364.jpg" />
 </div>
 
 
@@ -713,7 +748,7 @@ VA - 00s Rock Party (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413189.jpg" />
 </div>
 
 
@@ -727,35 +762,6 @@ VA - 00s Rock Party (2018) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:464C3AEA0518DBD123DB1015426F4F48B9295F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252009   (413078) от 03.10.2018
-
-Король и Шут - Жаль, нет ружья (2002) [FLAC|Lossless|tracks + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Волосокрад (4:27)
- 02. Мёртвый анархист (4:08)
- 03. Смешной совет (4:06)
- 04. Некромант (2:44)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E96E26B479799029AEE1CB65B3DE1ED95DAF91DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

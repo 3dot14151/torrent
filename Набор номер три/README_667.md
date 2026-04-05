@@ -1,3 +1,212 @@
+###  Публикация: 1743964   (46150) от 21.08.2024
+
+Microsoft начала блокировать установку Windows 11 на не соответствующие системным требованиям ПК
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компьютеры, на которые устанавливается Windows 11, должны соответствовать чётким системным требованиям. Однако пользователи смогли найти обходные пути, позволяющие использовать операционную систему на устройствах, которые не соответствуют требованиям Microsoft. Теперь же софтверный гигант начал закрывать лазейки, позволяющие делать это.На момент выхода Windows 11 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239760   (46146) от 21.08.2024
+
+Dead Cells (2017) [Ru/Multi] (1.26.0/dlc) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы выросли на играх в жанре «roguelike»? Стали свидетелем расцвета более простых «roguelite» и их еще более упрощенных версий? Что ж, тогда мы рады представить игру в новом жанре RogueVania, который сочетает в себе черты игры «roguelite» (Rogue Legacy, Binding of Isaac, Enter the Gugneon, Spelunky…) и старых добрых «Метроидваний» вроде Castlevania: Symphony of the (   Читать дальше...   )Тип издания: LicenseРазработчик: Motion TwinЖанр: Экшны, Приключение, RoguelikeЯзык субтитров: Русский, Английский, Французский, Китайский и другиеЯзык интерфейса: Русский, Английский, Французский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF6139C7F5D8639332A14D41FDE507185AB2A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744144   (46051) от 22.08.2024
+
+Корпорация монстров: Disney предлагает стерилизовать детей своим сотрудникам
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46051.jpg" />
+</div>
+
+
+###  Подробнее
+
+В распоряжении американского расследователя Джеймса О’Кифа оказался внутренний документ компании, который доказывает, что Disney финансирует блокаторы полового созревания. Эти таблетки меняют гормональный фон в раннем возрасте. Заодно они негативно влияют и на репродуктивные функции организма.Ранее креативный директор Disney уже заявлял, что студии не хватает разнообразия (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720645   (46048) от 22.08.2024
+
+Oblivion VPN (Unofficial Warp Client) 4 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oblivion VPN — это специальное VPN-приложение, предназначенное для шифрования вашего соединения с использованием технологии Wireguard, а также некоторых полезных настроек для обхода интернет-цензуры.
+В первую очередь создан для подключения к конечным точкам Warp и Psiphon в полностью зашифрованном виде, чтобы избежать цензуры и повысить конфиденциальность пользователей (   Читать дальше...   )Тип издания: FreeРазработчик: Mark PashmfouroushПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FD900AD35B0AB7EF56FF6AB2CC39965758D759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743910   (46026) от 22.08.2024
+
+ChatGPT5: гений логики с душой ребенка
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46026.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале следующего года компания OpenAI представит очередную версию своей крупной языковой модели — ChatGPT5. Ожидается, что новая модель будет способна решать сложные логические задачи и многосоставные проблемы, которые могут требовать знаний, сопоставимых с уровнем человека с докторской степенью. Тем не менее, даже с такими впечатляющими улучшениями, ChatGPT5 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744298   (45956) от 23.08.2024
+
+«Мелодия» снова начнет выпускать пластинки
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старейший в России музыкальный лейбл АО «Фирма Мелодия» снова начнет выпускать виниловые пластинки. Об этом сообщили «Ведомости» со ссылкой на гендиректора Андрея Кричевского.В Новосибирске «Мелодия» запустит завод по производству пластинок. В августе 2024 года компания уже зарегистрировала в ЕГРЮЛе юрлицо АО «Новосибирский завод грампластинок — «Фирма Мелодия» и (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744292   (45921) от 23.08.2024
+
+Британский тинейджер построил первый в мире школьный термоядерный реактор и получил в нём плазму
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Кардиффского колледжа в Великобритании создал первый в мире школьный термоядерный реактор, который смог получить плазму. Самым сложным было убедить учителей в безопасности проекта, когда он пришёл к ним с этим предложением. После полутора лет работы и с затратами чуть выше $10 тыс. проект был воплощён в железе и добыл первую плазму.Школьный инерциальный (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744737   (45852) от 24.08.2024
+
+На АЭС «Аккую» установлен гигантский купол массой 340 т и диаметром 50 м
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45852.jpg" />
+</div>
+
+
+###  Подробнее
+
+На первом энергоблоке АЭС «Аккую» завершили установку в проектное положение нижней купольной части наружной защитной оболочки (НЗО), которая должна обеспечить максимальный уровень безопасности станции.Монтаж крупногабаритной конструкции проходил на высоте 63 м и занял 10 часов. масса монтируемой части составила 340 тонн, диаметр — 50,8 м. Работы вели российские и (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745048   (45843) от 24.08.2024
 
 Total Commander PowerUser v.74 Portable by HA3APET [Ru/En]
@@ -6,7 +215,7 @@ Total Commander PowerUser v.74 Portable by HA3APET [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45843.jpg" />
 </div>
 
 
@@ -32,7 +241,7 @@ Electric Light Orchestra-The Very Best Of (1971-1986) DVD5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45841.jpg" />
 </div>
 
 
@@ -60,7 +269,7 @@ Pink Floyd PULSE (1994) 2xDVD9
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45835.jpg" />
 </div>
 
 
@@ -86,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45829.jpg" />
 </div>
 
 
@@ -113,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45825.jpg" />
 </div>
 
 
@@ -139,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45737.jpg" />
 </div>
 
 
@@ -166,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45732.jpg" />
 </div>
 
 
@@ -192,7 +401,7 @@ GoodbyeDPI 0.2.3rc1 Launcher 8.3 [Ru/En] (Разблокировка YouTube)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45731.jpg" />
 </div>
 
 
@@ -221,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45637.jpg" />
 </div>
 
 
@@ -247,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45531.jpg" />
 </div>
 
 
@@ -273,7 +482,7 @@ Windows 11 PRO 23H2 22631.4037 Update 10 by Ghost Spectre [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45521.jpg" />
 </div>
 
 
@@ -302,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45427.jpg" />
 </div>
 
 
@@ -328,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45420.jpg" />
 </div>
 
 
@@ -354,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45417.jpg" />
 </div>
 
 
@@ -380,7 +589,7 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45415.jpg" />
 </div>
 
 
@@ -406,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45317.jpg" />
 </div>
 
 
@@ -432,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45316.jpg" />
 </div>
 
 
@@ -458,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45310.jpg" />
 </div>
 
 
@@ -469,216 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03A564F4B8AC168F8A6CE18FE8E22A668DBA9652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745448   (45295) от 29.08.2024
-
-Автомобили Tesla начали проезжать на красный свет
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владельцы автомобилей Tesla столкнулись с новой проблемой: их машины иногда проезжают на красный свет. Это происходит из-за ошибок в последней версии программного обеспечения для автономного вождения.Одним из пользователей Reddit, столкнувшимся с этой проблемой, был водитель, который написал: «К счастью, я остановил автомобиль до того, как он проехал на светофоре, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586031   (45206) от 30.08.2024
-
-Flashr 1.8 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flashr – это небольшая, но очень полезная программа, которая позволяет записывать образы Windows на флешку, а также предварительно загружать оригинальные и всегда новые образы Windows с официального сайта Microsoft.
-В отличие от других известных программ со схожим функционалом отличается минималистическим интерфейсом и не требует от конечного пользователя технических (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A3B8E1F25345D0A8B05B6E3C45BD54470F4ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745901   (45199) от 30.08.2024
-
-Биокомпьютер на живых клетках человеческого мозга теперь можно арендовать за $500 в месяц
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания FinalSpark открыла удалённый доступ к своей революционной платформе Neuroplatform, предоставляющей учёным возможность проводить исследования на биокомпьютерах на основе органоидов человеческого мозга. Фактически, теперь по сходной цене можно взять в аренду биологический процессор на базе живых клеток.Neuroplatform — это первая в мире онлайн-платформа, позволяющая (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579369   (45106) от 31.08.2024
-
-Альпарслан: Великие Сельджуки / Alparslan: Buyuk Selcuklu (2022-2023) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-34 (28-61) из 34) AveTurk
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это сериал о султане великих сельджуков. Его зовут Альпарслан. Он второй султан из династии Сельджуков. Сериал покажет ключевые моменты жизни Альпарслана.Производство: Турция / Akli FilmЖанр: драма, военный, историяРежиссер: Седат ИнчиАктеры: Барыш Ардуч, Кайра Забчи, Мехмет Озгюр, Серхат Тутумлуэр, Уйгар Озчелик, Корель Джезавирли, Эрдинч Гюленер, Бора Дженгиз, Ойкю Гюрман, Умут Карадаг и др.Перевод: Двуголосый любительский (AveTurk)Язык озвучки: РусскийПродолжительность: ~02:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F66CBA2F89330268DF055CC5F9BAED1296788CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744438   (45100) от 31.08.2024
-
-WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2024.08.21 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11, 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD977414AA5CE3E94F6DD06E6F2F8597F471C22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746172   (45088) от 31.08.2024
-
-Цукерберг заявил, что администрация Байдена оказала давление на Meta, чтобы тот подверг контент цензуре
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45088.jpg" />
-</div>
-
-
-###  Подробнее
-
-На волне новостей из Парижа, Марк Цукерберг заявил, что администрация Байдена оказывала давление на Meta* с целью «цензурирования» контента о COVID-19 в период пандемии. Заявление было сделано в письме Комитету по судебным делам Палаты представителей США. В письме Цукерберг выразил сожаление о том, что не выступил против давления раньше, а также о ряде решений об (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745994   (45085) от 31.08.2024
-
-Прототип сверхзвукового авиалайнера Boom Supersonic выполнил второй испытательный полёт
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Демонстратор сверхзвукового самолёта XB-1 компании Boom Supersonic выполнил второй испытательный полёт, пишет ресурс New Atlas. 26 августа прототип XB-1 под управлением главного лётчика-испытателя Тристана Бранденбурга (Tristan Brandenburg) в течение 15 минут находился в воздухе над пустыней Мохаве в Калифорнии.Взлетев из аэрокосмического порта Мохаве, прототип XB-1 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746557   (45002) от 01.09.2024
-
-Самая таинственная в мире радиостанция УВБ-76 передала шифр
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основную часть времени станция просто жужжит. Бытует версия, что когда станция передает слова, грядут великие события.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

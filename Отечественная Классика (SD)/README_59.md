@@ -1,3 +1,56 @@
+###  Публикация: 1723331   (56459) от 15.05.2024
+
+Веселые ребята (1934) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная комедия о похождениях жизнерадостного пастуха-музыканта Кости Потехина, которого приняли за модного заграничного гастролера. В одесском мюзик-холле простодушный Костя произвел сенсацию и стал дирижером джаз-оркестра. Его оркестр готовится к выступлению на сцене Большого театра, а вместо репетиций играет на похоронах...Производство: СССР / МосфильмЖанр: мюзикл, комедияРежиссер: Григорий АлександровАктеры: Леонид Утесов, Любовь Орлова, Мария Стрелкова, Мария Иванова, Елена Тяпкина, Федор Курихин, Арнольд Арнольд, Роберт Эрдман, Эммануил Геллер, Николай Отто и другиеПродолжительность: 01:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FB2591D7684D5090989E49F60A10158A2F4C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567320   (56123) от 19.05.2024
+
+Петровка, 38 + Огарева, 6 (1980) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56123.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Пригорской ювелирной фабрике обнаружены крупные хищения социалистической собственности. В Москве совершены два убийства. В Сухуми некто пытается изнасиловать молодую актрису. Казалось бы, что общего между этими преступлениями? Но однажды взаимосвязь проявится - и Костенко срочно вылетит в Сухуми...
+«Огарёва, 6» - продолжение известного детектива «Петровка, 38». (   Читать дальше...   )Производство: : СССРЖанр: детектив, криминалРежиссер: Борис ГригорьевАктеры: Василий Лановой, Георгий Юматов, Евгений Герасимов, Всеволод Кузнецов, Дмитрий Джаияни, Гия Бадридзе, Всеволод Ларионов, Нодар Бекаури, Нодар Мгалоблишвили, Иван Рыжов, Ян Янакиев, Рита ГладункоПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E969248029E37BB36479B6F584C9F7728C24EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692406   (55749) от 22.05.2024
 
 А зори здесь тихие (1972) WEBRip [H.264]
@@ -6,7 +59,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55749.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55586.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55566.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55466.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55347.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55236.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55119.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54699.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53269.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52960.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52553.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52502.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52372.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52363.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51856.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50798.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50306.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50141.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49392.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48963.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48724.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48489.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48185.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47798.jpg" />
 </div>
 
 
@@ -623,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDD79F51C2436A37FC69B3BB2683C7CE52F8CA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739699   (47734) от 05.08.2024
-
-Живые и мёртвые (1963) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналиста Ивана Синцова известие о вероломном нападении нацистской Германии застает во время южного отпуска. Как фронтовой корреспондент он становится свидетелем тяжелых событий первых месяцев войны - многочисленных отступлений 1941 года.
-Это кинокартина, есть знаменитая экранизация романа К. Симонова «о сорок первом страшном и героическом годе». Это одна из первых (   Читать дальше...   )Производство: СССР / МосфильмЖанр: драма, военныйРежиссер: Александр СтолперАктеры: Кирилл Лавров, Анатолий Папанов, Олег Ефремов, Михаил Ульянов, Олег Табаков, Евгений Самойлов, Борис Чирков, Виктор Авдюшко, Алексей Глазырин, Людмила Крылова и др.Продолжительность: 01:32:46 + 01:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75BA2FC8675CDCD58BF29509B61CF411C1170F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741867   (47060) от 12.08.2024
-
-Инспектор уголовного розыска (1971) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дело, которое ведет майор Головко, - ограбление сберкассы. Он, конечно, найдет преступников, потому что в арсенале Головко - самые современные средства криминалистики и такие же ловкие, как он сам, коллеги.
-Но кроме этого, по ходу расследования Головко поможет выбрать верный путь оступившемуся человеку - доброму работяге-шоферу Севе Гринчеву.Производство: СССР / Киностудия им. А.ДовженкоЖанр: криминалРежиссер: Суламифь ЦыбульникАктеры: Юрий Соломин, Евгения Ветлова, Николай Лебедев, Борис Зайденберг, Александр Голобородько, Виктор Мирошниченко, Станислав Бородокин, Александр Мовчан, Владимир Заманский, Герман Качин и др.Продолжительность: 01:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616A30CCD6B7728D78A4E869F8F675AA9D63E0FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ A Way Out (2018) [Ru/En] (1.0.62) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298326.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Outcast - Second Contact (2017) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296601.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296519.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Saint Seiya: Soldiers' Soul (2015) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296446.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Spider-Man: Shattered Dimensions [Ru] (L) 2010 | R.G Игроманы
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294959.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Absolver (2017) [Ru/Multi] (1.27 503/dlc) License GOG [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294462.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Bully (2008) [Ru] (1.2) Repack R.G. UniGamers [Scholarship Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294329.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Tomb Raider I - III (1996-1998) [En] (0.74/1.1/1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292673.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ HellGate: London (2018) [En] (1.2) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292534.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Sunset Overdrive (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290708.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Son of Nor (2015) [Ru/Multi] (1.0.101/dlc) License PROPHET [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289807.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tom Clancy's Splinter Cell Blacklist (2013) [Ru/En] (1.03/dlc) Rip R.G. Revenant
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288887.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Darksiders III / Darksiders 3 (2018) [Ru/Multi] (215465/dlc) SteamRip =nemos= [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288747.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [Ru/Multi] (1.1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287205.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Grand Theft Auto 4 [Ru/En] (RePack) 2008 | R.G. ReCoding
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287039.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ State of Mind (2018) [Ru/Multi] (1.2.24280) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285454.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Enclave (2003) [Ru/Multi] (1.0.0.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283359.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ The Ritual on Weylyn Island (2015) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283272.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Batman Anthology (2010-2015) [Ru/En] Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281846.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Assassin’s Creed Liberation HD (2014) [Ru] (1.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281620.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.237.6/dlc) License CPY [Croft E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280485.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Freedom Fighters (2003) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279900.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ The Bureau: XCOM Declassified (2013) [Ru/En] (1.0.0.2177831/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279775.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adam Waste (2017) [Ru/Multi] (1.0) License SKIDROW [Episode 1]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279757.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279755.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Control (2019) [Ru/En] (1.04.02/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278347.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1417443   (357353) от 20.10.2020
+
+Fishing: North Atlantic (2020) [Ru/Multi] (0.9.221.3829) Repack xatab
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение популярной игры-симулятора Рыбалка: Баренцево море приглашает Вас снова надеть фуражку капитана: исследуйте большой океан Новой Шотландии, испытайте свои силы в совершенно новых методах рыбалки и с удовольствием пользуйтесь огромным разнообразием высокодетализированных кораблей в коммерческом рыболовном симуляторе Рыбалка:Северная Атлантика.Тип издания: RepackРазработчик: Misc GamesЖанр: СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Норвежский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Норвежский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C3866F01762D65AF0001C5231636252173FC22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317600   (351656) от 05.10.2019
 
 Spintires: The Original Game (2014) [Ru/Multi] (1.3.7/dlc) License PLAZA
@@ -6,7 +32,7 @@ Spintires: The Original Game (2014) [Ru/Multi] (1.3.7/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351656.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Oxygen Not Included (2019) [Ru/Multi] (372041) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351651.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Tony Hawk's Pro Skater HD [Ru/En/Multi5] (Lossless Repack/1.0.8788.0) 2012 | R.G
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344847.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Steamburg (2017) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341838.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Train Simulator 2019 (2018) [Ru/Multi] (65.6f) Repack Other s [32 & 64-bit Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337984.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Construction Simulator 2015 (2014) [Ru/Multi] (11.11.2015) License SKIDROW [Gold
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329863.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Police Helicopter Simulator (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308962.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Thief Simulator (2018) [Ru/Multi] (1.02) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306911.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Malzbie's Pinball Collection (2017) [Multi] (1.9.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303145.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.10.2.468/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302812.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Graviteam Tactics: Mius-Front (2016) [Ru/En] (6.0.3598/6/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301674.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.10715/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298399.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Farming Simulator 19 (2018) [Ru/Multi] (1.1.0.0/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285446.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Whiplash - Crash Valley (2016) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285422.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Afterlife (1996) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279139.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ TIS-100 (2015) [En] (11.27.2017) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276706.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Unholy Heights (2013) [En/Jp] (20171109) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275618.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Project Hospital (2018) [Ru/Multi] (1.0.14611) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272881.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ PRO FISHING SIMULATOR (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272855.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ PC Building Simulator (2019) [Ru/En] (1.5.2/dlc) Repack Sceef
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272359.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Domina (2018) [En] (1.2.11) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269755.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Bee Simulator (2019) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269299.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Two Point Hospital (2018) [Ru/Multi] (1.9.24446/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266566.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Dawn of Man (2019) [Ru/Multi] (1.3.3) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262569.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.2.0.2_457676/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261675.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.2.0.2_457676/dlc) Repack Necros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C8D1240EDD7DF8DFC526FC14CF8487AD5A74008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839038   (261669) от 26.11.2025
-
-DAVE THE DIVER (2023) [Ru/Multi] (1.0.5.1749/dlc) Repack Necros
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dave the Diver - это казуальная приключенческая RPG для одного игрока, в которой днем проводятся глубоководные исследования и рыбалка, а ночью - управление суши-рестораном. Присоединяйтесь к Дэйву и его причудливым друзьям, которые стремятся раскрыть секреты таинственной Голубой бездны. Исследуйте и разгадывайте тайны в глубинах Голубой бездны днем и управляйте успешным (   Читать дальше...   )Тип издания: RepackРазработчик: MINTROCKETЖанр: Приключенческая игра, Симулятор, Ролевая играЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39FD203B49100C3B3E65A3A08B2065E3CA4A0DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

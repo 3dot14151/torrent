@@ -6,7 +6,7 @@ Curtis Fuller - Soul Trombone (1961) /2015, Universal Music/[FLAC|tracks+.cue]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596581.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Twin Danger - Twin Danger (2015) [FLAC|Lossless|WEB-DL]<Jazz Vocals>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596295.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ray Barretto & New World Spirit - Trancedance (2000) EmArcy [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596259.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Cafe New York (2005) [FLAC|Lossless]<Big Band, Swing, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_595835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_595835.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Igor Matković - Sonic Motion (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_595825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_595825.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Chet Baker - The Sesjun Radio Shows (1976 - 1985) 2CD, 2010, T2 Entertainment [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595288.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ J.J.Johnson - Modern Jazz Archive (1949-1954) 2CD /2004, Membran Music/[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595255.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Gavin Harrison - Cheating The Polygraph (2015) [FLAC|image+.cue]<Contemporary Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595205.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Katja Rieckermann - Never Stand Stil (2015) [FLAC|image+.cue]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595201.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Miles Davis - The Musings of Miles (1955) /2008, Riverside/[FLAC|image+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595191.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Duke Ellington - Mood Indigo (1942 - 1945) 2000, Past Perfect [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595105.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Rufus Reid Quintet - Live At The Kennedy Center (2007) Motema Music [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595098.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Harold Land - Choma (Burn) (1971) 2014, Boplicity [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595096.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Erroll Garner - Portrait (1944 - 1954) 10CD, 2003, Documents [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595095.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Sarah Vaughan And Her Trio - At Mister Kelly's (1957) 1987, Emarcy [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595094.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Eric Seva - Espaces Croises (2009) Le Chant du Monde [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595062.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Peggy Lee & June Christy - The Complete Peggy Lee & June Christy Capitol Transcr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594994.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Jimmy Jones - Jimmy Jones Trio (1954) Remaster, 2014, Sony Music[FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594806.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Kneebody + Daedelus - Kneedelus (2015) [FLAC|Lossless|image + .cue] <Jazz Funk, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594805.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Sadao Watanabe - Song Book (1969) Remaster, 2014, Sony Music[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594804.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Eddie “Lockjaw” Davis Quintet With Shirley Scott - Jaws In Orbit (1959) 1992
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594800.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Jessica Williams - ‘… And Then, There's This!’ (1990) Remaster, 2015, Soli
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594799.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Zoot Sims - Choice (1954, 1959) Remaster, 2002, Toshiba[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594798.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Charlie Mariano Quartet - Portrait Of France (2002) [FLAC|Lossless|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594796.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Sonny Stitt Quartet With Don Patterson - Low Flame & Feelin's (1962) 2013, Essen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594794.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Johnny Lytle Trios - Got That Feeling! & Moon Child (1962, 1963) 2001, Milestone
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594793.jpg" />
 </div>
 
 

@@ -1,3 +1,58 @@
+###  Публикация: 1374986   (868986) от 12.04.2020
+
+Tipard Mac 3D Converter 6.2.22 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tipard Mac 3D Converter, лучшее и профессиональное программное обеспечение для преобразования 3D для Mac, специально разработано, чтобы помочь вам конвертировать ваши любимые видеоролики 2D в формат 3D и даже конвертировать фильмы 3D в формат 2D / 3D в соответствии с потребностями. Одним словом, с конвертером Mac 3D «все-в-одном» вы сможете испытать скорость конвертирования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Tipard StudioПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233B0337168B42EB834AB1A0CC39198388CD22D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375155   (868824) от 12.04.2020
+
+QR Factory 2.9.17 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868824.jpg" />
+</div>
+
+
+###  Подробнее
+
+QR Factory является незаменимым и универсальным способом быстро поделиться какой-либо текстовой информацией.
+Его главное достоинство — легкое распознавание — активно применяется в самых разных сферах: производстве, торговле, логистике, туризме рекламе, конкурсах, играх и др.
+
+Сканеры QR-кодов существуют практически на всех мобильных платформах, а значит, это хороший (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.04.2020Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75135520B1C68879DAF928B7710974836F141610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 644277   (868779) от 16.04.2013
 
 iWork 09.3 (2012) [Multi/Ru]
@@ -6,7 +61,7 @@ iWork 09.3 (2012) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868779.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Tipard PDF to Word Converter for Mac 3.1.26 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868470.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ LogRabbit 1.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868266.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ TuneBoto Amazon Music Converter 2 v2.4.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868262.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Adobe Zii 2021 - Universal Patcher 6.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868134.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ Path Finder 10 v10.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868012.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ Joyoshare Audio Recorder 1.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867199.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ Joyoshare Media Cutter 3.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867120.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ Smart Trash 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866680.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ Valentina Studio Pro 11.4.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866671.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ OnTime PRO 3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866669.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ TuneBoto Amazon Video Downloader 1.4.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866668.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ TunePat Amazon Video Downloader 1.4.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866662.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ Satellites 1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866661.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ TunePat Amazon Music Converter 2 v2.4.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866598.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ Tunepat Tidal Media Downloader 1.4.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866465.jpg" />
 </div>
 
 
@@ -427,7 +482,7 @@ TunePat Spotify Converter 1.5.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866460.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ WinZip Mac Pro 9 v9.0.5554 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866350.jpg" />
 </div>
 
 
@@ -481,7 +536,7 @@ Templates Bundle for iWork - Templates Guru 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866234.jpg" />
 </div>
 
 
@@ -510,7 +565,7 @@ Pixellu SmartAlbums 2 v2.0.24 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866093.jpg" />
 </div>
 
 
@@ -539,7 +594,7 @@ SketchUp Pro 2021.1.2 v21.1.331 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866077.jpg" />
 </div>
 
 
@@ -565,7 +620,7 @@ Allavsoft Video Downloader Converter 3.22.4.7405 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865622.jpg" />
 </div>
 
 
@@ -591,7 +646,7 @@ Ultra Character Map 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865615.jpg" />
 </div>
 
 
@@ -617,7 +672,7 @@ MindNode 2.4.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864274.jpg" />
 </div>
 
 
@@ -631,61 +686,6 @@ MindNode  элегантный и простой в использовании, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B84705C6892862A410DF9C2976C83106E1823F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375755   (864017) от 15.04.2020
-
-Easy Markdown 1.8.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864017.jpg" />
-</div>
-
-
-###  Подробнее
-
-HTML (от англ. HyperText Markup Language — «язык гипертекстовой разметки») — стандартный язык разметки документов во Всемирной паутине. Язык HTML интерпретируется браузерами и отображается в виде документа в удобной для человека форме.
-
-Easy Markdown позволяет создавать веб-страницы так же, как запись обычного текста. Easy Markdown поможет улучшить вашу скорость (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2019Разработчик: Roberto PanettaПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFE6A02B9C2EBCA76184417ECB9E8116B5D38E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375798   (863883) от 15.04.2020
-
-Shortcut Bar 2.8 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shortcut Bar - невероятно удобное приложение, с его помощью вы получите быстрый доступ к файлам, папкам и приложениям, которые вам необходимы.
-Приложение «живет» в меню баре и позволяет добавлять ярлыки в неограниченном количестве. Всякий раз, когда вам требуется доступ к этим важным файлам и папкам, просто нажмите на иконку в строке меню и выберите элемент из раскрывающегося (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.09.2019Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437F3CFD42AE55060A8EC4EF575956A235295697
 ```
 
 https://mybot314.ru/tekegram_catalog/

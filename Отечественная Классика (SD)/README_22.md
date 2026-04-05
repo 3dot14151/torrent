@@ -1,3 +1,59 @@
+###  Публикация: 339365   (667072) от 20.05.2011
+
+Улица полна неожиданностей (1957) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667072.jpg" />
+</div>
+
+
+###  Подробнее
+
+«—Успокойтесь, не трепыхайтесь. Мы найдем вашу "жизнь"...»
+
+Возвращающийся навеселе главбух Смирнов забирается в будку регулировщика и нарушает движение транспорта на одной из улиц Ленинграда.
+Но постовой Вася Шанешкин доставляет в отделение милиции не нарушителя, а вполне порядочного гражданина — кассира Стройтреста Воднева,(   Читать дальше...   )Жанр: КомедияРежиссер: Сергей СиделевАктеры: Леонид Харитонов, Всеволод Ларионов, Георгий Черноволенко, Яков Родос, Джемма Осмоловская, Вера Карпова, Евгений Леонов,
+Людмила Макарова, Сергей Филиппов, Ольга Порудолинская, Георгий Семенов, Александр Орлов, Константин Одашевский.Перевод: ОригинальныйПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFBB7CF3AA32AFE5903567927247C2474781CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137463   (666402) от 27.05.2017
+
+Семь невест ефрейтора Збруева (1970) DVDRip [H.264] [Реставрация]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография Кости попала на обложку журнала «Умелый воин», и особы женского пола засыпали его письмами со всех сторон нашей обширной Родины. Пришло время демобилизации и Костя отправился в длительное путешествие от украинских степей до дальневосточной тайги выбирать невесту.Производство: CCCP, ЛенфильмЖанр: КомедияРежиссер: Виталий МельниковАктеры: Семён Морозов, Наталья Четверикова, Марианна Вертинская, Елена Соловей, Наталья Варлей, Леонид Куравлев, Василий Меркурьев, Татьяна Федорова, Ирина Куберская, Любовь Тищенко, Ольга ГригорьеваПродолжительность: 01:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8C7CA1021216467D517AFFBC257C3B311857C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473213   (665145) от 28.05.2017
 
 Тегеран-43 (1980) DVDRip (Реставрация КП)
@@ -6,7 +62,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665145.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665035.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665031.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664634.jpg" />
 </div>
 
 
@@ -117,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664547.jpg" />
 </div>
 
 
@@ -148,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663377.jpg" />
 </div>
 
 
@@ -175,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661919.jpg" />
 </div>
 
 
@@ -201,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661718.jpg" />
 </div>
 
 
@@ -228,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661143.jpg" />
 </div>
 
 
@@ -256,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658956.jpg" />
 </div>
 
 
@@ -282,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658493.jpg" />
 </div>
 
 
@@ -308,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657690.jpg" />
 </div>
 
 
@@ -338,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656426.jpg" />
 </div>
 
 
@@ -364,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656418.jpg" />
 </div>
 
 
@@ -392,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656338.jpg" />
 </div>
 
 
@@ -418,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653038.jpg" />
 </div>
 
 
@@ -448,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649193.jpg" />
 </div>
 
 
@@ -476,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_649140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_649140.jpg" />
 </div>
 
 
@@ -502,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649058.jpg" />
 </div>
 
 
@@ -528,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649031.jpg" />
 </div>
 
 
@@ -554,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648961.jpg" />
 </div>
 
 
@@ -580,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648953.jpg" />
 </div>
 
 
@@ -607,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647001.jpg" />
 </div>
 
 
@@ -633,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646892.jpg" />
 </div>
 
 
@@ -644,59 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB4E74297BD4F58A7623A99A57D00C634E6C5786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290370   (646545) от 29.03.2019
-
-Римский-Корсаков (1953) DVDRip [H.264] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Костюмный биографический фильм о Николае Андреевиче Римском-Корсакове (1844-1908), русском композиторе, дирижере и музыкально-общественном деятеле, одном из организаторов и вдохновителей "Могучей кучки".
-Петербург. Конец XIX века. Композитор Николай Андреевич Римский-Корсаков полон творческих сил, закончена партитура оперы-былины «Садко» Отвергнутую императорским (   Читать дальше...   )Производство: СССР. ЛенфильмЖанр: Драма, биография, музыкаРежиссер: Геннадий Казанский, Григорий РошальАктеры: Григорий Белов, Николай Черкасов, Александр Борисов, Лилия Гриценко, Виктор Хохряков, Лидия Сухаревская, Александр Огнивцев, Борис Коковкин, Сергей Курилов, Лидия ДрановскаяПродолжительность: 01:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8787C92A2103346972D230D162A07CA686EA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716241   (646319) от 12.06.2017
-
-Юность наших отцов (1959) SATRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646319.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам романа А.Фадеева "Разгром". Гражданская война. Движется на отдых партизанский отряд под командованием Левинсона. Разных людей связала война. Мрачноватый Морозка; вначале идеалист, а потом трус и дезертир Павел Мечик; Метелица, самый светлый персонаж фильма; разбитная медсестра Варя... Все они до поры до времени связаны общей целью - победить (   Читать дальше...   )Жанр: КиноповестьРежиссер: Михаил Калик, Борис РыцаревАктеры: Александр Кутепов, Георгий Юматов, Инна Выходцева, Виталий Четвериков, Виктор Терехов, Геннадий Юхтин, Николай Крючков, Николай Смирнов, Иван Рыжов, Виктор Адеев, Николай Граббе, Алексей Кельберер, Георгий Милляр, Константин Немоляев, Владимир ПоночевныйПродолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD522F48CB1188FA1FFFFB269D2038889CBAFF9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

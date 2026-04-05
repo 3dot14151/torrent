@@ -1,3 +1,82 @@
+###  Публикация: 1700939   (116698) от 19.02.2024
+
+Еремей Парнов | Боги Лотоса (2010) [MP3, Юрий Рудник]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой знаток Востока - Парнов, он увлекательно, в форме путевых заметок, повествует о вековых обычаях, древнейших культах загадочного для многих мира, срывает окутывавший его мистический покров, показывает земные истоки мистических представлений. Написанная ярко, публицистически остро, основанная на личных впечатлениях и наблюдениях, книга, несомненно, вызовет (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 16:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA9CD8B191235D367D8ED588505BE17042B800F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701192   (116520) от 20.02.2024
+
+Кристина О‘Крейн | Страстное искусство (2021) [MP3, Марина Кузнецова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116520.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аудиокниге художники превращаются из абстрактных больших художников и творцов в людей, которые любят, боятся и совершают ошибки. Можно ли быть настоящим творцом без любви? Без сердечного трепета, ощущения, что готов вечностью дышать в одно дыхание с любимой? Автор аудиокниги «Страстное искусство» Кристина О’Крейн рассказывает трогательные и страстные истории любви (   Читать дальше...   )Жанр: ИскусствоведениеИздательство: Аудиокнига АСТПродолжительность: 05:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14980268F135D19603EB3948731912378730BEE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701667   (116211) от 22.02.2024
+
+Хайно Фальке | Свет во тьме (2023) [MP3, Максим Суслов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116211.jpg" />
+</div>
+
+
+###  Подробнее
+
+В апреле 2019 г. первое в истории изображение черной дыры покорило сердца четырех миллиардов телезрителей по всему миру. Знаменитый ученый-астрофизик Хайно Фальке вместе с научным журналистом Йоргом Рёмером рассказывает слушателям полную предысторию создания этой эпохальной фотографии!
+В апреле 2019 года около четырех миллиардов человек по всему миру смогли увидеть (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Издательство CorpusПродолжительность: 11:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3951B0F645A2A0CCC73FF1BDB7ABB51AD1126D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701922   (116008) от 23.02.2024
 
 Дмитрий Котов, Вячеслав Ширяев | Сценарное мастерство (2020) [MP3, Александр Алехин]
@@ -6,7 +85,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116008.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115877.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114671.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114171.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114017.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113985.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113823.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113725.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113600.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113416.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113371.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113352.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113341.jpg" />
 </div>
 
 
@@ -351,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113325.jpg" />
 </div>
 
 
@@ -379,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113288.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112987.jpg" />
 </div>
 
 
@@ -431,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112898.jpg" />
 </div>
 
 
@@ -458,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112874.jpg" />
 </div>
 
 
@@ -484,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112847.jpg" />
 </div>
 
 
@@ -510,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112838.jpg" />
 </div>
 
 
@@ -536,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112790.jpg" />
 </div>
 
 
@@ -562,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112754.jpg" />
 </div>
 
 
@@ -589,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112632.jpg" />
 </div>
 
 
@@ -600,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F248274F1DBB77E6A52ABC1750B47638A836F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710772   (112603) от 28.03.2024
-
-Виктор Назаров | Высшая лига Антология мирового рока (подкаст) (2018-2019) [MP3, Виктор Назаров]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антология мирового рока - авторская программа петербургского музыканта Виктора Назарова, посвящённая великим классическим рок-группам всех времён!Жанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 45:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021F372F11727B5B435F19D6D01277E80279DE67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711099   (112524) от 29.03.2024
-
-Александр Марков, Елена Наймарк | Перспективы отбора (2019) [MP3, Игорь Гмыза]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркая, неожиданная и захватывающая аудиокнига. Увлекательный и доступный рассказ о сорока новейших открытиях, сделанных учёными в области эволюции и естественного отбора. Почему не у всех баранов большие рога? Что мы узнали о своих мутациях за 15 лет геномной эры? Почему самые умные из рыбок гуппи выбирают себе в партнеры самых красивых самцов? Как влияют на наше (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 11:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80377FD90B61A1E5A4B9E739A96E223D7469D75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711395   (112460) от 30.03.2024
-
-Александра Ромашова | Лунный город (Подкаст) Часть 2 (2013) [MP3, Александра Ромашова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112460.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Лунный город" – культовая программа Александры Ромашовой об электронной, экспериментальной, авангардной, экзотической музыке, выходившая на радио Рокс с 1997 по 2011 год. Часть 2Жанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 75:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DEB0F53E3153A72C5F471CCC2D29E155B931B03
 ```
 
 https://mybot314.ru/tekegram_catalog/

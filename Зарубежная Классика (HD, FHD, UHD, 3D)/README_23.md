@@ -1,3 +1,81 @@
+###  Публикация: 199433   (806877) от 08.05.2010
+
+Полуночный ковбой / Midnight Cowboy (1969) [720p] HDTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: СШАЖанр: ДрамаРежиссер: Джон ШлезингерПеревод: Профессиональный многоголосыйСубтитры: НетФормат: MKVПродолжительность: 01:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3DB3EFF3388E3546DBFD43D1AB85E183967BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198675   (806291) от 12.01.2018
+
+Омбре: Отважный стрелок / Hombre (1967) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Джон Рассел — белый американец, воспитанный в Аризоне индейским племенем, продает небольшую гостиницу, доставшуюся от отца, он вынужден вступить в конфликт с обществом, которое сам презирает, Джон покидает город в дилижансе, и настроенные против него пассажиры заставляет его ехать вместе с кучером. Но на обоз нападают разбойники, бросают пассажиров в пустыне (   Читать дальше...   )Производство: США / Hombre ProductionsЖанр: ВестернРежиссер: Мартин РиттАктеры: Пол Ньюман, Фредрик Марч, Ричард Бун, Дайан Чиленто, Кэмерон Митчелл, Барбара Раш, Питер Лазер, Маргарет Блай, Мартин Болсам, Скип УордПеревод: Многоголосый x2Субтитры: Русские, АнглийскиеПродолжительность: 01:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FA3E5012A77B2A0B12F1F78FA697DDD358FD92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 775704   (806128) от 18.04.2014
+
+Соломенные псы / Straw Dogs (1971) BDRip [720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Застенчивый американский математик Дэвид переезжает в сельскую Англию на ферму, где родилась и выросла его сексапильная жена. Местное население настроено враждебно и ведет себя как стая мародеров из «Ночи живых мертвецов». И робкий математик, убежденный противник насилия, больше всего на свете обожающий тишину и уединение, вынужден защищать свою честь с оружием в (   Читать дальше...   )Жанр: Триллер, ДрамаРежиссер: Сэм Пекинпа / Sam PeckinpahАктеры: Дастин Хоффман, Сьюзен Джордж, Питер Вон, Т.П. МакКенна, Дел Хенни, Джим Нортон, Дональд Уэбстер, Кен Хатчинсон, Лен Джонс, Сэлли ТомсеттПеревод: Многоголосый закадровый x2 + Авторский одноголосый x4Язык субтитров: английские (встроенные, отключаемые)Продолжительность: 01:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6700B5B56EAE739799E8622776C95188C3A13096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197676   (806050) от 12.01.2018
 
 Мальтийский сокол / The Maltese Falcon (1941) BDRip [H.265/1080p-LQ] [10-bit]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806050.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805708.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805474.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805219.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805003.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804111.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803987.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803276.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803130.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803127.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802919.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801641.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800770.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800708.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800058.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799287.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799104.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798647.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798641.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798458.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798345.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797776.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797377.jpg" />
 </div>
 
 
@@ -599,87 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D8F3E78D88134D694583DF8952202F45C391BD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753061   (797370) от 18.01.2018
-
-Мелодия из подвала / Melodie en sous-sol (1963) BDRemux [H.264/1080p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шарль, старый гангстер с богатым послужным списком, планирует последнее в своей жизни ограбление, после которого собирается уйти на покой.
-В подельники он приглашает нескольких начинающих бандитов, в том числе и Франсиса. Им кажется, что план очистки сейфа казино на французской Ривьере безупречен, и уже можно думать о светлом будущем...Производство: Франция, ИталияЖанр: драма, мелодрама, криминалРежиссер: Анри ВернёйАктеры: Жан Габен, Ален Делон, Клод Серваль, Вивиан Романс, Анри Вирложё, Жан Карме, Хосе Луис де Вильялонга, Рита Кадиллак, Джимми Дэвис, Доминик ДаврэПеревод: Профессиональный многоголосый, Авторский одноголосыйЯзык озвучки: русский, французскийСубтитры: Французские, РусскиеПродолжительность: 02:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540DBEEB536ECC0FBABD95A38BAA65F37B47F6BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751904   (797362) от 18.01.2018
-
-Беглецы / Les fugitifs (1986) BDRip [1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нескладный грабитель банка захватывает в заложники бывшего «крутого» заключенного. Полиция бросается за ними в погоню, герои меняются ролями. «Заложник» становится нянькой «похитителя» и «отцом» его немой дочери. Теперь «крутой», который сидел за 14 ограблений банков твердо решил «завязать».
-Он помогает странной семейке скрываться от полиции, навлекая на себя массу (   Читать дальше...   )Жанр: КомедияРежиссер: Франсис ВеберАктеры: Пьер Ришар, Жерар Депардье, Жан Карме, Морис Барье, Жан Бенгиги, Ролан Бланш, Анаис Бре, Филипп Лельевр, Ивелин Айо, Дидье ПэнПеревод: Дублированный, Многоголосый закадровыйСубтитры: РусскиеПродолжительность: 01:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3162F70CA824C37FDE75F8A3935906704595A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751921   (797320) от 18.01.2018
-
-Вор / Thief [The Criterion Collection] (1981) BDRemux [1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк — эксперт по вскрытию сейфов, профессионал высшей пробы, и работы для него всегда хватает. Но он уже побывал за решеткой, и возвращаться туда не собирается. Нужен всего один, но верный взлом.
-И тут дразнящая мечта о будущем заставляет его потерять осторожность: поддавшись искушению, матерый волк-одиночка соглашается поработать на крупного мафиози! Капкан захлопнулся, (   Читать дальше...   )Жанр: боевик, триллер, драма, криминалРежиссер: Майкл МаннАктеры: Джеймс Каан, Джеймс Белуши, Тьюсдей Уэлд, Уилли Нельсон, Роберт Проски, Том Синьорелли, Дэннис Фарина, Джон Сантуччи, Гэвин МакФадьен, Чак АдамсонПеревод: Многоголосый закадровый, Одноголосый закадровыйСубтитры: Английские, РусскиеПродолжительность: 02:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA6E0B7F8F54002CF4267D011357FEF43C4EED2
 ```
 
 https://mybot314.ru/tekegram_catalog/

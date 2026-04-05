@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222684.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Runtastic PullUps PRO v1.0 (08.12.2012) <Ru/Multi>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222381.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ runtastic Pedometer PRO v1.2.1 (12.2012) <Ru>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222128.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221389.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Mr. Pillster / Напоминания о приеме таблеток v3.0.6 [R
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221249.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Gym Book: training notebook Pro 4.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220719.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Garmin: City Navigator Thailand NT 2013.30 (Dual + Eng + Thai) (2013) <En/Th>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220700.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ TuneIn Radio 32.0.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220637.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Fake GPS Location Spoofer 4.8.2 Pro [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220233.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Advanced Settings 1.6.9.5 [Ru] - Расширенные настройки дл�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220229.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Terabox v2.7.5 Premium Mod [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220156.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Material Design Dialer 1.2.1.37 [Ru] - Звонилка
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219598.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Sony PC Companion 2.10.115 [Multi(RU)] [Программа] (Windows)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219409.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ My Backup Pro 4.5.1 [Ru/Multi] - Резервное копирование
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219365.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Premium Wallpapers HD 4.3.6 [Ru] - Обои
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219352.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Video Converter Pro 1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218627.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218607.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ PowerDirector – Video Editor v12.4.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218561.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218412.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Just Cleaner Pro v1.9 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218202.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Just Music Player v1.9 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218136.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218017.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Background Video Recorder Ultimate v3.1.7 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218002.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ SnipBack v2.09 Premium - диктофон, аудио-рекордер [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217181.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ AndroVid Pro Video Editor v6.4.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216797.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ CrossfitMe Pro 1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216442.jpg" />
 </div>
 
 

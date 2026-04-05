@@ -1,3 +1,57 @@
+###  Публикация: 1028444   (688683) от 23.06.2016
+
+Notebooks 1.3.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notebooks - Написать Документы, Управлять заданиями, организовать файлы
+Notebooks  является единственной записной книжкой, которая когда-нибудь Вам понадобится. Приложение позволяет создавать столько книг, сколько вам нужно написать, хранить и структурировать информацию о жизни, и  быстро станет  одним и единственным хранилищем не только для всех журналов, идей, заметок, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 июня 2016Разработчик: Alfons SchmidПоддерживаемая ОС: OS X 10.7.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2146D4D0D3DD9F6CE09EB67B8A8FDEA343DA952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134724   (687231) от 16.05.2017
+
+DEVONagent 3.9.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687231.jpg" />
+</div>
+
+
+###  Подробнее
+
+DEVONagent Pro - первый интелектуальный поисковик, который поможет вам более эффективно искать в Интернете по нескольким источникам. DEVONagent подключается сразу к многим поисковым системам и собирает данные, качественно отсеивая мусор и т.д.
+Он также сканирует ваши любимые веб-сайты и уведомляет вас, когда он находит то, что соответствует вашему запросу. Он даже (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.05.2017Разработчик: DEVONsphereПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5FA7AEEAFCF5188B349C41E05CC29D422B3089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134732   (686792) от 16.05.2017
 
 Total Video Player Pro 2.9.5 [Multi/Ru]
@@ -6,7 +60,7 @@ Total Video Player Pro 2.9.5 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686792.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Aimersoft Video Suite 12.0.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686704.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ PrinTao CANON 24 Edition 8 v8.0r12 (build 181) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686624.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Adobe After Effects CC 2018 v15.1.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686603.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ QR Creator PRO 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686561.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ DM1 - The Drum Machine 2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686490.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ PrinTao EPSON 24 Edition 8 v8.0r12 (build 181) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686370.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ OS X Server 5.1.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686249.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ OmniPlan Pro v3.11.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685565.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ JPEGmini 1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685240.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ MiniNote Pro 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684538.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ Horcrux Email Backup 2.9.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684424.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ Analog 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684290.jpg" />
 </div>
 
 
@@ -360,7 +414,7 @@ Picture Instruments Fast Resize Pro 2.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684230.jpg" />
 </div>
 
 
@@ -387,7 +441,7 @@ YouTubeHunter Pro 5.6.5 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684190.jpg" />
 </div>
 
 
@@ -414,7 +468,7 @@ Hot Door CADtools 10 for Adobe Illustrator 10.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684044.jpg" />
 </div>
 
 
@@ -440,7 +494,7 @@ On1 Photo 10.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683915.jpg" />
 </div>
 
 
@@ -466,7 +520,7 @@ Autopano Giga 4.4.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682528.jpg" />
 </div>
 
 
@@ -493,7 +547,7 @@ Clean Text Menu 7.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681989.jpg" />
 </div>
 
 
@@ -520,7 +574,7 @@ Temp Monitor 1.2.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681672.jpg" />
 </div>
 
 
@@ -546,7 +600,7 @@ Barcody 3.11 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681097.jpg" />
 </div>
 
 
@@ -575,7 +629,7 @@ OmniPlan Pro 3.7.2 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680649.jpg" />
 </div>
 
 
@@ -601,7 +655,7 @@ Moom 3 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680589.jpg" />
 </div>
 
 
@@ -627,7 +681,7 @@ JustBroadcaster for Facebook 2.1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680313.jpg" />
 </div>
 
 
@@ -639,68 +693,6 @@ JustBroadcaster for Facebook 2.1.6 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07A70477628072DE595AECBA0C042EB211D48B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 336027   (680223) от 13.05.2011
-
-Corel Painter 12 (0.0.502) [Eng]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corel® Painter™ 12 — это идеальная цифровая художественная студия для тех, кто готов выйти за рамки привычного в творчестве. Теперь, с новейшими средствами цифровой живописи и реалистичными инструментами Natural Media, вы сможете реализовать самые смелые замыслы.
-
-Основные возможности Corel Painter
-- смешивание цветов для получения уникальных красок и оттенков;
-- настройка формы кисти с помощью интерактивного инструмента Brush Creator.
-- Используя Corel Painter 12 вы можете видоизменить готовую кисть с помощью функции Randomizer, объединить две кисти с помощью функции Transposer или же детально настроить параметры кисти средствами Stroke Designer.
-- создание несложных набросков и зарисовок, применяя эффект Sketch к цифровым фотографиям;
-- рисование акварелью с помощью эффекта Digital Watercolor;
-- Corel Painter 12 содержит более 400 новых кистей, имитирующих более 30 реальных инструментов художника, включая акриловые краски, аэрографы, кисти для смешивания красок, каллиграфические перья, мелки, уголь, цветные (   Читать дальше...   )Название программы: Corel Painter XIIРелиз состоялся: 2011Тип издания: Mac OS X softwareЯзык интерфейса: английский (only)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290071   (680212) от 19.03.2019
-
-BetterZip 4.2.3 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если на жестком диске есть данные, которые используются редко, в целях экономии дискового пространства имеет смысл упаковать такие файлы и папки в архивы. Для этой цели необходимо воспользоваться программой-архиватором, например, утилитой BetterZip.
-
-Приложение позволяет сжимать данные, используя разные алгоритмы упаковки, уменьшая при этом исходный размер файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2019Разработчик: MacItBetterПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE54723ADE51C4D98904980DA9EA33E28F1050BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

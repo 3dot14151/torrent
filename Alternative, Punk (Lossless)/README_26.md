@@ -6,7 +6,7 @@ Meat Puppets - Dusty Notes (2019) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633752.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lucy Rose - No Words Left (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633746.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nine Inch Nails - Strobe Light (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633619.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Papa Roach - Ego Trip (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633566.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Red Hot Chili Peppers - Unlimited Love (2022) Japanese Edition [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633444.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Linkin Park - One More Light (2017) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632908.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Royal Blood - How Did We Get So Dark? (2017) [FLAC|Lossless|tracks + .cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631207.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Nickelback - Feed The Machine (2017) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631066.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ FFS (Franz Ferdinand and Sparks) - FFS (2015) [FLAC|tracks|WEB]<Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630029.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sleeper - The Modern Age (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628487.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lucy Rose - 7 releases (2012 - 2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628481.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Music Inspired by the Film Roma (2019) [FLAC|Lossless|tracks + .cue] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628370.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Michel Cloup Duo - Danser Danser Danser Sur Les Ruines (2019) [FLAC|Lossless|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627319.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Explosions in the Sky - The Wildernes (2016) Bella Union [FLAC|Lossless|tracks+.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627318.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Coral - Move Through the Dawn (2018) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626264.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Editors - The Weight of Your Love (2013) Japan Bonus Tracks [FLAC|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624339.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Gabriel and The Apocalypse - Alpha Bionic (2019) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624121.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Muncie Girls - From Caplan to Belsize (2016) [FLAC|Lossless|WEB-DL|tracks] <Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622827.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wolf Alice - My Love Is Cool (2015) [FLAC|Lossless|WEB-DL]<Rock, Alternative, In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621783.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Priests - The Seduction of Kansas (2019) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620769.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Hollerado - Born Yesterday (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619832.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Charly Bliss - Guppy (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619803.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Jeff Beck - Loud Hailer (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618899.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ PUP - Morbid Stuff (2019) [FLAC|Lossless|tracks + .cue] <Punk Rock, Pop Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618816.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Shovels And Rope - By Blood (2019) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618815.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Circa Waves - What’s It Like Over There? (2019) Prolifica Inc. [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618714.jpg" />
 </div>
 
 

@@ -7,7 +7,7 @@ VA - 90s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062619.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - 10s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062147.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - 80s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062084.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - Greatest Ever! Love (The Definitive Collection) (2006) 3 x CD, Compilation 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061877.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ VA - Funk Classics The 70's (1995) [FLAC|Lossless|tracks + .cue] <Funk / Soul, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061876.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Magic 90s (2019) 4 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061875.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Greatest Ever! Nineties (The Definitive Collection) (2006) 3 x CD, Box Set 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061870.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - This Is Your Life (1991) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061500.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Greatest Ever Decade 70s (2021) 4 x CD, Compilation [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061455.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - The Classic 70s Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Funk
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061442.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - 00s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061437.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Lost Hits Of The 70s And 80s (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061361.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Chris Norman - Lifelines (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1060996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1060996.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - 1990s R&B Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Soul, Funk>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060888.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - KuschelRock: Always & Forever (Wedding Edition) (2011) 3 x CD, Compilation 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060547.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Kim Wilde - Premium Gold Collection (1996) [FLAC|Lossless|tracks+.cue] <New Wave
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060273.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Kuschelrock Rock Hymnen (2010) 2 x CD, Compilation, Special Edition [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060246.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - KuschelRock Special Edition - Lovesongs Of The 80's (2009) 2 x CD, Compilat
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060245.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Julio Iglesias - Starry Night (1990) [FLAC|Lossless|tracks + .cue] <Electronic, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060039.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Robyn - Robyn Is Here (1997) [FLAC|Lossless|tracks + .cue] <Pop, Synth-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059684.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - 100 Greatest Seventies (2017) 5 x CD, Compilation [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059446.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Best Of The 90's (2017) 3 x CD, Compilation [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059445.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Seventies Top 100 Vol. 2 (2007) 5 x CD, Compilation, Remastered [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058928.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Seventies Top 100 (2007) 5 x CD, Compilation, Remastered [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058774.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - 100 Hits 70s Heart Throbs (2016) 5 x CD, Compilation, Box Set [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058773.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Greatest Ever! Smooth (The Definitive Collection) (2007) 3 x CD, Compilatio
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058772.jpg" />
 </div>
 
 

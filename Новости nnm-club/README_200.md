@@ -1,3 +1,56 @@
+###  Публикация: 1331192   (332986) от 14.10.2019
+
+Windows 10 1903 24in1 (x86/x64) +/- Office 2019 by Eagle123 (10.2019) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная сборка содержит в себе ISO-образ с Windows 10 1903 18362.418, включающий в себя 8 русских и 8 английских редакций, основанный на оригинальных образах, с интегрированными обновлениями по 10.2019, системными библиотеками для 32-битного (x86) и для 64-битного (x64) ядра, с возможностью выбора опций установки и автоустановкой драйверов и программ. А также есть (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFE1D9B05E062D8F5D28BA2360E123368ADE353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579786   (332969) от 29.09.2022
+
+Очередное достижение: 5000 релизов от kosatka!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_332969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 5000 релизов от kosatka!Маленькие радости, на волнах "Безымянного радио клуба"...
+Уважаемые одноклубники!Рад сообщить Вам о возможности поздравить нашего товарища, модератора, рипера, релизера и просто хорошего человека -(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 259513   (332789) от 18.11.2010
 
 Пила 7 / Saw 7 (2010) DVDRip
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332789.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Need for Speed: Hot Pursuit Limited Edition [Ru/Multi23] (L) 2010 l RELOADED
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332772.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332757.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Windows x86 x64 Release by StartSoft 36-2018 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332716.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ RadioSure PRO 2.2.1044.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331800.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Call Of Duty: Advanced Warfare [PS3] [EUR] [Ru/Pl] [4.65] [Cobra ODE / E3 ODE PR
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331773.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331562.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_330958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330958.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330772.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ JetBrains PhpStorm 10.0.1 Build #PS-143.382 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330766.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0.10246/dlc) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330762.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330759.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ ACDSee Ultimate 9.1 Build 580 RePack by D!akov [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330757.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_330677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330677.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ F.E.A.R. 2: Project Origin - Дополненное издание [Ru] (P) 2010
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330503.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330457.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ Torque Pro OBD2 v1.12.100 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330456.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_330154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330154.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_330031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330031.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329967.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ JetBrains PyCharm Professional 5.0.1 Build #PC-143.595 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329875.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ Microsoft Office 2013-2016 C2R Install 4.9 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329874.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ Corona Renderer 1.3 for 3ds Max 2011-2016 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329855.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ ArtMoney Pro 7.44.1 Portable by KloneB@DGuY [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329852.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ ArtMoney предназначена для редактирования пара
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:004D9981FD9F1E576DFE3FCF6F79C51063882056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 260793   (329580) от 21.11.2010
-
-Tomb Raider: Underworld [Ru] (RePack) 2008 | R.G. Spieler
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_329580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: RePackРазработчик: Crystal DynamicsЖанр: Action / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259626   (329577) от 21.11.2010
-
-Шрэк навсегда / Shrek Forever After (2010) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем бы еще заняться огру, который уже сразился со злым драконом, спас прекрасную принцессу и уберег от беды королевство родственников по линии жены? Что ж, если вы Шрэк, то, сами того не заметив, вы вдруг сядете дома и станете наслаждаться покоем в кругу семьи. Вместо того чтобы как раньше пугать деревенских жителей, теперь Шрэк, хоть и с неохотой, но соглашается оставлять автографы на их вилах. А куда же подевался знаменитый рык этого огра? Под грузом воспоминаний о днях, когда он чувствовал себя «настоящим огром», Шрэк поддается на уговоры сладкоголосого Румпельштильцхена и заключает с ним договор. Сразу после этого Шрэк оказывается в альтернативной реальности Тридевятого королевства, где все поставлено с ног на голову: на огров здесь охотятся, Румпельштильцхен восседает на троне, а Шрэк и Фиона даже не знакомы. И теперь только сам Шрэк может исправить все, что он натворил, чтобы спасти друзей, восстановить привычный ему порядок вещей и вернуть себе свою единственную Истинную Любовь.Жанр: Комедия, ПриключенияРежиссер: Майк МитчелПеревод: ДублированныйПродолжительность: 01:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F0BE9A9356BA9D310548DC30EE2EBBC35A21C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

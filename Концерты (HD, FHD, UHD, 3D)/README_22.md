@@ -6,7 +6,7 @@ Kiss - Rocks Vegas (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545464.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545136.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543325.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Exploited - Live at the Hellfest (2011) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541333.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Lady Gaga - Live at iTunes Festival (2013) HDTV [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540141.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Slayer - Wacken Open Air (2014) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535660.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ The Rolling Stones - Let's Spend the Night Together (1981/2011) BDRip [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535277.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ The Sex Pistols: There'll Always Be an England - Live from Brixton Academy (2011
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534223.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533969.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Europe - Live! At Shepherd's Bush, London (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533314.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Europe - Live at Sweden Rock - 30th Anniversary Show (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533312.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532722.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Deep Purple: Phoenix Rising (2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532070.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Blackmore's Night - A Knight In York (2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531922.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531290.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531194.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Alice Cooper - Live at Bonnaroo Festival (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529715.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ A MusiCares Tribute to Carole King (2015) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529627.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Alice Cooper - Raise the Dead – Live from Wacken (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529508.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Eagles - Farewell I Tour - Live From Melbourne (2004/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529395.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528037.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527747.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527628.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524465.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524200.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Alice Cooper - Live at Montreux (2005)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523941.jpg" />
 </div>
 
 

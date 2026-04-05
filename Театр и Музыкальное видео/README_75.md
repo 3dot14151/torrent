@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518261.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518229.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518167.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ EMERSON LAKE & PALMER "Live at the Royal Albert Hall" (1993) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517624.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517338.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517238.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517216.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517033.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516593.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - Летний марафон № 184 / (Марафон Русских Хит
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516146.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516056.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Iron Maiden - Flight 666 (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516008.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ DJ Rhiannon - Nasty Bitch (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515569.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515495.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Slipknot / Live At Download (2009/2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515357.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Led Zeppelin - The Song Remains The Same (1976) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515279.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515246.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Scorpions - Live At Wacken Open Air (2006) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515148.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515080.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Scorpions - Acoustica (2001) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515067.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514931.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Hurts - Live in SWR3 New Pop Festival (2010) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514359.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - Летний марафон № 185 / (Новый Хитовый Сборн
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513869.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Muse - Live At Rome Olympic Stadium (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513660.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ PSY - Gangnam  Style (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513190.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511979.jpg" />
 </div>
 
 

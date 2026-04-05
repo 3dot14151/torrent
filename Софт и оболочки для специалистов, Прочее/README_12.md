@@ -1,3 +1,107 @@
+###  Публикация: 1146188   (615798) от 28.06.2017
+
+Microsoft Exchange Server 2016 (Cumulative Update 6) [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Серверное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exchange Server 2016 позволяет выполнять множество задач и пользоваться обширным набором возможностей Outlook на телефонах, планшетах, компьютерах и в Интернете. Интеграция с Outlook, SharePoint и OneDrive для бизнеса расширяет возможности совместной работы: вы можете получать и изменять документы, а также делиться ими, не покидая Outlook. Новый поиск работает быстрее (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B37463D176541A550A577C611525259E3A871C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036760   (615163) от 23.07.2016
+
+PLS-CADD 9.20 Portable [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615163.jpg" />
+</div>
+
+
+###  Подробнее
+
+PLS-CADD является наиболее мощной программой проектирования ВЛ, представленной на рынке. PLS-CADD работает под Microsoft Windows и обладает легким в использовании графическим интерфейсом пользователя. Все аспекты проектирования линии соединены в единой автономной программе с простым, логичным и последовательным интерфейсом. Ни одна другая программа не может сравниться (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC1EBC0C84BA901A17F9A95448705109A3599D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036842   (614873) от 23.07.2016
+
+Sprint-Layout 6.0 AIO Upd 06.06.2016 Repack (& Portable) by Robby [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sprint-Layout 6.0 - это простая программа для создания односторонних, двухсторонних и многослойных печатных плат. В программу включены многие функции, необходимые для разработки и изготовления печатных плат. Кроме того, она обладает и некоторыми возможностями присущими  профессиональным САПР, такими как экспорт файлов в форматах Gerber и HPGL.Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADD176F3BA4A606E0261C9C395CB3C555A251B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295869   (614719) от 15.04.2019
+
+Collection of programs Video Downloader 19.04.14 [4in1] RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>WPI
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614719.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTD Video Downloader позволяет загрузить нужный вам файл всего за один клик. Нужно просто добавить адрес с вашим роликом, который вы хотите загрузить, нажать кнопку скачать и остальное программа сделает самостоятельно. Из отличительных особенностей программы можно отметить следующее. Возможность конвертировать скачанные файлы прямо в программе. Например, вы можете (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B92EB435622577A2F47E1F955EDF29F26E3C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524290   (612490) от 18.07.2012
 
 Autodesk AutoCAD Civil 3D 2013 x32 [original] + автономная справка 2013 [Русский]
@@ -6,7 +110,7 @@ Autodesk AutoCAD Civil 3D 2013 x32 [original] + автономная справ�
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612490.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Microsoft System Center 2016 (RTM) [Multi/Ru]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608966.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Blumentals Rapid CSS 2022 17.3.0.244 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607457.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Blumentals HTMLPad 2022 17.3.0.244 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607449.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Stardock Multiplicity 3.43 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602319.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ DevExpress Universal Complete 17.2.7 Build 20180321 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602194.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Nintex Workflow 2016 4.6.2.70 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601975.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Autodesk AutoCAD Map 3D 2020 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601532.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Autodesk AutoCAD Plant 3D 2020 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601521.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599566.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ HP Service Pack for ProLiant 2022.03.0 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592725.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ SketchCut PRO 4.0.3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590052.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ Sim Aquarium 3.8 Build 63 Platinum [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588983.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ Siemens Solid Edge ST9 109.00.00.111 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588018.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ Xilinx Vitis Unified Software Platform 2022.1 [En] (unpacked)
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587578.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ Natura Sound Therapy 3.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586512.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ National Instruments LabView 2016 16.0 (x86/x64) [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586085.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ CutList Plus fx 12.5.3 Platinum [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585110.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ YelloSOFT WPI The version 4 [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582551.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ Smeta Wizard 35
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_580137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_580137.jpg" />
 </div>
 
 
@@ -538,7 +642,7 @@ GPS Map Edit 1.0.67.2 [Multi&Russian]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579440.jpg" />
 </div>
 
 
@@ -572,7 +676,7 @@ LabView 2015 15.0 (x64) [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578590.jpg" />
 </div>
 
 
@@ -583,112 +687,6 @@ LabView 2015 15.0 (x64) [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3700E9F33D051929C4E4CC6D2BD27CBF3BF05A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233572   (577510) от 01.07.2018
-
-AdminPE10 2.3 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577510.jpg" />
-</div>
-
-
-###  Подробнее
-
-AdminPE - загрузочный диск/флешка системного администратора AdminPE (WinPE10 - Win10). Предназначен для работы с автономной Windows 10.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE24CBBB1ECD27E85E0A6FA8BBCDA6D0558770C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302987   (575634) от 19.05.2019
-
-Microsoft Visual Studio 2017 Professional 15.9.12 (Offline Cache, Unofficial) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Visual Studio Professional - полный набор инструментов, с помощью которых процесс реализации инновационных замыслов разработчика легко воплощается в жизнь. Visual Studio предоставляет минимальный функционал, при помощи которого можно создавать уникальные программные продукты.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72892D5AA1D4A786578935CA9F622296627C6909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922947   (564250) от 31.07.2015
-
-Endels 1.71 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Серверное ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Endels (аббревиатура читается как Энделс) - это набор инструментов (phpMyAdmin, PHP, MySQL, Apache и пр.) для web-разработчиков.
-Установка и управление локальным веб-сервером никогда не было таким удобным и простым! Компоненты уже настроены для совместной работы.
-Комплекс устанавливается стандартной Windows-установкой и удобно управляется с помощью иконки в области (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBAB7365413CB5F7E1B6D0866324BCF2E47D8D10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304877   (559385) от 28.05.2019
-
-Orbitron 3.71 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orbitron - это спутниковая система слежения для радиолюбителей и наблюдателей. Программа также используется профессионалами синоптиками, метеорологами, пользователями спутниковой связи, астрономами, любителями НЛО и даже астрологами. Приложение показывает положение спутников в любой момент (в реальном или смоделированном времени). Приложение бесплатно и, вероятно, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DF6FA117256767C2D22388A681209E0F56BB86
 ```
 
 https://mybot314.ru/tekegram_catalog/

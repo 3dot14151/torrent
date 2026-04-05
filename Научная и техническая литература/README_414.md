@@ -1,138 +1,3 @@
-###  Публикация: 1173234   (390519) от 11.10.2017
-
-Игорь Можейко | 1185 год. Восток - Запад  [Том 1-2] (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека проекта «История Российского государства» – это рекомендованные Борисом Акуниным лучшие памятники исторической литературы, в которых отражена биография нашей страны, от самых ее истоков.
-Вместе с автором читателю предстоит совершить путешествие по раннему Средневековью, побывать во множестве стран и городов, познакомиться с разными народами и культурами, (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03EF3AFFDE43DA71A39A471E5A06621C01BCA667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173162   (390472) от 11.10.2017
-
-Е.Е. Дьяченко и др. | Миология в схемах и таблицах (2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миология является традиционно сложным для изучения разделом анатомии. Одна из трудностей заключается в большом объеме описательного материала, изложенного в основной учебной литературе. В данном учебном пособии необходимый для усвоения материал представлен в максимально обобщенной и наглядной форме:
-а) в виде конспекта даны основные сведения о мышцах;
-б) цветные (   Читать дальше...   )Жанр: 2009Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FFF5E1C4E8BA6C1A4BBE3EAF354B144A2A1E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173273   (390418) от 11.10.2017
-
-В.А. Балаш | Задачи по физике и методы их решения (1983) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга представляет собой пособие по решению задач повышенной трудности по курсу элементарной физики. Создавая пособие, автор стремился разработать единые методы решения задач по курсу элементарной физики, показать, как нужно использовать эти методы при решении конкретных задач.
-Построение книги не является стандартным для задачника. В начале каждой главы (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CE7B9EB24A372540EFD853295D923C4358B809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173407   (390403) от 11.10.2017
-
-М.П. Малыхина | Базы данных: основы, проектирование, использование (2006) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор в простой и доступной форме рассказывает об основных концепциях проектирования и построения баз данных. В книге подробно описываются архитектуры современных систем управления базами данных и модели баз данных (особое внимание уделяется реляционной модели), рассматриваются вопросы последовательной их нормализации и преобразования концептуальной модели в реляционную, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0687A73ACAA8CF7FC41E9B7A707096D1B2EFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173295   (390355) от 11.10.2017
-
-Н.И. Пак (ред.) | Программирование [2 тома] (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебный курс «Программирование» в системе подготовки бакалавров по направлению «Педагогическое образование», профиль «Информатика», нацелен на формирование у студентов систематизированных знаний и навыков в области программирования.
-В 1-й том учебника вошли уже ставшие классическими основные парадигмы программирования: машинно-ориентированное и процедурное программирование. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303B215E7BC15F23BF81841CE23292B6E5B65178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570917   (390029) от 05.11.2012
 
 И.А. Головня | Учимся чеканить по металлу. [1986] [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390029.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389830.jpg" />
 </div>
 
 
@@ -193,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389597.jpg" />
 </div>
 
 
@@ -221,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389547.jpg" />
 </div>
 
 
@@ -247,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389291.jpg" />
 </div>
 
 
@@ -274,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389013.jpg" />
 </div>
 
 
@@ -300,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388875.jpg" />
 </div>
 
 
@@ -326,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_388513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_388513.jpg" />
 </div>
 
 
@@ -352,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388032.jpg" />
 </div>
 
 
@@ -378,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388028.jpg" />
 </div>
 
 
@@ -404,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387768.jpg" />
 </div>
 
 
@@ -430,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387761.jpg" />
 </div>
 
 
@@ -456,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387723.jpg" />
 </div>
 
 
@@ -483,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387713.jpg" />
 </div>
 
 
@@ -509,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387696.jpg" />
 </div>
 
 
@@ -537,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387634.jpg" />
 </div>
 
 
@@ -564,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387549.jpg" />
 </div>
 
 
@@ -590,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387528.jpg" />
 </div>
 
 
@@ -616,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387485.jpg" />
 </div>
 
 
@@ -644,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387481.jpg" />
 </div>
 
 
@@ -670,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387392.jpg" />
 </div>
 
 
@@ -683,6 +548,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8BD0CAF20B86F0A9411C632C04008F847493DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067121   (387391) от 29.10.2016
+
+Б. А. Воронцов-Вельяминов | Строение Вселенной (1952) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга в занимательной форме рассказывает о строении Вселенной.Жанр: История, науковедение, астрономия, естествознаниеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88882772C246D13DB600C81F326D51CFA56FE39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174324   (387363) от 14.10.2017
+
+Бернард Льюис | Арабы в мировой истории. С доисламских времен до распада колониальной системы (2017) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387363.jpg" />
+</div>
+
+
+###  Подробнее
+
+В классическом исследовании Бернарда Льюиса, одного из ведущих историков-востоковедов мира, рассматривается само понятие «араб» и место арабского народа в мировой истории с доисламских времен до победы движения за независимость и суверенитет в середине XX столетия. Автор прослеживает зарождение ислама и сопровождавшие его политические, религиозные и общественные (   Читать дальше...   )Жанр: История, РелигиоведениеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3C22B66444C5DA58C7B24B70EDB75D193E027D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325668   (387311) от 19.09.2019
+
+Ф. Энгельс | Развитие социализма от утопии к науке (1937) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа "Развитие социализма от утопии к науке" возникла из трех глав труда Ф. Энгельса "Анти-Дюринг", переработанных им в самостоятельную книгу. В ней раскрыты историческая роль утопического социализма и его ограниченность, охарактеризованы предпосылки возникновения научного социализма, даны его главные положения. В книге Ф. Энгельс доказывает, (   Читать дальше...   )Жанр: История, политология, науковедение, философия, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26C085EDB5D28FAC553BAE6A1067B5E088C0371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326333   (387305) от 19.09.2019
+
+Брайан Китинг | Гонка за Нобелем (2019) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инсайдерская история о том, как ученые пытались открыть одну из главных тайн космологии и сбились с пути, обольщенные блеском Нобелевского золота. Каково это – быть очевидцем Большого взрыва? В 2014 году астрономы, вооруженные самым мощным в истории наземным радиотелескопом BICEP2, сочли, что увидели искру, воспламенившую Большой взрыв…Жанр: Научно-популярная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA25766DD9AEC3B70DBEEC4EC8B5F597F5037CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174355   (387251) от 14.10.2017
+
+В.М. Соловьев | Нам нужна великая Россия (2012) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387251.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2012 году в нашей стране отмечался знаменательный юбилей – 1150-летие основания государства Российского.
+В глубину веков уходит история нашей Родины. Когда-то в древности она называлась Русью, а сравнительно недавно – Советским Союзом, или сокращенно СССР.
+Но большую часть времени своего существования Отечество наше носило то же имя, что и сейчас, – Россия.
+Россия (   Читать дальше...   )Жанр: ИсторияФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91AC01A01F1B32DAB7DCAFC9F6A954920C770A9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

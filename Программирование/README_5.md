@@ -1,82 +1,3 @@
-###  Публикация: 1482454   (1007521) от 08.07.2021
-
-Йо Ван Гуй | Программирование на ассемблере х64. От начального уровня до профессионального использования AVX (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучение программирования на ассемблере может оказаться обескураживаю­щим, но совсем не потому, что это язык, не прощающий ошибок, ведь компьютер будет «одобрять» ваши действия при каждом удобном случае. А если это не так, то, возможно, где-то в программе скрывается необнаруженная ошибка, которая «укусит» вас во время выполнения программы. Сверх всего прочего кривая (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D95D1EC5103886B70C031D4322F73ADE8AC59E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482686   (1007364) от 09.07.2021
-
-Скотт Оукс | Эффективный Java. Тюнинг кода на Java 8, 11 и дальше, 2-е издание (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программирование и тестирование обычно относят к разным профессиональным сферам. Скотт Оукс - признанный эксперт по языку Java - уверен, что если вы хотите работать с этим языком, то должны понимать, каким образом выполняется код в виртуальной машине Java, и знать, какие настройки влияют на производительность. Вы сможете разобраться в производительности приложений (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0638A10B5DC6F1B6FBB222A171D021B6644D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482788   (1007220) от 10.07.2021
-
-Иэн Гриффитс | Программируем на C# 8.0. Разработка приложений (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007220.jpg" />
-</div>
-
-
-###  Подробнее
-
-C# — универсальный язык, который может практич16ески всё! Иэн Гриффитс рассказывает о его возможностях с точки зрения разработчика, перед которым стоит задача быстро и эффективно создавать приложения любой сложности.
-Множество примеров кода научат работать с шаблонами, LINQ и асинхронными возможностями языка. Вы разберетесь с асинхронными потоками, ссылочными типами, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490652A7AE61CFE3AFDEB32A044915389D814F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483083   (1007101) от 11.07.2021
 
 Подборка | A Book Apart - Full Site Rip Books Collection [59 книг] (2011-2021) [PDF] [En]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007101.jpg" />
 </div>
 
 
@@ -114,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006941.jpg" />
 </div>
 
 
@@ -140,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006935.jpg" />
 </div>
 
 
@@ -166,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006689.jpg" />
 </div>
 
 
@@ -193,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006683.jpg" />
 </div>
 
 
@@ -219,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006325.jpg" />
 </div>
 
 
@@ -248,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005974.jpg" />
 </div>
 
 
@@ -274,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005960.jpg" />
 </div>
 
 
@@ -300,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005778.jpg" />
 </div>
 
 
@@ -326,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005152.jpg" />
 </div>
 
 
@@ -353,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003323.jpg" />
 </div>
 
 
@@ -379,7 +300,7 @@ Ralf Hacker | Active Directory глазами хакера (2021) [PDF]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002983.jpg" />
 </div>
 
 
@@ -405,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001894.jpg" />
 </div>
 
 
@@ -431,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001247.jpg" />
 </div>
 
 
@@ -457,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001244.jpg" />
 </div>
 
 
@@ -483,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001235.jpg" />
 </div>
 
 
@@ -509,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000946.jpg" />
 </div>
 
 
@@ -536,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000774.jpg" />
 </div>
 
 
@@ -562,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997347.jpg" />
 </div>
 
 
@@ -590,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993868.jpg" />
 </div>
 
 
@@ -618,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990543.jpg" />
 </div>
 
 
@@ -644,7 +565,7 @@ Mark L. Murphy / Марк Л. Мерфи | Elements of Android Room / Элеме
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989761.jpg" />
 </div>
 
 
@@ -670,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989590.jpg" />
 </div>
 
 
@@ -682,6 +603,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:060BA262E7F863500259A7F8D831F749CAC78A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353691   (989586) от 20.01.2020
+
+Марк Лутц | Изучаем Python [Том 2, 5-е издание] (2020) [PDF, DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989586.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью этой практической книги вы получите всестороннее и глубокое введение в основы языка Python. Будучи основанным на популярном учебном курсе Марка Лутца, обновленное 5-е издание книги поможет вам быстро научиться писать эффективный высококачественный код на Python. Она является идеальным способом начать изучение Python, будь вы новичок в программировании или (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17693B033D224D43CCE7E2BC52DF5908CA4F862A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354335   (988933) от 21.01.2020
+
+Mark L. Murphy / Марк Л. Мерфи | Elements of Android Jetpack / Элементы Android Jetpack (2020) [PDF, EPUB, MOBI] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988933.jpg" />
+</div>
+
+
+###  Подробнее
+
+После десяти лет разработки приложений для Android в 2018 году стартовало новое поколение технологий разработки приложений под Android, которое продвигает на первый план Jetpack и семейство библиотек AndroidX. Данная книга следует по стопам "Руководства занятого программиста по разработке Android", чтобы познакомить разработчиков с программированием приложений (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1CF845D26F4591006F7938727EF289492A13FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354271   (988742) от 21.01.2020
+
+Марк Саммерфилд | Python на практике (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга ориентирована на программистов, пишущих на Python, которые хотели бы расширить и углубить знания языка, чтобы сделать свои программы более качественными, надежными, быстрыми, удобными для сопровождения и использования.
+В этой книге много практических примеров и идей. Рассматриваются четыре основных темы: применение паттернов проектирования для создания (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7FE07CA60F8A99C926C994F080A0F98E2BF04D
 ```
 
 https://mybot314.ru/tekegram_catalog/

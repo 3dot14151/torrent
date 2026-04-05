@@ -1,3 +1,55 @@
+###  Публикация: 938621   (479996) от 19.09.2015
+
+Н.В. Тулупов (сост.) | Рассказы о животных (1923) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы и стихотворения о братьях наших меньших для самых маленьких.Жанр: Детская литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:462A7A295DF6AB502205D79A7D420FA4CF4D270E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938907   (479799) от 19.09.2015
+
+Галина Петровна Шалаева | Литературное чтение (2010) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание является принципиально новым современным пособием, разработанным в соответствии с базовой программой для начальной школы, утвержденной Министерством образования и науки Российской Федерации. Программный материал сгруппирован по темам и представлен в доступной и увлекательной форме, а яркие цветные иллюстрации органично сопровождают текст, подключая (   Читать дальше...   )Жанр: Детская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46074D105AF2891F17E25BA4149B890CD394146D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 822495   (479764) от 18.09.2014
 
 Людмила Улицкая | Сто пуговиц (1983) [FB2, EPUB]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479764.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479760.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479690.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479684.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479486.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479297.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479149.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478874.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478641.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478493.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478490.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478429.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478330.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478318.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478224.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478140.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477972.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477711.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477680.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477559.jpg" />
 </div>
 
 
@@ -544,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477506.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477381.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477345.jpg" />
 </div>
 
 
@@ -623,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477276.jpg" />
 </div>
 
 
@@ -634,62 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D3866835AB2F2C4D6CEB1DA44EA61558FCB7878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319826   (477201) от 15.08.2019
-
-Эдуард Успенский | Лучшие сказки [cборник] (2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Ретромонохром — это сказки из нашего детства, из любимых, большей частью ещё советских изданий, в любимых же иллюстрациях.
- В компиляциях серии печатаются только лучшие отечественные и зарубежные сказочники и самые удавшиеся из написанных ими историй.
-Их же более слабые сказки, равно как и авторы второго плана, не снискавшие признания отечественной читающей (   Читать дальше...   )Жанр: Сказки народов мираФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD70B54F7453E68186BF04A938639C5B50C0829B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057063   (477095) от 27.09.2016
-
-Инна Мальханова | Школа для трудных родителей. Монография (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все родители прекрасно знают, что воспитание детей - это тяжелый, многолетний, непрерывный, хотя обычно невидимый со стороны, труд.
-Автор книги считает, что воспитание ребенка нужно начинать с себя, ведь не только родителям тяжело понимать своих детей, но и детям бывает нелегко с родителями.
-Книга, написанная с юмором, живым, доходчивым языком, будет не просто полезной, (   Читать дальше...   )Жанр: МонографияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F862D6D992BC54A1921C21B738ABB6480C7A80
 ```
 
 https://mybot314.ru/tekegram_catalog/

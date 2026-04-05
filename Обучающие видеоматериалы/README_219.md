@@ -1,3 +1,30 @@
+###  Публикация: 1624179   (200292) от 04.04.2023
+
+Udemy, Stephen Pearson | The Cloth Simulation Guide in Blender 2.8 (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет всем и добро пожаловать в руководство по моделированию ткани в Blender 2.8! В этом курсе вы узнаете все о моделировании ткани и о том, как оно работает в Blender. Симуляции очень запутаны и иногда их трудно понять, поэтому я создал этот курс, чтобы вы точно знали, как использовать симуляцию ткани и каковы ее функции.
+В первых двух разделах мы рассмотрим, как (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: РусскийПродолжительность: 01:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6BF5619E1EE65095444D08BDD3443DB4039C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624368   (200275) от 05.04.2023
 
 Controforma.school, Михаил Шишкин, Анастасия Актерская | Брендинг. Смелость, основанная на понимании (2022) WEB-DL [RU]
@@ -6,7 +33,7 @@ Controforma.school, Михаил Шишкин, Анастасия Актерск
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200275.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Udemy, Stephen Pearson | Rigid Body Simulation Guide in Blender 2.8 (2021) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200209.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Udemy, Stephen Pearson | Beginners Guide to the Particle System in Blender 2.8 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200206.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Udemy, Stephen Pearson | Complete Guide to Dynamic Paint in Blender (2021) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200198.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ Proprofiling, Алексей Филатов | Психотипы в профай
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200188.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200147.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ Mikulishnadesign, Наталья Мандругина | Эстетика инт�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200142.jpg" />
 </div>
 
 
@@ -200,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200116.jpg" />
 </div>
 
 
@@ -226,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200060.jpg" />
 </div>
 
 
@@ -255,7 +282,7 @@ Udemy, Raffi Bedross | Intro to Hair and Fur in Houdini 19.5 (2022) WEB-DL [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200044.jpg" />
 </div>
 
 
@@ -283,7 +310,7 @@ Udemy, Philip Cotton | Beginners Ultimate Guide to 3D Printing; Bootcamp (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200038.jpg" />
 </div>
 
 
@@ -309,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200026.jpg" />
 </div>
 
 
@@ -338,7 +365,7 @@ Mskcinemaschool, Вадим Панасюк | «Кино на коленке 3.0�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200013.jpg" />
 </div>
 
 
@@ -367,7 +394,7 @@ Aaron Blaise | How to Draw Wolves, Coyotes & Foxes (2020) WEB-DL [AD] [EN / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200008.jpg" />
 </div>
 
 
@@ -395,7 +422,7 @@ Pluralsight, Alper Tellioglu | Pandas Arrays and Data Structures (2023) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199995.jpg" />
 </div>
 
 
@@ -423,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199983.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ Udemy, Shahzad Ahmad | Magical Butterfly FX in Houdini (2022) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199964.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ Kalacheva School, Анна Цымбал | Практическая линогр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199938.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199858.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199855.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199845.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ Proprofiling, Алексей Филатов | Профайлинг для пра
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199824.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ Refactoringui, Adam Watan | Refactoring UI – Complete Package (2023) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199812.jpg" />
 </div>
 
 
@@ -647,7 +674,7 @@ Designcode, SOURASITH PHOMHOME | UI Design Android Apps in Figma (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199769.jpg" />
 </div>
 
 
@@ -673,7 +700,7 @@ Udemy, Ken Zhuang | Mystique Effect in Houdini with Vex (2022) WEB-DL [EN / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199768.jpg" />
 </div>
 
 
@@ -687,32 +714,6 @@ Udemy, Ken Zhuang | Mystique Effect in Houdini with Vex (2022) WEB-DL [EN / EN S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E8F5415F4CA661B549AB6E97E7F3D4BEB995E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626806   (199763) от 16.04.2023
-
-The Gnomon Workshop, Dan Weiss | Designing & Modeling a Creature With Scales By Dan Weiss (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199763.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом 4,5-часовом семинаре Дэн объясняет, как он создает уникальный, но привлекательный дизайн существа. Он начинает с грубой концепции и уточняет ее на основе реальных примеров. Он рассказывает, как выделить существо на основе этих ссылок, и показывает, как создавать естественные формы с помощью ZBrush. Семинар проведет вас через его уникальную технику создания (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 04:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87558363587D8350222715BB83A1C9C8D0796F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

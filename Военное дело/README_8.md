@@ -1,3 +1,29 @@
+###  Публикация: 1565587   (492311) от 24.07.2022
+
+Военная приемка. Военно-полевой автосервис. Новое поколение (24.07.2022) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мобильные автомастерские с 3D-принтерами, полевые быстровозводимые автосервисы, а также сверхмощные эвакуаторы, способные вытащить из болота даже танк. В Минобороны России испытывают новое поколение машин, созданных для ремонта военной техники в полевых условиях. Они станут главными героями этого выпуска «Военной приемки». Прямо сейчас на закрытом полигоне проверяют (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаРежиссер: Александр ШильниковСубтитры: ОтсутствуетПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D53DFCB0BCD1107064042279887055E40FA5E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054271   (492210) от 20.09.2016
 
 Военная приемка. Роботы. Войны без смерти. (18.09.2016) HDTVRip [720p-LQ]
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492210.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489555.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485415.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483924.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479919.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475276.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470457.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469567.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465976.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459884.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459095.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454762.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450914.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450485.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449555.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449269.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448626.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447024.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444916.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438932.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ BBC. Самое странное оружие мира / Top Secret Weapons Reve
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434772.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433109.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429339.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427323.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427150.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80087A1D0061D722275B7E02307E52518D1C1CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161568   (426280) от 27.09.2018
-
-Военные миссии особого назначения (2017-2018) SATRip (1-12 серия из ??) (Обновляемая)
-
->>След.
->>Военное дело
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал расскажет об участии советских военных специалистов в некоторых вооруженных конфликтах второй половины ХХ века.Жанр: Документальный, война, историяПродолжительность: 12 х ~ 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9137935A6C6AC7421B16D561150E8B7471C06D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

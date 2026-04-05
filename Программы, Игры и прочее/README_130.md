@@ -1,3 +1,107 @@
+###  Публикация: 1723727   (109492) от 16.05.2024
+
+Abstruct - Wallpapers in 4K 2.9 Mod by TryRoom [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abstruct - это официальное приложение для обоев, созданное отмеченным наградами художником обоев OnePlus Хампусом Олссоном, который создал обои для более чем 26 устройств OnePlus. Получите более 450 эксклюзивных обоев 4K, доступных только через это приложение!Тип издания: ModРелиз состоялся: 15.05.2024Разработчик: Hampus OlssonПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA0C8932B047B3535A671956955AB4B6BBA1209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723548   (109472) от 16.05.2024
+
+PowerDirector – Video Editor v14.0.0 b2405101 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.05.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EE3FEE85FBDDF44C8A1FDAB8DC553FF78FC67F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723688   (109471) от 16.05.2024
+
+QuickEdit Text Editor Pro 1.11.0 Mod by Maximoff [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109471.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuickEdit Text Editor Pro - полноценный и многофункциональный текстовый редактор в котором вы сможете хранить свои записи. Так же он поддерживает функцию автозаполнения, и будет предлагать варианты для вставки. Его скорость работы и время реакции гораздо лучше, чем у имеющихся в настоящее время в Google Play приложений для редактирования текстов. Он может использоваться (   Читать дальше...   )Тип издания: Pro (Patched)Релиз состоялся: 14.05.2024Разработчик: Rhythm SoftwareПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D57C26735EF6B137AAD9130A9875F8A3B32FAC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723646   (109452) от 16.05.2024
+
+PhotoRoom v4.9.6 b1399 Mod by RBMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 15.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D53AE3CA1221C97D50604393CF3CCCE52E21BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723683   (109447) от 16.05.2024
 
 QuickEdit Text Editor Pro 1.11.0 Mod by Alex.Strannik [Ru/Multi]
@@ -6,7 +110,7 @@ QuickEdit Text Editor Pro 1.11.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109447.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ QuickEdit Text Editor Pro 1.11.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109436.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Soul Browser 1.4.17 Mod by ateuffel [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109380.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Video Converter Pro 0.2.37 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109228.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Pixomatic Photo Editor / Pixomatic - фоновый ластик 5.16.2 Mod by d
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109224.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Pixomatic Photo Editor / Pixomatic - фоновый ластик 5.16.2 Mod by B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109208.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ PhotoDirector - Редактор фото 19.2.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109184.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ FlipaClip: Create 2D Animation 3.9.1 (ARM64) Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109135.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ n7player Music Player 3.2.10-3002010 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108970.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ n7player Music Player 3.2.10-3002010 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108952.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ MyFitnessPal: Счетчик калорий 24.18.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108944.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ PhotoRoom 4.9.7 (b1411) Mod by CMAPTOC [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108791.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ OfficeSuite Pro + PDF v14.5.52368 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108584.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ TapScanner v3.0.24 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108507.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ Acode - code editor | FOSS 1.10.3 (959) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108355.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ Lucky Patcher 11.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108308.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108300.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ AllTrails: Hike, Bike & Run 19.1.1 Mod by AppModz [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108298.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ Soul Browser 1.4.23 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108296.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ Soul Browser 1.4.23 Mod by AnBo39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108287.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ Soul Browser 1.4.23 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108286.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108249.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ Weawow - это максимально подробный прогноз пог�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CC25A562235838AD9BF0898B65463C9107B2DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728956   (108248) от 09.06.2024
-
-EPIK - AI Photo & Video Editor 5.0.1 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108248.jpg" />
-</div>
-
-
-###  Подробнее
-
-EPIK - весьма и весьма функциональный фоторедактор, что пригодится пользователям при самых различных ситуациях и задачах. Тут не только улучшение и изменение цветового баланса, но и масса эффектов тире фильтров, возможность удаления ненужных объектов на фоне, работа со слоями в случае более сложных манипуляций, нанесение текста и прочих дополнительных элементов, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.06.2024Разработчик: SNOW CorporationПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3725D6EBCF987F17253E2052CD4B111DB1C41BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729063   (108244) от 09.06.2024
-
-AccuWeather - прогноз погоды 20.3-2-google Lite-Mod by LITEAPKS [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108244.jpg" />
-</div>
-
-
-###  Подробнее
-
-AccuWeather - невероятно популярный погодный проект, что завоевал свою репутацию и востребованность благодаря отличному дизайну и великолепному набору качеств и возможностей. Что обеспечивают всех заинтересованных точными прогнозами, гибкими настройками по работе, а так же обновляемыми данными в реальном времени и многими другими особенностями. Система оповещений (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 03.06.2024Разработчик: AccuWeatherПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63E90538721551BFBC57286514ED1121714EC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729045   (108233) от 09.06.2024
-
-Ventusky: Прогноз погоды 35.2 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ventusky - погодное приложение для тех кто хочет более детально и масштабно представлять о происходящих событиях и изменениях в прогнозе на ближайшие дни. Им предоставляется полноценная карта разделённая на квадраты, визуальное оформление, что демонстрирует циклоны, фронты и прочее, выведение статистических данных и многое другое поможет погрузиться в эту сферу и (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 08.06.2024Разработчик: VentuskyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21021A5046A5BED685390F01AE8EEB7B6300B4D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729062   (108229) от 09.06.2024
-
-AccuWeather - прогноз погоды 20.3-2-google Mod by LITEAPKS [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108229.jpg" />
-</div>
-
-
-###  Подробнее
-
-AccuWeather - невероятно популярный погодный проект, что завоевал свою репутацию и востребованность благодаря отличному дизайну и великолепному набору качеств и возможностей. Что обеспечивают всех заинтересованных точными прогнозами, гибкими настройками по работе, а так же обновляемыми данными в реальном времени и многими другими особенностями. Система оповещений (   Читать дальше...   )Тип издания: ProРелиз состоялся: 03.06.2024Разработчик: AccuWeatherПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353C03F42C24D83BDD06665B2DC82051131E7F61
 ```
 
 https://mybot314.ru/tekegram_catalog/

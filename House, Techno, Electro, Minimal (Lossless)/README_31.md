@@ -1,3 +1,61 @@
+###  Публикация: 1223874   (669892) от 07.05.2018
+
+Dub Taylor - Caves & Cages (2018) Dirt Crew Recordings [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Tech House, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intra (2:20)
+ 02. King's Cave (10:20)
+ 03. Helix (7:18)
+ 04. In Air (7:17)(   Читать дальше...   )Жанр: Dub Techno, Tech House, Dub, AmbientПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756C57DA6F1BC673060FB0A124412306A0D80DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223913   (669762) от 07.05.2018
+
+VA - Deepalma Ibiza 2018 | 5th Anniversary DJ Edition (Compiled By Yves Murasca, Rosario Galati & Keyano) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweed, Jalana, Dayne S - Finally (Dayne S Deep Mix) (6:16)
+02. Meines - Take Me Away Feat. Lenny (Original Mix) (5:48)
+03. Rosario Galati, Yves Murasca - Kalura (Original Mix) (6:30)
+04. Holter & Mogyoro - Summer Vibes (Original Mix) (6:28)(   Читать дальше...   )Жанр: Deep House, Tech House, Nu DiscoПродолжительность: 04:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2C236643DEA22C3C878934A3CB508C2D4D8A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031180   (668893) от 03.07.2016
 
 Thomalla - Imaginary Solutions (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -6,7 +64,7 @@ Thomalla - Imaginary Solutions (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668893.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Lauer - Borndom Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668656.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Henry Saiz - Secrets (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668655.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ VA - Neotrance Essentials (2007) [FLAC|Lossless]<Minimal, Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_668559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_668559.jpg" />
 </div>
 
 
@@ -127,7 +185,7 @@ VA - Electrosounds Vol. 1 (1998) Globe [FLAC|Lossless|tracks+.cue] <Techno, IDM,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668189.jpg" />
 </div>
 
 
@@ -156,7 +214,7 @@ Carl Craig - Versus & Remixes Vol. 1 & Vol. 2 (2017-2018) Infiné | Beat Records
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668112.jpg" />
 </div>
 
 
@@ -185,7 +243,7 @@ Class B Band - Movie T (2011) /WRL005CD/ [FLAC|Lossless]<Tech House, Nu-Disco, T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_667412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667412.jpg" />
 </div>
 
 
@@ -211,7 +269,7 @@ VA - The Sound Of NYLO, Vol. 2 (Compiled & Mixed By Vicent Ballester & The Nurk)
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667184.jpg" />
 </div>
 
 
@@ -240,7 +298,7 @@ Eric Prydz Presents Pryda ‎ - Pryda (2012) [FLAC|Lossless]<House , Progressive
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_665857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_665857.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ VA - Seven Stories: Voyage & Return (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665708.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Deorbiting - Space House (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664407.jpg" />
 </div>
 
 
@@ -321,7 +379,7 @@ VA - Miami Deep House Essentials 2018 (2018) Deluxe Version [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661821.jpg" />
 </div>
 
 
@@ -350,7 +408,7 @@ VA - Endless Music (Mixed & Compiled by Paul Lomax) Vol. 1,2 (2016-2017) [FLAC|L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661290.jpg" />
 </div>
 
 
@@ -379,7 +437,7 @@ Tensnake - L.A. Noir (2022) Mixed & Unmixed [FLAC|Lossless|WEB-DL|tracks] <EDM, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660083.jpg" />
 </div>
 
 
@@ -408,7 +466,7 @@ Simian Mobile Disco - Murmurations (2018) Wichita [FLAC|Lossless|tracks+.cue] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659843.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ Alesso - Forever (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659835.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ Adam Jay - Maxia Zeta (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659289.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ Rodriguez Jr. - Baobab (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658020.jpg" />
 </div>
 
 
@@ -521,7 +579,7 @@ DAVI - Boarding Call (2018) Maxi Single & EP [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657956.jpg" />
 </div>
 
 
@@ -550,7 +608,7 @@ Example - Playing In The Shadows (2011) [FLAC|Lossless]<Electro House/ Electro H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_657754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657754.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ DiNT - Hooker (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Exp
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657137.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Kontor Sunset Chill 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656692.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Marina And The Diamonds - Electra Heart (2012) Deluxe Edition [FLAC|Lossless]<Po
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_655268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655268.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ VA - 538 Dance Smash Vol. 2 (2015) [FLAC|Lossless]<House, Euro House, Electro, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655234.jpg" />
 </div>
 
 
@@ -692,61 +750,6 @@ VA - 538 Dance Smash Vol. 2 (2015) [FLAC|Lossless]<House, Euro House, Electro, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA359721784F8F4BDDD36287176FDC402C6079ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 236283   (655082) от 02.06.2015
-
-Late Night Alumni - 5 albums (2005 - 2015) [FLAC|Lossless]<Vocal House, Deep House, Chill>
-
->>След.
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655082.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Жанр: Vocal House, Deep House, ChillПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7503FE1A41CBEECF6AC02C914B526392437626A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904443   (654331) от 03.06.2015
-
-Tiefschwarz - Left (2015) [FLAC|Lossless|WEB-DL]<Tech House, Deep House, Mnml>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Weather
-02. Free Falling
-03. Morgen Abend
-04. Do Me(   Читать дальше...   )Жанр: Tech House, Deep House, MnmiПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A665AC2C17337A41ECC07E127321FA90CD6815
 ```
 
 https://mybot314.ru/tekegram_catalog/

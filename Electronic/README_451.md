@@ -1,3 +1,119 @@
+###  Публикация: 1347702   (148868) от 24.12.2019
+
+VA - Oh Holy Night (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ninze & Okaxy - Apollo (original mix) (7:01)
+02. David Dorad - Mexican Alien Song (Dorade Royal version) (9:22)
+03. Acud - Sancha (original mix) (6:33)
+04. Bookwood - Cali (original mix) (5:25)(   Читать дальше...   )Жанр: Deep Progressive HouseПродолжительность: 02:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEFC453A8D0E281A6F286CA82A231AE561B253A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347560   (148755) от 24.12.2019
+
+VA - Bar 25 Music Presents: Selektion 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead-Tones - For The World To Know About (original mix) (7:38)
+02. Bondi - Away From Heaven (Niko Schwind remix) (7:32)
+03. She Knows - Passing Hours (Sascha Cawa remix) (6:55)
+04. Nicone - Una Rosa Es Una Rosa (feat Narra - original mix) (5:33)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E11890A77B8C026B4C9F79A748BE2F08E049171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677884   (148716) от 19.11.2023
+
+Alphaville - Salvation (1997) Deluxe Version, Remaster, 2023, Warner Music Central Europe [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 1
+Disc 2
+Disc 3Жанр: Synth-popПродолжительность: 3CD, 03:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C878FC3C6B5CD81361EA5841AE54ED4044953DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519334   (148702) от 24.12.2021
+
+VA - Lo-Fi to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room – Holy Moly - That's A Groove (03:07)
+02. Dellasollounge – Can't See You (original mix) (02:48)
+03. Patiotic – Not An Exit (02:36)
+04. Lemongrass – Sur La Mer (04:31)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD13CF232441B9FC3923DF2B4DA74A790ABFC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202885   (148562) от 24.12.2019
 
 Snufmumriko - Discography 10 Releases (2012-2019) Spiritech, Lagerstätte, Dronarivm  [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Field Recording, Techno Ambient>
@@ -6,7 +122,7 @@ Snufmumriko - Discography 10 Releases (2012-2019) Spiritech, Lagerstätte, Drona
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148562.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Vocal Trance 2022 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148535.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ XXOT - Ажур (2020) [MP3|320 Kbps] <Industrial, EBM, Experimental, Female Voc
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148229.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ communication Tube - Discography 10 Releases (2015-2019) [FLAC|Lossless|WEB-DL|t
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148004.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Timewarp Records presents: Compilations Collection by Nova Fractal & Friends - 3
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147806.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Club Restricted Presents: Pre-Christmas Party (2015) [MP3|320 кб/с] <Pro
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147603.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20: December (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147601.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Uplifting Only: Fan Favorites 2017-2018 (Mixed by Ori Uplift) (2018) [MP3|3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147577.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Deep House Top 1000, Vol.1-Armada Music (2018) [MP3|320 Kbps] <House, DeepH
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147552.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Black Hole Best Of (2018) [MP3|320 Kbps] <Trance,House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147465.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - A State Of Trance Top 20: January (Selected by Armin Van Buuren) (Extended 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147419.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - White Sensation Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147411.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Space Holidays Vol. 10 (2018) 3CD [MP3|320 Kbps] <Spacesynth, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147367.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Anjunadeep. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147182.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Morcheeba - The Best Of Morcheeba 1995-2003 (2011) 2CD, Compilation [FLAC|Lossle
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147039.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Winterbreath Vol.3 (Chilled Lounge Tunes For The Winter Season) (2016) [MP3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147006.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Sensual Lounge Stage Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146987.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Cosy Winter Lounge, Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146984.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Winter Chillout 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146948.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - End of 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146938.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ MORTEN - Live @ TESstudio954, United States (2020-12-23) [MP3|320 Kbps] <Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146739.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Skrillex & Diplo - Skrillex and Diplo Present Jack U (2015) [FLAC|Lossless|Web-D
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146685.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Skrillex & Diplo - Skrillex and Diplo Present Jack U (2015) [FLAC|Lossless|Web-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:624808470ECDC065C45BDBD8F89FEF6AB0E2F1D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087221   (146684) от 27.12.2016
-
-Liebe - Revolution Of Love (2016) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet The Stars (4:16)
- 02. Reasons (5:43)
- 03. Revolution Of Love (3:48)
- 04. Sound Of The Moments (4:45)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D626807268362923C94DE1AA84FDE7BA02898C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087200   (146646) от 27.12.2016
-
-Christine And The Queens - Chaleur Humaine (2014) 2016, Because Music [FLAC|Lossless|tracks + .cue] <Synthpop, Indie Pop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. iT (03:38)
-02. Saint Claude (04:02)
-03. Tilted (03:53)
-04. No Harm Is Done (Feat. Tunji Ige) (03:30)(   Читать дальше...   )Жанр: Synthpop, Indie Pop, ElectronicПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DACF8C670EF44AC3E32FA53FF75F78133025F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087282   (146572) от 27.12.2016
-
-VA - AFTR:HRS (Mixed by Tiesto) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuits D'Etoiles feat. Noemie - Un Autre Monde [4:24]
-02. Niklas Ibach feat. Dan Reeder - The Blues [2:23]
-03. Florian Paetzold - Easy [4:12]
-04. Autograf - Heartbeat (Alex Schulz Remix) [2:52](   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 01:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685A0219C1E2DEA38BF64328007A3DB08DC09853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348164   (146239) от 26.12.2019
-
-VA - Space Holidays Vol. 11 (2019) 3CD [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rygar - Sonorous  (Album Promo Mix) (9:55)
-02. Synthesis - Star Explorer (6:00)
-03. Max Backes - Last Trip (5:44)
-04. Polaris - Black Hole (5:01)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 03:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6465BC30379A799422D19539F4E7E79F6AEC82DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1010716   (60202) от 10.04.2024
+
+Силиконовая долина / Кремниевая долина / Silicon Valley (2016) HDTVRip [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10) Кубик в кубе, Greb&CGC, BaibaKo
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60202.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о группе гиков, готовящих к запуску собственные стартапы в высокотехнологичном центре Сан-Франциско.Главные герои сериала бесплатно проживают в доме местного миллионера, но взамен им придётся отдать по 10% прибыли от будущих проектов.Производство: США, 3 Arts Entertainment, Judgemental Films Inc.Жанр: комедияРежиссер: Майк ДжаджАктеры: Аманда Крю, Эли Мави, Джэйк Бродер, Энди Бакли, Порша Коулмэн, Джимми Оуянг, Остин Абрамс, Джилл Е. Александр, Бобак Бахтиари и др.Перевод: двухголосый закадровый, профессиональный - Кубик в кубе (ненормативная лексика);
+многоголосый закадровый, профессиональный - студия "Greb&CGC" по заказу Amedia, BaibaKoСубтитры: русские, английские
+
+Внимание! Присутствует ненормативная лексика.Продолжительность: ~ 00:28:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B176CBA1DEDADB8DADA7E06F26E12D95D37A4B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908909   (60094) от 11.04.2024
+
+Чёрная материя / Тёмная материя / Dark Matter (2015) WEB-DL [H.264/720p] (сезон 1, серии 1-13 из 13) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заброшенный космический корабль. Шесть человек выходят из состояния стазиса и понимают, что все они потеряли память. Никто из героев не помнит собственного имени, а также того, как и с какой целью он оказался на борту. Каждый из членов экипажа имеет свои способности и навыки, которые, несмотря на амнезию, остались при них. И лишь объединившись в единую команду и (   Читать дальше...   )Производство: КанадаЖанр: Фантастика, триллер, драмаРежиссер: Рон Мерфи, Т.Дж. Скотт, Паоло БарзменАктеры: Марк Бендавид, Мелисса О’Нил, Энтони Лемке, Алекс Маллари мл., Джодель Ферланд, Роджер Р. Кросс, Зои Палмер, Дэвид Хьюлетт, Джессика Сайпос, Расселл Юэнь и др.Перевод: Профессиональный многоголосый (LostFilm)Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDFBB6137BD1CCF43305D45B2B39D535197C3C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705989   (60001) от 12.04.2024
 
 MInstAll v.10.03.2024 By Andreyonohov (ISO) [Ru]
@@ -6,7 +61,7 @@ MInstAll v.10.03.2024 By Andreyonohov (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60001.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59995.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59989.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ Avast Premium Security 24.3.6108 RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59891.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59888.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59886.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59884.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59789.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ Microsoft® Windows® 11 x64 Ru 23H2 4in1 Upd 04.2024 by OVGorskiy
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59781.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59780.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59687.jpg" />
 </div>
 
 
@@ -293,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59658.jpg" />
 </div>
 
 
@@ -319,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59584.jpg" />
 </div>
 
 
@@ -345,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59460.jpg" />
 </div>
 
 
@@ -371,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59371.jpg" />
 </div>
 
 
@@ -397,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59246.jpg" />
 </div>
 
 
@@ -423,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59057.jpg" />
 </div>
 
 
@@ -450,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59047.jpg" />
 </div>
 
 
@@ -476,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59046.jpg" />
 </div>
 
 
@@ -502,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58953.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58943.jpg" />
 </div>
 
 
@@ -554,7 +609,7 @@ FarCry по-русски (2015) [Ru] (1.1) Mod
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58941.jpg" />
 </div>
 
 
@@ -580,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58933.jpg" />
 </div>
 
 
@@ -607,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58815.jpg" />
 </div>
 
 
@@ -618,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375941   (58533) от 26.04.2024
-
-Хроника эпидемии / Эпидемия / Epidemie (2020) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) Greb&Creative
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда вирус, поражающий органы дыхания, начинает распространяться среди населения города Монреаль, инфекционист Анн-Мари Леклерк пытается сделать все возможное, чтобы остановить распространение болезни и не допустить пандемию. У всех заболевших одинаковые симптомы: потемнение в глазах, потеря вкуса, повышенная температура и сильнейший кашель. Сначала жители относятся (   Читать дальше...   )Производство: Канада / Sphère Média PlusЖанр: триллерРежиссер: Ян Лануетт ТургеонАктеры: Жюли Лебретон, Гийом Кир, Мелисса Дезормо-Полен, Эдуар Би Ларок, Мани Солейманлу, Феликс-Антуан Трембле, Бруно Марсиль, Алиса Паскаль, Лоран Лемер, Эва Ландри, Катрин Берюбе, Габриэль Сабурен и др.Перевод: Дублированный (Greb&Creative)Продолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C55D1D32B4ACFB0294F37F4EC5AC6994F7A6002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537795   (58525) от 26.04.2024
-
-Обоюдное согласие (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая учительница русского языка и литературы Анна Федорова приезжает на вечеринку к старым друзьям на яхту. Под утро Анна прыгает в море, в то время как остальные еще спят. В мокром платье, босиком, с синяками и ссадинами на теле девушка добирается до отделения полиции и пишет заявление об изнасиловании. В преступлении она обвиняет своих друзей, влиятельных людей (   Читать дальше...   )Производство: Россия / МТС Медиа, МедиасловоЖанр: триллер, детектив, драма, криминалРежиссер: Валерия Гай ГерманикаАктеры: Светлана Иванова, Шамиль Хаматов, Анна Снаткина, Алла Михеева, Мария Голубкина, Федор Лавров, Тарас Кузьмин, Роман Евдокимов, Глеб Бочков, Андрей КозловПродолжительность: ~00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B74F50E2AD8F489838A6A4CD89B7DC1894082B
 ```
 
 https://mybot314.ru/tekegram_catalog/

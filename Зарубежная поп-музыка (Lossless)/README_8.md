@@ -6,7 +6,7 @@ Frank Duval - Lonesome Fighter (2021) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008448.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Richard Marx - Stories To Tell (2021) 2CD [FLAC|Lossless|image + .cue] <Pop, Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008304.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Calming Acoustic Playlist (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008168.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ ABBA - International (1988) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007587.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Beautiful and Chilled Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006882.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Pure... Alternative 80s (2011) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006854.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006771.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005821.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - July 2021 Hits [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005708.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - Disco Summer (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005292.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Robbie Williams - The Christmas Present (2019) 2CD [FLAC|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004266.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Lucio Dalla - Lucio Dalla 40th Legacy Edition (2019) [FLAC|Lossless|tracks + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003518.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - 100 Greatest American Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003445.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - 80s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003327.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Billie Eilish - Happier Than Ever (2021) [FLAC|Lossless|tracks + .cue] <Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003053.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Pink (P!NK) - Greatest Hits... So Far 2019!!! (2010/2019) Japanese Edition [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002935.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ a-ha - Minor Earth | Major Sky (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002683.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - 100 Hits Number 1's (2018) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002493.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ a-ha - Lifelines (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002425.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Georgia - Seeking Thrills (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002188.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Acoustic 90s and 00s Covers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acou
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001916.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ a-ha - East Of The Sun West Of The Moon (2015) 2CD, Deluxe Edition, RE. RM. [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001638.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ a-ha - Memorial Beach (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000869.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Acoustic 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000866.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - 100 Greatest Singalong Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000852.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Acoustic Pop Songs 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000721.jpg" />
 </div>
 
 

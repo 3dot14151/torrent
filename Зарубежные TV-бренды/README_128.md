@@ -6,7 +6,7 @@ BBC: Саймон Шама - История Британии / BBC: Simon Schama
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28500.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28475.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28320.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Космическая одиссея. Путешествие по гала
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27587.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Неизвестный Китай / Lost In China (2009) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27570.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26512.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21091.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.265/2160p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21068.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC. Чудо Песни Дэвида Аттенборо / Attenborough's Wonder
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19746.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19463.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19221.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19076.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG: Известная Вселенная. Есть там Кто-Нибудь? 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16636.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NG: Первозданная природа. Эдем жизни / The Living Ed
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16449.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14896.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14864.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BBC: Млекопитающие / Mammals (2024) WEBRip [H.264/1080p] (сезо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14860.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14674.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Discovery: Шахты на Луне / Mining the Moon (Роб Бимер) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14598.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Discovery: Экоград / Ecopolis (2008) SATRip (серии 1-6 из 6)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14591.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14581.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14548.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14525.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ BBC. Легендарные тигры Индии / Легендарні тиг�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14504.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14372.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14369.jpg" />
 </div>
 
 

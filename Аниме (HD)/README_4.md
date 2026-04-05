@@ -6,7 +6,7 @@ Suki-tte Ii na yo / Say I Love You / Скажи: «Я люблю тебя» [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997631.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Rifle is Beautiful | Винтовка прекрасна [2019, TV, 12 эп.] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985871.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai 2 | Изобрази отвращ�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984487.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dance with Devils / Танец с дьяволами [2015, TV, 12 из 12] HDTV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982801.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Upotte!! / Шмальнём!! [2012, ONA, 10] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981399.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Babylon | Вавилон [2019, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978439.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Haikyuu!! Riku vs Kuu | Haikyu!! Land vs Air | Волейбол OVA-3 [2019, OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977751.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Suisei no Gargantia: Meguru Kouro, Haruka | Гаргантия на зелёно
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977677.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Hellsing Ultimate / Хеллсинг OVA [2006, OVA, 10 из 10] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977090.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Ansatsu Kyoushitsu / Assassination Classroom / Класс Убийц [ТВ-1] [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974096.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Etotama / Eto Tamashii / История одной кошечки [2015, TV, 12]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973193.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Mushishi Tokubetsu-hen: Hihamukage / Мастер Муси [2014, TV-sp, 1 ep.] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972900.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Sakurako-san no Ashimoto ni wa Shitai ga Umatteiru / Труп под ногам�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967398.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Inou-Battle wa Nichijou-kei no Naka de | Inou Battle | Inou Battle Within Everyd
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957260.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Rakuen Tsuihou / Expelled from Paradise / Изгнанные из Рая [2014, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957256.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Terra Formars / Terraformars / Терраформеры [2014, TV, 13 ep] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957167.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Katanagatari / Sword Stories / Истории мечей [2010, ТВ, 12 сер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955086.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Gekijouban Trigun: Badlands Rumble / Триган: Переполох в пус�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955001.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Rurouni Kenshin: Meiji Kenkaku Romantan - Shin Kyoto Hen / Бродяга Кэн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954928.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Okusama ga Seitokaichou! Plus! / My Wife Is the Student Council President! + / �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954921.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Hikaru no Go / Hikaru's Go / Хикару и го [2001, TV, 75] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954572.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Grisaia no Kajitsu / Le Fruit de la Grisaia / Плод Грисайи / Натю
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952740.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Togainu no Chi -Bloody Curs- / Blood of the Reprimanded Hound / Кровь ок�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951580.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Shirobako / Белая коробка [2014, TV, 24] HDTV 720p Hi10p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950841.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945535.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Radiant (2019) | Радиан [ТВ-2] [2019, TV, 21] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944763.jpg" />
 </div>
 
 

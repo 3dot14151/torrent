@@ -1,3 +1,161 @@
+###  Публикация: 1674874   (160629) от 07.11.2023
+
+По течению великих рек (Как река становится морем) Рона / Au Bout c'est la Mer. Le Rhone (2021) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие по реке Роне - королеве рек Франции и ШвейцарииПроизводство: Франция, France television, Step by Step producionЖанр: документальный, познавательный, путешествияРежиссер: Николя БоероУчастники: Франсуа ПешоПеревод: двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAC25D7F792502B1C82D344A66476EF8C3D50B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674818   (160555) от 07.11.2023
+
+Время вперед (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-5 из 5)
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный проект «Время вперед» представляет собой последовательный и объективный разбор ключевых, взаимосвязанных событий начиная с Петровских времен до 1953 года без характерной риторики и политических спекуляций, опирающийся лишь на факты, с использованием архивных материалов.Производство: Россия, ООО «Ковчег», ОАО ВС РФ «Звезда»Жанр: документальный, историяРежиссер: Александр ЕвсюковЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D6B865F24DE3B4507F80DFE5DA2FCD5DC00371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674900   (160548) от 07.11.2023
+
+Вор. Закон вне закона (2010) IPTVRip [H.264] (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летопись зари воровской идеи в СССР и России периода криминального расцвета. Подобно итальянским мафиози, русские "воры в законе" - элита преступного мира. Они - идеологи уголовных "понятий" и хранители воровских традиций. Первые "доны Корлеоне" появились в СССР в 30-е годы, и с тех пор играют в жизни нашего общества значительную роль. (   Читать дальше...   )Производство: Россия / ООО «Телекомпания «Студия-49»Жанр: документальныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:39:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5808A0586221089450CC4F63C279FF21340E825B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675241   (160432) от 08.11.2023
+
+Дзига Вертов. Одиннадцатый (1928) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм посвящен достижениям Украинской ССР к одиннадцатой годовщине Октябрьской революции.
+"Одиннадцатый" - документальный фильм, смонтированный из кадров советской кинохроники двадцатых годов, рассказывает о строительстве социализма на Украине.
+Режиссер специально акцентировал внимание на этом неюбилейном, некруглом числе. Здесь не может быть праздничной (   Читать дальше...   )Производство: СССР, ВУФКУЖанр: документальный, история, кинохроника, немое киноЯзык озвучки: немойСубтитры: русские (интертитры)Продолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C15BCD9E3E9DFE021947E8C028435A02FA85848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675472   (160267) от 09.11.2023
+
+Шарксплотейшн / Sharksploitation (2023) WEB-DL [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160267.jpg" />
+</div>
+
+
+###  Подробнее
+
+История голливудских фильмов ужасов про акул.Производство: США, ShudderЖанр: документальный, кинематограф, история, ужасыРежиссер: Стивен СкарлатаУчастники: Джо Алвес, Марк Аткинс, Пол БэйлсПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (forced+full, Pazl Voice), английские (full + SDH)Продолжительность: 01:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF42AC62D4FEB8F586A479BDE2A0ADDFDBD7D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599139   (160151) от 22.12.2022
+
+Куда делись ласточки? / Ou sont passees les hirondelles? / Where Have the Swallows Gone? (2020) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160151.jpg" />
+</div>
+
+
+###  Подробнее
+
+При виде красоты природы трудно представить себе, что природа в опасности. Что однажды всё может исчезнуть. Регион Овернь в центре Франции тоже столкнулся с проблемой экологии. В реках, озерах и на лугах - повсюду можно встретить загрязнения, вызванные человеческой деятельностью. Что же делать? Без каких-либо громких слов простые граждане трудятся на благо природы. (   Читать дальше...   )Производство: Франция, France 3Жанр: документальный, природа, экологияРежиссер: Стефан БентураПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод А.Вижье, компания Hiventy by TransPerfect), английские, французские, немецкие, нидерландские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: 01:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04BD384BEE09574196A408840776D2567ED45C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599090   (160149) от 22.12.2022
 
 Приключения пшеничного зерна / L'apocalypse d'un grain de ble / The Apocalypse of Grain and Wheat (2021) DVB [FR / RU Sub]
@@ -6,7 +164,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160149.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160144.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160141.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160140.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160103.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160100.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160056.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159976.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159946.jpg" />
 </div>
 
 
@@ -240,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159871.jpg" />
 </div>
 
 
@@ -266,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159834.jpg" />
 </div>
 
 
@@ -292,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159776.jpg" />
 </div>
 
 
@@ -318,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159756.jpg" />
 </div>
 
 
@@ -344,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159753.jpg" />
 </div>
 
 
@@ -370,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159710.jpg" />
 </div>
 
 
@@ -396,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159667.jpg" />
 </div>
 
 
@@ -422,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159666.jpg" />
 </div>
 
 
@@ -448,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159655.jpg" />
 </div>
 
 
@@ -474,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159653.jpg" />
 </div>
 
 
@@ -500,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159645.jpg" />
 </div>
 
 
@@ -511,164 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32EE4A56B490B536DC542F2EC84E27DF237AD44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599627   (159641) от 24.12.2022
-
-Битва Поколений. GAYAZOV$ BROTHER$ vs группа НА-НА (2022) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159641.jpg" />
-</div>
-
-
-###  Подробнее
-
-На МУЗ-ТВ стартует масштабное шоу, которое соберёт на одной сцене артистов первой величины разных музыкальных эпох – «Битва Поколений». Заслуженный исполнитель и дерзкий хэдлайнер чартов встретятся в профессиональном поединке и померяются силами в качестве живого звука, мощности хитов, харизме и творческом экспромте!Телекомпания: Муз ТВЖанр: Музыкальный баттлПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4712C127C2DC90293558DAD8454C736C1C090712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599663   (159639) от 24.12.2022
-
-Битва Поколений. Николай Басков vs Егор Шип (2022) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159639.jpg" />
-</div>
-
-
-###  Подробнее
-
-На МУЗ-ТВ стартует масштабное шоу, которое соберёт на одной сцене артистов первой величины разных музыкальных эпох – «Битва Поколений». Заслуженный исполнитель и дерзкий хэдлайнер чартов встретятся в профессиональном поединке и померяются силами в качестве живого звука, мощности хитов, харизме и творческом экспромте!Телекомпания: Муз ТВЖанр: Музыкальный баттлПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F812905A24834D7BC0CB10359C23E4E7280C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599675   (159627) от 24.12.2022
-
-Главная дорога (24.12.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159627.jpg" />
-</div>
-
-
-###  Подробнее
-
-- Обзор праздничного светомобиля из Кирова.
-- Забыть вещи в такси — просто, но как их вернуть?
-- Праздник зимнего в-пробке-стояния! Ведущие «Главной дороги» Андрей Федорцов и Денис Юченков вместе с космонавтами, которые проводят сутки в одном положении, и врачами, рассказали и показали, как пережить десятибалльные заторы и не испортить новогоднее настроение!? Зачем (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B0EAAB4295697DE3AFCCA1686122FFE7780BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599649   (159625) от 24.12.2022
-
-Битва Поколений. Mary Gu vs Акула (Оксана Почепа) (2022) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159625.jpg" />
-</div>
-
-
-###  Подробнее
-
-На МУЗ-ТВ стартует масштабное шоу, которое соберёт на одной сцене артистов первой величины разных музыкальных эпох – «Битва Поколений». Заслуженный исполнитель и дерзкий хэдлайнер чартов встретятся в профессиональном поединке и померяются силами в качестве живого звука, мощности хитов, харизме и творческом экспромте!Телекомпания: Муз ТВЖанр: Музыкальный баттлПродолжительность: 01:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624BFDB30BF142F6A44AFAF3B72167D5018E26B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599667   (159616) от 24.12.2022
-
-Битва Поколений. Zivert vs Ева Польна (2022) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159616.jpg" />
-</div>
-
-
-###  Подробнее
-
-В финальном выпуске сезона шоу «Битва Поколений» на сцену выйдут Zivert и Ева Польна. Две легендарные артистки подарят жюри и зрителям настоящий музыкальный праздник. Любимые песни и совершенно новое звучание любимых хитов. В креслах жюри: Виктор Дробыш, Лариса Долина, Диана Арбенина, DAVA, Mia Boyka и Леша Свик. Приятного просмотра!Телекомпания: Муз ТВЖанр: Музыкальный баттлПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3592469074558EAADBCB9B94FDFB52EC0B66DE27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599782   (159613) от 24.12.2022
-
-Следствие вели... (24.12.2022) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159613.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дед Мороз с пистолетом». В Новый год даже взрослые начинают верить в чудеса! Большинство отмечают праздник под бой курантов и с брызгами шампанского, а кто-то готовит лихой вояж… Так, в Саратовской области в 1974-м объявились Дед Морозы — оборотни. Сколько денег добыли наглые бандиты всего за несколько недель? Чье убийство изменило ход следствия? Как преступники (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB9D06B331E7743752494231976D14B5001D8BFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

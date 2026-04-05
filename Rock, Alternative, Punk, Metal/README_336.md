@@ -1,3 +1,148 @@
+###  Публикация: 1280061   (763325) от 01.02.2019
+
+Within Temptation - Resist (2019) Extended Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Reckoning
+02. Endless War
+03. Raise Your Banner
+04. Supernova(   Читать дальше...   )Жанр: Alternative Metal, Symphonic MetalПродолжительность: 01:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B6D34F7186463DC95CC49711933C7F79C80ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214577   (763292) от 23.03.2018
+
+Kult Der Krahe - Schwarzer Engel (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Krahen an die Macht (3:50)
+ 02. Viva la musica (2:58)
+ 03. Gott ist im Regen (4:27)
+ 04. Sinnflut (4:09)(   Читать дальше...   )Жанр: Symphonic Gothic Metal, Industrial MetalПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62031C310C07AA3A98E3EEEDE3D57B8353AF4A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016907   (763258) от 16.05.2016
+
+Bear Hands - You'll Pay For This (2016) [FLAC|Lossless|tracks] <Experimental Rock, Indie Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Won't Pay
+02. 2AM
+03. Boss
+04. Déjà Vu(   Читать дальше...   )Жанр: Experimental Rock, Indie Rock, Post-PunkПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AACB4E48CC8D17F804B2E2E7511AE0E8C493E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214880   (763077) от 23.03.2018
+
+Deuce - Nightmare (2018) EP [MP3|320 Kbps] <Alternative Rock, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleed (4:41)
+ 02. Do You Think About Me (5:26)
+ 03. Famous (feat. Gadjet) (4:33)
+ 04. Look At Me Now (5:01)(   Читать дальше...   )Жанр: Alternative Rock, RapcoreПродолжительность: 00:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C697EE99D749C7812F4198B543456359ADF62DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016941   (763035) от 16.05.2016
+
+Hotei - Strangers (2015) [FLAC|Lossless|image + .cue] <Rock, Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medusa    05:57
+02. How The Cookie Crumbles    02:45
+03. Kill Or Kiss    04:21
+04. Move It    02:53(   Читать дальше...   )Жанр: Rock, Alternative Rock, Hard RockПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1635F300385450C92594AFA6288987C34F788AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017061   (763031) от 16.05.2016
 
 Морэ & Рэльсы - Медленно стекать в море (2016) [MP3|320 кб/с] <Indie Rock, Alternative>
@@ -6,7 +151,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763031.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Danger Zone - Closer To Heaven (2016) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763029.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762998.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Joe Cocker - Heart & Soul (2004) US Version [FLAC|Lossless|image + .cue] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762952.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Shexna - Вы Завийте, Витерочики... (2016) [MP3|320 кб/с] <
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762946.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762883.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Bad English - Greatest Hits (2003) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762568.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Van Halen - 12 альбомов (1978-2012) [MP3|320 кб/с]<Classic Rock & Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762430.jpg" />
 </div>
 
 
@@ -237,7 +382,7 @@ Cloud Nothings - The Black Hole Understands (2020) [MP3|320 Kbps] <Indie Rock, L
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762303.jpg" />
 </div>
 
 
@@ -266,7 +411,7 @@ Ravenlight - Project Genesis (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762298.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ Skyfall - Sleeping Forest (2020) [MP3|320 Kbps] <Symphonic Metal, Instrumental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762290.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ Ancient Prophecy - Testimony (2019) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762237.jpg" />
 </div>
 
 
@@ -353,7 +498,7 @@ Die Klute - Planet Fear (2019) [MP3|320 Kbps] <Industrial, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762231.jpg" />
 </div>
 
 
@@ -382,7 +527,7 @@ Metal Allegiance - Metal Allegiance (2015) Limited Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762229.jpg" />
 </div>
 
 
@@ -411,7 +556,7 @@ Clouds - Doliu (2014) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762224.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ Clouds - Departe (2016) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762223.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ H.E.A.T - Greatest H.E.A.Ts (2018) Compilation, 2CD, Japanese Edition [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762221.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ Middle Of The Road - The Collection (1996) Unofficial Release [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762136.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ White Lies - Five (2019) [MP3|320 Kbps] <Indie,  Post-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762135.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ Metal Allegiance - Volume II: Power Drunk Majesty (2018) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762133.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Razzmattazz - Hallelujah (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761876.jpg" />
 </div>
 
 
@@ -599,151 +744,6 @@ Razzmattazz - Hallelujah (2019) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A448DB6E7329F89D6C12F78D8AB505373568D94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280284   (761728) от 02.02.2019
-
-Metallica - ...And Justice For All (1988/2018) 11CD, Disc Box Set Blackened Records [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metallica отмечают 30-летие своего прорывного четвертого альбома "…And Justice For All" выпуском его переиздания. Оно увидило свет 2 ноября на собственном лейбле группы, Blackened Recordings. В целях обеспечения максимального качества звучания материал альбома прошел ремастеринг под руководством Грега Фиделмана (Greg Fidelman). Переиздание будет выпущено (   Читать дальше...   )CD01 - Album Remastered
-CD02 - Interviews
-CD03 - Riffs, Jams & Demos (Previously Unreleased except where noted)
-CD04 - Riffs, Jams & Demos (Previously Unreleased except where noted)Жанр: Heavy Metal, Thrash Metal, Speed MetalПродолжительность: 12:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8117AE015373B380A543644C48CCD4367CC208B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214965   (761454) от 24.03.2018
-
-Blessthefall - Hard Feelings (2018) [MP3|320 Kbps] <Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wishful Sinking
-02. Find Yourself
-03. Melodramatic
-04. Feeling Low(   Читать дальше...   )Жанр: Post-Hardcore, ElectronicПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190B0BE89D706D731B7C82ABC7DC3CBCE45FB700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215073   (761378) от 24.03.2018
-
-The Alan Parsons Project  - Eye In The Sky (1982) 1983, Arista Records [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sirius (1:54)
- 02. Eye In The Sky (4:37)
- 03. Children Of The Moon (4:51)
- 04. Gemini (2:11)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24CB20CC433C18C8CFBDBD59FE6F7A129A809C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214903   (761289) от 24.03.2018
-
-Lumen - Забытое и найденное (2018) [FLAC|Lossless|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Домой
-02. Пули
-03. Вечность
-04. Самый главный человек(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5A1D9A6C52239DD391E72504AA069D447B696B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215131   (761287) от 24.03.2018
-
-Анатолий Крупнов - Я остаюсь (2018) Часть 1 - 3 [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761287.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 февраля, в День Памяти артиста, стартует предзаказ на первые три пластинки, объединенных под общим названием «Я остаюсь». Летом 1993 года на студии «SNC» Анатолий Крупнов и группа «Чёрный обелиск» записали два альбома. Будучи абсолютным перфекционистом, Толя всегда скрупулезно подходил ко всем этапам работы. Случилось так, что при сведении Крупнов присутствовать (   Читать дальше...   )01. Мы в пути
-02. Дом жёлтого сна
-03. Я остаюсь
-04. Пятая песня(   Читать дальше...   )Жанр: RockПродолжительность: 02:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5462461E4B5BBDDEF4FCA419A2BAD20642156B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ David Hasselhoff - 2 Albums (1989-1990) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104714.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - DJ Hits 333 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodanc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104642.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - DJ Hits Vol. 345 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104641.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - DJ Hits 350 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodanc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104638.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - DJ Vol 351 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104612.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - DJ Hits Vol. 363 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104548.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - DJ Hits Volume 777 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104547.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - DJ Hits Vol. 401 (1997) [OGG Vorbis|480 Kbps] <Electronic,  Euro House, Eur
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104542.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ London Grammar - The Greatest Love (2024) [MP3|320 Kbps] <Pop, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104522.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - DJ Hits Vol. 1300 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104357.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - DJ Hits Vol. 1000 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104331.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - DJ Hits Vol. 5100 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104246.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - DJ Hits Of October 1997 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104186.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - DJ Hits Of June'97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104177.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - DJ Hits 1997 November (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euroda
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104168.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - DJ Dance 96 Volume 9 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104141.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Hola Hola Compilation (1995) [OGG Vorbis|480 Kbps] <Electronic, Eurodance, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104137.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - The 90s Mixtape (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103564.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103260.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Barbra Streisand - A Woman in Love - The Greatest Hits (2012) [MP3|320 кб/с]<
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101841.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100734.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Florence + The Machine - MTV Unplugged (2012) [m4a|~276  кб/с]<Acoustic, Indi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99444.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Duffy - Endlessly (2010) [MP3|320 кб/с]<Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98091.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Alice de Selys - In A Heartbeat (2012) [MP3|320 кб/с]<Pop, Lounge>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97654.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Alex Band - We've All Been There [Deluxe Edition] (2010) [MP3|320 кб/с]<Alt. 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96359.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ East 17 - Dark Light (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90663.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1755632   (40188) от 16.10.2024
+
+PictureThis - Plant Identification v4.4.2 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 16.10.2024Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53AA4BBB133ED43B8B03A03A1C5F6BD91CD43BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755633   (40182) от 16.10.2024
+
+Folder Player Pro v5.28 Paid [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Folder Player Pro - это ориентированный на каталоги и файлы музыкальный mp3-плеер, являющийся более продвинутой версией своего популярного бесплатного аналога. Это приложение обеспечивает простоту использования с удобным управлением. Здесь не нужно создавать или добавлять плейлисты, достаточно выбрать папку содержащую аудиофайлы, чтобы запустить проигрывание. А учитывая (   Читать дальше...   )Тип издания: Paid (купленная Pro с Маркета)Релиз состоялся: 16.10.2024Разработчик: Peter ShashkinПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F53793535AA597CB2D1D60EA16355FF3270D8B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755319   (40162) от 16.10.2024
+
+PhotoRoom v5.4.7 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.10.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F455F2D1B920626A18E1B8DA4ACFB39C2545BB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755815   (40110) от 17.10.2024
+
+IPTV Pro v8.2.2 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смотрите IP-телевидение вашего интернет-провайдера или ТВ из любого другого интернет-источника на телефоне или планшете! Саму трансляцию осуществляет провайдер, поэтому если вдруг что-то перестало показывать, то скорее всего дело именно в провайдере, обращайтесь к нему. Чтобы убедиться в этом наверняка, просто откройте плейлист на компьютере при помощи VLC или IP-TV (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 16.10.2024Разработчик: Alexander SofronovПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C73BB2E4457167D5C0025383A9F3D769CF41E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755816   (40089) от 17.10.2024
 
 ActionDirector - Видеоредактор v7.12.5 Mod by Balatan [Ru/Multi]
@@ -6,7 +110,7 @@ ActionDirector - Видеоредактор v7.12.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40089.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.5 Mod by Bala
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40085.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Botanicula 1.0.274 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40004.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39901.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ Background Video Recorder Pro v10.9.9 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39898.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ Monument Valley NETFLIX 3.7.235 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39883.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ Valiant Hearts: Coming Home 1.0.5 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39882.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ World of Goo Remastered 1.0.23082408 Mod by DroidHaven [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39876.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ EOBD Facile: OBD 2 авто сканер v3.66.1062 Mod by derrin, NURIK kz [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39869.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ Reface: Face Swap AI Generator v4.25 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39858.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ TapScanner v3.0.42 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39856.jpg" />
 </div>
 
 
@@ -300,7 +404,7 @@ PDF Extra PDF Editor & Scanner v10.17.266453 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39850.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ GTA: San Andreas – NETFLIX 1.86.44544238 Mod by Apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39837.jpg" />
 </div>
 
 
@@ -354,7 +458,7 @@ GTA: San Andreas — Definitive Edition 1.86.44544238 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39833.jpg" />
 </div>
 
 
@@ -380,7 +484,7 @@ GTA: Vice City – NETFLIX 1.83.44255649 Mod by Apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39813.jpg" />
 </div>
 
 
@@ -408,7 +512,7 @@ RuStore для Android v1.53.0.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39811.jpg" />
 </div>
 
 
@@ -434,7 +538,7 @@ Vanced Tube v5.1.83.147 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39805.jpg" />
 </div>
 
 
@@ -460,7 +564,7 @@ GTA: Vice City — Definitive Edition v1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39803.jpg" />
 </div>
 
 
@@ -486,7 +590,7 @@ AR Ruler App: Линейка Рулетка v2.8.8.1 Mod by srajawwal09 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39798.jpg" />
 </div>
 
 
@@ -512,7 +616,7 @@ Monument Valley 2 NETFLIX v3.7.120 Mod by apkvision [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39789.jpg" />
 </div>
 
 
@@ -540,7 +644,7 @@ Valiant Hearts: The Great War 1.0.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39785.jpg" />
 </div>
 
 
@@ -567,7 +671,7 @@ GTA 3 — Definitive Edition 1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39784.jpg" />
 </div>
 
 
@@ -578,115 +682,6 @@ GTA 3 — Definitive Edition 1.83.44255649 Mod by apkvision [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6B33A8789665A56A43294F7A5625957C29AE92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756365   (39761) от 20.10.2024
-
-GTA III – NETFLIX 1.83.44255649 Mod by apkvision [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте гигантский открытый мир, с которого все начиналось. В игру добавлено множество улучшений самого разного плана, в том числе новая система освещения и повышенная детализация, текстуры высокого разрешения, увеличенная дальность прорисовки, управление и прицеливание в стиле Grand Theft Auto V и многое, многое другое.
-
-Все начинается в Либерти-Сити. Grand Theft (   Читать дальше...   )Тип издания: FullРелиз состоялся: 29 мар. 2024 г.Разработчик: Netflix, Inc.Поддерживаемая ОС: Android 11+Жанр: ЭкшнЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547C5B5EAAFFC471B6CF5B68BC9AD708111778D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756271   (39747) от 20.10.2024
-
-Photo Mate R3 v3.8.0 b188 Mod by Balatan [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Организуйте свои изображения!
-Photo Mate предлагает библиотеку фотографий, в которой вы можете фильтровать и сортировать все ваши файлы на основе метаданных, таких как камера, диафрагма или ISO, а также настраиваемых рейтингов, меток и ключевых слов. Библиотека может обрабатывать jpg, а также практически любой формат Camera Raw.
-Вы можете оценивать, помечать и добавлять (   Читать дальше...   )Тип издания: Extra ModРелиз состоялся: 19.10.2024Разработчик: TS SystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B4CABF5D294C3F5000079EBE79490FF36D3237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756276   (39737) от 20.10.2024
-
-Pencil Photo Sketch : Drawing v2.0.95 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pencil Photo Sketch - профессиональное приложение для редактирования фотографий. Вы станете настоящим мастером по созданию карандашных набросков из ваших фото. Pencil Photo Sketch - профессиональное приложение для обработки изображений, превращающее ваши фотографии в черно-белые или цветные карандашные рисунки. Выберите фото из галереи или сделайте снимок и сгенерируйте (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 19.10.2024Разработчик: Minerva Studios Private LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:748ABB9FE47A927B9CCB527033ADBBA3F6C4C419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756416   (39705) от 21.10.2024
-
-Candleman 3.3.2 Mod by youarefinished [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая свеча может гореть в течение 10 секунд, чтобы найти выход из темноты в поисках света.
-“Свеча”- это приключенческий квест с уникальным геймплеем и сюжетной линией. Игрок исполняет роль свечи, которая может гореть только в течение 10 секунд, находить выход из ловушек и путаниц, пробираться сквозь свет и тьму. Прикоснитесь к невероятной атмосфере игры, в которой (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 5 сент. 2024 г.Разработчик: Candleman GamesПоддерживаемая ОС: Android 5.1Жанр: ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052B975A0D7D237F87F51911DD1D2028830E301A
 ```
 
 https://mybot314.ru/tekegram_catalog/

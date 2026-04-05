@@ -6,7 +6,7 @@ Loudness - 2·0·1·2 (2012) [WavPack|Lossless]<Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476209.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - Who Do They Think We Are? - A Tribute to Deep Purple from Japan (1996) Reis
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475913.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ ESQUARIA - 7 альбомов (2013-2015) Touhou Vocal /Doujin/ [MP3|320kbps] <J
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472958.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Saber Tiger - Project One (1997) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472378.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Saber Tiger - Indignation (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472353.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Kaori Muraji - Portraits (2009) [MP3|320 кб/с]<Classical, Instrumental, Acous
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467482.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Cintija Wang - Copenhagen's Fairy Tales (2009) [FLAC|Lossless]<Cpop,mandopop,tw.
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466371.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ T.M.Revolution - ignited (2004) Single [FLAC|Lossless|tracks + .cue] <Jpop, Anim
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465478.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Shunichi Miyamoto - 4 альбома, 4 сингла (2003-2008) Дискогр�
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457603.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Luo Qi-Rui - Sweet Sounding From Hsiao (2006) [MP3|320 кб/с]<Instrumental>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450727.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Eastern Fragrance (2007) [MP3|320 кб/с]<Instrumental, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448584.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Treasure Edition, Chinese Music Classics Of The 20th Century (2004) 24 CDs 
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446479.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Toru Takemitsu (武満徹) - The Film Music Of Toru Takemitsu (1997) [FLAC|Lossl
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444608.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Kinoco Hotel - 3 альбома (2010-2011) [MP3|192 кб/с]<J-Rock, J-Pop>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443533.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Rokugen Alice - 32 альбома (2006-2014) /Doujin/ [FLAC|Lossless] <J-Rock, 
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437290.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Sound Of The Crystal Energy (4 albums) (2009) [MP3|320 кб/с]<Instrumenta
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433811.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Shoujo Byou - 26 альбомов (2004-2012) /Doujin/ [FLAC|tracks] <J-Rock, Go
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433111.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Walking On The Mountain Paths (2008) [MP3|320 кб/с]<New age, Instrumenta
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431700.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Yuyoyuppe - 13 альбомов, 30 компиляций, 1 сингл (2009-201
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430030.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Chuantong Orchestra - China: Traditional Music (2015) [OGG| 422-484 кб/с]<Wor
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428822.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Dir En Grey - The Insulated World (2018) [MP3|320 Kbps] <Alt-Metal>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428572.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Joji - Nectar (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425463.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Let's Visit The Lands And Waters (2010) [MP3|320 кб/с]<Instrumental>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424784.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ VA - National Park Music (2000-2008) 6 albums [MP3|320 кб/с]<Instrumental, Et
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424519.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Shoujo Byou — Tenjun Merkmal (2016) /Doujin/ [FLAC|Lossless|image+.cue] <J-Roc
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423620.jpg" />
 </div>
 
 
@@ -776,7 +776,7 @@ SYU - Crying Stars - Stand Proud! (2010) Korean Edition [FLAC|Lossless|image + .
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420945.jpg" />
 </div>
 
 

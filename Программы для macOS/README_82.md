@@ -1,3 +1,61 @@
+###  Публикация: 1049613   (543761) от 05.09.2016
+
+Megapack for iWork 2015 v2.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Megapack for iWork: Шаблоны для Pages, Numbers и Keynote можно использовать для дома и офиса. Пакет, содержит творческие проекты, темы и шаблоны для последних редакции Pages, Numbers и Keynote.
+
+• Pages. От простых писем и приглашений до бюллетеней, брошюр, и отчетов. Megapack for iWork поможет вам создать документы в полном объеме в течение нескольких минут.
+Таблицы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 июля 2016Разработчик: Nick MaskillПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4DD458CABD7A34FB73B8C868ACACC500BD0AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049588   (543663) от 05.09.2016
+
+PDF Expert 2.0.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543663.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Expert - многофункциональная утилита для работы с PDF
+PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
+
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 сентября 2016Разработчик: Readdle Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582A2B08C00F8045C6C0320029A1A113EDF4C57F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049634   (543661) от 05.09.2016
 
 Wondershare Video Converter Ultimate 5.3.0 [En]
@@ -6,7 +64,7 @@ Wondershare Video Converter Ultimate 5.3.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543661.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ Bitdefender Antivirus 2016 v4.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543448.jpg" />
 </div>
 
 
@@ -60,7 +118,7 @@ Inspiration Set for Pages 3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542107.jpg" />
 </div>
 
 
@@ -89,7 +147,7 @@ Posters Templates for Pages 1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540518.jpg" />
 </div>
 
 
@@ -115,7 +173,7 @@ MenuTab Pro for Facebook 6.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540507.jpg" />
 </div>
 
 
@@ -144,7 +202,7 @@ iTools Pro 1.7.9.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540078.jpg" />
 </div>
 
 
@@ -171,7 +229,7 @@ YouTubeHunter Pro 5.5.8 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538864.jpg" />
 </div>
 
 
@@ -198,7 +256,7 @@ Arq 5.2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537986.jpg" />
 </div>
 
 
@@ -224,7 +282,7 @@ CollageIt 3 v3.6.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536578.jpg" />
 </div>
 
 
@@ -252,7 +310,7 @@ PicGIF 2.0.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536446.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ Falcon 1.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534807.jpg" />
 </div>
 
 
@@ -308,7 +366,7 @@ Pano2VR Pro 5.0.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534155.jpg" />
 </div>
 
 
@@ -335,7 +393,7 @@ Nik Complete 5 Collection by DxO v5.0.4 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533542.jpg" />
 </div>
 
 
@@ -362,7 +420,7 @@ Vault 101 - password protect files and folders 1.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533344.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Disk Xray 2.8.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532049.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ iKuka 1.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532048.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ TurboMosaic Pro 3.6.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532037.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Swinsian 3.0 Preview 1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531896.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Cutter - Cut & Crop Video 3.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531784.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Voila 3.9.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531438.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ Sidify Music Converter v1.1.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531227.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ Pinegrow Web Designer 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531027.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Templates for Pages 4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531012.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ Downie 2.1.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529510.jpg" />
 </div>
 
 
@@ -651,61 +709,6 @@ Downie – это простейший видео-загрузчик. Подде
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63ADED1BAEF91D82ECBEA16852A4ABBDFD55C128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052245   (529264) от 13.09.2016
-
-Perfect Diet Tracker 3.8.8003 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfect Diet Tracker - Данная программа предназначена для мониторинга дневной нормы потребления калорий. В Perfect Diet Tracker включена база данных, содержащая более 110,000 наименований продуктов, и она постоянно обновляется. В программе поддерживаются как эмпирические, так и количественные измерения. Включена возможность добавлять виды продуктов, оценивать их (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 сентября 2016Разработчик: Byoni LtdПоддерживаемая ОС: OS X 10.6.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3506976E074651EAABFBE6F745A6ED4ABA048489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052193   (529259) от 13.09.2016
-
-Suite for iWork 3.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Suite for iWork -  основной инструмент для пользователей iWork
-Suite for iWork представляет собой набор из шаблонов для Pages, Keynote и Numbers.
-689 уникальных и красивых шаблонов для документов Pages, 35 тем для презентаций Keynote и 90 шаблонов для Numbers. Все-в-одном приложении.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 марта 2016Разработчик: Alungu UABПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CAAA6B34F59C08B89FC903F98526E328D57C21
 ```
 
 https://mybot314.ru/tekegram_catalog/

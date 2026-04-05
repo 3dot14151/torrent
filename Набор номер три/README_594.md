@@ -1,3 +1,212 @@
+###  Публикация: 1668833   (165638) от 31.10.2023
+
+Падение дома Ашеров / The Fall of the House of Usher (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) LostFilm, Red Head Sound, RuDub
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённого рассказа Эдгара Аллана По. Безжалостные брат и сестра Родерик и Мадлен Ашеры превратили свою фармацевтическую компанию Fortunato Pharmaceuticals в империю богатства, привилегий и власти. Внезапно наследники династии Ашеров начинают умирать от рук таинственной женщины из их юности. Постепенно на поверхность выходят ужасающие тайны фамильного (   Читать дальше...   )Производство: США, Intrepid PicturesЖанр: драма, фэнтези, ужасыРежиссер: Майкл Фимоньяри, Майк ФлэнаганАктеры: Брюс Гринвуд, Карл Ламбли, Карла Гуджино, Мэри Макдоннелл, Генри Томас, Рахул Коли, Саманта Слойан, Т’Ниа Миллер, Зак Гилфорд, Уилла ФицджералдПеревод: Многоголосый профессиональный (LostFilm, Red Head Sound, RuDub)Язык озвучки: Русский, Английский, Французский, ИтальянскийСубтитры: Русские (Forced, Full), английские (Full, SDH), французские (Full, SDH) и др.Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFECA94E30FBCE54638A948685874082590FC82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515926   (165604) от 11.12.2021
+
+Теория о том, что биткойн был создан ЦРУ, получила второе дыхание
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_165604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Директор ЦРУ заявил, что его управление готовит «несколько разных проектов, связанных с криптовалютой».В узком кругу некоторых представителей криптовалютного сообщества уже давно бытует легенда, что создатель биткойна Сатоши Накамото (Satoshi Nakamoto), чья истинная личность неизвестна до сих пор, – это не что иное как ЦРУ или другая спецслужба. На этой неделе данная (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431262   (165566) от 15.12.2020
+
+Аналитики раскрыли, когда Россия откажется от наличных
+
+>>3
+>>12
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_165566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переход России на полный безналичный расчет возможен при выполнении двух важных условий. Об этом в интервью «ПолитРоссии» заявил финансовый аналитик Андрей Кочетков.12 декабря 2020 г, власти Швеции объявили о намерении отказаться от использования наличных денежных средств и о старте разработок цифрового аналога национальной валюты – кроны. Министр финансов Пер Болунд (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431603   (165533) от 15.12.2020
+
+Windows 7/10 Pro х86-x64 by g0dl1ke 20.12.10 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стабильная сборка на базе оригинальных русских Windows 7/10 Pro x86-x64 с обновлениями и отключением телеметрии по рекомендациям simplix, в соавторстве с systempЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5917175541A3A64BCEDF39292E334BA5AD18EA55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325492   (165531) от 11.12.2021
+
+Blasphemous (2019) [Ru/Muilti] (4.0.67/dlc) License GOG [Digital Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165531.jpg" />
+</div>
+
+
+###  Подробнее
+
+На земли Квстодии и всех ее обитателей пало ужасное проклятье, которое называют просто Чудом. Вам предстоит примерить на себя роль Кающегося — единственного, кто выжил в бойне под названием «Безмолвное горе». Герой попал в ловушку бесконечного цикла смерти и возрождения, и теперь ему предстоит спасти мир от ужасной судьбы, добравшись до причины всех мучений. Исследуйте (   Читать дальше...   )Тип издания: LicenseРазработчик: The Game KitchenЖанр: Экшн, Metroidvania, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76ADA5E74CD9ACE5E1D81144ED5823C92B371159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515888   (165527) от 11.12.2021
+
+Halo Infinite (2021) [Ru/Multi] (6.10020.17952.0) License CODEX
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последний луч надежды угас, человечество стоит на краю гибели, и Мастер Чиф готов сразиться с самым опасным врагом в своей жизни. Наденьте броню величайшего героя в истории человечества и отправляйтесь в эпическое путешествие по исполинскому миру-кольцу. Halo Infinite создана для ПК. Она поддерживает расширенные графические параметры, широкоэкранные и сверхширокоэкранные (   Читать дальше...   )Тип издания: LicenseРазработчик: 343 IndustriesЖанр: Action, Adventure, ShooterЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38C963A663F2F8D405E696580C427335292D0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 213486   (165513) от 15.12.2020
+
+Во все тяжкие (полный 3 сезон, 13 серий) / Breaking Bad  (2010) DVDRip [LostFilm]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во все тяжкие (Breaking Bad) — американский телесериал о неизлечимо больном учителе химии, занимающимся изготовлением наркотиков (метамфетамин) ради обеспечения будущего своей семьи.
+Учителю химии Уолтеру Уайту исполняется 50, на следующий день он узнаёт, что болен раком. Что делать человеку, которому нечего терять? Где взять деньги на лечение и обеспечение семьи? (   Читать дальше...   )Жанр: Криминальная драмаРежиссер: Адам БернштейнАктеры: Брайан Кренстон, Анна Ганн, АрДжи Митт, Арон Пол, Бетси Брендт, Дин НоррисПеревод: Многоголосый закадровыйПродолжительность: ~00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEBCC7BF51FBA90AA63D992E94C739958281D8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431641   (165508) от 15.12.2020
+
+Непосредственно Каха! (2020) WEBRip [H.264/1080p-LQ] [PR]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каха запал на прекрасную Софу, но, чтобы подобраться к её сердцу, ему нужно на своей «копейке» обогнать новенькую BMW Руслана и забить на дружбу с Серго. Что же выберет Каха – любовь или дружбу?Производство: Россия / Видеосервис START, Forever FilmsЖанр: КомедияРежиссер: Виктор ШамировАктеры: Артём Карокозян, Артём Калайджян, Тамара Турава, Данил Иванов, Микаел Погосян, Марина Калецкая, Людмила Артемьева, Нана Муштакова, Милена Цховреба-Агранович, Юлия Гревцова, Вартан Даниелян, Артур ОганесянПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250DD2951434ABC255166C1FBB2FD7E84FAAAEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389254   (165503) от 15.12.2020
 
 AllWinUSB Constructor by SmokieBlahBlah 10.06.20 [Ru/En]
@@ -6,7 +215,7 @@ AllWinUSB Constructor by SmokieBlahBlah 10.06.20 [Ru/En]
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165503.jpg" />
 </div>
 
 
@@ -34,7 +243,7 @@ Snappy Driver Installer 1.20.9 (R2009) | Драйверпаки 20.12.1 [Multi/R
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165499.jpg" />
 </div>
 
 
@@ -60,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165495.jpg" />
 </div>
 
 
@@ -86,7 +295,7 @@ Tensei Shitara Ken Deshita / Reincarnated as a Sword / О моём переро�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165403.jpg" />
 </div>
 
 
@@ -112,7 +321,7 @@ KMS Tools Portable by Ratiborus 15.12.2022 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165385.jpg" />
 </div>
 
 
@@ -138,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165350.jpg" />
 </div>
 
 
@@ -164,7 +373,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 12.2019
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165349.jpg" />
 </div>
 
 
@@ -190,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165339.jpg" />
 </div>
 
 
@@ -216,7 +425,7 @@ The Outer Worlds (2019) [Ru/Multi] (1.2.0.418) Repack xatab
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165329.jpg" />
 </div>
 
 
@@ -242,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_164977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_164977.jpg" />
 </div>
 
 
@@ -269,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_164782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_164782.jpg" />
 </div>
 
 
@@ -295,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_164756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_164756.jpg" />
 </div>
 
 
@@ -321,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>15
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_164689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_164689.jpg" />
 </div>
 
 
@@ -348,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164680.jpg" />
 </div>
 
 
@@ -374,7 +583,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/En] (1.34.0.15931218) Rip Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164673.jpg" />
 </div>
 
 
@@ -400,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164672.jpg" />
 </div>
 
 
@@ -427,7 +636,7 @@ Flibusta Downloader v3.2.2.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164671.jpg" />
 </div>
 
 
@@ -453,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_164669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_164669.jpg" />
 </div>
 
 
@@ -464,218 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344586   (164667) от 17.12.2019
-
-Windows 10 1909 24in1 (x86/x64) +/- Office 2019 by Eagle123 (12.2019) [Ru/En]
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка содержит в себе ISO-образ с Windows 10 1909 18363.535, включающий в себя 6 русских и 6 английских редакций x86/x64, основанный на оригинальных образах, с интегрированными обновлениями по 12.2019, дополнительными системными библиотеками (RuntimePack), с возможностью выбора опций установки, автоустановки драйверов, программ и наличием Microsoft Diagnostics (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE90C19F21033E438021643BA1CF34BD8F8B86DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516823   (164660) от 12.12.2021
-
-Udemy, Dzianis Matveyenka | Java для начинающих. Level 2 (2021) WEB-DL
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс является продолжением базового курса "Java для начинающих. Level 1", поэтому для его прохождения необходимо уже иметь знания об основах алгоритмизации и программирования. Здесь мы уже приступим к подробному объяснению на практических примерах принципов объектно ориентированного программирования (ООП), как их нужно применять в языке Java.
-
-Познакомимся (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 20:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD72A78DAC7F9AC730863982FE3BC1ABADA2F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342278   (164657) от 17.12.2019
-
-KMS Tools Portable 01.12.2019 by Ratiborus [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164657.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE1D14CFF89EEDA5411AB4D43FC44978B7A49E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350855   (164656) от 12.12.2021
-
-Terminator: Resistance (2019) [Ru/Multi] (1.0.7847980/dlc) Repack Other s
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terminator™: Resistance – шутер от первого лица во времена Войны Будущего, о которой мельком было рассказано в фильмах «Терминатор» и «Терминатор 2: Судный день». События игры разворачиваются в пост-апокалиптическом Лос-Анджелесе, около 30 лет после Судного Дня, а главным героем выступает новый персонаж, Джейкоб Риверс, солдат Сопротивления во главе с Джоном Коннором. (   Читать дальше...   )Тип издания: RepackРазработчик: TeyonЖанр: Action, Adventure, RPG, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C254DA2DFCF3B96747C2467365F86F8DD96CDF23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716479   (164655) от 01.11.2023
-
-Лиллехаммер  / Lilyhammer (2013) HDTVRip (сезон 2, серии 1-8 из 8) Ю.Сербин
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тальяно сдал своего босса федералам, и теперь, в рамках программы по защите свидетелей, он переезжает в Лиллехаммер, небольшой норвежский городок, когда-то приютивший зимние олимпийские игры. Сам Фрэнк называет его Лилихэммером, отсюда и название сериала. Фрэнк мечтает о рае с «чистым воздухом, белым снегом и клевыми телками», вдали от соблазнов Нью-Йорка и от карателей (   Читать дальше...   )Производство: США, Норвегия, Rubicon TV ASЖанр: Драма, криминал, комедияРежиссер: Симен Алсвик, Лиза Мари ГамлемАктеры: Стив Ван Зандт, Тронд Фауса Аурвааг, Мариан Саастад Оттесен, Стайнар Саген, Фридтьов Сохейм, Свен Нордин, Эни Кригсволл, Михаель Акхнес-Персон, Карре Хеллум, Томми КарлсенПеревод: Авторский (Ю. Сербин)Язык озвучки: Русский
-
-Внимание !!! В сериале присутствует ненормативная лексика!Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B57E569AD1F87AFB213A0C8BA4EC6B4A18DC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516488   (164653) от 12.12.2021
-
-Halo Infinite (2021) [Ru/En] (6.10020.17952.0/dlc) Repack Other s
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Halo Infinite — последний луч надежды угас, человечество стоит на краю гибели, и Мастер Чиф готов сразиться с самым опасным врагом в своей жизни. Легендарная серия Halo возвращается. Вас ждёт самая масштабная сюжетная кампания с Мастером Чифом в главной роли.Тип издания: RepackРазработчик: 343 IndustriesЖанр: Action (Shooter), Space, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AE6852EA4B8600A8053D76514338E6EC298AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903213   (164648) от 12.12.2021
-
-Warface (2012) [Ru] (07.12.21) License (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warface - это многопользовательский онлайн-шутер, разработанный всемирно известной компанией Crytek. Вам предстоит вести сражения в различных уголках земного шара, начиная с городов и заканчивая самыми опасными местами на планете. Инновационный дизайн проекта сочетает простое управление и уникальный игровой процесс, позволяющий с головой окунуться в суровый мир будущего.Тип издания: LicenseРазработчик: CrytekЖанр: Action, MMO, 1st Person, ShooterЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60230A3453007A28410046129EA32D1DEADDB87B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431764   (164585) от 16.12.2020
-
-Довод / Tenet (2020) BDRip [H.264/1080p] [IMAX Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164585.jpg" />
-</div>
-
-
-###  Подробнее
-
-После теракта в киевском оперном театре агент ЦРУ объединяется с британской разведкой, чтобы противостоять русскому олигарху, который сколотил состояние на торговле оружием. Для этого агенты используют инверсию времени, заставляющую уже произошедшие события идти вспять.Производство: Великобритания, США / Syncopy, Warner Bros.Жанр: Фантастика, боевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Майкл Кейн, Химеш Патель, Юрий Колокольников, Димпл Кападиа, Клеманс ПоэзиПеревод: Дублированный (iTunes)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70A79A03A9A1F2A960E7677179583E14748D5A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

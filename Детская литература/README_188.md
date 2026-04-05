@@ -1,29 +1,3 @@
-###  Публикация: 1759648   (103279) от 09.11.2024
-
-Марта Фомина | Самостоятельные люди (1969) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Случалось ли вам, ребята, провести лето в городе? Наверно, многие в ответ на это удивлённо спросят: а что интересного летом в городе? Жарко, пыльно, скучно ... Вот так же думали сначала и герои первой повести "Летопись нашего двора" - четверо мальчишек. Целыми днями они сидели на лавочке и ждали, не случится ли с ними само собой что-нибудь необыкновенное. (   Читать дальше...   )Жанр: ПовестьИздательство: Московский рабочийФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B6B0C3FECDCA48BB3B5EE2F9212C1F3784A7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490632   (102610) от 02.05.2012
 
 Турбьёрн Эгнер | Приключения в лесу Ёлки-на-Горке [1986] [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102610.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102563.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102520.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102378.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102228.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102188.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98902.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98226.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96837.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96749.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96163.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95983.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90903.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90901.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90881.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90600.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90449.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89992.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ Julia Donaldson, Axel Scheffler | Gruffalo [1999] [PDF] [En]
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89399.jpg" />
 </div>
 
 
@@ -536,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89250.jpg" />
 </div>
 
 
@@ -571,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89153.jpg" />
 </div>
 
 
@@ -597,7 +571,7 @@ DK Preschool | Лисёнок : Смотри, как они растут! [2008]
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89149.jpg" />
 </div>
 
 
@@ -623,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88836.jpg" />
 </div>
 
 
@@ -649,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88531.jpg" />
 </div>
 
 
@@ -677,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87764.jpg" />
 </div>
 
 
@@ -689,6 +663,38 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:062F0A6E1193EA181B99EA500B3F21F0C75D0985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479304   (86951) от 07.04.2012
+
+Л. Пантелеев | Собрание сочинений в четырех томах [1983 - 1985] [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86951.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее четырехтомное собрание сочинений входят все наиболее значительные произведения писателя.
+Состав томов и расположение материала по тематическому принципу предложены самим автором.
+"...Может быть, правы были те критики, которые утверждали, что будто собрание сочинений Пантелеева — это что–то вроде одного большого автобиографического романа.
+Свои повести, рассказы, публицистические статьи, сценарии, пьесы Пантелеев пишет и для больших и для маленьких. Но главные его читатели все–таки ребята.
+А. И. Пантелеев по праву считается классиком, одним из основоположников советской детской и юношеской литературы.
+Его заслуги перед советской литературой отмечены двумя орденами Трудового Красного Знамени."
+Г. Антонова, Е. Путилова1983 - 1985Жанр: Детская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679C7B7F856CB8C03153089126FD1AF1CF7FD5C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

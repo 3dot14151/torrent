@@ -1,3 +1,32 @@
+###  Публикация: 1609701   (244781) от 04.02.2023
+
+Ashen Horde - Antimony (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Summoning (01:37)
+02 - The Throes of Agony (06:55)
+03 - The Consort (05:37)
+04 - The Barrister (06:04)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C657E934B5C3303FADD183525D2FBD4CEA09D2B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631567   (244764) от 06.05.2023
 
 Cradle Of Filth - Trouble and Their Double Lives (2023) [FLAC 2.0|44/24|WEB-DL|tracks] <Symphonic Black Metal>
@@ -6,7 +35,7 @@ Cradle Of Filth - Trouble and Their Double Lives (2023) [FLAC 2.0|44/24|WEB-DL|t
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244764.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Poslanie - Котлован (2023) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244761.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Pantheon - Empire In Ruin (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244751.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Disturbed - The Lost Children (2011) Compilation [FLAC|Lossless|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244748.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Sanguisugabogg - Homicidal Ecstasy (2023) [FLAC|Lossless|WEB-DL|tracks] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244745.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Dzetta - 5 Albums (2018-2020) [MP3|320 Kbps] <Electronic Rock, Rap Rock, Male & 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244720.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Clouds Taste Satanic - 2 Albums (2021-2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244715.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244709.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Kenny Loggins - Playing with the Boys (1986) US 12" Single [MP3|320 Kbps] <Pop R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244705.jpg" />
 </div>
 
 
@@ -263,7 +292,7 @@ Psycho Hill - Psycho Hill (2023) [MP3|320 Kbps] <Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244703.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ Pink Floyd - The Dark Side Of The Moon (Live at Wembley 1974) (2023) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244692.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ Amplifier - Hologram (2023) [MP3|320 Kbps] <Psychedelic, Space Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244691.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ Deconstruct - Ashen Empire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244686.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ Wildways - Симптомы (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244685.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ In-Quest - Epileptic (2004) [FLAC|Lossless|image + .cue] <Progressive Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244677.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ Ken Hensley - My Book Of Answers (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Cla
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244674.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Adrenalin - Dedicated (1995) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244673.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ Degreed - Are You Ready (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244667.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Depleted - Failing (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244663.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Then It Ends - Vainglory (2023) [MP3|320 Kbps] <Metalcore, Hardcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244651.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244645.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ Jason - Justiciero Arcaico (1997) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244630.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Tales Of A Liquid Dawn - 2 Albums (2022) [MP3|320 Kbps] <Progressive Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244628.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Bad Frankenhausen - Eins (2016) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244625.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Avi Rosenfeld & Lain Barbier - Seasons Blues (2023) [MP3|320 Kbps] <Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244622.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ Avi Rosenfeld & Lain Barbier - Seasons Blues (2023) [MP3|320 Kbps] <Classic Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DE384D8AE6BC548DEDC55B4D5B54C068FC5E5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289386   (244613) от 16.03.2019
-
-Mortuary Drape - Necromantic Doom Returns (2018) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Necromancy Demo 1987
-01 - Necromancy (Intro)
-02 - Primordial
-03 - Into The Catacomba(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578FCD287554B831890D6E5FA67427C081F094CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

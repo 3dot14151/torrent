@@ -1,3 +1,29 @@
+###  Публикация: 886526   (769661) от 09.04.2015
+
+Пятьдесят оттенков серого / Fifty Shades of Grey (2015) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анастейша Стил — скромная студентка, живущая вместе с близкой подругой-сокурсницей Кейт. За неделю до выпускного в университете, Анастейша, по просьбе заболевшей Кейт заменить её, берёт интервью у молодого красавца-миллиардера Кристиана Грея. Интервью складывается не очень удачно, и Анастейша не думает, что они когда-либо встретятся вновь. Неожиданно Грей появляется (   Читать дальше...   )Производство: США, Michael De Luca Productions, Focus FeaturesЖанр: Драма, мелодрамаРежиссер: Сэм Тейлор-ДжонсонАктеры: Джейми Дорнан, Дакота Джонсон, Дженнифер Или, Люк Граймс, Виктор Расук, Элоиза Мамфорд, Марша Гей, Харден Рита, Ора Макс Мартини Каллум, Кит РенниПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C288B769690CFC9BF8199905220C747B4408C10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017019   (769410) от 15.05.2016
 
 КОМПАС-3D 16.1.0 MCAD 16.2.0 (x86) Portable [Ru]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769410.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Sea Dogs: To Each His Own / Корсары: Каждому свое (2012) [Ru/E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769409.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Adobe Premiere Pro 2020 14.3.0.38 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769271.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (2.0.29) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769123.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Adobe Photoshop CC 2018 (19.1.2)  RePack by D!akov  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768708.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768699.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768565.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_768381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_768381.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4498.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768376.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Apple Final Cut Pro X 10.3.3, Motion 5.3.2 & Compressor 4.3.2 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768375.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768206.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 14.03.18 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767971.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ ITVDN | Django (2018) PCRec [H.264/720p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767964.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Adobe InDesign CC 2018 13.1.0.76 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767962.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767806.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767799.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767570.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_767383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767383.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Windows 7 SP1 2in1 (x64) Elgujakviso Edition (v.25.01.19) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767381.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767374.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_767227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767227.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767011.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Symantec Endpoint Protection 14.0 MP1 Build 2349 (14.0.2349.0100) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766709.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Mindjet MindManager 2017 17.2.208 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766698.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766697.jpg" />
 </div>
 
 
@@ -650,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B87FE71ACA7FFF861AED2AFF71A125FE966F7BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549682   (766694) от 16.04.2017
-
-Индиана Джонс: Коллекция / Indiana Jones: Collection (1981-2008) [1080p] 5*Blu-ray + 1*DVD-9
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_766694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из лучших картин приключенческого жанра, поражающая богатством выдумки,
-невероятными трюками, уникальным использованием всевозможных визуальных эффектов и компьютерной техники.Производство: США, Lucasfilm Ltd., Paramount PicturesЖанр: Фантастика, боевик, триллер, приключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Карен Аллен, Пол Фримен, Джон Рис-Дэвис, Альфред Молина, Кейт Кэпшоу, Джонатан Ке Кван, Амриш Пури, Шон Коннери, Денхолм Эллиот, Элисон Дуди, Кейт Бланшетт, Шайа ЛаБаф, Рэй Уинстон, Джон ХёртСубтитры: (PGS): English, French, Spanish, PortugueseПродолжительность: 01:55:18 | 01:58:28 | 02:06:53 | 02:02:35 + Bonus
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

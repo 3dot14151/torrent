@@ -6,7 +6,7 @@
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25349.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24194.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Judaica Multimedia (Israel) Ltd | Encyclopaedia Judaica CD-ROM Edition v1.0 / Е
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20937.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19218.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9445.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9367.jpg" />
 </div>
 
 

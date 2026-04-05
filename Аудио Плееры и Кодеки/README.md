@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1863197   (1063782) от 
+
+1by1 2.16 RC Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063782.jpg" />
+</div>
+
+
+###  Подробнее
+
+1by1 для Windows выглядит как файловый менеджер, но обладает всеми функциями универсального аудиоплеера — и даже больше. Воспроизводите треки в тщательно упорядоченных папках по одному, без необходимости возиться с плейлистами или базами данных. Наслаждайтесь плавными переходами между треками и встроенными мощными функциями улучшения звука. Управляйте своей коллекцией (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACF4F5BD1C18450952289B050DA89C01C3A9B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862896   (1063497) от 
+
+FxSound Pro 1.2.6.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063497.jpg" />
+</div>
+
+
+###  Подробнее
+
+FxSound (ранее DFX Audio Enhancer) - отличное приложение, которое позволяет существенно улучшить качество звука в различных приложениях и онлайн сервисах, при помощи изменения в режиме реального времени различных параметров аудиосигнала звуковой карты ПК. К примеру, с помощью данной программы, можно улучшить качество звучания любимых треков в различных медиапроигрывателях, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E63C2A14FE5B345EAE12BDDF79987F88DB5883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862683   (1063274) от 
+
+Dopamine 3.0.3 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dopamine — элегантный аудиоплеер, который стремится сделать организацию и прослушивание музыки максимально простыми и привлекательными. Эта версия написана на Electron, Angular и TypeScript.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E00FAA27213BF53DB74BCB2AC7802AAD99C80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861815   (1062837) от 
 
 Foobar2000 2.25.8 include Portable [En]
@@ -7,7 +85,7 @@ Foobar2000 2.25.8 include Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062837.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ AIMP 6.00.3051 Beta + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061622.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ AIMP 5.40 Build 2709 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061218.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ AIMP 5.40 Build 2709 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060927.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ AIMP 5.40.2709 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060302.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ AIMP 5.40.2709 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059899.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ AIMP 5.40 Build 2708 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059508.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ Dopamine 3.0.2 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059370.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ AIMP 5.40.2708 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059328.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Foobar2000 2.25.7 include Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057512.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ FxSound 1.2.6.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056450.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.6.1.0 RePack (& Portable) by KpoJIuK
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054345.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ AIMP 5.40.2703 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050382.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ FxSound 1.2.5.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050090.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ AIMP 5.40.2703 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049888.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Spotify 1.2.77.352 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047724.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ FxSound 1.2.4.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047445.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ AIMP 5.40.2700 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046950.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ Luminant Music Ultimate 2.3.2 RePack (& Portable) by elchupacabra [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002879.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945444.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ Clementine 1.3.1 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852437.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ DensPlay 2.3.4 [Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825907.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ Resonic Player 0.9.3b Build 1806 + Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763400.jpg" />
 </div>
 
 
@@ -594,85 +672,6 @@ Resonic - это ультра-быстрый, маленький и портат
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACC9B1A7D95540F90EBBCE261509967EFFDFB2C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024866   (713070) от 10.06.2016
-
-Bug head Emperor (Infinity blade) 7.23 Portable [En]
-
->>Мультимедиа и Графика
->>Аудио Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главным достоинством цифрового  аудиоплеера Bug head Emperor является потрясающее качество звучания музыки.
-Bug head Emperor поддерживает аудиофайлы 16, 24 и 32 бит, с частотой дискретизации от 44.1kHz и 48kHz до 352.8 и 384.0. Плеер работает с файлами *.cue, поддерживает популярные форматы аудиофайлов: wav, flac, v4a, aac, alac(m4a), wma, mp3, wv, ogg, ape, opus, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757D7145B0693E7A2D4FEEAB3BA6DAAF036E113E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045546   (557430) от 24.08.2016
-
-Angel's Vox 1.7.8.231 Portable by portable-rus [Ru]
-
->>Мультимедиа и Графика
->>Аудио Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angel’s Vox - проигрыватель, разработанный специально для любителей аудиокниг. Это экономит ваше время, помогает выучить новые иностранные языки, имеет много полезных уникальных функций для прослушивания аудиокниг.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BEDE6E73E8E17F034FF494E12025728C1BB488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051662   (530092) от 12.09.2016
-
-DSP pack 1.46 (Winamp / Aimp) RePack by elchupacabra [Ru/En]
-
->>Мультимедиа и Графика
->>Аудио Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530092.jpg" />
-</div>
-
-
-###  Подробнее
-
-DFX Audio Enhancer — звуковой плагин для улучшения звучания плееров AIMP3/4, Winamp. Качество звучания значительно улучшается за счет совершенствования частотных характеристик, для чего и предназначен этот плагин. С помощью DFX Audio Enhancer устраняются два главных недостатка — срез высоких частот и недостаточное разделение стереобазы и ее глубины, а также добавляются (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1190BE0F3B0E5869D3CFFE0075CCC8BC91419E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

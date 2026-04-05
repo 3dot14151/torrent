@@ -1,161 +1,3 @@
-###  Публикация: 1385989   (795763) от 27.05.2020
-
-Ярослав Омельяненко | Эволюционные нейросети на языке Python (2020) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга дает всестороннее представление о нейроэволюции – подходе к обучению искусственных нейронных сетей, который использует эволюционные алгоритмы, чтобы упростить процесс решения сложных задач в таких областях, как игры, робототехника и моделирование естественных процессов.
-Читатель начнет знакомство с ключевыми концепциями и методами нейроэволюции, написав (   Читать дальше...   )Жанр: Нейронная сетьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F177A99DFA342494E0128C4A95586DF2FC36584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509081   (795303) от 11.11.2021
-
-Дэвид Копец | Классические задачи Computer Science на языке Java (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cтолкнулись с «неразрешимой» проблемой при разработке программного обеспечения? Скорее всего, кто-то уже справился с этой задачей, и вы можете не ломать голову. Дэвид Копец собрал наиболее полезные готовые решения, принципы и алгоритмы. «Классические задачи Computer Science на языке Java» — это мастер-класс по программированию, содержащий 55 практических примеров, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443A42D30512F25DE9CB07F41C2C5C7A5259686C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200574   (794646) от 22.01.2018
-
-Алексей Крючков | Создание приложений для браузера Google Chrome (2018) [PDF, RTF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794646.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге на примерах описывается как создавать приложения для популярного браузера Google Chrome. Читатель сам по ходу чтения сможет создать четыре простых приложения и запустить их в браузереЖанр: Компьютерная литератураФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB731321D89178ED6F747470B6991D7042F6D4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200546   (794612) от 22.01.2018
-
-М. Пацианский | React.js для начинающих (2016) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794612.jpg" />
-</div>
-
-
-###  Подробнее
-
-В процессе изучения, нам потребуется локальный сервер. Для этого мы воспользуемся node.js и express. Знание этих технологий не обязательно, достаточно будет просто "скопировать/вставить", либо воспользоваться своим локальным сервером, например на Apache.
-React.js — это открытая javascript-библиотека для создания пользовательских интерфейсов. В данном курсе (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AABC5789C064C13B246262C78B20A29EFB6C9EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200592   (794540) от 22.01.2018
-
-Алексей Крючков | Java Code. Сборник исходников (2018) [PDF, RTF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник самых разных java-исходников для начинающих разработчиков, пишущих под android или создающих десктопные java-приложения. Сборник ориентирован именно на начинающих программистов, которые уже кое-что знают и умеют разбираться в чужом кодеЖанр: Компьютерная литератураФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3795F040D443C0BA3BFAC5B6AD44BF97D11C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200565   (794521) от 22.01.2018
-
-Андрей Ветров | Word,Excel 2013-2016 [2 книги] (2017) [PDF, RTF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794521.jpg" />
-</div>
-
-
-###  Подробнее
-
-В представленных книгах просто и доходчиво описан порядок работы с Microsoft Word и Excel 2013-2016. Они будут полезны как начинающим пользователям, так и опытным, которым,  тем  не  менее,  приходится постоянно  обращаться  к  этим книгам, чтобы вспомнить то одно, то другое, то третье…, то пятое, то десятое: нужно просто найти в оглавлении то, что вас интересует, открыть (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A050BDD07DD153EF51E20B7745C26E437BEF4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509598   (793844) от 13.11.2021
 
 Жерар Галлан | WebAssembly в действии (2022) [PDF]
@@ -164,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793844.jpg" />
 </div>
 
 
@@ -190,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793209.jpg" />
 </div>
 
 
@@ -217,7 +59,7 @@ Shreeharsh Ambli | Изучаеи Python: шаг за шагом (2020) [PDF] [E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793169.jpg" />
 </div>
 
 
@@ -245,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793115.jpg" />
 </div>
 
 
@@ -271,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792599.jpg" />
 </div>
 
 
@@ -298,7 +140,7 @@ Cay S. Horstmann | Modern JavaScript for the Impatient / Современный 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792348.jpg" />
 </div>
 
 
@@ -324,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791876.jpg" />
 </div>
 
 
@@ -350,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791760.jpg" />
 </div>
 
 
@@ -379,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791680.jpg" />
 </div>
 
 
@@ -405,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791546.jpg" />
 </div>
 
 
@@ -431,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790260.jpg" />
 </div>
 
 
@@ -457,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790024.jpg" />
 </div>
 
 
@@ -483,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789772.jpg" />
 </div>
 
 
@@ -509,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789753.jpg" />
 </div>
 
 
@@ -535,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789750.jpg" />
 </div>
 
 
@@ -563,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789717.jpg" />
 </div>
 
 
@@ -589,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789715.jpg" />
 </div>
 
 
@@ -615,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789694.jpg" />
 </div>
 
 
@@ -641,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788505.jpg" />
 </div>
 
 
@@ -667,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788270.jpg" />
 </div>
 
 
@@ -678,6 +520,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67DFE5CE57127E1DBA86CED24CA2884BB6F31103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388569   (786642) от 06.06.2020
+
+Adam Freeman | Pro ASP.NET Core 3. Разработка облачных веб-приложений с использованием MVC, Blazor и Razor Pages (2020) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это всеобъемлющее руководство-бестселлер по ASP.NET Core - единственная книга, которая нужна вам для разработки на ASP.NET Core. Профессиональные разработчики смогут создать более компактные приложения для платформы ASP.NET Core, используя указания, приведенные в этой книге, которая обновлена для ASP.NET Core 3. Рассматриваются новые функции и возможности, такие (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA4DD24AADC113D473B683A8721616288A8B4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203981   (785224) от 04.02.2018
+
+Дуглас Мауро, Кевин Шмидт | Основы SNMP (2012) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второе издание книги «Основы SNMP» – это практическое руководство для системных и сетевых администраторов, которые пользуются протоколом SNMP для управления своими серверами и маршрутизаторами. Внимание авторов сосредоточено на практическом системном и сетевом администрировании, конфигурации SNMP-агентов и станций управления сетью, использовании SNMP для получения (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A90FAA4AD013CC70EA5642F406A5DA0B1E73583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204815   (784290) от 07.02.2018
+
+М.А. Денисов | Автоматизированное проектирование в ANSYS и КОМПАС-3D (2015) [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784290.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены основы компьютерного проектирования технических объектов. Рассмотрены системы автоматизированного проектирования и инженерного анализа технических решений. Методы конструирования рассматриваются на примерах, использующих систему проектирования «КОМПАС-3D». Система «КОМПАС-3D» имеет ряд конкурентных преимуществ в сравнении с другими пакетами (   Читать дальше...   )Жанр: Системы проектированияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458516AA0E9AC6A8AD1CA0915106F3933A8DA571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204805   (784288) от 07.02.2018
+
+Джеймс Чамберс и др. | ASP.NET Core. Разработка приложений (2018) [DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные разработчики занимаются построением кроссплатформенных приложений, их сопровождением и развертыванием. Чтобы облегчить им тяжкий труд, был создан новый фреймворк компании Microsoft — ASP.NET Core. Теперь в вашем распоряжении множество разнообразных библиотек с открытым кодом, более того, сам фреймворк является продуктом с открытым кодом.
+Как же освоить (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41CE5385587C17F656E21AD86A2A7F179A58ECE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204924   (783968) от 08.02.2018
+
+Майкл Хартл | Ruby on Rails для начинающих. Изучаем разработку веб-приложений на основе Rails (2017) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ruby on Rails - один из наиболее популярных фреймворков для разработки веб-приложений, но его изучение и использование не самая простая задача. Эта книга поможет вам решить ее независимо от того, имеете ли вы опыт веб-разработки вообще и Rails в частности.
+Известный автор и ведущий разработчик Rails Майкл Хартл познакомит вас с Rails на примере разработки трех приложений. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:187BF4772FAF65A3DB4BED941929BA4F2E6D6DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389811   (783833) от 12.06.2020
+
+Packt Publishing | Blender 3D на примерах / Blender 3D By Example [2-ое издание по Blender 2.83] [+ Project files] (2020) [PDF, EPUB] [En]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните работать с Blender 3D через серию практических проектов, которые помогут вам изучить основные концепции 3D-дизайна, такие как моделирование, скульптинг, материалы, текстуры, освещение и риггинг, используя новейшие функции Blender 2.83.Жанр: 3D моделирование, АнимацияФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84411E3AFF4EC3FF16C0990587B68C6EF7A0E888
 ```
 
 https://mybot314.ru/tekegram_catalog/

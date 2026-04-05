@@ -1,3 +1,159 @@
+###  Публикация: 1464620   (1018836) от 27.04.2021
+
+Дальний космос / Stowaway (2021) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экипаж космического корабля, направляющегося на Марс, обнаруживает на борту случайного пассажира. Однако миссию остановить уже невозможно, впереди долгие месяцы пути, а после серьезной аварии команда понимает, что ресурсов до конца полета хватит не на всех. И это не последняя опасность, с которой экипажу предстоит столкнуться на пути к далекой планете.Производство: США, Германия / Augenschein Filmproduktion, MMC Movies, MysteryGuitarMan, Phiphen Pictures, Rainmaker Films, Rise Pictures, Stage 6 Films, XYZ Films, Yale ProductionsЖанр: Фантастика, триллер, драмаРежиссер: Джо ПеннаАктеры: Анна Кендрик, Тони Коллетт, Дэниэл Дэ Ким, Шамир АндерсонПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55783AD1FE816E86AEC165623C03A1A7C723BE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465642   (1018667) от 28.04.2021
+
+В Госдуме предложили замедлить YouTube "для профилактики"
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава комиссии Совета Федерации по информационной политике и взаимодействию со СМИ Алексей Пушков предложил замедлить видеосервис YouTube. Мера предлагается, как временная и лишь на майские праздники."Я выскажу свое личное мнение как председателя комиссии по информационной политике. На мой взгляд, нужно подумать о временном замедлении трафика YouTube, потому (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321287   (1018659) от 28.04.2021
+
+Wolfenstein: Youngblood (2019) [Ru/Multi] (1.0.3/dlc) Repack =nemos= [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет спин-оффа продолжает события, происходящие в предыдущей части The New Colossus. События происходят в Париже в 80-х годах. Нацисткая машина продолжает активно наступать и уничтожать не желающих склоняться перед ней. Сопротивление практически сломлено. Лидер сопротивления Би Джей Бласковиц был схвачен нацистами недалеко от Парижа.Тип издания: RepackРазработчик: MachineGames, Arkane StudiosЖанр: Action (Shooter), 3D, 1'st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCABE9BCBF4BA48D9C607702407EF17D3AC19D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 258449   (1018657) от 28.04.2021
+
+Гарри Поттер / Harry Potter (2001-2011) [H.264] BDRip [коллекция]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарри Поттер родился 31 июля (в тот же день, что и Джоан Роулинг) 1980 года, родители — Лили (Эванс) Поттер и Джеймс Поттер. Лучший друг Джеймса Поттера, Сириус Блэк, стал крёстным отцом Гарри. Сириус, Джеймс и Лили входили в состав Ордена Феникса, группы волшебников, которые отчаянно боролись против Тёмного Лорда Волан-де-Морта. Они не имели численного превосходства (   Читать дальше...   )В грандиозной последней главе битва между добрыми и злыми силами мира волшебников перерастает во всеобщую войну. Ставки ещё никогда не были так высоки, а поиск убежища — столь сложен. И быть может именно Гарри Поттеру придется пожертвовать всем в финальном сражении с Волан-де-Мортом. Способен ли наш герой спасти мир? И всё закончится здесь.Жанр: Фэнтези, Драма, Приключения, ДетективРежиссер: Дэвид Йэтс.Актеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Рэйф Файнс, Алан Рикман, Хелена Бонем Картер, Том Фелтон, Гари Олдман, Майкл Гэмбон, Мэгги Смит и др.Язык субтитров: 1. Русские (надписи в фильме) 2. Русские (полные с лицензии) 3. Русские (полные от Voronine) 4. Английские 5. Английские (SDH)Продолжительность: 02:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3FAC3AAF5D6FBA2F70582EF2CD137F151C3AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226470   (1018656) от 28.04.2021
+
+YouTube Vanced v16.14.34  Non-Root [Ru/Multi]
+
+>>3
+>>17
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мод ютуба без рекламы и не требующего для работы сервисов Google Play (при желании можно авторизоваться под своим аккаунтом). Может работать в фоне и много других вкусностей! ;)Тип издания: Мод / Non-SplitРелиз состоялся: 27.04.2021Разработчик: xda-developersПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CD043A1E8987E5C78A1D3C584495FCE3116615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465963   (1018512) от 29.04.2021
+
+Элон Маск приравнивает колонизацию Марса к завоеванию Антарктиды
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элон Маск еще раз поднял тему колонизации Марса. В разговоре с Питером Диамандисом глава SpaceX признал, что это будет отличное приключение для добровольцев, но, скорее всего, многие люди погибнут на начальных этапах колонизации. Это еще одно заявление Маск, в котором подчеркивается опасность пилотируемых миссий на Марс.Согласно планам SpaceX, первые люди на Марсе (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466271   (1018498) от 29.04.2021
 
 Китай запустил основной модуль будущей орбитальной станции
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018498.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018492.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ DRevitalize 4.10 Portable [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018478.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018476.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018326.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018320.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018308.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018183.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018174.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018148.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018135.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ Corona Renderer 6 (Hotfix 2) for 3ds Max 2014-2022 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018130.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ BikeComputer Pro v8.7.0 [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018129.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018126.jpg" />
 </div>
 
 
@@ -373,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017990.jpg" />
 </div>
 
 
@@ -399,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017983.jpg" />
 </div>
 
 
@@ -425,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017978.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017975.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017966.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017831.jpg" />
 </div>
 
 
@@ -514,164 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466240   (1017825) от 03.05.2021
-
-В России разрешили выселять банкротов из единственного жилья - если оно роскошное
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конституционный суд России допустил изъятие у должников единственного жилья. До этого при банкротстве у человека не могли забрать единственное жилье, даже если речь шла о дорогой недвижимости. Юристы уверены, что это изменит процедуру банкротств, которая каждый год становится все более популярной.Запрет на изъятие единственного жилья у граждан-должников не может (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 32629   (1017784) от 03.05.2021
-
-Чужой-квадрология (1-4) / Alien Quadrilogy 1-4 (полные режиссерские версии) (1979-1997) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия научно-фантастических триллеров о борьбе между людьми и «чужими», ксеноморфами. В далеком будущем грузовой космический корабль приземлится на неизведанной планете, покрытой странными предметами, подозрительно похожими на коконы. Вскоре экипаж корабля оказывается заперт на судне в компании самых страшных существ, которых могла породить Вселенная. Ксеноморф — (   Читать дальше...   )Производство: Великобритания, СШАЖанр: Ужасы, ФантастикаРежиссер: Ридли Скотт, Джеймс Кэмерон, Дэвид Финчер, Жан-Пьер ЖёнеАктеры: Сигурни Уивер, Вайнона Райдер, Доминик Пинон, Рон Перлман, Гари Дурдан, Майкл Уинкотт, Дж.Э. Фримен, Лиленд Орсер, Брэд Дуриф, Дэн ХедайяПеревод: Видео: DivX 4, 720x304, ~1223 KbpsПродолжительность: 01:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F13268FD8B4FE5A3915EF27F8BD773AD0E622DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467209   (1017635) от 04.05.2021
-
-Датские физиологи опровергли мнение, что человек задействует лишь 10% мозга
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный физиолог из Дании Анке Ниния опроверг надежды многих людей развить мозг еще на 90%. Специалист заявляет, что мы уже используем его на всего 100%. Развивать нечего. Итоги исследовательской работы ученого опубликованы в издании Videnskab.Ученый считает, что использование лишь 10% ресурсов головного мозга крайне нелогично с точки зрения эволюции. Изучение (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467075   (1017624) от 04.05.2021
-
-Вассерман назвал главный минус четырехдневной рабочей недели
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вассерман посоветовал не экспериментировать с 4-дневной рабочей неделей
-Публицист, телеведущий Анатолий Вассерман назвал главный минус четырехдневной рабочей недели. Его слова передает «Московский комсомолец».Ведущий призвал не экспериментировать с сокращением рабочей недели в России. Он считает, что сперва необходимо рассчитать, компенсирует ли повышение производительности (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017470   (1017606) от 04.05.2021
-
-Неуловимые мстители (1966,1968,1971) DVDRip [Трилогия, Реставрация]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017606.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Неуловимые мстители» — советский цветной художественный фильм-истерн, поставленный на Московской ордена Ленина киностудии «Мосфильм» Эдмондом Кеосаяном по мотивам повести Павла Бляхина «Красные дьяволята», о приключениях четырёх подростков в годы Гражданской войны.
-Все три части знаменитой трилогии о "Неуловимых мстителях". Блистательная режиссура, актёрская (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Приключения, боевик, экранизацияРежиссер: Эдмонд КеосаянАктеры: Василий Васильев, Виктор Косых, Валентина Курдюкова, Михаил Метёлкин, Борис Сичкин, Армен Джигарханян, Владимир Белокуров, Надежда Федосова, Виктор Колпаков, Иван Жеваго, Александра Денисова, Лев Свердлин, Савелий Крамаров, Глеб Стриженов, Инна Чурикова, Павел Винник, Ефим Копелян, Владимир Трещалов, Геннадий Юхтин, Иван Савкин, Валентина Ананьина, Альбина Матвеева, (   Читать дальше...   )Продолжительность: 04:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB50B77B12E811B8375F2FC4A1E0BE4C7DE8061F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097793   (1017605) от 04.05.2021
-
-Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.75.1) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нанимайте героев, собирайте армию, побеждайте в битвах и сделайте все в своих силах, чтобы удержать Империю в целости перед лицом смертельной опасности. "Эадор. Империя" - это новая глава в серии Эадор, известной своим сочетанием глобальной стратегии, ролевых элементов и пошаговой тактики. Молодой волшебник, жаждущий возмездия разрушившим его жизнь мракобесам.Тип издания: LicenseРазработчик: Snowbird GamesЖанр: Strategy, Role-playing, FantasyЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4ADCC8DB977C3FBE86343DDA57BD173173B3F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

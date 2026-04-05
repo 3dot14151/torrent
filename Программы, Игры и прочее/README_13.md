@@ -1,3 +1,108 @@
+###  Публикация: 1845446   (1050660) от 31.12.2025
+
+Лучшие Аудиокниги всегда под рукой. AudioBooks v7.1 Plus [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Books – новая платформа для прослушивания аудиокниг! Доступны источники: Akniga, ИзиБук, AudioBook, База Книг и Книгоблуд.
+В нашем приложении собраны лучшие произведения отечественных и зарубежных писателей. Детективы, ужасы, романы, прозы, мемуары, автобиографии – лучшие аудиокниги всегда под рукой! Так же мы собрали коллекцию книг и рассказов для детей. Есть (   Читать дальше...   )Тип издания: Free Plus от разработчикаРелиз состоялся: 31.12.2025Разработчик: fanok.incПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69F2E5D25198C2EF3DFD23569433CE24025839C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845276   (1050573) от 30.12.2025
+
+Bendy: Lone Wolf v2.0.0 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050573.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Добро пожаловать в мир чернильных кошмаров Bendy: Lone Wolf®. Отправляйтесь в приключение прямиком в причудливый мир анимаций студии Джоуи Дрю. Эта история еще успеет потрепать вам нервы. Вы играете за Бориса, одинокого волка, который отважно шагает по бесконечным коридорам, полным монструозных мультяшных психов и смертельных ловушек. А по пятам неустанно крадется (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 16 окт. 2025 г.Разработчик: Joey Drew StudiosПоддерживаемая ОС: Android 9+Жанр: ПриключенияЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C0FFFBC75AA60A4C2F2608AA62A8C4D5AA9431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844907   (1050436) от 28.12.2025
+
+Red Dead Redemption NETFLIX v1.53.61003005 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы защитить свою семью от федеральных агентов, бывший бандит Джон Марстон вынужден начать охоту на прежних подельников, которых когда-то называл друзьями. Погрузитесь в историю о борьбе Марстона за право стереть свое кровавое прошлое, разворачивающуюся на живописных просторах американского фронтира и Мексики, в игре – предшественнице Red Dead Redemption 2, нашумевшего (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 10 дек. 2025 г.Разработчик: Netflix, Inc.Поддерживаемая ОС: Android 10+Жанр: ПриключенияЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68AECA8F70BE38E9FBA3E693A7CE586CCA9EC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844940   (1050400) от 28.12.2025
+
+Red Dead Redemption v1.53.61003005 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы защитить свою семью от федеральных агентов, бывший бандит Джон Марстон вынужден начать охоту на прежних подельников, которых когда-то называл друзьями. Погрузитесь в историю о борьбе Марстона за право стереть свое кровавое прошлое, разворачивающуюся на живописных просторах американского фронтира и Мексики, в игре – предшественнице Red Dead Redemption 2, нашумевшего (   Читать дальше...   )Тип издания: ModРелиз состоялся: 12 дек. 2025 г.Разработчик: Rockstar GamesПоддерживаемая ОС: Android 10+Жанр: ПриключенияЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0CDB1F31ED338AB50FC18D6F59505C2825D8EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844958   (1050363) от 30.12.2025
 
 Red Dead Redemption NETFLIX v1.53.61003005 [Ru]
@@ -6,7 +111,7 @@ Red Dead Redemption NETFLIX v1.53.61003005 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050363.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050321.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Auto Reply: автоответчик v6.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050318.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050317.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050316.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ PhotoDirector v20.8.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050300.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050299.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ Photo Studio PRO v2.8.8.4702 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050292.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v3.1.47 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050291.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050289.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050288.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050285.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ Photo Lab PRO v3.13.79 Mod by MixRoot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050284.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ Grok - ИИ ассистент v1.0.95-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050269.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050265.jpg" />
 </div>
 
 
@@ -401,7 +506,7 @@ Dub Music Player Premium v6.5 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050264.jpg" />
 </div>
 
 
@@ -427,7 +532,7 @@ Remini / Улучшение Фото v3.7.1225.202518451 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050258.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ FacePic - AI Face App v3.4.0 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050254.jpg" />
 </div>
 
 
@@ -479,7 +584,7 @@ ReadEra Premium v25.12.16+2240 Mod by KirIif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050253.jpg" />
 </div>
 
 
@@ -507,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050251.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.14.33 [Nightly] Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050250.jpg" />
 </div>
 
 
@@ -560,7 +665,7 @@ Bendy and the Dark Revival v1.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050248.jpg" />
 </div>
 
 
@@ -571,114 +676,6 @@ Bendy and the Dark Revival® («Бенди и темное возрождени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47AEAECDD47AAE0DFF19A61B02CBDC6460D1A4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844754   (1050193) от 28.12.2025
-
-Red Dead Redemption v1.53.61003005 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы защитить свою семью от федеральных агентов, бывший бандит Джон Марстон вынужден начать охоту на прежних подельников, которых когда-то называл друзьями. Погрузитесь в историю о борьбе Марстона за право стереть свое кровавое прошлое, разворачивающуюся на живописных просторах американского фронтира и Мексики, в игре – предшественнице Red Dead Redemption 2, нашумевшего (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 12 дек. 2025 г.Разработчик: Rockstar GamesПоддерживаемая ОС: Android 10+Жанр: ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2CBADE372B6CEEF6654A1EF8D4095C0C2F8729B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844759   (1050183) от 28.12.2025
-
-Slender Threads v1.5 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050183.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мне постоянно снится кошмар: в нём моя голова висит на стене».
-Во время путешествия в незнакомый городок Харви Грин сталкивается с чередой паранормальных событий, которые заставляют его осознать, что его еженощный кошмар был предвестником неотвратимой судьбы.
-В этом квесте-триллере вы вместе с Харви попадёте в Вилла Вентата, осмотрите его улицы, магазинчики и окрестности (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 23 дек. 2025 г.Разработчик: BlytsПоддерживаемая ОС: Android 6.0+Жанр: ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1350C7CBA09500E0BC300A21823B1176BE50C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844765   (1050171) от 28.12.2025
-
-Planet of Lana v1.6.2 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050171.jpg" />
-</div>
-
-
-###  Подробнее
-
-В роли юной девушки вам предстоит отправиться на спасательное задание вместе с ее верным питомцем. Вас ждет живописный мир, полный тайн.
-Решайте головоломки, прячьтесь от машин и путешествуйте по странным местам, кишащим опасными существами, в рукотворном мире научной фантастики.
-Планета, что раньше была оплотом нерушимого равновесия между человеком и природой, совершенно (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 17 дек. 2025 г.Разработчик: PlaydigiousПоддерживаемая ОС: Android 10+Жанр: ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B325F5AE20A352308E3CD23AD639D57FFB81A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844841   (1050169) от 28.12.2025
-
-Device Info / Информация об устройстве v3.4.1.1 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Device Info — простое, но мощное приложение для Android, которое предоставляет полную информацию о мобильном устройстве с расширенными пользовательскими интерфейсами. Например, информация об устройстве/телефоне включает информацию о ЦП, оперативной памяти, ОС, датчиках, памяти, аккумуляторе, SIM-карте, Bluetooth, сети, установленных приложениях, системных приложениях, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 28.12.2025Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068A919E117AAAD64E788E46F884651720EDF88C
 ```
 
 https://mybot314.ru/tekegram_catalog/

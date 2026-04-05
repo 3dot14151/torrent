@@ -1,3 +1,56 @@
+###  Публикация: 1741120   (47735) от 05.08.2024
+
+И.Е. Тамм | Основы теории электричества (1976) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дано систематическое изложение теории электрических явлении. Основное внимание уделено физическому содержанию теории.
+Дли студентов физических специальностей вузов, а также научных и инженерно-технических работников.Жанр: ФизикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37CE855CBC4D5AF49B84026AC7749DF3E5810E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741490   (47544) от 07.08.2024
+
+К. Я. Драгомирецкая, Н. И. Забежинская, В. Е. Кузятина и др. | Советское Гражданское право, советское Семейное  право (1962) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фундаментальный библиографический труд по гражданскому праву, изданный совсем небольшим для него тиражом 4000 экз.Жанр: УчебникИздательство: Государственное издательство юридической литературыФормат: DJVUКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD5EA0BA6E5B77BAAF5ED73FB97C14F5CA388B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741697   (47527) от 07.08.2024
 
 Н.А. Селиванов, В.И. Теребилов | Первоначальные следственные действия (1957) [PDF, JPG]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47527.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47372.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46835.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46819.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46160.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45869.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45773.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45570.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45274.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45055.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44916.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44727.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44656.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44648.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44639.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44226.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44035.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44023.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43923.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43894.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42954.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42952.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42917.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42818.jpg" />
 </div>
 
 
@@ -622,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1195FDD3DB8859DB646D82607F1DACAA031E7A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750715   (42815) от 21.09.2024
-
-В.В. Тетельмин | Нефтегазовое дело. Полный курс. Том 1. Третье издание (2024) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведено систематическое описание процессов и агрегатов, используемых в нефтегазовой отрасли. Освещены вопросы общей и нефтепромысловой геологии, последовательно изложены основные стадии производства буровых работ, испытания и обустройства нефтяных и газовых скважин. Рассмотрены физика нефтяного пласта, порядок исследования скважин, реологические и технологические (   Читать дальше...   )Жанр: Учебное пособие. Природные ресурсыИздательство: Москва, Вологда: «Инфра-Инженерия»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9AACB2F133A6FB04398A24A63F18FE5D3AF857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751036   (42784) от 22.09.2024
-
-Н.Е. Бурдакова | Автономное выживание в условиях природной среды (2024) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освещены теоретические вопросы по основам выживания в условиях природной среды: способы ориентирования, добывания воды и пищи, виды костров и способы их применения, виды укрытий и средства сигнализации. Рассмотрены способы оказания первой помощи при отравлениях ядовитыми растениями и грибами, укусах насекомых и ядовитых змей.
-Предназначено для студентов (и не только) (   Читать дальше...   )Жанр: Основы безопасности жизнедеятельностиИздательство: Владимир: ВлГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52AEE04C85A8C258EA8615F1D3FC36B8781512D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

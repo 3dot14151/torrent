@@ -1,3 +1,32 @@
+###  Публикация: 1577639   (238835) от 19.09.2022
+
+Sightless Era - Revelation (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Son of Misery [00:03:51]
+02. Revelation [00:03:56]
+03. In Your Eyes [00:04:11]
+04. Incarceration [00:04:34](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB235319CC2D9A4A06A535673849E561714F3070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638620   (238833) от 10.06.2023
 
 Eternity's End - Embers Of War (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Power, Speed Metal>
@@ -6,7 +35,7 @@ Eternity's End - Embers Of War (2021) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238833.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Fires In the Distance - Air Not Meant for Us (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238826.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Warspite - Confrontation Course (2006) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238823.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Rise To Fall - The Fifth Dimension (2023) [FLAC 2.0|44/24|WEB-DL|tracks] <Melodi
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238820.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Whirlingrey - Cursed by God (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238816.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Blackgold - Blackgold (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238807.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Myosotis - The Sky Between Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238801.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Goatsmoker - E​.​O​.​T​.​A. (2022) [FLAC|Lossless|WEB-DL|tracks] <St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238794.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Bury Tomorrow - The Seventh Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238793.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238784.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ Lost Sacrament - Praesidio in Animo (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238783.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ Stahlkeller - Gefangen im Wahn (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238768.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Sjotrollet - Relentless Cruelty of Fate (2023) [MP3|320 Kbps] <Apocalypse Black 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238764.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ Theriomorph - Diabolical Bloodswords (2022) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238760.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Rival Sons - Darkfighter (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238758.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Unbounded Terror - Echoes of Despair (2022) [Mp3|320 kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238750.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Anzv - Gallas (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238743.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Angel Of Suicide - Suicide Symphony (2022) [FLAC|Lossless|WEB-DL|tracks] <Depres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238736.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Pertness - From The Beginning To The End (2010) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238731.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Fireforce - Rage of War (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238730.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Morgarten - Cry Of The Lost (2021) [FLAC|Lossless|image + .cue] <Folk Metal, Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238727.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Pertness - Metamorphosis (2018) [FLAC|Lossless|image + .cue] <Melodic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238722.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Wailin Storms - The Silver Snake Unfolds (2022) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238720.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Pertness - Frozen Time (2012) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238718.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ Perfect Storm - No Air (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238715.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ Perfect Storm - No Air (2021) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBF78AA555C628D1B3FB77BD71DA1A79B4CCE4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623329   (238713) от 01.04.2023
-
-Dark Sarah - The Golden Moth (2018) [FLAC|Lossless|image + .cue] <Symphonic Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Rose
-02. Trespasser
-03. Wheel
-04. My Beautiful Enemy(   Читать дальше...   )Жанр: Symphonic Metal, Gothic MetalПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17AAA8BB5A1FC32F8E2E780DC8FD660E99D7497F
 ```
 
 https://mybot314.ru/tekegram_catalog/

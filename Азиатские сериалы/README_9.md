@@ -1,3 +1,30 @@
+###  Публикация: 1630482   (196566) от 26.06.2023
+
+Учитель Ким, доктор Романтик / Nangmandakteo Kim Sabu / Romantic Doctor, Teacher Kim (2023) WEB-DL [H.264/1080p] (сезон 3, серии 1-16 из 16) Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пу Ён-джу когда-то был известным хирургом, его даже называли Руки Бога. Но однажды он просто исчез, и никто не знал, куда. Сейчас Ён-джу — простой учитель, который любит называть себя романтичным доктором.
+Кан Дон-джу стал врачом, чтобы победить, Юн Со-джун — чтобы получить признание. Но после встречи с учителем Кимом они поняли, в чём на самом деле заключается профессия (   Читать дальше...   )Производство: Южная Корея, Samhwa Networks, SBS, Studio SЖанр: драма, мелодрамаРежиссер: Ю Ин-щик, Ли Гиль-бок, Пак Су-джинАктеры: Хан Сок-кю, Ю Ён-сок, Со Хён-джин, Ким Хон-пха, Чин Гён, Лим Вон-хи, Пён У-мин, Ли Сон-гён, Ан Хё-соп, Со Ын-суПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: отсутствуютПродолжительность: ~01:15:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309B628D7FEDC09BEEF2EF4E57FBE70ADA9C5C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630231   (196558) от 26.06.2023
 
 Плохая мать / Плохая мамочка / Nappeun eomma / The Good Bad Mother (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-14 из 14) Softbox
@@ -6,7 +33,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196558.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196481.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196290.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195519.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190791.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189320.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188719.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188705.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187359.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186754.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184968.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184726.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182823.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181940.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181872.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180979.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180491.jpg" />
 </div>
 
 
@@ -452,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180459.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179303.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178935.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177320.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173819.jpg" />
 </div>
 
 
@@ -583,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169982.jpg" />
 </div>
 
 
@@ -609,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169671.jpg" />
 </div>
 
 
@@ -635,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169501.jpg" />
 </div>
 
 
@@ -646,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BFF3E606D1101A2EC8C443D698D99BC9AAD1697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596544   (169497) от 10.12.2022
-
-Слабый герой / Yakhan yeongung / Yakhanyeongung / Weak Hero (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Softbox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169497.jpg" />
-</div>
-
-
-###  Подробнее
-
-В школе, где процветает буллинг и угнетение слабых, появляется новенький ученик. Несмотря на невысокий рост и безобидную внешность, парень способен отмутузить любого задиру, да так, что тот будет умолять о пощаде.Производство: Южная Корея / Playlist StudioЖанр: драма, криминалРежиссер: Ю Су-мин, Пак Тан-хиАктеры: Пак Чи-хун, Чхве Хён-ук, Хон Гён, Ким Су-гём, Ли Ён, Щин Сын-хо, Юн Джон-хун, Пак Чи-бинПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: Русские, английскиеПродолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2871374274947C4E79BA87BA5B7B9B24192C03
 ```
 
 https://mybot314.ru/tekegram_catalog/

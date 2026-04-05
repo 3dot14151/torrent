@@ -1,3 +1,163 @@
+###  Публикация: 1278949   (809226) от 16.05.2020
+
+Короткие истории v.3
+
+>>3
+>>97
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_809226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уважаемые одноклубники!
+Команда Клубные Таланты NNM-Club приглашает Вас принять участие в игре "Короткие истории". Предлагаем читателям поделиться своими жизненными наблюдениями посредством нескольких метких фраз.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009344   (809221) от 21.04.2016
+
+Uninstall Tool 3.4.5 Build 5430 Final + Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBEB15AD8A1C354EFD3748976F3D9E7299F8894B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009413   (809216) от 21.04.2016
+
+UC Browser 5.6.11651.1013 Portable by Sitego [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809216.jpg" />
+</div>
+
+
+###  Подробнее
+
+UC Browser для Windows - современный веб-браузер, который поддерживает новейшие веб-технологии и стандарты, обладает удобным интерфейсом, и предоставляет всё, что нужно для комфортного и безопасного веб-серфинга. Использует в работе 2 движка - Chromium и Trident, позволяя при необходимости быстро переключаться между ними. Такой подход поможет избежать проблем с неправильным (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB1A77ADA74C5CB3801B1F61CF9C410BFDE7CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009361   (808980) от 21.04.2016
+
+Как грамотно заменить вентилятор в БП
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_808980.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз я расскажу вам о том, как и почему надо менять вентилятор в БП.
+На это есть много причин:-Шум. Штатный вентилятор сильно шумит на фоне остальной системы и вы не хотите больше его слышать.
+-Перегрев. Ваш вентилятор вышел из строя или его недостаточно для качественного охлаждения компонентов в БП.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008964   (808978) от 21.04.2016
+
+Всем операторам связи до конца года установят "ревизор" Роскомнадзора
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_808978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система будет следить за тем, чтобы операторы связи закрывали доступ к заблокированным сайтам в России
+Новая версия системы "Ревизор", следящей за блокировками запрещенных сайтов, будет установлена у всех операторов связи в России до конца 2016 года. Об этом "Известиям" сообщил замглавы Роскомнадзора Олег Иванов.«Ревизор» в автоматическом режиме (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009448   (808972) от 21.04.2016
+
+WinPE 10 Sergei Strelec (x86/x64) 2016.04.21 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск WinPE 10 - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, и антивирусы.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12375FE99C3BFA65C9E27F8FCFC4AA7C68D537DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009260   (808969) от 21.04.2016
 
 Nero 2016 Platinum 17.0.04500 Retail + ContentPack [Multi/Ru]
@@ -6,7 +166,7 @@ Nero 2016 Platinum 17.0.04500 Retail + ContentPack [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808969.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808964.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>23
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_808963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_808963.jpg" />
 </div>
 
 
@@ -87,7 +247,7 @@ Kerbal Space Program (2015) [En] (1.1.0.1230) SteamRip awphilippov
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808961.jpg" />
 </div>
 
 
@@ -113,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808897.jpg" />
 </div>
 
 
@@ -140,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808892.jpg" />
 </div>
 
 
@@ -167,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808887.jpg" />
 </div>
 
 
@@ -193,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808883.jpg" />
 </div>
 
 
@@ -219,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808583.jpg" />
 </div>
 
 
@@ -248,7 +408,7 @@ Jetbrains PhpStorm 2017.1 Build #PS-171.3780.104 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808548.jpg" />
 </div>
 
 
@@ -275,7 +435,7 @@ Windows XP Pro SP3 VL Ru x86 by Sharicov (v.25.03.2017)  [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808544.jpg" />
 </div>
 
 
@@ -301,7 +461,7 @@ Microsoft Windows 10 Pro Insider Preview Build 15063 (ESD) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808542.jpg" />
 </div>
 
 
@@ -327,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_808540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_808540.jpg" />
 </div>
 
 
@@ -355,7 +515,7 @@ NaviTel / Навител Навигатор v9.7.2493 WinCE [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808539.jpg" />
 </div>
 
 
@@ -381,7 +541,7 @@ Microsoft® Windows® 10 Professional vl x86-x64 1607 RU by OVGorskiy® 03.2017 
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808538.jpg" />
 </div>
 
 
@@ -407,7 +567,7 @@ Auto Call Recorder Pro 5.26 [Ru/Multi] - Запись звонков
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808537.jpg" />
 </div>
 
 
@@ -433,7 +593,7 @@ Geekbrains | PHP. Уровень 1 Основы веб-разработки (201
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808475.jpg" />
 </div>
 
 
@@ -459,7 +619,7 @@ Garmin: Дороги России Топо 6.20 (FID 1790) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808474.jpg" />
 </div>
 
 
@@ -486,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807883.jpg" />
 </div>
 
 
@@ -515,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807667.jpg" />
 </div>
 
 
@@ -526,162 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEEDB5BAF8FD1222C8F91F7F5F2954EC75CFED15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 246450   (807655) от 25.10.2021
-
-Край (2010) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807655.jpg" />
-</div>
-
-
-###  Подробнее
-
-В августе 1945-го в далекий поселок с названием Край с войны возвращается бывший танкист Игнат, чья страсть — паровозы. Он узнает, что на уединенном острове с довоенных времен брошен немецкий паровоз, и принимается его восстанавливать. Но, оказывается, у паровоза уже есть имя — «Густав», и есть хозяйка — Эльза, дочь немецкого инженера, арестованного в начале войны. (   Читать дальше...   )Жанр: ДрамаРежиссер: Алексей УчительАктеры: Владимир Машков, Сергей Гармаш, Владас Багдонас, Александр Баширов, Юлия Пересильд, Анна Уколова, Семен Белоцерковский, Алексей Горбунов, Вячеслав Крикунов, Аньорка ШтрехельФормат: AVIПродолжительность: 02:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797D59A5F322E57ACAA47585ED713B7074FC896C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198264   (807634) от 11.01.2018
-
-Skype 8.13.0.3 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует P2P-технологию для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может быть (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04594F17AE558CDAC337701EA0EC9582874FE5D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198149   (807626) от 11.01.2018
-
-Российские военные сказали Windows «прощай»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_807626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минобороны приняло решение перевести все служебные компьютеры на операционную систему Astra Linux. Это полностью отечественная разработка, ее создатель — московская компания «РусБИТех». Сейчас на российских военных компьютерах установлены лицензионные продукты Microsoft. Ранее Astra Linux стала единой операционной системой для военных автоматизированных систем управления. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198426   (807614) от 11.01.2018
-
-Мегрэ на Монмартре / Maigret in Montmartre (2017) HDTVRip [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мегрэ исследует случайные убийства графини и шоу-девушки и обнаруживает тёмную тайну, которая связывает их прошлые жизни в Гранд-отеле в Ницце.Производство: Великобритания / Maigret ProductionsЖанр: Драма, криминал, детективРежиссер: Тадеус О'СалливанАктеры: Роуэн Аткинсон, Марк Хип, Люси Коху, Дуглас Ходж, Себастьян де Соуса, Лоррейн Эшборн, Кэсси Клер, Шон Дингуолл, Лео Стаар, Сара КестелменПеревод: Любительский многоголосый (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5B1952DBE07EEC4D2FC6FF3EB852B9CA4A5FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198305   (807613) от 11.01.2018
-
-Специалист | Разработчик C++ (2015-2016) PCRec [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курсы Qt в Центре «Специалист»позволят Вам освоить основы проектирования пользовательского интерфейса, архитектуру и основные принципы библиотеки Qt, механизмы, применяемые при обработке баз данных, получить всестороннее и полное понимание данного продукта как средства создания кросс-платформенных приложений и пользовательских интерфейсов.Жанр: ПрограммированиеПродолжительность: 102:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E5014B49CEBEE9E0D718022308CC315F952393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117106   (807611) от 11.01.2018
-
-BioShock Remastered Dilogy (2016) [Ru] (1.0.122872/1.0.122864) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десять лет — изрядный период даже для истории обычного города, а под водой десятилетие сопоставимо с вечностью. За это время утопический город Восторг обветшал еще больше, а некоторые его районы полностью оказались во власти воды. Однако в нем по-прежнему тлеет жизнь — хищная, агрессивная и всегда готовая к борьбе. Самые жестокие и коварные мутанты до сих пор бродят (   Читать дальше...   )Тип издания: RepackРазработчик: 2K Boston, 2K Australia, Blind Squirrel, Irrational GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C6970473B67161DA9DD0247D8A2270B9FD33D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

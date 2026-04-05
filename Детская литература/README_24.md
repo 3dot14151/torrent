@@ -1,30 +1,3 @@
-###  Публикация: 858797   (947318) от 12.01.2015
-
-Евгений Наумов | Загадка острова Раутана (1981) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор нескольких книг для детей («Утро вечера мудренее», «Коралловый город, или Приключения Смешинки», «Околесица» и других) в форме повести рассказывает о приключениях группы школьников из киностудии Дома пионеров, которые становятся участниками раскрытия преступления.
-Во время путешествия по Чукотке ребята узнают многое о работе геологов, шоферов, горняков, летчиков.Жанр: Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B69C1FBA881C604B80974F9BF5F6668648056A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 858812   (947291) от 12.01.2015
 
 Тамара Крюкова | Чёрный альбатрос (2012) [FB2]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947291.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947150.jpg" />
 </div>
 
 
@@ -86,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946935.jpg" />
 </div>
 
 
@@ -112,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946933.jpg" />
 </div>
 
 
@@ -139,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946923.jpg" />
 </div>
 
 
@@ -166,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946101.jpg" />
 </div>
 
 
@@ -192,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946079.jpg" />
 </div>
 
 
@@ -218,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946075.jpg" />
 </div>
 
 
@@ -244,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944579.jpg" />
 </div>
 
 
@@ -270,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944480.jpg" />
 </div>
 
 
@@ -296,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943948.jpg" />
 </div>
 
 
@@ -324,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943947.jpg" />
 </div>
 
 
@@ -350,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943932.jpg" />
 </div>
 
 
@@ -378,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943158.jpg" />
 </div>
 
 
@@ -405,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943144.jpg" />
 </div>
 
 
@@ -431,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942523.jpg" />
 </div>
 
 
@@ -458,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942518.jpg" />
 </div>
 
 
@@ -485,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942357.jpg" />
 </div>
 
 
@@ -513,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942264.jpg" />
 </div>
 
 
@@ -539,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941975.jpg" />
 </div>
 
 
@@ -565,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941765.jpg" />
 </div>
 
 
@@ -591,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941760.jpg" />
 </div>
 
 
@@ -617,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941665.jpg" />
 </div>
 
 
@@ -646,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941446.jpg" />
 </div>
 
 
@@ -676,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941409.jpg" />
 </div>
 
 
@@ -687,6 +660,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEF48F692846DC9BE342B8CFA46670D1D08B3F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 860309   (941248) от 16.01.2015
+
+Евгений Гаглоев | Афанасий Никитин и легенда о четырех колдунах (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Афанасий Никитин».
+Маму 12-летнего Афанасия Никитина похищают при раскопках древнего кургана. Бандиты – группа чудаковатых циркачей из разорившегося цирка-шапито «Золотой треугольник», которые работают на злобного миллионера. Они ищут старинную табличку с указанием места захоронения мифического богатыря.
+Чтобы спасти маму, Афанасий ввязывается (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018B5B2365E9087FAF4248F8675D340EA8D09211
 ```
 
 https://mybot314.ru/tekegram_catalog/

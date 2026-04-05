@@ -1,3 +1,29 @@
+###  Публикация: 1422325   (310233) от 08.11.2020
+
+Skillbox | ArchiCAD для дизайнеров интерьера (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь пользоваться Archicad  на продвинутом уровне. Сможете быстро делать рабочие чертежи, создавать документацию, визуализировать проекты и станете более востребованным специалистом. Курс ориентирован полностью на практические навыки, преподаватели простыми формулировками объясняют сложные вещи. В программу обучения входят все важные аспекты, которые должен (   Читать дальше...   )Жанр: Archicad, дизайнПродолжительность: 32:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C50BEF89F1FA1180C471F0F9B297CFCB1D75D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422388   (310232) от 08.11.2020
 
 Skillbox | After Effects с нуля до PRO (2019) PCRec
@@ -6,7 +32,7 @@ Skillbox | After Effects с нуля до PRO (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310232.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Lynda.com | Access 2010: Forms and Reports in Depth - Access 2010: Формы и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309882.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309443.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309435.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Jillian Michaels | Body Revolution (2012) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309244.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ XYZ School, Антон Агеев | Мастер-Класс. Создание м
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307957.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Skillbox | Графический дизайнер с нуля до PRO (2020) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307943.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306346.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ LiveClasses, Антон Мартынов | Мифы и правда об ISO (20
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305787.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ LiveClasses, Антон Мартынов | 20 знаменитых фотогр�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305777.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ LiveClasses, Антон Мартынов | Что такое хорошо и ч�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305771.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ LiveClasses, Антон Мартынов | Логика настроек фот�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305731.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305719.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ Lynda.com | Building Templates in Word - Работаем с шаблонами 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305082.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304764.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304600.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304522.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304310.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304299.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Jillian Michaels | Kickbox FastFix (2012) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304176.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304068.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Fstoppers, Patrick Hall, Lee Morris | Введение в видеопродак
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304013.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ LiveClasses, Антон Мартынов | Как снимать натюрмо�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303907.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303901.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ LiveClasses, Дмитрий Ларионов | Работа с MacOS: Полез
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303892.jpg" />
 </div>
 
 
@@ -674,32 +700,6 @@ LiveClasses, Дмитрий Ларионов | Работа с MacOS: Полез
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E88AA0BEFB1639F2E1F8B0F66F00D159A99F27AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422948   (303890) от 11.11.2020
-
-LiveClasses, Антон Мартынов | Как это снято? (2020) PCRec
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видите красивую фотографию и не понимаете, как это снято? В этом классе вы изучите приёмы, позволяющие проанализировать чужие фотографии и понять, какие настройки там использовались. Какая была диафрагма? А выдержка? А ISO? Прямо на классе Антон Мартынов разберет ряд фотографий и даст вам весь инструментарий для самостоятельной работы.Производство: LiveClassesЖанр: ФотографияПродолжительность: 01:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54200CC8635604F22B18B49F178E6800EE21B70
 ```
 
 https://mybot314.ru/tekegram_catalog/

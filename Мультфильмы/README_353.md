@@ -1,3 +1,133 @@
+###  Публикация: 1679387   (137658) от 25.11.2023
+
+ЛЕГО Звездные войны: Приключения изобретателей / Lego Star Wars: The Freemaker Adventures (2016 - 2017) WEB-DL [H.264/1080p] (Сезон 1-2, серии 1-26 из 26) Невафильм
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137658.jpg" />
+</div>
+
+
+###  Подробнее
+
+События мультсериала разворачиваются между V и VI эпизодами саги «Звёздные Войны». В центре сюжета – увлекательные приключения дружной семьи изобретателей Фримейкеров. Когда младший из них – Рован – находит мощное оружие, за которым охотится Дарт Вейдер, жизнь всей семьи переворачивается с ног на голову. Теперь перед Фримейкерами стоит важная миссия – восстановление (   Читать дальше...   )Производство: США / Lucasfilm, SN Studios, The LEGO GroupЖанр: мультфильм, фантастика, боевик, драма, комедия, приключения, семейныйРежиссер: Майкл Хэгнер, Фредерик Будольф-Ларсен, Мартин СковПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F8F3A4B8D0D938598C9D8422742B8E2676009E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511978   (137657) от 31.12.2021
+
+Хит-Манки / Hit-Monkey (2021) WEBRip [H.264/720p-LQ]  (сезон 1, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет посвящен обезьяне, которая тренировалась у киллера по имени Брюс, чтобы линчевать преступников.Производство: США, Floyd County Productions, Hulu, Marvel Animation, Marvel Entertainment, Marvel TelevisionЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Судейкис, Оливия Манн, Элли Маки, Фред Таташиор, Джордж Такей, Ноби НаканисиПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика!Субтитры: английские, испанскиеПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8431783A8B287E858D4656EE6CECF63A68FEC493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511979   (137527) от 31.12.2021
+
+Хит-Манки / Hit-Monkey (2021) WEBRip  (сезон 1, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет посвящен обезьяне, которая тренировалась у киллера по имени Брюс, чтобы линчевать преступников.Производство: США, Floyd County Productions, Hulu, Marvel Animation, Marvel Entertainment, Marvel TelevisionЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Судейкис, Оливия Манн, Элли Маки, Фред Таташиор, Джордж Такей, Ноби НаканисиПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика!Субтитры: отсутствуютПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC04A47C27F771FD7F07531B8764208E0F62A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601427   (137459) от 31.12.2022
+
+Страшная история (1979) BDRip [H.264/1080p-LQ] [handmade remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суслик и Хомяк рассказывают друг другу страшные истории, а потом не решаются заснуть.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Галина БариноваАктеры: Костя Завалишин, Анатолий ЩукинСубтитры: ОтсутствуютПродолжительность: 00:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9151626B775F69FC0C067CBC873AEF005EFABF15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184814   (137398) от 31.12.2017
+
+Защитники снов / Dream Corps (2017) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-52 из 52) [Обновляемая]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137398.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Детских снов чудесная страна людям всем до старости нужна» – знаем мы благодаря знаменитой песне Мэри Поппинс. Но не всех это устраивает. Злодей Кошмариус ненавидит тех, кто беззаветно мечтает, и считает своим долгом разрушить сказочный и хрупкий мир детских снов. На помощь всем детям планеты спешат Флай и Лиз – их гордый союз называется «Защитники снов». Но они (   Читать дальше...   )Производство: КитайЖанр: Мультсериал, Компьютерная анимацияРежиссер: Жубинг ЛиПеревод: Дублированный (CLS MЕDIA)Субтитры: ОтсутствуютПродолжительность: 00:14:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD965988EF48B311D61E9F1C55890678CA85E931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273218   (137357) от 31.12.2018
 
 Папа-мама гусь / Duck Duck Goose (2018) Blu-ray 3D/2D [H.264/1080p] [hand made 16:9]
@@ -6,7 +136,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137357.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137190.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137170.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137126.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137119.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137097.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137059.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137049.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137030.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137028.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137024.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137023.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136930.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136929.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136853.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136821.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136671.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136624.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136619.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136113.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135812.jpg" />
 </div>
 
 
@@ -539,138 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9EFF2694BE66B2C89C293838C8182D8F5578F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592270   (135783) от 21.12.2012
-
-Тэд Джонс и Затерянный город  / Las aventuras de Tadeo Jones (2012) [720p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тэд — обычный чикагский строитель, страстно мечтающий о невероятных открытиях и опасных приключениях. Однажды его по ошибке принимают за известного археолога и отправляют в Перу на поиски сокровищ инков. Радости Тэда не было предела, но, похоже, она оказалась преждевременной…Производство: Испания / Telefónica Producciones, Ikiru Films, Lightbox EntertainmentЖанр: Мультфильм, Приключения, СемейныйРежиссер: Энрике ГатоПеревод: Двуголосый закадровый любительскийПродолжительность: 01:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15820B08FBF14A346A0AEB29EB49F619424506B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591982   (135755) от 21.12.2012
-
-Смешарики. Новые приключения. Выпуск №1 (Шуша) (2012) DVDRip
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ура! Вот он – долгожданный подарочек на Новый год – первый сборник нового сезона от Смешариков! Жизнерадостные круглые друзья вернулись на наши экраны и всех удивили. Ведь в новом сезоне наши любимые Смешарики округлились окончательно – теперь они трехмерные! Смешарики приготовили на радость своим поклонникам пять новых историй, которые стали длиннее предыдущих. (   Читать дальше...   )Жанр: Мультфильм, короткометражка, детский, приключенияПродолжительность: 5 х ~ 00:10:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592152   (135744) от 21.12.2012
-
-Смешарики. Новые приключения. Выпуск 1. Шуша (Новогоднее издание) (2012) DVDRip
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнерадостные круглые друзья вернулись на наши экраны и всех удивили. Ведь в новом сезоне наши любимые Смешарики округлились окончательно — теперь они трехмерные!
-
-Ура! Вот он долгожданный подарочек на Новый год первый сборник нового сезона от Смешариков! Жизнерадостные круглые друзья вернулись на наши экраны и всех удивили. Ведь в новом сезоне наши любимые Смешарики (   Читать дальше...   )Жанр: мультфильм, короткометражка, детский, приключенияРежиссер: Олег Мусин,Наталья Мирзоян, Катерина СавчукПерсонажи: Пин, Лосяш, Крош, Ёжик, Бараш, Нюша, Копатыч, Карыч, СовуньяПродолжительность: 5 х ~ 00:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62660AE232A46EB58C6BA71D3434708927EEB9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592732   (135557) от 22.12.2012
-
-Тэд Джонс и Затерянный город / Las aventuras de Tadeo Jones (2012) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тэд — обычный чикагский строитель, страстно мечтающий о невероятных открытиях и опасных приключениях. Однажды его по ошибке принимают за известного археолога и отправляют в Перу на поиски сокровищ инков. Радости Тэда не было предела, но, похоже, она оказалась преждевременной…Производство: ИспанияЖанр: Мультфильм, Приключения, СемейныйРежиссер: Энрике Гато / Enrique GatoПерсонажи: Оскар Барберан, Меритксель Ане, Карлес Канут, Фиона Глэскотт, Адам Джеймс, Мишель Хеннер, Мигель Анхель Дженнер, Энрикета Линарес, Мак МакДональд, Брюс МаккиннонПеревод: Любительский (двухголосый, закадровый)Продолжительность: 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935AAC043028C3EFD8CE89D8E6C4B97B9C4E3F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592544   (135519) от 22.12.2012
-
-Союз зверей / Die Konferenz der Tiere (2010) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда веселых зверей нашла зеленый оазис посреди засушливой африканской пустыни, чтобы там поселиться. Но их жизнь оказалась под угрозой — река Окаванго стала быстро пересыхать. Друзья выясняют, что в этом виноваты люди, которые построили дамбу. Звери, — такие разные, — от льва до трусливого суслика, — объединяются в союз, чтобы бросить вызов людям и спасти долину! (   Читать дальше...   )Жанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Райнхард Клоосс, Хольгер ТаппеПерсонажи: Билли Бич,  Джим Броудбент,  Джеймс Корден,  Марк Дирайсон,  Омид Джалили,  Джейсон Донован,  Дон Френч,  Томас Фритш,  Стивен Фрай,  Майкл ГловерПеревод: ДублированныйПродолжительность: 01:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24B8F4C6C244AD9907332FF0C425ECED53A6287
 ```
 
 https://mybot314.ru/tekegram_catalog/

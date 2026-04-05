@@ -1,3 +1,61 @@
+###  Публикация: 1214833   (763074) от 23.03.2018
+
+Oscar Javelot - Inner Presence (2018) [MP3|320 Kbps] <Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naher zu mir (To be one) (03:53)
+ 02. So sicher wie im Himmel (04:42)
+ 03. Good Time (04:19)
+ 04. Segel im Wind (03:17)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64233814E65B5814DDB35E8D9A79E2CC237BEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017084   (762832) от 16.05.2016
+
+Соня Тимофеева - Цыганские народные песни (1970) LP [MP3|256 кб/с] <Цыганская песня >
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кай ёнэ
+02. Настенька
+03. Нанэ мандэ родо
+04. Гэя Куля(   Читать дальше...   )Жанр: Цыганская песняПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED21EC2460E31BD1FFFC13FF20CE40046720497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280320   (762003) от 02.02.2019
 
 Edward Simoni - Zauber der Panfloete (2012) [MP3|320 Kbps] <Instrumental>
@@ -6,7 +64,7 @@ Edward Simoni - Zauber der Panfloete (2012) [MP3|320 Kbps] <Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762003.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Paul Mauriat - Diamond Collections (1996) Unofficial Release [FLAC|Lossless|imag
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761997.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Snatam Kaur - Beloved (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761465.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Isis & Cobra - The Goddess Spiral Meditations (2013) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761110.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Jennifer Nettles - Playing with fire (2016) [MP3|320 кб/с] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760784.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Jann Beaudry - Legere (2019) [MP3|320 Kbps] <Ethnic>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760530.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Friska Viljor - Broken (2019) [MP3|320 Kbps] <Indie>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760418.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760196.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Leo Rojas - Leo Rojas (2017) [FLAC|Lossless|image + .cue] <Panflute, Native amer
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759607.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Paul Mauriat & His Orchestra - Greatest Hits, 2CD (2007) [FLAC|Lossless|tracks +
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759531.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Willie Nelson - First Rose Of Spring ‎ (2020) [FLAC|Lossless|tracks + .cue] <C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758841.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757704.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Jon Brion - Паранорман, или Как приручить зомби / 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757563.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ OVA - Дискография (2011-2012) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756765.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756436.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Gregorianika - Ora et Labora (2009) [FLAC|Lossless|tracks + .cue] <New Age, Greg
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756349.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - In Too Deep (Original Motion Picture Soundtrack) (1999) [FLAC|Lossless|trac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755820.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Douglas Blue Feather - Rhythms of the Night (2015) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755677.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - OST - The Angry Birds Movie (Original Motion Picture Soundtrack) (2016) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755591.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Atom Music Audio - Epic Nature Series: Earth (Planet of Life) (2020) [MP3|320 Kb
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755402.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Temple Song Hearts - Temple Song Hearts XIV (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755290.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Ennio Morricone - Famous Morricone Soundtracks (2020) [FLAC|Lossless|WEB-DL|trac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755275.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Atom Music Audio - Exogen: Metahuman Themes (2020) [MP3|320 Kbps] <Soundtrack, I
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755191.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Wise Hand - Manschoud (1999) [APE|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754996.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Wise Hand - Manschoud (1999) [APE|Lossless|image + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C040631310DA7E4BDE5E2AD372563A042AD30F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 322114   (754925) от 10.07.2020
-
-Ennio Morricone - The Very Best Of (1995) [APE|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man With The Harmonica (2:56)
-02. Chi Mai (5:06)
-03. Cockey's Song (4:05)
-04. For A Few Dollars More (2:40)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D77E5E8C422EB56614DBCE94D6552E28500D52DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182244   (754923) от 10.07.2020
-
-Ennio Morricone - The Best Of 50 Years Of Music (2010) [FLAC|Lossless|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ecstasy Of Gold (From The Good The Bad The Ugly) (3:39)
-02. Once Upon A Time In The West (2:57)
-03. Here's To You (From Sacco E Vanzetti) (3:57)
-04. The Master And Margherita (4:58)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7651EF9B044F701476E98B8249115B3CCD7EBE76
 ```
 
 https://mybot314.ru/tekegram_catalog/

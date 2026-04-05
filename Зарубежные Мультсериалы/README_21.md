@@ -1,3 +1,56 @@
+###  Публикация: 679938   (645968) от 15.07.2013
+
+Куриный городок / Chicken town (2011) SATRip (1 сезон, 39 серий из 39)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедийный мультсериал о злоключениях кур и их хозяев. "Куриный городок" расположился в центре города, на парковке автомобилей.
+В какие только переделки, не попадают действующие персонажи...Жанр: Комедия, семейныйРежиссер: Нико МеулемансПеревод: Дублированный (СТС)Продолжительность: 39 х ~00:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28EF07EDA6129230D823BED392579DBC49A1DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031909   (643365) от 08.07.2016
+
+Аватар: Легенда об Аанге / Avatar: The Last Airbender (2006) DVDRip [H.264] (сезон 2, серии 1-20 из 20) (Арт-Дубляж) [MP4|640x480]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир разделен на четыре народа: Водные племена, королевство Земли, Воздушные кочевники и Огненная нация. Представители каждого народа обладают способностями управления своей стихией и именуют себя магами Воды, Земли, Воздуха или Огня. Только Аватар является властелином всех четырех стихий. Его роль заключается в поддержке баланса между народами и сохранении мирового (   Читать дальше...   )Производство: США / Nickelodeon Animation StudiosЖанр: Фэнтези, Приключения, Mультфильм, СемейныйРежиссер: Майкл Данте ДиМартино,  Брайан Кониецко, Джанкарло Волп, Этан Сполдинг, Лорен МакМалленАктеры: Зак Тайлер, Мэй Уитман, Джек Де Сена, Ди Брэдли Бейкер, Данте Баско, Джесси Флауер, Мако, Грэй Гриффин, Андре Соглиуззо, Крикет ЛиПеревод: Дублированный - Арт-ДубляжПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C58B961E8E7C2BF6A86DEBDC068FB9D200D2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032720   (641416) от 09.07.2016
 
 Аватар: Легенда об Аанге / Avatar: The Last Airbender (2007-2008) DVDRip [H.264] (сезон 3, серии 1-21 из 21) (Арт-Дубляж) [MP4|640x480]
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641416.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641281.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636908.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636893.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632928.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631665.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631551.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631529.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631269.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631258.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631095.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629257.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629043.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628390.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628232.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628104.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626877.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626484.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624275.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624141.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622304.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621737.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_621033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621033.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620253.jpg" />
 </div>
 
 
@@ -621,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:009E704DEE43DA3A8BDABF9E0A1241B56E3530E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544366   (619782) от 16.04.2022
-
-Чип и Дейл спешат на помощь / Chip 'n' Dale Rescue Rangers (1989) BDRemux [H.264/1080p] (сезон 2, серии 1-47 из 47)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непоседы Чип и Дейл всегда знают, как оказаться в центре событий. Поиски пропавших драгоценностей, детективные расследования, погони и сражения с хитроумными злодеями — герои не боятся самых рискованных приключений! Взяв в свою «Команду Спасателей» изобретательницу Гаечку, здоровяка Рокфора и его юркого помощника Вжика, друзья смело бросают вызов преступникам.Производство: США, Disney Television AnimationЖанр: Рисованная анимация, Детский, Приключения, КомедияРежиссер: Джон Кимболл, Боб Дзамбони, Алан ЗасловАктеры: Тресс МакНилл, Кори Бертон, Питер Каллен, Джим Каммингс, Роб Полсен, Дэнни Гэнс, Питер Шрум, Дебора Уолли, Алан Оппенхаймер, Синди МакКейПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF612666C9CC32EE47EE4E48C5054AEC82306CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145514   (619309) от 26.06.2017
-
-Стражи Галактики / Marvel's Guardians of the Galaxy (2015-16) WEB-DL [H.264/720p-LQ] (сезон 1, серии 0-26 из 26) HamsterStudio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разные судьбы таких непохожих друг на друга членов одной команды из мультфильма «Стражи Галактики» не помешали им объединиться вместе, чтобы встать на защиту интересов огромной Галактики.
-Потерявшие семью или друзей, лишившиеся по «милости» беспощадных завоевателей дома и веры в будущее эти отчаявшиеся одиночки отныне – единственные Стражи всех обозримых миров. Но (   Читать дальше...   )Производство: США / Marvel Animation, Walt Disney Television AnimationЖанр: Мультсериал, Фантастика, Боевик, Приключения, ФэнтезиРежиссер: Лео Райли, Эрик Радомски, ...Актеры: Джонатан Адамс, Джефф Беннетт, Тревор Дивэлл, Уилл Фридел, Ванесса Маршалл, Джеймс С. Мэтис III, Ной Нельсон, Кевин Майкл Ричардсон, Дэвид Соболев, Кри СаммерПеревод: Многоголосый закадровый, любительскийОзвучка / Автор перевода: 00 - Екатерина Дмитрова, Евгений Леоно, 01-26 - Алексей Соловьёв, Анастасия Снегирева, Андрей ЖариковСубтитры: Английские, 01-26 серииПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48F30452AB3F64A5F82BE8E67EA6D8B7B0E0760
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Don Byas - Complete American Small Group Recordings (1944 - 1946) 4CD, 2001, Def
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359278.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Trilok Gurtu - "Usfret" (1988) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359277.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Evan Parker Electro-Acoustic Ensemble - The Eleventh Hour (2005) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359273.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Paul Bley - The Complete Footloose (1962 - 1963) 1987, King Record [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359267.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Trilok Gurtu - Crazy Saints (1993) [FLAC|Lossless|tracks + .cue] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359185.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kenny Dorham - K.D. Is Here: New York City 1962 & 1966 (2016) Uptown Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358854.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sonny Stitt - Stitt Plays Bird (1963) 2003, Atlantic [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358853.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Andrew Hill - Smoke Stack (1963) 1994, Toshiba-EMI [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358428.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Tito Puente - The Best of Tito Puente: The Millennium Collection (1991 - 1999) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358419.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bobby Jaspar - Modern Jazz Au Club Saint Germain (1955) 2011, Universal[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357380.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Peggy Lee - Dream Street (1957) 1999, Universal[FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357378.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Peggy Lee - Sea Shells (1958) 1999, Universal[FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357377.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kurt Elling - The Beautiful Day: Kurt Elling Sings Christmas (2016) Sony Music M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357338.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Sam "The Man" Taylor - Sam Taylor Pops Daizen Shu (2003) [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357129.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Benny Goodman - The Legendary Small Groups (1935 - 1938) 2003, BMG [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356906.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Paul Bley - Solo (1989) Justin Time [FLAC|Lossless|tracks + .cue] <Avant-Garde J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356738.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Brian Simpson - Something About You (2018) [FLAC|Lossless|image + .cue] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356673.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Thad Jones - Mad Thad (1957) /1999, OJC/[FLAC|image+.cue]<Bop, Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356337.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sonny Criss - The Joy Of Sax (1999) /Ars Nova/[APE|tracks+.cue]<Bop, Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356336.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ray Brown - Bass Hit! (1956) /1999, Verve/[FLAC|tracks+.cue]<Bop, Mainstream Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356332.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bill Evans - Spring Leaves (1959/1961) /2000, Milestone Records/[APE|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356331.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Peter Guidi Qartet & Trio - Forbidden Flute (1999) Munich Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356269.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Kurt Elling - Passion World (2015) /Concord/[FLAC|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356213.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Tito Puente & His Orchestra - Live at the 1977 Monterey Jazz Festival (2008) Mon
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355906.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sam Gendel & Sam Wilkes - Music for Saxofone & Bass Guitar (2018) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355748.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Zaz - Sur La Route (2015) [FLAC|Lossless|WEB-DL] <Nu Jazz, Chanson>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355462.jpg" />
 </div>
 
 

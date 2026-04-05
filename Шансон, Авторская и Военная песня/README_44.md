@@ -1,3 +1,32 @@
+###  Публикация: 1425727   (218119) от 22.11.2020
+
+Ефимыч - Под мостом (2020) [FLAC|Lossless|WEB-DL|tracks] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Под мостом
+02. Танец
+03. Зависть
+04. Перемирие(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4625854501E5E596FD35A2A5CAF66496EAA22668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269853   (218074) от 16.12.2018
 
 Игорь Карташёв - 2 Альбома (1995 - 2002) [FLAC|Lossless|image + .cue]<Шансон>
@@ -6,7 +35,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218074.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217990.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217688.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216448.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215486.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214655.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ VA - Популярный шансон (2005) [FLAC|Lossless|tracks + .cue]<Ша
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214651.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214103.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211242.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211209.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ VA - Казачьи песни: Сборник лучших песен (2002) [F
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210752.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210329.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209281.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209243.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209201.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209200.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ VA - Калина красная 22-Песни, спетые сердцем (201
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208673.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208013.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206613.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ VA - Калина красная 21-Песни, спетые сердцем (201
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204559.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204220.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204081.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203570.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202531.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201626.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B49C20B90F3FA61CAD9660F0C75E7DFFD077168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627358   (199691) от 18.04.2023
-
-Михаил Шуфутинский - Чёрным по белому (2023) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199691.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Раскрой окно
-2. Чёрным по белому
-3. Шарфик
-4. Прощай(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF991324A183721CDCB8C9D85203E32C2C685443
 ```
 
 https://mybot314.ru/tekegram_catalog/

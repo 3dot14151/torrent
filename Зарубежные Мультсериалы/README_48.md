@@ -1,3 +1,55 @@
+###  Публикация: 1592874   (182377) от 24.11.2022
+
+Эрнест и Селестина: Короткие истории / Ernest et Célestine, La Collection (2017-2021) WEB-DLRip [H.264] (сезон 1-2, серий 1-52 из 52)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эрнест — большой косолапый медведь, клоун и музыкант — однажды приютил в своем доме маленькую Селестину — мышку-сиротку, сбежавшую из подземного мира своих сородичей. Эти два одиночки чувствуют себя очень комфортно вместе и всячески помогают друг другу, тем самым нарушая установленный порядок. Потому что обычно в мире медведей не одобряют дружбу с мышами. Как и в (   Читать дальше...   )Производство: Франция, Folivari, Les Armateurs, Mélusine Productions, So-NordЖанр: рисованная анимация, детскийРежиссер: Жюльен Шен, Жан-Кристоф РожеАктеры: Полин Брюннер, Ксавье ФаньонПеревод: ДублированныйПродолжительность: ~00:13:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80674084063F375C7522DD4458A476DA4AAC249B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665527   (182266) от 30.09.2023
+
+Разочарование / Disenchantment (2023) WEB-DL [H.264/720p-LQ] (сезон 5, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в Средневековье в королевстве Дримландия, где живёт юная принцесса-алкоголичка Бин. Отказавшись выходить замуж, Бин отправляется в путешествие по стране в компании эльфа и демона. По дороге трио встретит множество фантастических тварей и дураков людского происхождения.Производство: США / Curiosity Company, The, NetFlix, ULULU CompanyЖанр: приключения, комедия, фэнтези, Для взрослыхРежиссер: Ира Шерак, Дуэйн Кэри-Хилл, Брайан ШислиПеревод: Многоголосый профессиональный (NewStation)Язык озвучки: русский, английскийСубтитры: русские, английские, украинские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:28:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938A2621BFA057E5E49B60325532AF1BEEB65D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665528   (182086) от 30.09.2023
 
 Разочарование / Disenchantment (2023) WEB-DLRip (сезон 5, серии 1-10 из 10) NewStation
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182086.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182055.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181963.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181893.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181678.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181152.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181049.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179874.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179451.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177981.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176623.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176522.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176437.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176403.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175790.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175751.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175124.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173874.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173681.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173655.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173541.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173487.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172963.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172951.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64F78F71CE4DF9E85BFDA6A054F52B8A5F5839D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668816   (172773) от 16.10.2023
-
-Футурама / Futurama (2003) WEB-DL [H.264/1080p-LQ] (Сезон 4, Серия 1-18 из 18) TVShows
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всё начинается с того, когда разносчик пиццы по имени Фрай случайно оказывается замороженным в 1999 году и просыпается в будущем, спустя 1000 лет. Однако, новый мир, хотя и населённый роботами и инопланетянами, не так уж сильно отличается от старого. Фрай начинает работать в службе Планеты Экспресс, доставляющей посылки в различные уголки Вселенной. В будущем Фрай (   Читать дальше...   )Производство: США, 20th Century Fox TelevisionЖанр: мультфильм, фантастика, комедия, приключенияРежиссер: Питер Аванзино, Брэт Хааланд, Грегг ВанцоАктеры: Билли Уэст (II), Кэти Сагал, Джон Ди Маджио, Тресс МакНилл, Фил ЛаМарр, Лорен Том, Морис ЛаМарш, Дэвид Херман (I), Фрэнк Уэлкер, Рене ГарсияПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 00:22:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD44D95BE37D3B54C081D5A3E3A92D3D1BE50C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670667   (171365) от 24.10.2023
-
-Космобой / Kid Cosmic (2021-2022) WEB-DLRip [H.264/720p] (сезон 1-3, серии 1-24 из 24) VSI Moscow, TVShows, HDRezka Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик находит пять мощных космических камней, и его мечта стать супергероем сбывается. Но спасать мир всё же не так просто — и одному ему точно не справиться. Эпицентр повествования сюжетной линии мультсериала "Космобой" займет девятилетний малец, поведение которого вызывает определенные странности. Мальчик, проживающий с дедушкой на территории небольшой (   Читать дальше...   )Производство: США, Netflix Animation, Craig McCracken ProductionsЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Крэйг МакКрекен, Дэйв Томас, Роберт Ренцетти, Пол Уотлинг, Бенжамин БалистрериАктеры: Джек Фишер, Аманда Селин Миллер, Лили Роуз Сильвер, Том Кенни, Кит Фергюсон, Фред Татаскьор, Грей ДеЛайл, Ким Ярбро, Кристиан Ланц, Эрик БаузаПеревод: Дублированный (VSI Moscow), многоголосый закадровый (HDRezka Studio, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, forced), английские (full)Продолжительность: 24 x ~ 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C6C198A2B4DBBE3420D88A0B89CCE2D15B00CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

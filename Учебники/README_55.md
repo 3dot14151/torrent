@@ -1,3 +1,56 @@
+###  Публикация: 928457   (521768) от 17.08.2015
+
+Ю.Ф. Широков | Основы теории радиолокационных систем (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521768.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассматриваются физические основы работы радиолокационных систем и комплексов. Рассмотрены методы измерения координат движущихся и неподвижных объектов. Рассмотрены основы статистической теории радиолокации, позволяющие оценить потенциальные радиолокаторов при измерении и разрешении параметров обрабатываемых сигналов.
+Учебное пособие предназначено для студентов (   Читать дальше...   )Жанр: РадиолокацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B299CF8140769D8C35C1BC7558C28BE13967AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928445   (521761) от 17.08.2015
+
+В.И. Смирнов | Проектирование и схемотехническое моделирование микропроцессорных устройств (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены вопросы проектирования микропроцессорных устройств, включая разработку программного обеспечения для микроконтроллеров. Рассмотрение архитектуры микроконтроллеров и особенностей функционирования периферийных устройств ведется на примере популярного микроконтроллера ATmega128 семейства AVR. Для формирования практических навыков работы с микроконтроллерами (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A36A4CB6487F5424B05D98075B9A4ABA6B64B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928530   (521759) от 17.08.2015
 
 Б.А. Никольский | Основы радиотехнических систем (2013) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521759.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521758.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520626.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520615.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520591.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520577.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518183.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518078.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517972.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517347.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517333.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517293.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516700.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516594.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516301.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516253.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516211.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516064.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515677.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515624.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515512.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515471.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515455.jpg" />
 </div>
 
 
@@ -623,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515410.jpg" />
 </div>
 
 
@@ -636,59 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:521B51DCA1E56966104C4BC7CC1C13F1875177E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930512   (515255) от 23.08.2015
-
-Н.В. Пеньшин и др. | Организация автомобильных перевозок (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрен процесс организации грузовых и пассажирских автомобильных перевозок, даны основные термины и определения. Приведены методики расчёта технико-эксплуатационных показателей работы подвижного состава.Жанр: ТранспортФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17B5851E8561209652139F91497E02858F23E86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930280   (515082) от 23.08.2015
-
-Подборка книг | Курсовое и дипломное проектирование по технологии машиностроения [6 книг] (2007-2012) [PDF, DJVU, DOC]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515082.jpg" />
-</div>
-
-
-###  Подробнее
-
-В подборке учебных пособий представлены основные методические материалы для дипломного и курсового проектирования по технологии машиностроения.
-Рассматриваются вопросы анализа конструкции детали, отработки ее конструкции на технологичность, выбора технологических баз, определения видов обработки, формирования маршрута обработки детали. Содержатся основные справочные (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF, DJVU, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A81E8E3C72E10A801C2FFD1E0F2954DF4AE47C7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

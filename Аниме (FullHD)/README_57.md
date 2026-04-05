@@ -6,7 +6,7 @@ Megami no Cafe Terrace (2024) | The Cafe Terrace and Its Goddesses (2024) | Бо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15639.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Failure Frame | Hazure Waku no Joutai Ijou Skill de Saikyou ni Natta Ore ga Sube
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15636.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hataraku Maou-sama!! | The Devil Is a Part-Timer! Season 2 | Повелител�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15183.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифици�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15166.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15165.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Hokkyoku Hyakkaten no Concierge-san | The Concierge at Hokkyoku Department Store
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15164.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15161.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15160.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15134.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ One Room, Hiatari Futsuu, Tenshi-tsuki. | Studio Apartment, Good Lighting, Angel
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15133.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tearmoon Teikoku Monogatari: Dantoudai kara Hajimaru, Hime no Tensei Gyakuten St
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15128.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15127.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Hataraku Saibou Black | Cells at Work! Code Black | Клетки за работ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15126.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15125.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Kakushite! Makina-san!! | Makina-san's a Love Bot?! | Прячься, Макин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13505.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Aharen-san wa Hakarenai Season 2 | Непостижимая Ахарэн [ТВ-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13372.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Lazarus | Лазарь [2025, TV, 13 эп.] WEBRip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12819.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Inazuma Eleven: Reloaded – Soccer no Henkaku | Inazuma Eleven: Reloaded – Re
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11800.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Leviathan | Левиафан [2025, Web, 12 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11112.jpg" />
 </div>
 
 

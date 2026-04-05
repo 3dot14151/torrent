@@ -1,32 +1,3 @@
-###  Публикация: 1788535   (68513) от 30.03.2025
-
-Janiva Magness - Back For Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Joe Bonamassa - Masterpiece (3:36)
-02.  Back For Me (5:10)
-03.  The Same Love That Made Me Laugh (3:55)
-04.  November (5:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3DA68B7A16E64078F5FFFC153060B11193B73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788445   (68511) от 30.03.2025
 
 Mumford & Sons - Rushmere (2025) [FLAC 16,24/44,1,96|Lossless|WEB-DL|tracks] <Folk, Bluegrass, World, Country>
@@ -35,7 +6,7 @@ Mumford & Sons - Rushmere (2025) [FLAC 16,24/44,1,96|Lossless|WEB-DL|tracks] <Fo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68511.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Nothing More - CARNAL (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68509.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Nomy - Saviour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68508.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Nightwish - End Of An Era (2006) Live, Reissue, 2018, Nuclear Blast [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68486.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Humpe Humpe - Humpe Humpe (1985) 40th Anniversary Edition, Remaster, 2025, Warne
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68482.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Occult - Prepare to Meet Thy Doom (1994) Released, 2016, Cosmic Key Creations [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68469.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Einherjer - Av oss, for oss (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Viking 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68467.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Einherjer - Dragons of the North XX (1996) Released, 2016, Circle Of The 111 Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68466.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Nightwish - Amaranth (2007) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68435.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Aeonian Sorrow - Studio Albums (4 releases) (2018-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68420.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Occult - The Enemy Within (1996) Reissue, 2016, Cosmic Key Creations [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68419.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Katatonia - For Funerals to Come... (1995) EP, Reissue, 2011, Peaceville [FLAC|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68418.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68389.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Red Rocks Worship - The King Is Coming (Live) (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68367.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Polo & Pan - 22:22 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop, Down
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68359.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Perfume Genius - Glory (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Ar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68358.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Lola Indigo - Nave Dragon (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Latin Pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68356.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Jessie Frye - Otherworld (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electroni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68353.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Skrillex - F*CK U SKRILLEX YOU THINK UR ANDY WARHOL BUT UR NOT!! <3 (2025) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68351.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Memphis May Fire - Shapeshifter (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68347.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ Allegaeon - The Ossuary Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Technic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68341.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Aretha Franklin - The Electrifying (1962) Remastered, 2025, ZOROTY [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68338.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Butcher Brown - Letters From The Atlantic (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68336.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Smith/Kotzen - Black Light / White Noise (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68331.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Korgull the Exterminator - War of the Voivodes (2010) Reissue, 2014, Doomentia R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68330.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ A4 - Sado Soldiers(   Читать дальше...   )Жанр: Thrash, Black Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4185CDD55253CE71A970D93E2946BEE8C1E07153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789302   (68329) от 03.04.2025
+
+Tenebrae - Loss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tetraluce [00:04:23]
+02. Impakt [00:04:12]
+03. Bet and Die [00:04:45]
+04. Freedom [00:05:42](   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D88A767700C1254D82E5241B012E255B3853446
 ```
 
 https://mybot314.ru/tekegram_catalog/

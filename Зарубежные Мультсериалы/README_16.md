@@ -1,3 +1,57 @@
+###  Публикация: 1375817   (748113) от 14.07.2020
+
+Харли Квинн / Harley Quinn (2020) WEB-DL [H.264/720p-LQ] (сезон 2, серии 1-13 из 13) NewStation
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: Мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый профессиональный (NewStation)
+присутствует ненормативная лексика.Субтитры: русские (сообщество UGN SUBZ Translators), английскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65495179C200DACD2293CC7D47B01380A65B783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375815   (748107) от 14.07.2020
+
+Харли Квинн / Harley Quinn (2020) UHD WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 2, серии 1-13 из 13) NewStation
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: Мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый профессиональный (NewStation)
+присутствует ненормативная лексика.Субтитры: русские (сообщество UGN SUBZ Translators), английскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8545CAB1B83E9F94190FFBC6C43D61445DC31609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 889472   (747421) от 18.04.2015
 
 Чаггингтон: Веселые паровозики / Chuggington (2008-2011) DVDRip [H.264] (Сезон 1-3, Серии 1-92)
@@ -6,7 +60,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747421.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747228.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747018.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745998.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_745908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_745908.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745795.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745756.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744798.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744499.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744214.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742773.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742771.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742768.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742108.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742106.jpg" />
 </div>
 
 
@@ -398,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742105.jpg" />
 </div>
 
 
@@ -424,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741617.jpg" />
 </div>
 
 
@@ -450,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741287.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740590.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739480.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738876.jpg" />
 </div>
 
 
@@ -556,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737853.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737727.jpg" />
 </div>
 
 
@@ -609,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736370.jpg" />
 </div>
 
 
@@ -620,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:727260B0705454D6C1693D084FE6ED99D2A07662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385163   (736029) от 25.07.2020
-
-Дрожащая правда / The Shivering Truth (2020) WEB-DL  [H.264/1080p-LQ] (сезон 2, серии 1-6 из 6) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736029.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дрожащая правда» - это реактивная миниатюрная кассетная бомба до боли безудержных дневных кошмаров, истекающих оранжевой слизью логики сновидений. Ряд малосвязанных эмоциональных притч об историях внутри рассказов, которые выползли из глубочайших пещер вашего подсознания и стали милейшими мультяшками в зашлёпывающей покадровой съёмке, - иными словами, это правда.Производство: США, Adult SwimЖанр: Для взрослых, черная комедия, ужасыРежиссер: Вернон ЧатманПеревод: Многоголосый профессиональный (NewStation) Присутствует ненормативная лексика!Субтитры: английскиеПродолжительность: ~00:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A24A6756F7DAC8379DC784A06B0B2D848A4D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524781   (734890) от 01.02.2022
-
-Шоу Патрика Стара / The Patrick Star Show (2021) WEBRip [H.264/1080p] (сезон 1, серии 3 из 7)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734890.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Патрика наконец-то есть свой самостоятельный сериал, что не удивительно, ведь он был рождён звездой! Как и вся его не менее звездная семья: папаша-весельчак Сесил, мать Банни с танцующей татуировкой на спине, ворчливый дедуля Стар и восьмилетняя сестра Сквидина — надежда семьи и продюсер звездного шоу Патрика. В полном соответствии с последними модными тенденциями (   Читать дальше...   )Производство: США, Nickelodeon Animation Studios, United Plankton PicturesЖанр: Мультфильм, фэнтези, комедия, семейныйРежиссер: Шерм Коэн, Дэйв КаннингэмАктеры: Билл Фагербакки, Дэна Снайдер, Кри Саммер, Джилл Тэлли, Томас Ф. Уилсон, Том Кенни, Ди Брэдли Бейкер, Мистер Лоуренс, Роджер Бампасс, Кейт ХиггинсПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: ~00:21:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFFB797CB29E79085D559963BCE972F6605F214
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1272065   (145717) от 26.12.2018
+
+Swans - Soundtracks For The Blind (1996) 2018, 3CD, Remastered [FLAC|Lossless|tracks + .cue] <Industrial, Post-Punk, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ligeti's Breath / Hilflos Kind (22:17)
+02. Ich Sehe Die Alle In Einer Reihe (04:47)
+03. Surrogate Drones (02:56)
+04. YRP (08:51)(   Читать дальше...   )Жанр: Industrial, Post-Punk, ExperimentalПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5DD9ED2D637773DC6E762AF91F6CB75611110C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272166   (145701) от 26.12.2018
 
 Кузьма и ВиртУОзы, Сергей Летов, Андрей Машнин, Byzantine Art Punk Ensemble - Летов в Сердце (2018) Live [MP3|320 Kbps] <Punk Rock, Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145701.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Dan Lucas - The Long Road (2021) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145685.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Autumn's Child - Zenith (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145660.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ The Rolling Stones - Between The Buttons (1967) SACD, Remastered, 2002 ABKCO Rec
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145618.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ T. Rex - Electric Warrior (1971) SACD, 2003, A&M Records [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145602.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Wintersun - Wintersun (Japanese Edition) (2004) [FLAC|Lossless]<Epic Metal, Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145567.jpg" />
 </div>
 
 
@@ -185,7 +214,7 @@ Trans-Siberian Orchestra - The Ghosts of Christmas Eve (2016) The Complete Narra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145565.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ Claudia Cane Sings Bon Scott - CC/DC - A True AC/DC Remake (2011) [MP3|320 кб/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145557.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ Bring Me The Horizon - 13 Releases (2004-2019) [MP3|~245-320 кб/с]<Deathcore 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145550.jpg" />
 </div>
 
 
@@ -278,7 +307,7 @@ Trace - 3 Albums (1974-1976) Reissue, 2009, Arcangelo, Japan [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145546.jpg" />
 </div>
 
 
@@ -307,7 +336,7 @@ VA - Kerrang! Ultimate Rock Heroes! (2015) [MP3|320 кб/с] <Alternative Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145425.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ Chris Rea - The Road To Hell (Parts 1 & 2) (1989) CDS [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145418.jpg" />
 </div>
 
 
@@ -364,7 +393,7 @@ Adler (ex-Guns N' Roses) - Back From The Dead (2012) [FLAC|Lossless]<Hard Rock /
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145413.jpg" />
 </div>
 
 
@@ -399,7 +428,7 @@ Keith Richards - Crosseyed Heart (Best Buy Edition) (2015) [FLAC|Image+cue] <Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145398.jpg" />
 </div>
 
 
@@ -428,7 +457,7 @@ Obsidian Kingdom - A Year With No Summer (2016) [MP3|320 Kbps] <Progressive, Exp
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145314.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ Obsidian Kingdom - Mantiis (2012) [MP3|320 Kbps] <Experimental, Extreme Progress
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145290.jpg" />
 </div>
 
 
@@ -486,7 +515,7 @@ Three Lions - Three Lions (2014) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145235.jpg" />
 </div>
 
 
@@ -515,7 +544,7 @@ Bad Marriage - Bad Marriage (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145223.jpg" />
 </div>
 
 
@@ -544,7 +573,7 @@ Miss Crazy - Make America Crazy Again (2019) [MP3|320 Kbps] <Glam, Hard Rock,>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145211.jpg" />
 </div>
 
 
@@ -573,7 +602,7 @@ Violence Fog & Jerusalem - SWF-Sessions Volume 6 (1971) 2001,  Long Hair [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145186.jpg" />
 </div>
 
 
@@ -602,7 +631,7 @@ Halestorm - Halestorm (2009) The 10th Anniversary Edition, 2019, Atlantic Record
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145164.jpg" />
 </div>
 
 
@@ -631,7 +660,7 @@ Oceans of Slumber - Aetherial (2013) [MP3|320 Kbps] <Progressive Gothic Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145115.jpg" />
 </div>
 
 
@@ -660,7 +689,7 @@ SADLESS - Задержка дыхания (2015) [MP3|320 kbps] <Indie, Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145101.jpg" />
 </div>
 
 
@@ -689,7 +718,7 @@ Mecca - III (2016) Россия, пиратка [FLAC|Lossless|image + .cue] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145071.jpg" />
 </div>
 
 
@@ -718,7 +747,7 @@ Circle II Circle - Reign of Darkness (2015) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145068.jpg" />
 </div>
 
 
@@ -732,35 +761,6 @@ Circle II Circle - Reign of Darkness (2015) [FLAC|Lossless|image + .cue] <Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E0C995C2C3F95656480D5E5C7B61ACAFD3EAED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348316   (145043) от 27.12.2019
-
-Торба-на-Круче - Восток 7 (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145043.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сны Йети
-2. Пейджер
-3. Цунами
-4. Конец прекрасной эпохи(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50A79D5A5F418148EF0F3E38EDEB5E4EFF13644
 ```
 
 https://mybot314.ru/tekegram_catalog/

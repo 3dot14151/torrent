@@ -1,3 +1,265 @@
+###  Публикация: 1275868   (789227) от 13.01.2019
+
+Шрифты - GraphicRiver - Pribor – Clean Lo-Fi Stencil Font With Cyrillic - 4174149 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это первый шрифт автора «Pribor», созданный под впечатлением от старых электроприборов и других устройств из СССР в 80-х годах. Pribor имеет минималистичный, простой и слегка использованный стиль ло-фи. Стиль ретро-механики, хорошая читабельность и превосходный внешний вид в разных размерах, который позволяет использовать его для логотипов, печати, веб-приложений, (   Читать дальше...   )Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1840C43F92FEF7B2E63C4F370850033D901DD31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276203   (788537) от 15.01.2019
+
+Шрифты - Creative Market - Lukid Typeface - 344517 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стильный и элегантный рукописный шрифт для любого Вашего творчества.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA67B4A954A0B1530C56A37AF0A755475DD4E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276204   (788510) от 15.01.2019
+
+Шрифты - Creative Market - Mocka Typeface - 286997 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейство Mocka поставляется с 4 уникальными шрифтами. Этот рукописный шрифт имеет очень уникальный внешний вид. Если вам нужно создать что-то необычное, но игривое, Mocka - это тот шрифт, который вы искали.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE15BA7F23B3944605B948E19291836AB3D819A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276201   (788503) от 15.01.2019
+
+Шрифты - Creative Market - Southbank Display Font - 825943 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Southbank Display Font - это новейший шрифт от Vintage Type Co, который поставляется с четырьмя уникальными стилями, каждый из которых выделен курсивом и чернильной копией. Что бы вы ни проектировали, один из этих стилей наверняка подойдет вашим потребностям! Помимо 4-х стилей, с курсивом и шероховатой проблемной версией, Southbank Display Font поставляется с многоязычной (   Читать дальше...   )Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6502418BFE59EC9BF5F4658A47A79624B1B415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276202   (788502) от 15.01.2019
+
+Шрифты - Creative Market - Turismo CF Modern Font - 597977 [TTF, OTF, WOFF, EOT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдохновленный автоспортом середины столетия, технологиями и бизнесом, Turismo CF разработан для потрясающих логотипов и захватывающих заголовков. По примеру 1960-х и 1920-х годов, Turismo сочетает сильные прямоугольные формы с наклонными вытянутыми кривыми.Формат: TTF, OTF, WOFF, WOFF2, EOT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C3C00F23731A3AA8E622170095E2A72E6556B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277595   (784952) от 21.01.2019
+
+Шрифты - Creative Market - Pubinie Script Typeface - 345381 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pubinie такой сладкий шрифт, что вы почти попробуете его съесть. Шрифт создан очень деликатно и использует тонкие линии. Из-за этого шрифт выглядит очень чистым и опрятным, но он все еще обладает игривым чувством ручной работы.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C3875B50EF757892433182F2DF065EFFED5070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277593   (784951) от 21.01.2019
+
+Шрифты - Creative Market - My name is Buffy - 346692 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Buffy - это гибкий, шаткий дисплейный шрифт с забавными читаемыми буквами. Этот рукописный шрифт имеет очень уникальный внешний вид. Если вам нужно создать что-то необычное, Buffy - это тот шрифт, который вы искали.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D08D31948F7B42CF0DD4C4B7148A6978D5DD75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277594   (784943) от 21.01.2019
+
+Шрифты - Creative Market - My Name is Captain Jack - 404411 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Captain Jack (раньше назывался Capitan Koons) включает в себя все буквы и все цифры. Шрифт использует 2 стиля. Чтобы использовать альтернативный стиль, переключайтесь между прописными и строчными буквами.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5691BA7BC04AE2E4EA3AAA65BE1FB0F399D359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277596   (784924) от 21.01.2019
+
+Шрифты - Creative Market - Pumpkin Script Typeface - 404823 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pumpkin - это заглавный шрифт со всеми буквами и цифрами. Он поставляется в двух разных стилях, к которым можно получить доступ, используя версию шрифта в нижнем или верхнем регистре.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4667B2ECBF8EBD97AF36A2ADF644DE6507DBEB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208172   (780053) от 21.02.2018
+
+Шрифты - Colophon Foundry - Basis Grotesque Pro [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт изначально был создан для журнала HOTSHOE в виде одного начертания. Через три года шрифт был выпущен публично. За 36 месяцев работы шрифт был переработан, расширен до 16 начертаний и протестирован на множестве платформ: цифровых, печатных и т.д..
+
+Изначальные источники вдохновения (среди которых Akzidenz и разные ранние гротески из Monotype) были в конечном (   Читать дальше...   )Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDE81A172C7546D2687E91FADFC7608A880F430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277598   (775645) от 21.01.2019
 
 Шрифты - Creative Market - Ze Typeface + Extras - 329890 [TTF, OTF, AI, PSD]
@@ -6,7 +268,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775645.jpg" />
 </div>
 
 
@@ -32,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775638.jpg" />
 </div>
 
 
@@ -58,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767763.jpg" />
 </div>
 
 
@@ -87,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759450.jpg" />
 </div>
 
 
@@ -116,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757781.jpg" />
 </div>
 
 
@@ -145,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743495.jpg" />
 </div>
 
 
@@ -171,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743401.jpg" />
 </div>
 
 
@@ -197,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743392.jpg" />
 </div>
 
 
@@ -223,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742220.jpg" />
 </div>
 
 
@@ -249,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742117.jpg" />
 </div>
 
 
@@ -275,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742114.jpg" />
 </div>
 
 
@@ -301,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741994.jpg" />
 </div>
 
 
@@ -329,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740871.jpg" />
 </div>
 
 
@@ -357,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729371.jpg" />
 </div>
 
 
@@ -386,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722020.jpg" />
 </div>
 
 
@@ -415,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720853.jpg" />
 </div>
 
 
@@ -426,269 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A01C710E28D0A832303102CE8785A6C0D169AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285525   (720809) от 26.02.2019
-
-Шрифты - FontBundles - PN Spotlight - 147966 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F60F04304A01E86A176871CC47FBE08AF6C2434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285520   (720805) от 26.02.2019
-
-Шрифты - Creative Market - Fortuin Typeface - 353360 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1B4F1E5B94308B2B04411AB99659411BE0E5DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285534   (720803) от 26.02.2019
-
-Шрифты - Creative Fabrica - Attracted Monday [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE02182F8486B06F2BF785AF96E85CFB67EACC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285532   (720801) от 26.02.2019
-
-Шрифты - Creative Market - NH Rail - Extra Wide Slab - 3484998 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276AC6EA642E9ED0C592B46CBA66336743BE4E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285517   (720777) от 26.02.2019
-
-Шрифты - Brush Kencur Font [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEEC7039E627F23A19B1C1BBA2AFF8A434327BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285511   (720775) от 26.02.2019
-
-Шрифты - De Luxious Font [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE8C377DC13BE8B87F0CBFAAE4FF22921585597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285528   (720773) от 26.02.2019
-
-Шрифты - Azura Font [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D991248AF4C6BB6F4881F400B92C3DDDEBCC02E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285770   (718675) от 27.02.2019
-
-Шрифты - FontBundles - ZP Sweeter Dreams - 132861 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F783C337DAC9EE2019D7C9274B9CA870A0BC949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285767   (718671) от 27.02.2019
-
-Шрифты - Creative Fabrica - Deepblue [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6026FD42AA01EE49537AC1C9B62925ADC1395067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051316   (718232) от 30.04.2017
-
-Шрифты - Astro cyr-lat [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный модульный шрифт.
-Количество: 3 шт.
-Разработчик: Gloria Flores Lleonart
-Поддержка кириллицы есть (Русская, Белорусская, Украинская, Молдавская), адаптация под кириллицу от "He Rez AD".Формат: OTF, TTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A739A7327B3693EE9B829C18D364FB3CDF224C82
 ```
 
 https://mybot314.ru/tekegram_catalog/

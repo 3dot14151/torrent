@@ -1,3 +1,213 @@
+###  Публикация: 387821   (464313) от 14.09.2011
+
+Активатор для Kaspersky на 5000 дней (2011)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем для пользователей Kaspersky очень нужную и востребованную вещь. Kaspersky 2011 New Crack (активатор касперского). Kaspersky 2011 Crack активирует вашего Касперского на десять лет вперед (5000 дней). Установленный, с помощью этого крэка ключ, не заблокируется даже после того как вы обновите Касперского. Работает со всеми языками и версиями Windows 32bit и 64bit сЯзык интерфейса: Китайский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387264   (464305) от 14.09.2011
+
+CorelDRAW Graphics Suite X5 15.0.0.489 [Eng]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464305.jpg" />
+</div>
+
+
+###  Подробнее
+
+CorelDRAW Graphics Suite X5 сочетает широкие возможности для творчества и мощные инструменты. Повышенная скорость работы, точное управление цветом, улучшенные инструменты создания векторных иллюстраций и новые возможности подготовки веб-графики делают этот пакет незаменимым для любого дизайнера. Новые профессиональные шаблоны и обучающие материалы позволяют быстро (   Читать дальше...   )Язык интерфейса: English-US
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940893   (464271) от 26.09.2015
+
+В Китае произведен первый запуск новой ракеты LM-6
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_464271.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 сентября 2015 года новая ракета-носитель Long March 6 (LM-6) стартовала с космодрома Тайюань (Taiyuan Satellite Launch Center) и успешно вышла на низкую околоземную орбиту, доставив туда 20 искусственных спутников различного назначения. Эта небольшая ракета-носитель предназначена для произведения экстренных запусков, в которых важное значение играет минимизация (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 240889   (464008) от 29.09.2010
+
+WinAVI All-In-OneConverter 1.1.0.3916 [Rus]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464008.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinAVI All-In-One Converter — лучший видео конвертер для преобразования видео для дальнейшего просмотра на DVD плеерах. Название говорит само за себя — всё в одном. Скоростная конвертация видео/аудио файлов между популярными форматами, Фильм размером 4G конвертируется за 10 минут. Так утверждают разработчики.WinAVI All-In-One Video Converter является профессиональным (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940932   (463869) от 26.09.2015
+
+NBA 2K16 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте собственного баскетболиста и помогите ему подняться на вершину спортивного Олимпа. Возьмите в свои руки управление всей Национальной Баскетбольной Ассоциацией. Или оттачивайте свое мастерство, чтобы сражаться с лучшими игроками мира по сети.
+
+Благодаря обновленной анимации движения игроков стали более плавными, а их эмоции – более реалистичными. Не будет (   Читать дальше...   )Тип издания: UnofficialРазработчик: Visual ConceptsЖанр: Sport (Basketball) / SimulationЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B5DC10725657090A1DECBC62C073803E9DCD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407486   (463844) от 08.09.2020
+
+«Ростелеком» закрыл сверхзатратный национальный поисковик «Спутник»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_463844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания «Поисковый портал Спутник» (ООО «ПП "Спутник"») дочернее предприятие «Ростелекома», окончательно свернула свой поисковый сервис «Спутник». Ранее «Спутник» позиционировался как «национальная государственная поисковая система и интернет-портал».С официального сайта «Спутника» уже пропала строка для ввода поисковых запросов. На главной странице сайта (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 210579   (463831) от 29.09.2010
+
+Sekirei ~Pure Engagement~ / Сэкирэй (Второй сезон) [2010, ТВ, 13 эп.] HDTV 720p raw
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463831.jpg" />
+</div>
+
+
+###  Подробнее
+
+О чем второй сезон? О продолжении смертельной игры на выбывание, затеянной главой зловещей корпорации МБИ, по совместительству - батей главного героя. Завершается окрыление сэкирэй, идет разбивка на команды и подготовка к междоусобным боям. Известный авторитет "Минато Северный", собравший самую крутую бригаду столицы, заимел крышу на самом верху, и может (   Читать дальше...   )Жанр: Комедия, эттиРежиссер: Кусакава КэйдзёПродолжительность: ТВ, 13 серий по 25 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940791   (463787) от 26.09.2015
+
+Антураж / Entourage (2015) BDRip [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звезда кино Винс Чейз и его друзья бросают вызов капризному и зачастую жестокому миру Голливуда.Производство: США, Home Box Office (HBO), Warner Bros. and Closest to the Hole ProductionsЖанр: КомедияРежиссер: Даг ЭллинАктеры: Кевин Коннолли, Эдриан Гренье, Кевин Диллон, Джерри Феррара, Джереми Пивен, Эммануэль Шрики, Перри Ривз, Рекс Ли, Деби Мейзар, Риз Койро, Марк Уолберг, Майк Тайсон, Тьерри Анри, Билли Боб Торнтон, Ронда РаузиПеревод: ДублированныйПродолжительность: 01:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E89546A4F25DC9E872FD660D9EC8FF352CCF9DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940459   (463779) от 26.09.2015
 
 Защищенная от шпионажа операционная система "Заря" готова пойти в серию
@@ -6,7 +216,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_463779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_463779.jpg" />
 </div>
 
 
@@ -33,7 +243,7 @@ Cowboy WPI Autumn StartSoft 66-2015 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463777.jpg" />
 </div>
 
 
@@ -59,7 +269,7 @@ multiboot usb flash 3.0 by lakost08 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463771.jpg" />
 </div>
 
 
@@ -85,7 +295,7 @@ Microsoft Office 2016 Professional Plus RTM 16.0.4266.1003 (x64) by Ratiborus 3.
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463769.jpg" />
 </div>
 
 
@@ -111,7 +321,7 @@ Nero 2016 Platinum 17.0.02000 Retail + ContentPack [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463765.jpg" />
 </div>
 
 
@@ -137,7 +347,7 @@ Battery HD Pro 1.63.04 [Ru] - Монитор для батареи
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463763.jpg" />
 </div>
 
 
@@ -163,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463757.jpg" />
 </div>
 
 
@@ -189,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463756.jpg" />
 </div>
 
 
@@ -215,7 +425,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463731.jpg" />
 </div>
 
 
@@ -241,7 +451,7 @@ The KMPlayer 4.2.2.67 repack by cuta (build 1) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463666.jpg" />
 </div>
 
 
@@ -267,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463664.jpg" />
 </div>
 
 
@@ -293,7 +503,7 @@ Melon VPN v6.8.108 [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463663.jpg" />
 </div>
 
 
@@ -320,7 +530,7 @@ WPS Office - Word, Docs, PDF, Note, Slide & Sheet v16.4.2 Premium Mod [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463661.jpg" />
 </div>
 
 
@@ -346,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463660.jpg" />
 </div>
 
 
@@ -372,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463516.jpg" />
 </div>
 
 
@@ -399,7 +609,7 @@ Quantum Break (2016) [Ru/Multi] (1.0.118.7029) Repack R.G. Revenants
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463515.jpg" />
 </div>
 
 
@@ -425,7 +635,7 @@ Mirror's Edge Catalyst (2016) [Ru/En] (1.0.3.47248/dlc) Repack R.G. Механи
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463501.jpg" />
 </div>
 
 
@@ -451,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463494.jpg" />
 </div>
 
 
@@ -462,214 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37A556DFE3760987065A67E3D5875C9645AA91F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058801   (463493) от 03.10.2016
-
-Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy® 09.2016 2DVD
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463493.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборки на основе оригинальных русских образов операционной системы Windows 8.1 (Pro VL editions) (x86/x64) - DVD (Russian) Final (msdn) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64) и встроенным пакетом обновления Update 3. Установка полностью "вручную" с выбором параметров установки ОС. Интегрированы: последние (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5543618219A8E6CB998C4C35ED9A23F5605A59FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058045   (463492) от 03.10.2016
-
-Девятая жизнь Луи Дракса / The 9th Life of Louis Drax (2016) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый психолог Аллан Паскаль пытается раскрыть тайны, которые хранит сознание 9-летнего Луи Дракса, впавшего в кому после таинственного несчастного случая. Влюбленный в мать мальчика доктор подозревает в случившемся отца. Но чем глубже он погружается в подсознание ребенка, тем сильнее размываются границы между мистикой и реальностью…Производство: Великобритания, Канада, США / Brightlight Pictures Inc., Fire Axe Pictures, Miramax FilmsЖанр: Триллер, ДетективРежиссер: Александр АжаАктеры: Джейми Дорнан, Эйден Лонгуорт, Сара Гадон, Майкл Адамуэйт, Аарон Пол, Бэкхам Скойе, Адам Абрамс, Молли Паркер, Терри Чен, Рэнди ЛиннПеревод: Дублированный (Лицензия, iTunes)Продолжительность: 01:43:25Реклама: Без рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B29F288B254B8F7A6550A20C2B511D8E4A3358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161214   (463088) от 30.08.2017
-
-Ходите верой, а не тем, что видите / Walk by Faith, Not by Sight (2012) DVDRemux
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Римская армия снимает осаду Иерусалима. Две христианские семьи вынуждены принять сложное решение. Послушают ли они повеления Иисуса и оставят ли всё, к чему они так привыкли? Устоят ли они перед искушением вернуться? От этого решения зависит их жизнь.Производство: США, Watchtower Bible and Tract Society of New YorkЖанр: Исторический (библейская драма)Режиссер: информация отсутствуетАктеры: информация отсутствуетПеревод: ДублированныйСубтитры: РусскиеПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB86691FC36E594B25359C422C3055E31CFE876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245915   (463046) от 10.09.2018
-
-Британское ТВ выступило за цензуру Интернета
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_463046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа крупнейших британских телекомпаний, включая BBC, Sky, ITV, Channel 4, BT и Talk Talk, выступила за создание «независимого контролёра», который будет регулировать деятельность публикующих новости технологических компаний, вроде Twitter, Google и Facebook:В прошлое воскресенье британские телегиганты подписали совместное письмо, в котором призвали создать «independent (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095089   (463027) от 10.09.2018
-
-ENSLAVED: Odyssey to the West (2013) [Ru] (1.0/upd1/dlc) Repack Other s [Premium Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enslaved: Odyssey to the West — это футуристическая версия известного древнекитайского романа «Путешествие на Запад», написанного в 1590 году во время правления династии Мин. В новой интерпретации знаменитой легенды от студии Ninja Theory население Земли практически уничтожено в ходе очередной войны. Теперь по некогда оживленным улицам городов, тяжело ступая, передвигаются (   Читать дальше...   )Тип издания: RepackРазработчик: Ninja TheoryЖанр: Action, Adventure, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385C8B03E9BD2A3995182FF1D6B526748B757695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320899   (462971) от 22.08.2019
-
-Walmart подала в суд на Tesla из-за возгорания солнечных батарей ее производства
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_462971.jpg" />
-</div>
-
-
-###  Подробнее
-
-В иске указывается, что в период с 2012 по 2018 год произошло семь случаев возгорания солнечных батарейТорговая сеть Walmart во вторник подала в суд на компанию Tesla предпринимателя Илона Маска после нескольких случаев возгорания солнечных батарей ее производства. Об этом говорится в материалах суда, имеющихся в распоряжении корреспондента ТАСС.В исковом заявлении (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 14320   (462895) от 30.08.2017
-
-Сергей Лукьяненко | Черновик (2005) [MP3]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ФантастикаПродолжительность: 11:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E195BE2A14F7008DD52F88D4ACBFDA67F103917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095620   (462890) от 30.08.2017
-
-XCOM 2: Long War 2 (2017) [Ru/Multi] (1.5) Repack/Mod firstlast2
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Вашему вниманию мод Long War 2 для знаменитой пошаговой стратегии XCOM 2. Данный мод коснется не только стратегической составляющей игры, но и добавит в нее сразу несколько видов миссий. Сотрудники студии Pavonis Interactive не раз говорили, что мод будет большим. И от слов они перешли к делу. Таким образом у игроков появилась весомая причина повторно (   Читать дальше...   )Тип издания: Repack/ModРазработчик: Pavonis Interactive (Long War Studios)Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177DABB37C4F97DF6B7887526E5D2FBA47364138
 ```
 
 https://mybot314.ru/tekegram_catalog/

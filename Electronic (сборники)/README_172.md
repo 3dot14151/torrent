@@ -1,3 +1,58 @@
+###  Публикация: 1422365   (310718) от 08.11.2020
+
+VA - Record Super Chart 661 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
+02. Slava Marlow - Снова я напиваюсь (1:56)
+03. Bastard! - F..k That (3:38)
+04. Jason Derulo - Take You Dancing (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600CD14D73EB16FE3AA31332C5652B57F9A54A2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584132   (310653) от 03.12.2012
+
+VA - Битва DJ: Dинамит vs. Woofer (2004) [MP3|320 кб/с]<House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310653.jpg" />
+</div>
+
+
+###  Подробнее
+
+N/AЖанр: HouseПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6089EBD9F84012B3FFBFCB764C2E34D47AAE1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584084   (310646) от 03.12.2012
 
 VA - Vocal Trance Collection Vol.96 (2012) [MP3|320 кб/с]<Trance, Vocal Trance>
@@ -6,7 +61,7 @@ VA - Vocal Trance Collection Vol.96 (2012) [MP3|320 кб/с]<Trance, Vocal Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310646.jpg" />
 </div>
 
 
@@ -41,7 +96,7 @@ VA - Dubstep Light vol. 5 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310399.jpg" />
 </div>
 
 
@@ -67,7 +122,7 @@ VA - HOUSE AND GIRLS 25 Sexy Grooves Vol 2 (2015) [MP3|320 кб/с]<Deep House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310330.jpg" />
 </div>
 
 
@@ -96,7 +151,7 @@ VA - House Variety: Deep Edition (2017) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310220.jpg" />
 </div>
 
 
@@ -125,7 +180,7 @@ VA - Euphoria Water World Uplifting Trance Essentials (2017) [MP3|320 Kbps] <Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310205.jpg" />
 </div>
 
 
@@ -154,7 +209,7 @@ VA - Deep House Collection Vol.144 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310080.jpg" />
 </div>
 
 
@@ -183,7 +238,7 @@ VA - Prime Basslife Electronic (2019) [MP3|320 Kbps] <D&B, Jungle, Bass Line>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309874.jpg" />
 </div>
 
 
@@ -212,7 +267,7 @@ VA - White Elegant Electro Party (2019) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309869.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ VA - EDM Heartbeat Extended Mix: Progressive Trance (2019) [MP3|320 Kbps] <Progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309728.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ VA - EDM Heartbeat Extended Mix (2019) [MP3|320 Kbps] <Club, Dance, Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309725.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ VA - Mushrooms Of Psychedelic, Vol.02 (2019) [MP3|320 Kbps] <Psy Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309722.jpg" />
 </div>
 
 
@@ -328,7 +383,7 @@ VA - Somatic Cell: Hyperactive Psy Trance (2019) [MP3|320 Kbps] <Trance Psychede
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309689.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ VA - Ibiza 2016. Best of Techno-House [Compiled by Mistik] (2016) [MP3|320 Kbps]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309288.jpg" />
 </div>
 
 
@@ -386,7 +441,7 @@ VA - Ibiza 2016. Soulful Deep-House. Vol.2 Intoxicated Vibe [Compiled by Mistik]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309286.jpg" />
 </div>
 
 
@@ -415,7 +470,7 @@ VA - Ibiza 2016. Soulful Deep-House. Vol.1 Summer Beach [Compiled by Mistik] (20
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309274.jpg" />
 </div>
 
 
@@ -444,7 +499,7 @@ VA - UNKLE  - Best275z (1998 - 2011) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309076.jpg" />
 </div>
 
 
@@ -473,7 +528,7 @@ VA - Ibiza 2016. Best of Funky-House and Disco-House [Compiled by Mistik] (2016)
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308865.jpg" />
 </div>
 
 
@@ -502,7 +557,7 @@ VA - Beatport Psy Trance: Electro Sound Pack #197 (2020) [MP3|320 Kbps] <Psy, Go
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308696.jpg" />
 </div>
 
 
@@ -531,7 +586,7 @@ VA - Beatport Drum And Bass: Electro Sound Pack #199 (2020) [MP3|320 Kbps] <Drum
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308694.jpg" />
 </div>
 
 
@@ -560,7 +615,7 @@ Moonbeam feat. Aelyn - You Win Me (2012) [MP3|320 кб/с]<Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308069.jpg" />
 </div>
 
 
@@ -595,7 +650,7 @@ VA - Sunday Privilege Vol 3 25 Luxury Lounge Anthems (2015) [MP3|320 кб/с]<Do
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308057.jpg" />
 </div>
 
 
@@ -624,7 +679,7 @@ VA - Winter Lounge Kitzbuhel (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308053.jpg" />
 </div>
 
 
@@ -653,7 +708,7 @@ VA - Ride the Wave Vol 1 Relaxed Ocean Grooves (2015) [MP3|320 кб/с]<Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308048.jpg" />
 </div>
 
 
@@ -682,7 +737,7 @@ Dj Tiesto - DJ Mag Top 100 (2012) [MP3|192 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307998.jpg" />
 </div>
 
 
@@ -700,70 +755,6 @@ Dj Tiesto - DJ Mag Top 100 (2012) [MP3|192 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA96F4353AC94801F5C916C626427E565D84E23E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584360   (307906) от 04.12.2012
-
-Eminem, Linkin Park, DJ P@F - Dreams On Shady Park (2010) [MP3|256 кб/с]<Alternative>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Name Is & Hit The Floor
-02. The Real Slim Shady & Enth E Nd
-03. Shit On You & Crazy In Love & Point Of Authority
-04. Fight Music & Lying From You (Live)
-05. Pretty Waiting (skit)
-06. Pretty Waiting & Lying From You
-07. No Apologies & Frgt,10
-08. A 06 (Skit)
-09. Any Man & In The End (Fucking Crazy) (Paul)
-10. Forgot About Dre & Place For My Head(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71201B07BCF84326AA975B2B3776C9FC2563147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960500   (307897) от 28.11.2015
-
-VA - Extra Trance (episode 9) (2015) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plutian - Anubis (Original Mix) (08:02)
-02. Rene Ablaze & Ian Buff Ft Diana Leah - Ill Find My Way (Davey Asprey Remix) (06:36)
-03. Michael Retouch - Illuminated (Manuel Rocca Remix) (06:48)
-04. Dreamy - In Memory (Original Mix) (07:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805BA6401BC71F0F974AF5F6A14E2DBD7E9285BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

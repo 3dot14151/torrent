@@ -1,3 +1,111 @@
+###  Публикация: 960543   (1040467) от 10.01.2021
+
+Слова любимым v1.3.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярное WinPhone приложение теперь на Android! В преддверии праздников или просто так, подарите своим любимым, родным или близким, самые теплые и нежные слова. Приложение "Слова любимым" позволит Вам подобрать лучшие SMS из огромного количества поздравлений и пожеланий, а также Вы можете отправить его по смс, e-mail, WhatsApp Messenger и поделиться с (   Читать дальше...   )Тип издания: Ad-Free (удалена реклама)Релиз состоялся: 02.06.2019Разработчик: Suslov AlexanderПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7D3D92CCB158C4B890C1F0E986AD7E0F74E498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438838   (1040452) от 10.01.2021
+
+AGAMA Car Launcher v2.7.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Car Launcher AG - Никогда еще управление мультимедиа вашего автомобиля не было столь удобным. Встречайте новый автомобильный лаунчер AGAMA. Все самые полезные функции и необходимая информация на расстоянии одного клика от вас. Лаконичный дизайн и простота управления, не будут помехой в гибкости настройки. AGAMA меняется в зависимости от интерьера автомобиля и вашего (   Читать дальше...   )Тип издания: Пиратка (Мод) Premium версияРелиз состоялся: 16 декабря 2020 г.Разработчик: altergames.ruПоддерживаемая ОС: Android 4.1 и вышеЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308462580EE82C573D3EAC025705A7E177FE9A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439022   (1040290) от 11.01.2021
+
+AI Translate v3.1.1 Premium [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040290.jpg" />
+</div>
+
+
+###  Подробнее
+
+AI Перевести поможет вам перевести любой текст на экране одним щелчком мыши.
+AI Перевести поддерживает более 100 языков.
+Вы выбираете область на экране, и выбранные тексты будут переведены.
+• переводить тексты в других приложениях(   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 14 декабря 2020 г.Разработчик: AI EduПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58BF34FCCE91C1151ECA08AC19A2226EFC29C90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410699   (1040289) от 11.01.2021
+
+Old Movies v1.13.09 Premium [En] - Oldies but Goldies
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040289.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Бесплатные полные фильмы из эпохи классического голливудского кино (с 1910 по 1960 годы).
+• Наслаждайтесь выступлениями великих актеров и актрис , таких как Чарльз Чаплин (Бродяга), Джон Уэйн, Гари Купер, Марлон Брандо, Ингрид Бергман, Ширли Темпл или Дебби Рейнольдс, и восхищайтесь выдающейся работой, проделанной такие известные режиссеры как: Орсон Уэллс или (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 14 ноября 2020 г.Разработчик: Cast ToolsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8759D9336B2939299AF5812181336C587280DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439065   (1040221) от 11.01.2021
 
 ICQ New Мессенджер v9.20.1(824739) [Ru/Multi] - Общение, чат-боты, видеозвонки (обновляемая)
@@ -6,7 +114,7 @@ ICQ New Мессенджер v9.20.1(824739) [Ru/Multi] - Общение, чат
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040221.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Tody v1.9.4 Premium [Ru] - уборка по-умному
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040076.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040071.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ Weather XL PRO v1.4.7.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040042.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039831.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039779.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039500.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039305.jpg" />
 </div>
 
 
@@ -221,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039267.jpg" />
 </div>
 
 
@@ -250,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039251.jpg" />
 </div>
 
 
@@ -279,7 +387,7 @@ Spread The Signs v2.0.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039114.jpg" />
 </div>
 
 
@@ -305,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039078.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039042.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ Firefight v1.1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039022.jpg" />
 </div>
 
 
@@ -383,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039012.jpg" />
 </div>
 
 
@@ -412,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039008.jpg" />
 </div>
 
 
@@ -440,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039006.jpg" />
 </div>
 
 
@@ -467,7 +575,7 @@ Ace Squadron: WW II Air Conflicts v1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039005.jpg" />
 </div>
 
 
@@ -493,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038997.jpg" />
 </div>
 
 
@@ -519,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038958.jpg" />
 </div>
 
 
@@ -545,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038934.jpg" />
 </div>
 
 
@@ -571,7 +679,7 @@ Planner 5D Interior Design v1.26.4 [Ru/Multi] - Планировщик домо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038908.jpg" />
 </div>
 
 
@@ -582,113 +690,6 @@ Planner 5D - простое и удобное приложение, которо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:855CADA762F58A7353BF0606A4A054C75E7F65F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440473   (1038755) от 17.01.2021
-
-Denoise it v1.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваша камера всегда создает на ваших фотографиях этот мешающий шум? "Denoise it" может исправить это за вас! "Denoise it" - это приложение, которое использует нейронные сети и методы искусственного интеллекта для автоматического удаления шума с фотографий. Он эффективен для всех видов шума и подходит для любого уровня шума. Вам просто нужно выбрать (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 25.11.2020Разработчик: reAImagineПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B9D76279439FAB424F0F3155A4F5D1C85CE1F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587078   (1038707) от 21.02.2023
-
-Настольные и карточные игры v17.0 Mod by Timozhai [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во все игры можно играть как против компьютера, так и по bluetooth, wifi или онлайн на интернет сервере. Общение на сервере возможно как в общем чате, так и лично с игроками. Все игры, собранные в этом приложении не являются азартными играми. В приложении используется только виртуальная валюта без реального вывода денег.Тип издания: FullРелиз состоялся: 17.02.2023Разработчик: Strict gamesПоддерживаемая ОС: Android 5.0+Жанр: Настольные игрыЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96FABB153E7E8673B2A6C856A3F0C49BD93F214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430352   (1038703) от 21.02.2023
-
-Dub Music Player Premium v5.6 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dub Premium музыкальный плеер - потрясающий проигрыватель для андроид с кристально чистым качеством звучания, отличным графическим оформлением, с возможностью выбора тем, эквалайзером и своими уникальными функциями. Программа без труда умеет проигрывать любые современные форматы аудио: FLAC, MP3, AAC, может играть песни папками или плейлистами.Тип издания: ModРелиз состоялся: 02.12.2022Разработчик: Dub Studio ProductionsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE712EEA01488860028C7DEAFB49BCA8CB6B831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440809   (1038440) от 18.01.2021
-
-Мир Славян v28 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся информация тщательно проверена и представлена в максимально достоверном и полном варианте, но могут быть и некоторые неточности, которые впоследствии устраняются.
-Сборник из десяти рубрик на славянскую тематику. Все собрано в одном приложении.
-Гой еси! Представляем Вашему вниманию приложение Мир Славян.
-Это сборник из десяти связанных приложений:(   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 21 сентября 2020 г.Разработчик: VodiaПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1AF76B7F3FB40C6ED9BFEAD6C6F9815C32BCA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

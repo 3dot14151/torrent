@@ -1,3 +1,55 @@
+###  Публикация: 497381   (253857) от 17.05.2012
+
+Калигула / Caligula (1979) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Италия, США, Penthouse Films International, Felix CinematograficaЖанр: Для взрослых, драма, историяРежиссер: Тинто Брасс, Боб Гуччионе, Джанкарло ЛуиАктеры: Малкольм МакДауэлл, Тереза Энн Савой, Гуидо Маннари, Джон Гилгуд, Питер О’Тул, Джанкарло Бадесси, Бруно Бриве, Адриана Асти, Леопольдо Триесте, Паоло Боначелли, Джон Стайнер, Мирелла Д’Анджело, Донато Пласидо, Лори Вагнер, Хелен МирренПеревод: Профессиональный (двухголосый закадровый) (П. Гланц и И. Королева)Субтитры: ОтсутствуютПродолжительность: 02:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4433B5004965A3D3199AE630C873FA804EE45087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497037   (253809) от 17.05.2012
+
+Брак по-итальянски / Marriage Italian Style / Matrimonio all'italiana (1964) [H.264] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нелегкая судьба Филумены Мартурано, героини одноименной пьесы Эдуардо де Филиппо, была близка всем советским женщинам. Ну а жизненным проблемам и устремлениям Доменико сочувствовали все мужчины. Нужда приводит юную Филумену в публичный дом, где она и знакомится с любвеобильным красавцем Доменико. Спустя годы они встречаются вновь и она становится хозяйкой в его доме, но несмотря на их многолетнюю связь, он постоянно отказывается официально оформить их отношения. И вот наступил критический момент - убежденный холостяк Доменико решает жениться... на одной из своих многочисленных пассий. У любящей его Филумены остается последнее средство...Жанр: Драма, Мелодрама, КомедияРежиссер: Витторио Де СикаАктеры: Софи Лорен, Марчелло Мастроянни, Альдо Пульизи, Текла Скарано, Марилу Толо, Джанни Ридольфи, Дженеросо Кортини, Вито Мориконе, Рита Пиччоне, Лино Маттера.Перевод: ПрофессиональныйПродолжительность: 01:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6627A37FE84764223B9A79F42241C5981CF619C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495862   (253510) от 16.05.2012
 
 Спасите Конкорд / Concorde Affaire (1979) DVDRip [Советский дубляж]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253510.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253447.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253417.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253291.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253096.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252721.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252677.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252560.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252205.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252101.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251522.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251502.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251471.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251443.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251018.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249887.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249789.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249677.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249578.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249559.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248312.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247762.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247376.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247115.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BBBE0133D72A0CC1A3EE54BFEF6E3440E86549A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493250   (247060) от 10.07.2023
-
-Пианист / The Pianist (2002) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о судьбе Владислава Шпильмана — выдающегося польского пианиста, еврея по национальности. Вынужденный жить в Варшавском гетто во время Второй мировой войны, он сполна познает вкус унижений, страдания и борьбы. Один из офицеров отступающей немецкой армии обнаруживает его среди руин разрушенного бомбежками города и помогает ему выжить.Производство: Le Studio Canal+ / Interscope Communications / Meespierson Film CV, Франция — Германия — Великобритания — ПольшаЖанр: Драма, Военный, Биография, ИсторияРежиссер: Роман ПоланскиАктеры: Эдриан Броуди (Wladyslaw Szpilman), Эмилия Фокс (Dorota), Михал Жебровский (Jurek), Эд Стоппард (Henryk), Морин Липмен (Mother), Фрэнк Финлей (Father), Джессика Кейт Мейер (Halina), Джулия Рейнер (Regina), Ваня Муес (SS Slapping Father), Ричард Райдингс (Mr. Lipa), Номи Шаррон (Feather Woman), Энтони Милнер (Man Waiting to Cross)Перевод: Профессиональный (полное дублирование)Язык субтитров: Русский, АнглийскийПродолжительность: 02:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8339A0CB2CE5F746E215096555C1A1A06BC7EE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563121   (245789) от 25.07.2022
-
-Кристина / Christine (1958) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трогательная история, снятая по роману популярного в начале века писателя, повествующая о трагической любви молодой девушки Кристины к красавцу-драгуну Францу...Производство: Франция, Италия / Play Art, Rizzoli Film S.p.a., Spéva Films S.A.Жанр: Драма,МелодрамаРежиссер: Пьер Гаспар-ЮиАктеры: Роми Шнайдер, Ален Делон, Жан-Клод Бриали, Франсуа Шометт, Жак Дуби, Софи Гримальди, Жан Дави, Бернар Деран, Жан Галлан, Жан ЛагашПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D43AB0C37DEC33435C33CC4BB52A8847D0ACAED1
 ```
 
 https://mybot314.ru/tekegram_catalog/

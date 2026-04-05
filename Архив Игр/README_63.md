@@ -1,3 +1,57 @@
+###  Публикация: 581679   (337295) от 27.11.2012
+
+Far Cry 3 [xbox 360] [eng] [Region Free] [XGD3] [LT+ 3.0] (2012)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, Джейсон Броуди, отправляется с друзьями в отпуск на необычайно красивый тропический остров. И тут же оказывается в заложниках у банды пиратов под предводительством безумного убийцы Вааса. Начиная с этого момента, ваша задача - выжить любой ценой.
+
+Джейсон будет втянут в кровопролитную войну между пиратами и местными повстанцами, в которой кровь, свинец и наркотики льются рекой. Одни психопаты сражаются с другими, и вскоре главный герой уже не в силах отличить опиумный сон от безумной яви. Сумасшедший остров сводит с ума всех, кто ступит на его берега и нужно быть психом, чтобы здесь остаться. А ты в своем уме?Жанр: Action/ShooterЯзык интерфейса: eng
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3E54975AD2C3F9081AE5FF079A57936E26F4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954839   (336550) от 09.11.2015
+
+Anno 2205 (2015) [Ru/Ml] (1.1.2124.38702/dlc) Repack R.G. Games [Gold Edition]
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anno 2205™ – полюбившийся игрокам симулятор городского строительства выходит в космос! В Anno 2205™ вы поможете человечеству сделать очередной шаг в светлое будущее. Покорив Землю, вы построите богатые, кипящие жизнью города и огромные промышленные комплексы – но для того, чтобы по-настоящему обеспечить благополучие человечества, необходимо выйти в космос. Научный (   Читать дальше...   )Тип издания: RepackРазработчик: Blue ByteЖанр: Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Испанский, ПольскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Испанский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18C0C8D8625819B34C44D3C6B9D8D803B007352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 259439   (334794) от 17.11.2010
 
 Marooned 2: Secrets of the Akoni (P) [En] 2010
@@ -6,7 +60,7 @@ Marooned 2: Secrets of the Akoni (P) [En] 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_334794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334794.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Avenue Flo: Special Delivery (P) [En] 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_333620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_333620.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Grow Home (2015) [Ru/Multi] (5.3.02) Repack Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333190.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ FlingSmash [Wii] [PAL] [Multi5] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333107.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/En] (1.0) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333000.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_332775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_332775.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_329588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_329588.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ Don't Starve (2013) [Ru/En] (1.134052/dlc) Repack Samael
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328956.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_327848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327848.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327847.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_327815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327815.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_327745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327745.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_327740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327740.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ LittleBigPlanet 3 / Little Big Planet 3 [PS3] [USA] [En] [4.65] (2014)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326159.jpg" />
 </div>
 
 
@@ -386,7 +440,7 @@ Project CARS (2015) [Ru/En/De] (6.0/upd10/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325406.jpg" />
 </div>
 
 
@@ -412,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325091.jpg" />
 </div>
 
 
@@ -440,7 +494,7 @@ Worms: Reloaded / Worms 2: Armageddon [Ru] (L) 2010 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325051.jpg" />
 </div>
 
 
@@ -467,7 +521,7 @@ Goat Simulator (2014) [Ru/Multi] (1.3.48579/dlc) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324500.jpg" />
 </div>
 
 
@@ -493,7 +547,7 @@ Drakensang: The River of Time / Drakensang: Река времени [Ru] (Repack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324224.jpg" />
 </div>
 
 
@@ -521,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324168.jpg" />
 </div>
 
 
@@ -549,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324156.jpg" />
 </div>
 
 
@@ -579,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324102.jpg" />
 </div>
 
 
@@ -609,7 +663,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.03/u1) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323188.jpg" />
 </div>
 
 
@@ -635,7 +689,7 @@ Far Cry 3: The Lost Expeditions Edition [En/Ru] (NoDVD/1.0) 2012 | Steam006
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321877.jpg" />
 </div>
 
 
@@ -647,58 +701,6 @@ Far Cry 3: The Lost Expeditions Edition [En/Ru] (NoDVD/1.0) 2012 | Steam006
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7922E8B8518FDEF68085A4BCFC55F940F358E650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958933   (321095) от 22.11.2015
-
-Hand of Fate (2014) [Ru/Multi] (1.3.0) Repack R.G. Catalyst
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый раз - новая история. Собирайте карты, составляйте колоду и попробуйте сыграть против нее. За тринадцатью вратами, на самом краю вселенной идет игра жизни и смерти. Вытягивайте карты по одной и узнайте свою судьбу. "Рука судьбы" - это гибрид roguelike, action-RPG и карточных игр на составление колоды. Игрок сам собирает колоду из карт.Тип издания: RepackРазработчик: Defiant DevelopmentЖанр: Logic (CCG) / RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Испанский, ВенгерскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Венгерский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE65A8F7D8229B986AD2529B52D1B47AC19147DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181663   (320829) от 08.11.2017
-
-Hand of Fate 2 (2017) [Ru/Multi] (1.0.0) License RELOADED
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hand of Fate 2 — это «ползание по подземельям» в стилистике темного фэнтези, живая настольная игра, каждый уровень которой составляется из карт встреч, подобранных вами! Выбирайте с умом: ваш соперник, загадочный Дилер, не собирается нежничать, превращая вас в инструмент отмщения.Тип издания: LicenseРазработчик: Defiant DevelopmentЖанр: Action (RPG), Roguelike, Board Games, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27002979D30D851F404FD2AADA2408F561B92514
 ```
 
 https://mybot314.ru/tekegram_catalog/

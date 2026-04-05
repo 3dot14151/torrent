@@ -6,7 +6,7 @@ Curtis Counce - Four Classic Albums (1953 - 1958) 2016, 2CD, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696044.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ KAVver. - Losen (2016) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, T
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695937.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Richard "Groove" Holmes - Onsaya Joy (1975) 2018, Solid Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695935.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jarod Bufe - New Spaces (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695934.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ KAVver. - Vv (2017) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695929.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jens Haack - Smokers Lounge (2011) Stunt Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695927.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Roxy Coss - Restless Idealism (2016) [FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695925.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Chet Baker - Cool Cat (1989) [WavPack|Lossless|image + .cue] <Cool Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695202.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Freddie Hubbard - Live In Warsaw (1991) 2001, Past Perfect [APE|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695187.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ David “Fathead” Newman - Fathead: Ray Charles Presents David Newman (1958) R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694937.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Phil Woods Quartet With Gene Quill - Phil Talks With Quill (1957) Remaster, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694936.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lazy - Dirty Martini (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694696.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ John Bunch - An English Songbook (2003) Chiaroscuro Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694371.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Fire! Orchestra - Exit (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz, Free Imp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694311.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ The Bobs - Sing The Songs Of... (1991) Reissue [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694309.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Miriam Aida - Come On Home (2008) Connective Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694306.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Machito & His Orchestra - Mambo Y Cha Cha Cha: Tea For Two (1950-e) 1993, Saludo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694279.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Jan Garbarek Group - It's OK to Listen to the Gray Voice (1985) Reissue [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694199.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Macelleria Mobile di Mezzanotte - Funeral Jazz (2015) [FLAC|Lossless|Web-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694198.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Frank Sinatra - Frank Sinatra's Greatest Hits Super 2. Vol.1 & Vol.2, recorded 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694066.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Frank Sinatra - New York New York. His Greatest Hits (1989) Unofficial Release [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694059.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Stephane Grappelli - Afternoon In Paris (1971) 1991, MPS Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693548.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Chet Baker - September Song (1990) 2002, M&I Company [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693544.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ The Dave Pike Quartet - Pike's Peak (1962) 2016, Sony Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693542.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Paul Desmond - Desmond Blue (1961, 1962) 2016, Sony Music [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693438.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Ragan Whiteside - Treblemaker (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693435.jpg" />
 </div>
 
 

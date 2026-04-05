@@ -1,3 +1,145 @@
+###  Публикация: 1278253   (772838) от 24.01.2019
+
+Bring Me The Horizon - amo (2019) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. i apologise if you feel something (2:20)
+ 02. MANTRA (3:53)
+ 03. nihilist blues (feat. Grimes) (5:26)
+ 04. in the dark (4:31)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC5DD49A2C52BBFB5DCBCBFAD23F3888EFC5E25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964611   (772824) от 24.01.2019
+
+Rival Sons - 6 Albums, 1 EP, 1 Compilation, 1 Live (2009-2019) [MP3|320 кб/с]<Hard Rock, Blues Rock, Rock and Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772824.jpg" />
+</div>
+
+
+###  Подробнее
+
+2009 - Before The Fire
+2011 - Prime Cuts (EP)
+2011 - Pressure & Time (Redux Edition 2012)
+2012 - Head Down(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Rock and RollПродолжительность: 07:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6399B36A7FF75264AB7359FD7D651F4B9E097DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015750   (772823) от 12.05.2016
+
+John Carpenter - Lost Themes II (2016) [FLAC|Lossless|WEB-DL|tracks] <Cinematic Post Rock, Electronic Rock, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distant Dream
+02. White Pulse
+03. Persia Rising
+04. Angel's Asylum(   Читать дальше...   )Жанр: Cinematic Post Rock, Electronic Rock, AmbientПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB130A681AA21956DE6B27212B216036AB3B15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015751   (772662) от 12.05.2016
+
+Maroon 5 - Songs About Jane (2002) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harder to Breathe (2:53)
+02. This Love (3:26)
+03. Shiver (2:59)
+04. She Will Be Loved (4:17)(   Читать дальше...   )Жанр: Alternative Rock, Soft Rock, Pop RockПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385A3D4D9224B7EF384C05E6AFF132F86EE62146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016067   (772231) от 12.05.2016
+
+Ленинград - В Питере - пить (2016) Single [MP3|320 кб/с] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В Питере - питьЖанр: Rock, SkaПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1EB66F1DCE04645138EAB76F9D7BC7F2B6961C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125246   (772102) от 14.04.2017
 
 Fvnerals - The Light (2014) [MP3|320 Kbps] <post-rock, shoegaze, ambient,>
@@ -6,7 +148,7 @@ Fvnerals - The Light (2014) [MP3|320 Kbps] <post-rock, shoegaze, ambient,>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772102.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ The Headlines - In The End (2017) [MP3|320 Kbps] <Rock, Punkrock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772099.jpg" />
 </div>
 
 
@@ -64,7 +206,7 @@ Lich King - The Omniclasm (2017) [MP3|320 Kbps] <Thrash Metal, Crossover>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772095.jpg" />
 </div>
 
 
@@ -93,7 +235,7 @@ Fvnerals - Wounds (2016) [MP3|320 Kbps] <post-rock, shoegaze, ambient,>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772093.jpg" />
 </div>
 
 
@@ -122,7 +264,7 @@ King Woman - Doubt (2015) [MP3|320 Kbps] <shoegaze, sludge, dream-pop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772092.jpg" />
 </div>
 
 
@@ -151,7 +293,7 @@ Sufferer - Sufferer (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Post-H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771995.jpg" />
 </div>
 
 
@@ -180,7 +322,7 @@ Citay - Little Kingdom (2007) [FLAC|Lossless|tracks + .cue] <Acoustic, Psychedel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771992.jpg" />
 </div>
 
 
@@ -209,7 +351,7 @@ Better Oblivion Community Center - Better Oblivion Community Center (2019) [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771990.jpg" />
 </div>
 
 
@@ -238,7 +380,7 @@ Miсhael Sсhenker - А Decade Оf The Mad Aхеmаn (2018) 2CD, Compilation, Ja
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771935.jpg" />
 </div>
 
 
@@ -267,7 +409,7 @@ Alice Merton - MINT (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771827.jpg" />
 </div>
 
 
@@ -296,7 +438,7 @@ VA - A Tribute To Iron Maiden (1997 - 2011) [MP3|192-320 кб/с]<NWOBHM, Heavy,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771805.jpg" />
 </div>
 
 
@@ -322,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771760.jpg" />
 </div>
 
 
@@ -351,7 +493,7 @@ Santana - In Search of Mona Lisa (2019) EP [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771711.jpg" />
 </div>
 
 
@@ -380,7 +522,7 @@ Lumen - Забытое и найденное (2018) [MP3|320 Kbps] <Alternative 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771624.jpg" />
 </div>
 
 
@@ -409,7 +551,7 @@ Exmagician - Scan The Blue (2016) [MP3|320 кб/с] <Psychedelic Rock, Psychedel
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771612.jpg" />
 </div>
 
 
@@ -438,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771582.jpg" />
 </div>
 
 
@@ -467,7 +609,7 @@ Hatebreed - The Concrete Confessional (2016) [FLAC|tracks|WEB-DL]<Hardcore, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771486.jpg" />
 </div>
 
 
@@ -496,7 +638,7 @@ Hatebreed - The Concrete Confessional (2016) [MP3|320 кб/с] <Thrash Metal, Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771484.jpg" />
 </div>
 
 
@@ -525,7 +667,7 @@ DevilDriver - Trust No One (2016) Special Edition [MP3|320 кб/с] <Groove, Mel
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771466.jpg" />
 </div>
 
 
@@ -554,7 +696,7 @@ DevilDriver - Trust No One (2016) Limited Edition [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771462.jpg" />
 </div>
 
 
@@ -583,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771344.jpg" />
 </div>
 
 
@@ -597,151 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B18DD127836EB16A5FC4BBED2D6763C90AA9F514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015749   (771256) от 13.05.2016
-
-The Smiths - The Sound Of The Smiths (2008) [FLAC|Lossless|tracks] <New wave, Alternative rock, Indie pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771256.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1.	"Hand in Glove" (7" version) – 3:17
-2.	"This Charming Man" – 2:43
-3.	"What Difference Does It Make?" (Peel Session) – 3:13(   Читать дальше...   )Жанр: New wave, Alternative rock, Indie popПродолжительность: 02:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74E6AA332BA2F1D6D2AF26AFCB9C0F08E17A4B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016108   (771162) от 13.05.2016
-
-Найк Борзов - Молекула, vol. 2 (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_771162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стиль звучания песен в альбоме Найк Борзов называет «этно-техно». Во вторую часть «Молекулы» вошли хиты музыканта в свежей обработке и один новый трек, давший название всему альбому. Первая часть пластинки вышла в 2015 году.01. Поток
-02. День как день
-03. Последняя песня
-04. В будущем Луны(   Читать дальше...   )Жанр: Rock, Ethno-TechnoПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530F9847E5A82251222520249D5209467CA5B4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016129   (771150) от 13.05.2016
-
-Led Zeppelin - Physical Rarities (2003) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jenning's Farm Blues (Studio Session 1969)
-02. Poor Tom (Outtake From Led Zeppelin IV 1971)
-03. Walter's Walk (Previously Unreleased Session Take 1972)
-04. Trampled Underfoot (Alternate Work-in Progress Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310A0FC1FD8F1E20E4810BDA4394196B969BC7FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391859   (770714) от 23.06.2020
-
-Binary Code - Memento Mori (2020) [MP3|320 Kbps] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filaments Dissolve (06:50)
- 02. Into the Maw (04:13)
- 03. The Absolute Nothing (04:18)
- 04. Unborn (03:51)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A358888D2265CBB66206348CE40661A272A091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391787   (770689) от 23.06.2020
-
-Oceans of Slumber - The Banished Heart (2018) [MP3|320 Kbps] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Decay Of Disregard (09:01)
- 02. Fleeting Vigilance (05:26)
- 03. At Dawn (08:30)
- 04. The Banished Heart (09:05)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E0E05EF2038EE8B415DC8FF578384D63C51445
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1061702   (446758) от 11.10.2016
+
+Юрий Бриль | Рядом с зоопарком (1987) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга свердловского литератора, известного читателю по книге «Не троньте лошадей», знакомит с миром подростка, с его увлечениями, интересами. Автор стремится помочь читателю определить грань, которая разделяет добро и зло, правду и неправду, творческое и потребительское отношение к жизни.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F2E5C0B82A2454569504EFF35678039C7F64F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943773   (446476) от 04.10.2015
+
+А.Вертягина (ред.) | Англо-русский визуальный словарь для детей (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446476.jpg" />
+</div>
+
+
+###  Подробнее
+
+астоящий словарь содержит более 1200 английских слов с переводом и транскрипцией русскими буквами. Слова сгруппированы по темам: Животные, Растения, Люди, Искусство, Книги, Спорт, Транспорт и т. п. Таким образом, представленная лексика охватывает практически все сферы деятельности человека, а также основные понятия, относящиеся к окружающему миру.
+В книге содержится (   Читать дальше...   )Жанр: Иностранный язык детямФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC0A5204006772B3245B3E50844F6CAAA5B7FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943011   (446473) от 04.10.2015
 
 В.Н. Мещерякова | Я умею петь по-английски / I can sing. Иллюстрированное приложение к аудиоурокам для детей 4-7 лет. (2012) [PDF]
@@ -6,7 +59,7 @@
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446473.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446247.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446246.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446193.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446107.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445858.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445847.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445328.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445327.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445326.jpg" />
 </div>
 
 
@@ -277,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445246.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445242.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445238.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445202.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445129.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445075.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445007.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444982.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444629.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444506.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444433.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444250.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444240.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443892.jpg" />
 </div>
 
 
@@ -634,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F45F877CBC575229EF55CD3DB73A309AC8EACD2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164279   (443682) от 08.09.2017
-
-Майкл Паркер | Важные вопросы. Что стоит обсудить с детьми, пока они не выросли (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одно из самых замечательных качеств маленьких детей - их безграничное любопытство...Жанр: Психология, педагогикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A6DEB443742B764D1F800D1D9AB65CAF3574BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570450   (443031) от 17.08.2022
-
-Джек Меггитт-Филлипс | Чудовище и Бетани (2022) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эбенизер Твизер – молодой 511-летний мужчина. На чердаке своего особняка он держит чудовище, которое питается произведениями искусства и редкими животными, хотя иногда не прочь полакомиться кактусом или домашним котом. Взамен чудовище изрыгает для Эбенизера всевозможные подарки, включая волшебные зелья, продлевающие молодость и жизнь. Но аппетиты монстра растут, (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Екатерина КолябинаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963C338FE8604B4C5DADFEB9AC8AD8D0BA6812C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

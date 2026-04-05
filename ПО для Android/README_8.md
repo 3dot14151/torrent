@@ -1,3 +1,107 @@
+###  Публикация: 1849666   (1053712) от 24.01.2026
+
+Конвертер Валют Плюс v3.1.10 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конвертер Валют Плюс, разработанный создателями Калькулятора Плюс, - это простой конвертер для перевода курсов валют, который сообщит тебе на что расчитывать при обмене денег.Тип издания: ModРелиз состоялся: 21.01.2026Разработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B61759D578D2F59C9117AF569A0D206328824F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849715   (1053682) от 24.01.2026
+
+MiX Camera 9.1 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053682.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiX Camera вдохновлена ​​камерой Mi, но добавляет множество полезных функций🔥, таких как улучшение внешности, коллажи, фильтры, размытие, спираль, удаление фона, фото для удостоверения личности и т.д. С MiX Camera вы получите множество фантастических функций камеры, которые есть в камере Mi, а также множество новых и крутых функций💖.Тип издания: ProРелиз состоялся: 20.01.2026Разработчик: Beauty Apps StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Руский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67376E04E79DA1BD54F2CA6810418EF4924F78AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849694   (1053681) от 24.01.2026
+
+Happy Color® – игра раскраска v2.21.6 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Happy Color — самая популярная и излюбленная бесплатная игра-раскраска. В ней вы можете найти тысячи изображений на любой вкус — природа, искусство, спорт, автомобили, фэнтези, мода, интерьеры и многое другое! Happy Color делает жизнь людей ярче во всем мире! Эта раскраска — залог хорошего настроения. Раскрашивание по номерам с Happy Color — это успокаивающее и легкое (   Читать дальше...   )Тип издания: ModРелиз состоялся: 23.01.2026Разработчик: X-FLOWПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA4D87984992CB2CCA437AF87C438397A8322B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849663   (1053641) от 24.01.2026
+
+Акции всех магазинов России v169.6.1 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнавайте об акциях и скидках в Магните, Пятерочке, Перекрестке, Ленте и других магазинах рядом с вами.Тип издания: ModРелиз состоялся: 21.01.2026Разработчик: ПтичкаПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAC6078051FFA9D97F0780B82379854DE931A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849684   (1053634) от 24.01.2026
 
 Truecaller: AI Call Blocker / Oпределитель номера v26.3.5 Mod by PieMods [Ru/Multi]
@@ -6,7 +110,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v26.3.5 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053634.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053633.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ English Galaxy v2.3.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053617.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Simple PDF Reader \ Простой PDF Reader v1.0.98 Mod by Alex.Strannik [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053616.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053612.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.128 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053610.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053577.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053574.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ AIDA64 v2.17 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053573.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ Xiaomi Home (Ранее. MiHome) v11.0.622 fix
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053388.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ Call Filter / Фильтр Звонков v1.30.5 Mod by Viktor245 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053117.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053115.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053100.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ Magic Eraser / Магический ластик v2.25.11 Mod by Maximoff⁠ [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053099.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ Logic Circuit Simulator Pro / Симулятор Логической Схемы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052988.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ TuneIn Radio Pro v40.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052987.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ Night clock / Ночные часы v2.11.22 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052986.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ eWeather HD - weather app v9.3.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052982.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ MobiOffice: Word, Sheets, PDF Premium v16.1.58761 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052981.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ TVGuide v4.6.1 Premium Mod by Alex.Strannik [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052980.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052979.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ Photo Editor v12.5 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052933.jpg" />
 </div>
 
 
@@ -567,114 +671,6 @@ Photo Editor - уникальная программа для обработки
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CB9DEB00A01144C9C0304F73FDFF03DEE19B146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848670   (1052859) от 18.01.2026
-
-FixPlus — Редактор лица и тела v1.52.142 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052859.jpg" />
-</div>
-
-
-###  Подробнее
-
-🌟 FixPlus — Ваш универсальный фоторедактор и ретушер селфи с ИИ 🌟
-Раскройте свою красоту с FixPlus — универсальным фоторедактором на базе ИИ, который помогает изменить форму тела, улучшить лицо, исправить выражения и создавать безупречные селфи за секунды.Тип издания: ProРелиз состоялся: 29.06.2025Разработчик: Photo Editor & Collage MakerПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81207F7927B0C2AA0CF0869924D8C799516AC9CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848654   (1052858) от 18.01.2026
-
-Solid Explorer File Manager v3.2.15 + Plugins Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Solid Explorer - это приложение для управления файлами, на подобие олдскульных приложений для управления файлами. Приложение поможет вам:
-🗄️ легко управлять файлами на двойной панели
-🔐 защищать файлы с помощью надежного шифрования
-🖥️ управлять файлами в облачном хранилище или NAS(   Читать дальше...   )Тип издания: FullРелиз состоялся: 18.01.2026Разработчик: NeatBytesПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B78D81AF90E29FFE62EE7BDF85E7BD9A2FA0D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848649   (1052857) от 18.01.2026
-
-Horary Chart / Астрология: Хорарная Карта v4.1.7 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорарная карта - это программа для построения хорарных карт, включающая астрологическую карту с линейкой, расчет событий в пределах знака и отображающая соединения планет и домов с антисами и звездами. Есть функция добавления формул жребиев и выбор из ста звезд.Тип издания: Paid / ProРелиз состоялся: 10.01.2026Разработчик: Roman ShimchenkoПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3CF214A9865112F2A614DC4FB9A3CE60A83E45D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848647   (1052856) от 18.01.2026
-
-Astrological Charts / Астрологические Карты Pro v11.2.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Астрологические Карты Pro (Astrological Charts Pro) – это профессиональная астрологическая программа для Android, которая строит 12 типов астрологических карт, содержит, кроме планет, ещё 13 астероидов и 23 фиктивные точки, включая транснептуновые, и несколько жребиев. А так же есть выбор из 12 систем домов, 22 вида аспектов с настраиваемыми орбисами и база данных (   Читать дальше...   )Тип издания: Paid / ProРелиз состоялся: 10.01.2026Разработчик: full-astro-devПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BADBD086EEF559A0421878B702000C37350C30
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1259758   (318773) от 04.11.2018
+
+Я.И. Перельман | Загадки и диковинки в мире чисел (1923) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот небольшой сборник отличается от имеющихся у нас других книг сходного содержания главным образом тем, что предлагает менее использованный материал, а в способе его обработки - теснее примыкает к школьной арифметике, затрагивая разнообразные ее отделы. Чтобы не превращать приятной игры ума в утомительное занятие, чересчур серьезное для развлечения и нередко слишком (   Читать дальше...   )Жанр: Познавательная литература, Учебное пособие, задачникФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DFDB79F2A1CC130FE684A555AB33D88BBA11E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182073   (318770) от 09.11.2017
+
+Анна Быкова | Большая книга «ленивой мамы» (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга нужна всем мамам (а также папам), настоящим и будущим. В нее вошли два бестселлера Анны Быковой из серии «Ленивая мама», которые совершили прорыв во взглядах на воспитание и роль родителей в жизни детей.
+Родители хотят вырастить человека, на которого можно будет положиться, кто не растеряется в сложных ситуациях. Но ничего не получится, если ребенка всегда (   Читать дальше...   )Жанр: Педагогика, ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8598DB44B039A4527067613E0C147884292BE28A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259753   (318752) от 04.11.2018
 
 Я.И. Перельман | Занимательная арифметика (1938) [DJVU]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318752.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318751.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318696.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318688.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318655.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318651.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318650.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318646.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318547.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318222.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317375.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317331.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317313.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317312.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317299.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317277.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317276.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317271.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317266.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317260.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317205.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317180.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317150.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317137.jpg" />
 </div>
 
 
@@ -630,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D0464499C45BFBCB441530F4D7231C5C8D83BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728227   (317136) от 29.11.2013
-
-Джилл Бейли, Тони Седдон | Доисторический мир. Оксфордская библиотека (1995) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это одна из книг серии "Оксфордская библиотека". Прекрасно иллюстрированный самыми лучшими художниками, "Доисторический мир" познакомит вас с захватывающей историей жизни на Земле - с момента её зарождения и до появления человека.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A6EDAB4D6F93412C3408D60E30E3799AEB3B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 727634   (317043) от 29.11.2013
-
-Дмитрий Емец | Муравьиный лабиринт [ШНыр V] (2013) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Зеленому Лабиринту, сердцу Школы Ныряльщиков, что-то угрожает, он непостижимо изменяется и выбирает себе хранителя. Отныне только этот страж способен отыскать проход к главному артефакту ШНыра. Гай, предводитель ведьмарей, нашел способ одержать окончательную победу над шнырами. Все, что нужно для осуществления его плана, – получить один из цветов Зеленого Лабиринта и золотую пчелу. Причем владелец должен отдать пчелу добровольно. Но самое главное: необходимо захватить хранителя, кем бы он ни был.
-Гавр находит уникальную живую закладку, у Рины и Гамова крупные неприятности, а у Макара появляется крайне опасная подруга, с которой, возможно, ему совсем не стоило бы связываться.Жанр: Детская фантастика, Боевое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68396A8F65ED980B677E89D403EE75312720611C
 ```
 
 https://mybot314.ru/tekegram_catalog/

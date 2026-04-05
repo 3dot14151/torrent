@@ -1,3 +1,57 @@
+###  Публикация: 466992   (81764) от 12.03.2012
+
+Risen [Ru] (Lossless RePack/1.1/1.2) 2009 | pe4enko
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волей всемогущей Инквизиции! Слушайте высочайший указ владыки. До нас дошли слухи, что соседний остров проклят. В джунглях разверзлась твердь земная, и древний храм поднялся над остатками забытых поселений. Так вот – все это грязная клевета. Любой, кто посмеет покинуть город без разрешения с целью проверить лживую байку, будет казнен. Мы уже отправили отряд стражи и скоро узнаем подробности. Впрочем, считайте случившееся извержением вулкана. В джунгли ходить не стоит – несколько человек так и не вернулись. Да будет их судьба уроком для всех!
+
+Новая ролевая игра от создателей знаменитой серии Gothic сразу же привлекла внимание поклонников жанра. Каждый найдет здесь что-то свое – элегантный стиль боя на мечах, могущественные заклинания, потрясающие возможности прокачки персонажа. От ваших действий зависит многое – различные фракции постараются привлечь героя на свою сторону. Обилие оружия и снаряжения поразит даже бывалых искателей приключений. Над локализацией игры работали лучшие актеры нашей страны – вы сможете (   Читать дальше...   )Тип издания: Lossless RePackРазработчик: Piranha BytesЖанр: RPG / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08F2F840700FC3BD1D3D457DF50A672B6AE0F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776138   (71364) от 30.01.2025
+
+Darkest Dungeon II (2023) [Ru/Multi] (2.00.73217/dlc) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darkest Dungeon 2 - сиквел готической ролевой игры, объединяющей в себе механики метроидвании и сурвайвал хоррора. Игровой процесс представляет собой динамичный экшен, в котором вы путешествуете по мрачному фэнтезийному миру и сражаетесь с многочисленными врагами. Каждый враг представляет серьезную угрозу. Все противники имеют уникальные паттерны атак и движений. (   Читать дальше...   )Тип издания: RepackРазработчик: Red Hook StudiosЖанр: Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443CDD001EA696E6FB88DECFA3AB60E2903AC685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778840   (70786) от 10.02.2025
 
 Tails of Iron (2021) [Ru/Multi] (1.52/dlc) Repack Wanterlude
@@ -6,7 +60,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70786.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.3.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66419.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0/dlc) Repack seleZen [Lex
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65804.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Questron II (1988) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65796.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Zoria: Age of Shattering (2024) [Multi] (1.0/dlc) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62943.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ The Thaumaturge (2024) [Ru/Multi] (70.100/dlc) Repack FitGirl [Digital Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62939.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ Microcosmum 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62838.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (Build Feb 26 2024/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62834.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62732.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ Solasta - Crown of the Magister (2021) [Ru/Multi] (1.5.97/dlc) License GOG [Supp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62615.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ Goblin Stone (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62397.jpg" />
 </div>
 
 
@@ -292,7 +346,7 @@ God of War (2022) [Ru/Multi] (1.0.13) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62305.jpg" />
 </div>
 
 
@@ -318,7 +372,7 @@ Blade Prince Academy (2024) [Multi] (1.0) Repaclk FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62265.jpg" />
 </div>
 
 
@@ -344,7 +398,7 @@ Grand Soul Saga (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62058.jpg" />
 </div>
 
 
@@ -370,7 +424,7 @@ EMPYRE: Earls of the Deep Earth (2024) [En] (Build #16) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62054.jpg" />
 </div>
 
 
@@ -396,7 +450,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61972.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ Sands of Aura (2021) [Ru/Multi] (1.01.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61884.jpg" />
 </div>
 
 
@@ -448,7 +502,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.240321) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61881.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.0.12/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61769.jpg" />
 </div>
 
 
@@ -500,7 +554,7 @@ Phantom Tides (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61744.jpg" />
 </div>
 
 
@@ -526,7 +580,7 @@ The Legend of Legacy HD Remastered (2024) [Multi] (1.0/dlc) Repack FitGirl [Laun
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61560.jpg" />
 </div>
 
 
@@ -552,7 +606,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61442.jpg" />
 </div>
 
 
@@ -578,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61303.jpg" />
 </div>
 
 
@@ -604,7 +658,7 @@ Three Kingdoms Zhao Yun (2024) [Multi] (1.1.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61263.jpg" />
 </div>
 
 
@@ -615,58 +669,6 @@ Three Kingdoms Zhao Yun погружает игроков в водоворот 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F25E6900875B7FA1FBED614668A49E5E4AC2B3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711792   (61214) от 31.03.2024
-
-Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack DjDI
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outcast - A New Beginning – это продолжение знаменитого экшена, который фактически положил начало приключенческим играм с открытым миром. Прошло около 20 лет с момента выхода первой части, но изменения получили только графическая составляющая и сюжет. Разработчики постарались вложить максимум в развитие все той же вселенной и уникального мира, дополняя его и совершенствуя.Тип издания: RepackРазработчик: Appeal StudiosЖанр: Action, Adventure, RPG, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5283CB9A1910A227BE17F05AF47B7AA3D2ADB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711656   (61202) от 31.03.2024
-
-Metal Unit (2021) [Ru/Multi] (010309) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metal Unit повествует трагическую историю о будущем планеты. К 2060 году из недр и подземелий Земли стали прорываться злобные существа. А из космоса прилетели пришельцы, которые сперва обещали помочь, но в итоге захватили и практически полностью подчинили себе человечество. Юная девушка Джоанна – бесстрашный солдат в роботизированном костюме М-Unit 11, огнем и мечем (   Читать дальше...   )Тип издания: LicenseРазработчик: JellySnow StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53EC6A466A4A57420991BF1AFEFD5E2C6B975F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

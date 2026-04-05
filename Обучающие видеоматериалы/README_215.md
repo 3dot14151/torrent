@@ -1,3 +1,32 @@
+###  Публикация: 1609692   (203108) от 04.02.2023
+
+AMS³, Надежда Бейнер | Видеокурс оформление проектной документации в ArchiCAD по ГОСТ (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс разработан для:
+Архитекторов
+Проектировщиков АР
+Дизайнеров(   Читать дальше...   )Производство: AMS³Жанр: Дизайн, архитектураЯзык озвучки: РусскийПродолжительность: 08:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A8E0C520E735844F2EF1DEFC6997C9C31BCE65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609879   (203079) от 05.02.2023
 
 Умный Дизайн, Полина Афонская, Елена Трофимова | Pro SKETCHUP 3.0. Тариф "Маг" (2023) WEB-DL [Часть 2] [AD] [RU]
@@ -6,7 +35,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203079.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203037.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202935.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ HolyJS 2020 Piter | Конференция для JavaScript-разработч�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202901.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Study Kvo, Саня Кво | Курс по веб-дизайну 3.0 (2019) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202740.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202464.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ Lectera, Lectera | Аналитическое мышление (2025) WEB-DL [RU
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202405.jpg" />
 </div>
 
 
@@ -201,7 +230,7 @@ TutorPlace, Татьяна Кузнецова | Графология (2025) WEB-
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202404.jpg" />
 </div>
 
 
@@ -227,7 +256,7 @@ Brad Traversy | Modern JavaScript From The Beginning 2.0 (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202312.jpg" />
 </div>
 
 
@@ -253,7 +282,7 @@ Podlodka Crew | Backend Crew #4 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202310.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ Podlodka Crew | Java Crew #1 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202306.jpg" />
 </div>
 
 
@@ -310,7 +339,7 @@ ZTM Academy, Luis Ramirez Jr | Unity Bootcamp: 3D Game Development (2023) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202302.jpg" />
 </div>
 
 
@@ -338,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202289.jpg" />
 </div>
 
 
@@ -367,7 +396,7 @@ Udemy, Arno Pretorius | Python Django: Build an E-commerce Store - 2023 (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202273.jpg" />
 </div>
 
 
@@ -393,7 +422,7 @@ Udemy, Arno Pretorius | Python Django: Ultimate Web Security Checklist (2023) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202211.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ Udemy, John Purcell | Learn Advanced Java (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202197.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ Udemy, Jose Portilla | Python for Machine Learning & Data Science Masterclass (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202173.jpg" />
 </div>
 
 
@@ -474,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202127.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Udemy, Nour Design | Эпические фотоманипуляции с пом
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202124.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Skillbox, Николь Шахбазян, Динара Фахретдинова |
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201843.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201799.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Udemy, Destiny Franks | Build a Video Upload Website Using Django (2023) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201740.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Udemy, Parwiz Forogh | Python GUI Development with PySide6 - Qt for Python (2022
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201698.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Udemy, Very Academy | Django Project: Building a Python Package - SQL Middleware
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201672.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201656.jpg" />
 </div>
 
 
@@ -680,34 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:047A0284EA8DB72B73207D1AA0121E58AA59134E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617388   (201633) от 06.03.2023
-
-MographPlus, Камиль Хезри | The Ultimate Introduction to Arnold 6 for Cinema 4D (2021) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем привет, представляю вашему внимаю новый онлайн курс "Полное введение в Arnold для Cinema 4D". Это 12 часовой курс, состоящий из 83 видео, каждая минута видео продумана и распланирована, здесь нет ничего лишнего, вы получаете передовое качество, которое стоит ожидать от MographPlus.
-
-Если вы хотите изучить Arnold для Cinema 4d это однозначно наилучший (   Читать дальше...   )Производство: MographPlusЖанр: 3D ГрафикаЯзык озвучки: Английский, РусскийПродолжительность: 11:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944D092D14803FEBA8A7E954179F22C0FCD4D650
 ```
 
 https://mybot314.ru/tekegram_catalog/

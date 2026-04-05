@@ -1,32 +1,3 @@
-###  Публикация: 1674740   (160746) от 06.11.2023
-
-Proglib.Academy, Наталья Кайда, Александр Пупышев | Основы IT для непрограммистов (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начните понимать, о чем с вами говорят работодатели, заказчики и клиенты.
-Сфера IT уже давно включает в себя специалистов по разным направлениям, которые куда шире, чем программирование.
-
-- Какими базовыми знаниями нужно обладать специалистам, реализующим IT-продукты?(   Читать дальше...   )Производство: Proglib.AcademyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 17:58:03Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA20CE33CD25BD65A63E3B30A5E63C25B25E38E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674786   (160742) от 06.11.2023
 
 podlodka.io | Podlodka Python. Асинхронность (2023) WEB-DL [RU]
@@ -35,7 +6,7 @@ podlodka.io | Podlodka Python. Асинхронность (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160742.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ ZTM Academy, Andrei Dumitrescu | Bash Scripting: Learn Shell Scripting (2022) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159977.jpg" />
 </div>
 
 
@@ -91,7 +62,7 @@ Merion Academy, Олег Филиппов | Курс по NoSQL (2022) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159956.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ Merion Academy, Олег Филиппов | Основы реляционных 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159920.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159171.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ Udemy, Akhil Vydyula | The Complete 2023 SQL Bootcamp : Go from Zero to Hero (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159137.jpg" />
 </div>
 
 
@@ -203,7 +174,7 @@ Software-testing.ru, Ольга Назина | Регулярные выраже
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159131.jpg" />
 </div>
 
 
@@ -231,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159115.jpg" />
 </div>
 
 
@@ -260,7 +231,7 @@ Skillshare, Paulo Dichone | Unlock AI: Master Prompt Engineering with ChatGPT (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159096.jpg" />
 </div>
 
 
@@ -289,7 +260,7 @@ OTUS, Владимир Кунаев | DevOps 1С. Автоматизация п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159076.jpg" />
 </div>
 
 
@@ -317,7 +288,7 @@ Udemy, Francis Gorman | AI Security Essentials (2023) WEB-DL [AD] [RU, EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158886.jpg" />
 </div>
 
 
@@ -343,7 +314,7 @@ JUG Ru Group | FrontendConf 2022 - Профессиональная конфер
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158868.jpg" />
 </div>
 
 
@@ -371,7 +342,7 @@ Thinknetica Pro, Алексей Матюшкин | Разработка на Eli
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158850.jpg" />
 </div>
 
 
@@ -400,7 +371,7 @@ Slurm (Слёрм), Иван Чувашов | DWH на основе GreenPlum (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158828.jpg" />
 </div>
 
 
@@ -429,7 +400,7 @@ Udemy, Frank Anemaet | Python Desktop Apps with Tkinter (2018) WEB-DL [EN, RU / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158816.jpg" />
 </div>
 
 
@@ -458,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158809.jpg" />
 </div>
 
 
@@ -487,7 +458,7 @@ Slurm (Слёрм), Роман Панин | Основы информацион�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158780.jpg" />
 </div>
 
 
@@ -516,7 +487,7 @@ Skillbox, Дмитрий Зайцев, Константин Брюханов | �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158723.jpg" />
 </div>
 
 
@@ -544,7 +515,7 @@ ProfIT | PHP7 - что нужно знать уже сейчас (2015) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158551.jpg" />
 </div>
 
 
@@ -573,7 +544,7 @@ Lynda.com | Foundations of Programming: Code Efficiency (2013) PCRec [H.264/720p
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158124.jpg" />
 </div>
 
 
@@ -601,7 +572,7 @@ Udemy, Christ Raharja | The Future of App Development: Text to App AI Generation
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157042.jpg" />
 </div>
 
 
@@ -627,7 +598,7 @@ JUG Ru Group | HolyJS 2023 Autumn. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156636.jpg" />
 </div>
 
 
@@ -654,7 +625,7 @@ Slurm (Слёрм), Александр Лукьянченко, Георг Гаа
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156635.jpg" />
 </div>
 
 
@@ -682,7 +653,7 @@ WPCourses, Алейников Сергей | Как быстро и правил
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156616.jpg" />
 </div>
 
 
@@ -711,7 +682,7 @@ Voitixler, Екатерина Векслер | Практический онла
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156478.jpg" />
 </div>
 
 
@@ -725,6 +696,35 @@ Voitixler, Екатерина Векслер | Практический онла
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33ED0F88E24568963FDB4DC26BA000D788E084F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600553   (156372) от 27.12.2022
+
+Slurm (Слёрм), Виталий Филиппов и др. | Ceph (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите технологию сетевого хранилища Ceph, чтобы использовать в своих проектах для повышения отказоустойчивости.
+На курсе ответим на вопросы:
+Можно ли запускать на Ceph базу данных под высокой нагрузкой? Какие настройки необходимо сделать?
+Можно ли сделать сетевое хранилище на Ceph, сравнимое по производительности с локальным диском?(   Читать дальше...   )Производство: Slurm (Слёрм)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B63B9A14AB7CDEE0CB2AB72741B373602E843FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

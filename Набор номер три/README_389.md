@@ -1,3 +1,223 @@
+###  Публикация: 698412   (488766) от 12.09.2013
+
+Promt Professional 9.0.514 Giant + Специальные словари 9.0 RePack by D!akov [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488766.jpg" />
+</div>
+
+
+###  Подробнее
+
+PROMTl – решение по переводу текстов для малого и среднего бизнеса. PROMT Professional 9.5 позволяет быстро и качественно перевести документ, сайт, письмо или сообщение. C этой программой не нужно тратить время на поиск нужного слова в словарях, можно загрузить текст целиком и получить связный перевод текста, а также полную справку по отдельным словам и словосочетаниям. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91FC2E974FADFA614B1E858BEF0F9E3AFDBF10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382248   (488646) от 03.09.2011
+
+1 СЕНТЯБРЯ - день Знаний! Всем раздачам - золото!
+
+>>3
+>>22
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488646.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 СЕНТЯБРЯ - день Знаний!
+Для многих маленьких людей, этот день - первый раз в первый класс, а для других школьников и студентов - это продолжение учебы после  замечательных летних каникул!Но это не только небольшое огорчение, это и большая радость от встречи с одноклассниками и друзьями, это возможность поделиться летними воспоминаниями и яркими впечатлениями! Наконец - это новая ступенька во взрослую жизнь, где без знаний очень и очень трудно!
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544103   (488488) от 08.09.2012
+
+AVG PC Tuneup 2013 12.0.4000.108 [MULTi / Русский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488488.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью AVG PC TuneUp 2013 ваша операционная система, игры и программы снова достигнут полной мощности. С помощью AVG PC TuneUp вы можете выполнять такие важные задания обслуживания, как очистка жесткого диска и реестра, как автоматически, так и вручную . Беспорядок в системе и медленная работа останутся в прошлом. AVG PC TuneUp распознает наличие проблем в вашей системе и предлагает простые решения для их устранения. Кроме того, с помощью AVG PC TuneUp вы можете полностью изменить оформление вашей системы Windows в соответствии с личными предпочтениями.Название программы: AVG PC Tuneup 2013Язык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544438   (488486) от 08.09.2012
+
+Набор DLC для игр rev.2 [XBOX360] [En/Ru] (Ru не для всех DLC) [JTAG] [Freeboot] (2007-2012)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488486.jpg" />
+</div>
+
+
+###  Подробнее
+
+DLC для игр! Приятной игры!
+
+1. Все DLC разлочены (если не работают ярис в папке SOFT - прогоняйте заработает 100%)
+2. Возможны проблемы с русским языком - смотрите версию FSD
+3. Прошлый раз говорил что работает на LT3+ - работает НО не всё и на не всех консолях (почему и как ХЗ, будем разбираться и добавлять файлы. Но не сейчас - пока не могу по времени). ЗЫ на ЛТ3 ТОЛЬКО через задний USB порт почему(?), тоже не знаю
+4. (Для Самурая и Кота) структуру раздачи решил не менять, бейте меня палками, но из архива с "родным" путём людям будет удобнее.Язык интерфейса: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B81EA1725C3C8C8A05764CB224C24E2CFC9019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474839   (488484) от 08.09.2012
+
+Half-Life: Cry of Fear [Ru] (Repack/Mod/1.4) 2012 | z0x
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий праздник для поклонников хоррор-игр. Группа фанатов, под общим названием Team Psykskallar, создала одну из самых амбициозных хоррор-игр за последние несколько лет. Отличная графика, если еще учесть что это переделанный движок Half-Life, нагнетающая атмосфера ужаса, отлично подобранная музыка, нелинейный сюжет с несколькими концовками, присутствия головоломок в лучших традициях первых частей Silent Hill, кооперативный режим прохождения игры, а также настоящий ужас который вас будет сопровождать на протяжении всей игры.
+(   Читать дальше...   )Тип издания: Repack / ModЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: английскийЯзык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318960   (488399) от 09.08.2019
+
+Navitel / Навител: Официальные карты релиза 2019-Q2
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488399.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Только для версий с 9.10.1619 и выше.
+• Это карты за второй квартал 2019г. Поэтому и пишут 2019-Q2
+• Вышли они в свободный доступ 06.08.2019.
+• Карты для Навител обновляются 3 раза в год.(   Читать дальше...   )Релиз состоялся: 06.08.2019Разработчик: NavitelПоддерживаемая ОС: Android, WinCEЯзык интерфейса: Ru/Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918DF15309172267CD2D5A1E582AB265532A64AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207574   (487567) от 29.08.2018
+
+С богами: Два мира / Singwa hamkke: joewa beol / Along With the Gods: The Two Worlds (2017) HDTVRip [H.264/1080p-LQ] [DVO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спасая ребёнка из горящего здания, пожарный Ким Джа-хон погибает героической смертью. И тут же три ангела смерти сопровождают его в мир мёртвых, где смертному предстоит пройти 7 судов и держать ответ перед 7-ю Богами. Ангелы будут его защитниками, и если Джа-хона признают безгрешным, он получит возможность реинкарнироваться и начать новую жизнь.Производство: Корея Южная / Dexter StudiosЖанр: Драма, фэнтези, приключенияРежиссер: Ким Ён-хваАктеры: Чха Тхэ-хён, Ха Джон-у, Чу Джи-хун, Ким Хян-ги, Ким Дон-ук, О Даль-су, Лим Вон-хи, То Гён-су, Ли Джун-хёк, Е Су-джонПеревод: Любительский двуголосый (Zipper)Озвучка: Ворон и WenlanaСубтитры: Русские (Софтсаб)Продолжительность: 02:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC399027467973E395B6AD922D4C9EEFD611F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055110   (487472) от 22.09.2016
+
+Очередное достижение: 4.000 релизов от navolock
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_487472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Друзья!
+ Наш одноклубник, активный Релизер, верный Сид, участник РГ Книги, Зам. Куратора Книг navolock как обычно оперативен и точен в оформлении, сегодня "незаметно" перешагнул рубеж 4000 релизов!!!(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937529   (487447) от 15.09.2015
 
 Очередное достижение: сотни +TB отданного трафика от NaSa68, VKmiki, vit_me45, viking77, Москалев Илья Геннадьевич, airosio, vladikann, bruda, Borbet, serg4, Санлайт, CAI
@@ -6,7 +226,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_487447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_487447.jpg" />
 </div>
 
 
@@ -32,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487398.jpg" />
 </div>
 
 
@@ -58,7 +278,7 @@ The Elder Scrolls V: Skyrim (2011) [Ru] (1.9.32.0.8/dlc) Repack xatab [Legendary
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487397.jpg" />
 </div>
 
 
@@ -84,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_487331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_487331.jpg" />
 </div>
 
 
@@ -110,7 +330,7 @@ Agnitum Outpost Firewall Pro 9.2.4859.708.2041 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487187.jpg" />
 </div>
 
 
@@ -136,7 +356,7 @@ Acronis True Image 2016 19.0 Build 5620 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487184.jpg" />
 </div>
 
 
@@ -162,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_487168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_487168.jpg" />
 </div>
 
 
@@ -188,7 +408,7 @@ Adobe Photoshop Lightroom 6.7 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487161.jpg" />
 </div>
 
 
@@ -214,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487158.jpg" />
 </div>
 
 
@@ -240,7 +460,7 @@ Darkest Dungeon (2016) [Ru/Multi] (15015hotfix) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487157.jpg" />
 </div>
 
 
@@ -266,7 +486,7 @@ Snappy Driver Installer R496 / Драйверпаки 16093 [Multi/Ru] (Авто
 >>86
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487156.jpg" />
 </div>
 
 
@@ -292,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_486908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_486908.jpg" />
 </div>
 
 
@@ -321,7 +541,7 @@ Hotspot Shield VPN Business 9.8.7 RePack by epxilion90 & Hss721 [x64] [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486761.jpg" />
 </div>
 
 
@@ -347,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486428.jpg" />
 </div>
 
 
@@ -373,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486338.jpg" />
 </div>
 
 
@@ -399,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_486337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_486337.jpg" />
 </div>
 
 
@@ -425,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486318.jpg" />
 </div>
 
 
@@ -452,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486223.jpg" />
 </div>
 
 
@@ -463,220 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42A5F8E9E234357C74428976E680830D1591CFBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545143   (486213) от 09.09.2012
-
-Люди в черном 3 / Men in Black 3 (2012) ВDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент Джей узнает, что никакого защитного галактического щита, способного отразить иноземный удар, не существует. Агент Кей не построил его, потому что был убит в 1969 году. Агент Джей должен совершить путешествие во времени, чтобы спасти Землю и жизнь напарника.Производство: США, Amblin Entertainment / Hemisphere Media Capital / Media Magik Entertainment / Imagenation Abu Dhabi FZЖанр: Фантастика, боевик, комедия, приключенияРежиссер: Барри ЗонненфельдАктеры: Уилл Смит, Джош Бролин, Томми Ли Джонс, Джемейн Клемент, Эмма Томпсон, Майкл Стулбарг, Майк Колтер, Николь Шерзингер, Майкл Чернус, Элис ИвПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D96E8B14F09D02BE5C8BB2A3C1061E6646CAAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566003   (486018) от 27.07.2022
-
-Россия выйдет из проекта МКС после 2024 года, к моменту начала формирования РОСС
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_486018.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Роскосмосом» принято решение покинуть проект МКС после 2024 года, заявил в ходе встречи с президентом РФ глава госкорпорации Юрий Борисов. Он рассчитывает, что к тому моменту уже начнётся формирование Российской орбитальной служебной станции (РОСС), что станет приоритетной задачей «Роскосмоса» в сфере пилотируемой космонавтики.«Вы знаете, что мы ведём работу в рамках (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565991   (486016) от 27.07.2022
-
-ФАС наложила на Google гигантский оборотный штраф — более 2 млрд рублей
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_486016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такую сумму компания должна заплатить за злоупотребление доминирующим положениемНапомним, в феврале 2022 года ФАС России завершила рассмотрение антимонопольного дела в отношении Google LLC. Служба установила, что правила, связанные с формированием, приостановлением, блокировками аккаунтов и обращения контента пользователей на Youtube являются непрозрачными, необъективными (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243994   (485618) от 30.08.2018
-
-В Минкомсвязи заявили о невозможности полной блокировки Telegram
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_485618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заместитель министра цифрового развития, связи и массовых коммуникаций РФ Алексей Волин считает, что у основателей Telegram достаточно ресурсов, чтобы избежать блокировки, из-за чего мессенджер не удалось полностью заблокировать."Полностью сегодня, в принципе, невозможно в интернете заблокировать ничего. Если тот, кого вы блокируете, имеет достаточное количество (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158985   (485547) от 19.08.2017
-
-VA - Beautiful Rock Ballads Vol.22 (Compiled by Виктор31Rus) (2017) [MP3|320 Kbps] <Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Axxis - The Fire Still Burns  3:49
-02.  Revolution Renaissance - Frozen Winter Heart  4:27
-03.  The Poodles - Wings Of Destiny  4:15
-04.  Metal Scent - Rain  3:31(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37E2B0F3520F44B3F919544B83CC2EB2FE0DC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159166   (485387) от 19.08.2017
-
-Heroes of Might & Magic III / Герои Меча и магии 3 (2015) [Ru] (1.17) Repack xatab [HD Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обратите внимание: контент «Герои III – HD Edition» основан на оригинальной игре, вышедшей в 1999: Возрождение Эрафии. С ностальгией вспоминаете о бессонных ночах, проведенных в сражениях с Черными Драконами, Архангелами, Демонами и Чародеями? Настоящие фанаты Heroes  of Might & Magic  III, у нас есть отличные новости!Тип издания: RepackРазработчик: DotEmuЖанр: Strategy (Turn-based), Top-downЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313312336FB0D71EE9EC8539644E7474E79F881C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293234   (485386) от 19.08.2017
-
-Windows 7 SP1 RTM X 86 & X64 Ru 2 DVD 8.02.11 by putnik
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485386.jpg" />
-</div>
-
-
-###  Подробнее
-
-В качестве исходников взяты оригинальные образы
-7601.17514.101119-1850_x86fre_client_ru-ru_OEM_Ultimate-GRMCULFREO_RU_DVD.iso
-7601.17514.101119-1850_x64fre_client_ru-ru_OEM_Ultimate-GRMCULXFREO_RU_DVD.iso
-7601.17514.101119-1850_x64fre_enterprise_ru-ru_VL_OEM_Enterprise-GRMCENXVOL_RU_DVD.iso(   Читать дальше...   )Разработчик: MicrosoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE185DBE2FEBDABAB0A588B625A3C300203CF257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159169   (485385) от 19.08.2017
-
-Pinnacle Studio Ultimate 21.0.1 + Content [Multi/Ru]
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоредактор Pinnacle Studio 21 Ultimate очень популярен среди пользователей, которые занимаются созданием и редактированием видеоконтента. Представляем обновленную версию этой программы от мирового лидера в сфере профессиональных видео- и аудиотехнологий - компании Corel. Скорость просчета в новой версии возросла до 10-ти раз благодаря обновленному «движку» и поддержке (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BC2FDA751494956E89157B41336422AEB7ED30
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1166531   (424073) от 17.09.2017
+
+TunesKit 3.5.1 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424073.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit - простой в использовании и мощный iTunes DRM медиа конвертер
+Tuneskit конвертирует MP4 видео файлы ,поможет любителям iTunes легко обойти Fairplay DRM защиту от iTunes приобретенных и арендованных фильмов / телевизионных шоу в том числе 1080P HD фильмов и телевизионных шоу, конвертируя быстро и без потерь iTunes зашифрованные M4V в формат MP4 с сохранением (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.09.2017Разработчик: TunesKitПоддерживаемая ОС: macOS 10.9 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6148A70DDCBF4EA76339BCDD78326E048A0F3E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064755   (424068) от 21.10.2016
+
+ImaPic Pro 1.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424068.jpg" />
+</div>
+
+
+###  Подробнее
+
+ImaPic простой редактор изображений, который позволяет обрезать, вращать, изменять размер, конвертировать изображения с легкостью!
+Просто перетащите изображения на иконку в строке меню и редактируйте их с парой щелчков мыши.
+
+Функции редактирования включают в себя:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 июня 2016Разработчик: mymixapps.comПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98FFFF932462E05D991BC3902E58C90486A6CD38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166529   (423935) от 17.09.2017
 
 OptimUSB 7.2 [En]
@@ -6,7 +62,7 @@ OptimUSB 7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423935.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ Moom 3.2.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423898.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ Disk Expert 2.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423893.jpg" />
 </div>
 
 
@@ -91,7 +147,7 @@ Disk Inspector 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423785.jpg" />
 </div>
 
 
@@ -119,7 +175,7 @@ App Cleaner Pro 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423778.jpg" />
 </div>
 
 
@@ -148,7 +204,7 @@ Apple iMovie 10.0.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423655.jpg" />
 </div>
 
 
@@ -176,7 +232,7 @@ MP3 Audio Recorder 3.0.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423087.jpg" />
 </div>
 
 
@@ -202,7 +258,7 @@ Mia for Gmail 2.4.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423059.jpg" />
 </div>
 
 
@@ -228,7 +284,7 @@ Artstudio Pro 2.3.25 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422969.jpg" />
 </div>
 
 
@@ -254,7 +310,7 @@ Receipts 1.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422773.jpg" />
 </div>
 
 
@@ -282,7 +338,7 @@ Mirror for Samsung TV 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422541.jpg" />
 </div>
 
 
@@ -311,7 +367,7 @@ Photo Mechanic 6 v6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422411.jpg" />
 </div>
 
 
@@ -337,7 +393,7 @@ onOne Perfect Photo Suite Premium Edition 9.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422240.jpg" />
 </div>
 
 
@@ -363,7 +419,7 @@ UnDistracted 1.73 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422052.jpg" />
 </div>
 
 
@@ -392,7 +448,7 @@ Bevy 1.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421636.jpg" />
 </div>
 
 
@@ -419,7 +475,7 @@ Adobe Zii 2020 - Universal Patcher 5.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420443.jpg" />
 </div>
 
 
@@ -445,7 +501,7 @@ Things 2.8.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420267.jpg" />
 </div>
 
 
@@ -474,7 +530,7 @@ Tonality CK (Pro) 1.4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420172.jpg" />
 </div>
 
 
@@ -502,7 +558,7 @@ Spectre 1.9.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420089.jpg" />
 </div>
 
 
@@ -529,7 +585,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.0.1.23 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419773.jpg" />
 </div>
 
 
@@ -557,7 +613,7 @@ A Better Finder Attributes 7 v7.01 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418367.jpg" />
 </div>
 
 
@@ -583,7 +639,7 @@ Translatium 14.0.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418359.jpg" />
 </div>
 
 
@@ -609,7 +665,7 @@ Bartender 3 v3.1.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417911.jpg" />
 </div>
 
 
@@ -636,7 +692,7 @@ PVF Update (091) Mojave [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417842.jpg" />
 </div>
 
 
@@ -649,58 +705,6 @@ PVF - Профессиональный видео формат.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:727D92529E6C7447301F1766BFE2EEE821A3CFD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412351   (417839) от 29.09.2020
-
-OnyX 3.8.6 for macOS Catalina 10.15 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417839.jpg" />
-</div>
-
-
-###  Подробнее
-
-OnyX для macOS Catalina - отличное приложение для оптимизации macOS, тонкой настройки скрытых возможностей Finder, Dock, Safari, Dashboard, Expose, Disk Utility, очистка системного кэша и кэша приложений, просмотр различных отчетов и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2020Разработчик: Titanium SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9420FCB43AB987D892A9C9875D176E5DABF4201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947693   (417801) от 17.10.2015
-
-Focus CK (Pro) 1.1.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Focus CK (Pro) - это мощное программное обеспечение для добавления восхитительных эффектов Lens Blur (размытие при малой глубине резкости) и Tilt-Shift (поворот/сдвиг) в ваши фотографии. Focus CK - это самый простой и быстрый способ сфокусировать внимание именно на том, что вам нужно. Программа является идеальным вариантом, как для профессиональных фотографов, так (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 октября 2015Разработчик: MacPhun SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5B239546C75E6EC6CD88658BEC780A218F27E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

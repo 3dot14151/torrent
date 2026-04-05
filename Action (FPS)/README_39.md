@@ -1,3 +1,55 @@
+###  Публикация: 1087377   (145616) от 27.12.2016
+
+Call of Duty: Black Ops (2010) [Ru/Multi] (0.305-05.125430.1/dlc) License PLAZA [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty: Black Ops - долгожданная седьмая часть Call of Duty. Каждая игра этой серии способствовала развитию жанра шутеров, и Black Ops не стала исключением. Игроков ждут динамичная однопользовательская кампания, повествующая о событиях времен холодной войны, и разнообразные многопользовательские режимы, среди которых появилось несколько совершенно новых.Тип издания: LicenseРазработчик: TreyarchЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53639E842B58FD02773E3A544E893CF493238404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087518   (145605) от 27.12.2016
+
+Transformers: War for Cybertron / Трансформеры: Битва за Кибертрон (2010) [Ru/En] (1.0) Rip =nemos=
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте совершенным оружием. Сражайтесь до конца в войне, с которой всё началось. Владея арсеналом смертельного высокотехнологичного оружия и трансформируясь из робота в транспорт, сражайтесь насмерть в живом металлическом мире Кибертрона. В отдельных кампаниях для автоботов и десептиконов, вы пройдете путь от городов, заселенных роботами, к ядру Кибертрона - энергону, (   Читать дальше...   )Тип издания: RipРазработчик: High Moon StudiosЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE4FA6A23CE9F049789347D6EE6C63FE472B7B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087286   (145577) от 27.12.2016
 
 Call of Duty: Black Ops (2010) [Ru] (0.305-05) Repack xatab [Collection Edition]
@@ -6,7 +58,7 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05) Repack xatab [Collection Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145577.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Thief™ Gold (1999) [En] (1.26ND) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144242.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Return to Castle Wolfenstein (2001) [En/Ge] (1.41) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143529.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Stary (2018) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143465.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ BioShock™ 2 Remastered (2016) [Multi] (1.0.122864) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143373.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Star Wars: Jedi Knight - Dark Forces II (1997) [En] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141907.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Transmissions: Element 120 (2016) [Ru] (1.06) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141415.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Call of Duty Black Ops 2/II (2012) [Ru/En] (1.0.0.1 upd3) Rip R.G. Catalyst [Dig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140917.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Crypt of the Serpent King (2016) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139675.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Red Faction (2001) [En/Ge] (1.21) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138422.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Chameleon / Хамелеон [Ru] (RePack) 2005 | R.G.Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138306.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Delta Force Anthology / Антология Отряд Дельта (1998-2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137372.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ NecroVisioN + NecroVisioN: Lost Company (2009-2010) [Ru/En] (1.2/1.1) Repack R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137346.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Crysis (2007) [Ru] (1.1.1.6156) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136739.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Bioshock [En] (Steam-Rip/1.1) 2007 | R.G. GameWorks
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135110.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ F.E.A.R. 3 [Ru/En/Multi9] (Steam-Rip/16.0.20.1060) 2011 | R.G. GameWorks
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135057.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru/En/Multi9] (Stea
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134338.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ Monstrum (2015) [En] (1.5.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134037.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133607.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ Forgive Me Father (2022) [Ru/Multi] (1.4.4.60) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133585.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133569.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ Half-Life (1998) [Ru/En] (12833965) Repack dixen18 [25th Anniversary Update]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133563.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ Dead Island. Game of The Year Edition [Ru/En/Multi8] (Steam-Rip/1.3.0) 2012 | R.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133330.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133259.jpg" />
 </div>
 
 
@@ -632,60 +684,6 @@ THE MULLER-POWELL PRINCIPLE погружает в межпространстве
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CB77E3E1C2491167289AB8DC9032B8FF41FD87E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681162   (132823) от 02.12.2023
-
-Turok 3: Shadow of Oblivion Remastered (2023) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Turok 3 Shadow of Oblivion Remastered - это точная реставрация классического шутера от первого лица, первоначально выпущенного в 2000 году для Nintendo 64, обновленного с помощью фирменного движка KEX от Nightdive Studios для игры на современных игровых устройствах с разрешением до 4K и частотой 120 кадров в секунду. Он присоединится к популярным ремастерам Turok (   Читать дальше...   )Тип издания: SceneРазработчик: Nightdive Studios, Iguana EntertainmentЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E11B2F591C61B56D5899053C73A930224CAFE27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595240   (132375) от 28.12.2012
-
-Singularity [Ru/En] (L/1.1) 2009
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каторга-12 — советский научный центр, расположенный на небольшом острове у побережья Камчатки. В результате неудачного эксперимента остров попал во временную ловушку и теперь постоянно перемещается между 1950 и 2010 годами. Оказавшись в этом странном, постоянно меняющемся месте, где внезапно происходят скачки во времени, игроки пройдут серьезные испытания. Используя мощное оружие и уникальное экспериментальное устройство — мобильный временной преобразователь, они будут сражаться с врагами в прошлом и в настоящем, уничтожать кошмарных тварей в параллельных измерениях. Однако самая главная и сложная задача — найти способ предотвратить страшную катастрофу в 1950 году, чтобы в 2010 году все вернулось на круги своя.
-
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F2939D4F1B19CAACF6165B3877C56A4312CB62
 ```
 
 https://mybot314.ru/tekegram_catalog/

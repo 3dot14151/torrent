@@ -1,81 +1,3 @@
-###  Публикация: 974074   (976942) от 11.01.2016
-
-В. Г. Вакенродер | Фантазии об искусстве (1977) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976942.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Фантазии об искусстве» В.-Г. Вакенродера, одного из родоначальников немецкого романтизма, сыграли значительную роль в развитии литературы не только в Германии, но и за ее пределами. Книга состоит из двух групп рассказов и эссе, сюжетно не связанных между собой, но объединенных общими темами — живописью и музыкой. Вакенродер стремится заставить читателя почувствовать (   Читать дальше...   )Жанр: Философия, эстетика, Живопись, МузыкаПеревод: С. С. БелокриницкаяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834DF6FFFD4ECCDC98AE3A1A6BBEC22098777914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974276   (976941) от 11.01.2016
-
-Шицзин: Книга песен и гимнов (1987) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976941.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Шицзин» — «Книга песен и гимнов» — древнейший китайский литературный памятник. Входящие в него народные песни, оды и культовые гимны создавались в XII—V веках до н. э. Собранные Конфуцием в одну книгу «для торжества идеального порядка вещей, правления, обрядов и долга», как говорил в I веке до н. э. древний китайский историк Сыма Цянь, они составили поэтическую (   Читать дальше...   )Жанр: Литературоведение, Древневосточная литератураПеревод: А. А. Штукин, Н. Т. ФедоренкоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC5DC72FBE4EB17E803D031F47CF64C46219FD1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974189   (976932) от 11.01.2016
-
-А. А. Потебня | Эстетика и поэтика (1976) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976932.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге впервые собраны работы выдающегося мыслителя XIX века А. Л. Потебни (1835—1891), эстетические идеи которого оказали большое влияние на развитие теории и психологии художественного творчества. Существенные проблемы искусства рассматриваются Потебней в таких трудах, как «Мысль и язык», «Из записок по теории словесности», в статьях и высказываниях о народном (   Читать дальше...   )Жанр: Философия, эстетика, Литературоведение, поэтикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25733E0BB9D1654169E5D939AB4CBEBA05E612E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974184   (976887) от 11.01.2016
 
 Эрих Машке | Немецкий орден (2003) [DJVU]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976887.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976884.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976479.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976462.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976299.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975733.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974598.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974589.jpg" />
 </div>
 
 
@@ -294,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974582.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974581.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974390.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974360.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974356.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974282.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973513.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973030.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972957.jpg" />
 </div>
 
 
@@ -532,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972399.jpg" />
 </div>
 
 
@@ -561,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972348.jpg" />
 </div>
 
 
@@ -588,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972104.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972031.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972026.jpg" />
 </div>
 
 
@@ -666,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971011.jpg" />
 </div>
 
 
@@ -677,6 +599,91 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E0EEE83C727B950CCCD7A956012E119C0670489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618045   (971004) от 13.02.2013
+
+К.Э. Гилберт, Г. Кун | История эстетики [2000] [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга К. Гилберт и Г. Куна "История эстетики" является одной из наиболее интересных в зарубежной литературе монографий по предмету эстетики.
+Здесь собран и систематизирован обширный теоретический и фактический материал из истории эстетики, которую авторы толкуют зачастую расширительно.
+Авторы с буржуазно-объективистских позиций исследуют основные эстетические учения. Хронологически их книга охватывает развитие эстетических представлений,
+начиная от зарождения древнегреческой мысли до основных направлений в зарубежной эстетики ХХ века.Перевод: В.В. Кузнецов, И.С. ТихомироваФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E0A991C01C140D6C7453FAC42B243F619B8662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618051   (970896) от 13.02.2013
+
+Л.А. Изместьева | Мезенская роспись [1992] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970896.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мезенская роспись как вид зародилась в селе Палощелье Мезенского района Архангельской области в конце XIX века. Она носила бытовую направленность, северные мастера расписывали прялки, короба, туеса, орудия труда, украшали избу.
+Характерные особенности мезенской росписи: графичность, фризовость, многоярусность. Мезенская роспись поражает скупостью изобразительных средств, художественным немногословием, цветовой сдержанностью. Используются два цвета: красно-коричневый (получали из красной береговой глины, смешанной с древесной смолой, по-местному "сера") и черный (из сажи, смешанной с "серой").
+Мезенская роспись похожа на рисунки первобытных людей. Интересен и "мужской" характер росписи - прялки расписывали в старину мужчины - те, для кого самым важным в хозяйстве являлись кони и олени."Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CAB71B34B83BA359786901BD226C619D97D4BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618031   (970891) от 13.02.2013
+
+Б.А. Колчин и др. | Древний Новгород. Прикладное искусство и археология [1985] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970891.jpg" />
+</div>
+
+
+###  Подробнее
+
+В альбоме воспроизводится более трехсот художественных предметов найденных Новгородской археологической экспедицией за пятьдесят лет ее полевых работ.
+Эти предметы, сопровождавшие и украшавшие жизнь горожан на протяжении пяти столетий, с X по XV век, показывают, что созидание прекрасного было органическим компонентом быта средневекового Новгорода.
+Творцами красоты выступают ювелиры и плотники, кузнецы и сапожники, косторезы и литейщики, токари и стеклодувы. В альбоме представлены резьба по дереву и деревянная скульптура, резьба по кости и камню, изделия из цветных и благородных металлов, выполненные в технике литья, гравировки, скани, перегородчатой эмали, изделия из стекла, кожи, железа, керамики и других материалов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A31DBFCC0780E7DDDA9BC00521A2DACE9DD777
 ```
 
 https://mybot314.ru/tekegram_catalog/

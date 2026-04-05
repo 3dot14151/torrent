@@ -1,3 +1,29 @@
+###  Публикация: 1029066   (683767) от 25.06.2016
+
+Проекты - VideoHive - Parallax History [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallax History - Уникальный, современный, кинематографическое слайд-шоу с эффектом параллакса. Этот шаблон подходит для представления ваших семейных изображений или видео, а также любых деловые СМИ.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EC4F598581D42C94918DDACEAB962EC245E258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 796538   (683252) от 15.06.2014
 
 Проекты - VideoHive - Photo Alphabet - 6968079 [AEP]
@@ -6,7 +32,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683252.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682531.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682394.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682385.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682270.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681950.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681843.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680527.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679999.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679866.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679862.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679742.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679740.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ VideoHive - Dynamic Slideshow - 6909417 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679349.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678017.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677951.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677711.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ VideoHive - Moments to Remember - 7700639 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677121.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677116.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677011.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676872.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676259.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_675990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_675990.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ VideoHive - Photo Album Slide Projector v.1 - 5149642 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675045.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ VideoHive - Photo Gallery Blossoms and Bee - 6353451 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675039.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ VideoHive - Photo Gallery Blossoms and Bee - 6353451 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEF67561479010C2D360C5920574708804182D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136484   (674361) от 22.05.2017
-
-Проекты - VideoHive - Production Reel - Video Wall - 19580256 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу или вступительного ролика для вашего видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47AF54D3F04F5F1E2F90058C1A65A11AA4085080
 ```
 
 https://mybot314.ru/tekegram_catalog/

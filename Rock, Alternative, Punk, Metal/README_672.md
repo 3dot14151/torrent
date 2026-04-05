@@ -1,3 +1,32 @@
+###  Публикация: 1068027   (383367) от 31.10.2016
+
+Roads To Nowhere - Lifeless (2016) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Artist [04:31]
+02. Left Alone [04:09]
+03. Unforgivable [03:01]
+04. Beneath [04:12](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB54E4A1AD49309E4E99F7060767B142C4F2FA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067955   (383364) от 31.10.2016
 
 Perzonal War - Inside the New Time Chaoz (2016) [MP3|320 Kbps] <Power Metal, Thrash Metal>
@@ -6,7 +35,7 @@ Perzonal War - Inside the New Time Chaoz (2016) [MP3|320 Kbps] <Power Metal, Thr
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383364.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Funeralizer - Funeralizer (2016) [MP3|320 Kbps] <Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383363.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Death Fetishist - Clandestine Sacrament (2016) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383362.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Hellfrost - Pagan Son (2016) [MP3|320 Kbps] <Blackened Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383361.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ A Hero For The World - The Other Side (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383360.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Blackning - Alienation (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383359.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Straightout - Phobia (2016) [MP3|320 Kbps] <Melodic Death, Black Metal, Metalcor
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383358.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Engage The Unseen - A Storm Is Coming (2016) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383355.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Jem Records Celebrates John Lennon (2020) [FLAC|Lossless|tracks] <Rock, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383298.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Alligator Rodeo - Alligator Rodeo (2016) [MP3|320 Kbps] <Sludge, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383256.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Nurnean - Decay (2016) [MP3|320 Kbps] <Experimental Death Metal, Djent, Inst
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383255.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Junior Bruce - Endless Descent (2016) [MP3|320 Kbps] <Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383254.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Fornicus - Hymns of Dominion (2016) [MP3|320 Kbps] <Black Metal, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383252.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Dehumanized - Beyond The Mind (2016) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383250.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Unearthed Elf - Into The Catacomb Abyss (2016) [MP3|320 Kbps] <Epic Doom, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383244.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Scorching Winter - Victim (2016) [MP3|320 Kbps] <Symphonic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383242.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Stagewar - Killing Fast (2016) [MP3|320 Kbps] <Thrash ‘n’ Roll>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383240.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Narcosatanicos - Body Cults (2016) [MP3|~245 Kbps (V0)] <Stoner, Psychedelic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383238.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Crowbar - The Serpent Only Lies (2016) [MP3|320 Kbps] <Doom Metal, Sludge>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383233.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The Gift - Why The Sea Is Salt (2016) [MP3|320 Kbps] <Progressive Rock, Symphoni
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383225.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Year of the Cobra - … In the Shadows Below (2016) [MP3|320 Kbps] <Psychedelic 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383221.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383171.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ SKALD - Vikings Memories (2020) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383168.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Debustrol - Válka (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383112.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Red Eleven - Collect Your Scars (2016) [MP3|320 Kbps] <Alternative Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383096.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Red Eleven - Collect Your Scars (2016) [MP3|320 Kbps] <Alternative Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D678D55A04E2C19515526FA61BB7AB1E0373A87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067867   (383094) от 31.10.2016
-
-Theocracy - Ghost Ship (2016) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paper Tiger
-02. Ghost Ship
-03. The Wonder Of It All
-04. Wishing Well(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1F33878836298B3EA6FB53641AF744A29A7CB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

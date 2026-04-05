@@ -1,3 +1,56 @@
+###  Публикация: 1433060   (161875) от 19.12.2020
+
+В.В. Миронов | Философия с иллюстрациями (2020) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник предназначен для студентов высших учебных заведений. Материал изложен по основным проблемам философии в соответствии с принятыми в большинстве вузов программами и планами семинарских занятий по основному курсу философии.
+Учебник написан в популярной форме, доступной каждому, кто приступает к изучению философии, и может быть использован как для подготовки (   Читать дальше...   )Жанр: ФилософияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D8DFF0A9925D923074A5A8894A49317753F01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433050   (161857) от 19.12.2020
+
+Л.Н. Миронова и др. | РНК: Синтез и функции (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание представляет собой учебное пособие, предназначенное для студентов и аспирантов, специализирующихся в области молекулярной биологии и генетики. В нем освещены проблемы, связанные с биогенезом и функциями одного из основных биологических полимеров - РНК. Рибонуклеиновая кислота, или РНК, представляет собой, наряду с дезоксирибонуклеиновой кислотой (   Читать дальше...   )Жанр: Биология, генетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11F030891F2663B53258AAF3CF6BD3F51048F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598601   (161246) от 21.12.2022
 
 В.Ф.Шаталов, В.М.Шейман | Опорные сигналы по физике для 6 класса (1978) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161246.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161208.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160387.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160375.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160360.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160153.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159842.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159498.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158928.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158216.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158187.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158181.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158146.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158083.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158072.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157608.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157497.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157492.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157432.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157426.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157392.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157141.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157072.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157048.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C26D8F4B4C0DA756FAAB198033A611093B50F688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588500   (157027) от 13.12.2012
-
-И.А.Максимихин | Как построить модель корабля [1956] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга помогает учащемуся систематизировать приобретение и накопление знаний и опыта в постройке моделей кораблей. В книгу включены вопросы по организации рабочего места, подбору инструментов и материалов, по навыкам работы и дан ряд сведений практического порядка для изготовления некоторых моделей кораблей, судов и яхт, а также основные теоретические сведения.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631E7A2ABFB7D0A78A7647A2C3031B6B3904CAA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587512   (156916) от 27.12.2022
-
-В.А. Ильин и др. | Курс высшей математики и математической физики [7 выпусков в 8 книгах] (1967 - 1985) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный курс высшей математики и математической физики от профессоров Московского Государственного Университета.Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF767BFE0DF6018A3A3D7569BD67DC2064F6809
 ```
 
 https://mybot314.ru/tekegram_catalog/

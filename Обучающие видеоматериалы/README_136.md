@@ -1,3 +1,31 @@
+###  Публикация: 816149   (549203) от 26.08.2014
+
+Евгений Попов | Все технические моменты онлайн-бизнеса в видеоформате, 2-е издание (2011) Screener
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это диск для тех, кто испытывает сложности в технической части. Если Вы постоянно задаете себе вопросы по поводу создания сайтов, работы в Фотошопе и т.д., то этот диск способен стать для Вас волшебной палочкой-выручалочкой.
+Причем этот сложный технический материал удалось подать настолько простым языком, что его понимают не только уже опытные интернетчики, но и те, кто раньше был очень далек от этих знаний.
+Данный курс — это самый простой и быстрый путь разобраться со всеми техническими моментами инфобизнеса (   Читать дальше...   )Жанр: веб, инфобизнесПродолжительность: 48:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B740794687BFDEABEDAC113470E1535E8B470FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047322   (548918) от 30.08.2016
 
 Alex24369 | Боевая машина Linux (2013) PCRec
@@ -6,7 +34,7 @@ Alex24369 | Боевая машина Linux (2013) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548918.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Digital Tutors | Introduction to Materials in Houdini (2015) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547155.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ Skill.im | PowerPoint 2013/2016 [Базовый + Продвинутый кур�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546659.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545216.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544719.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544710.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ Geekbrains | METEOR. Возможности meteor js на примере нап
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544414.jpg" />
 </div>
 
 
@@ -195,7 +223,7 @@ Codecamp | Профессия Python разработчик (2018) PCRec [H.264/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543182.jpg" />
 </div>
 
 
@@ -224,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542394.jpg" />
 </div>
 
 
@@ -252,7 +280,7 @@ Hal Leonard | Guitar Play-Along DVD Volume 4. Chicago Blues [2007] [EN] DVD5
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540422.jpg" />
 </div>
 
 
@@ -278,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540325.jpg" />
 </div>
 
 
@@ -307,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540168.jpg" />
 </div>
 
 
@@ -334,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540004.jpg" />
 </div>
 
 
@@ -363,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539692.jpg" />
 </div>
 
 
@@ -391,7 +419,7 @@ SLR Lounge | Lighting Bundle Vol. 1-4 (2021) WEB-DL [AD] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539053.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ Search Engine Education | SEO-ПРАКТИКУМ 3.0 (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538512.jpg" />
 </div>
 
 
@@ -445,7 +473,7 @@ Scott Deardorff | Креативные техники художественно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538506.jpg" />
 </div>
 
 
@@ -472,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538349.jpg" />
 </div>
 
 
@@ -500,7 +528,7 @@ Digital Tutors, Kurt Williams | Creating a Floater Pack in Maya (2015) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537217.jpg" />
 </div>
 
 
@@ -527,7 +555,7 @@ Imperial Pro, Артемий Миллер | Стань управляющим б
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537212.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ Lynda, Judd Roy | Game Art Asset Texture Pipeline (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537209.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537049.jpg" />
 </div>
 
 
@@ -612,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537048.jpg" />
 </div>
 
 
@@ -641,7 +669,7 @@ Udemy, Opi Chaggar | Maya for Beginners: Complete 3D Animation Fundamentals (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535125.jpg" />
 </div>
 
 
@@ -667,7 +695,7 @@ Sh1ft | Sh1ft & L1ft HIIT Workout (2017-2018) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534620.jpg" />
 </div>
 
 
@@ -678,32 +706,6 @@ Sh1ft | Sh1ft & L1ft HIIT Workout (2017-2018) HDTVRip [H.264/720p-LQ] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D70AA689B355C60DCDD50A940C39E853C7B0F228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155678   (531231) от 04.08.2017
-
-Андрей Макаревич - Лекция о красоте (2017) HDTVRip [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрей Макаревич рассказал чем,по его мнению отличается ремесло от искусства,как отец(член союза художников СССР) учил его рисовать и многое другоеЖанр: ЛекцияПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154AB755E65BAF924661470B8E1F6A33F30D6F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

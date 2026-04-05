@@ -1,3 +1,30 @@
+###  Публикация: 1673704   (164374) от 02.11.2023
+
+Теодор Драйзер | Американская трагедия (2020) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теодор Драйзер (1871–1945) американский писатель, журналист и общественный деятель. Яркий представитель американского течения натурализма и критического реализма. Мировую славу ему принесла трилогия «Титан», «Стоик» и «Финансист», а вершиной творчества стала «Американская трагедия».
+Роман «Американская трагедия» Теодора Драйзера – одно из лучших произведений американской (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 39:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF228FE501E5FEB08C77CFA205B30A5CA4C9B657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 304701   (164072) от 02.11.2023
 
 Иван Тургенев | Старые портреты (2009) [MP3, Александр Васильев]
@@ -6,7 +33,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164072.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164058.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164052.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164015.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163989.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163975.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163712.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163493.jpg" />
 </div>
 
 
@@ -224,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163274.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162939.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162878.jpg" />
 </div>
 
 
@@ -308,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162425.jpg" />
 </div>
 
 
@@ -337,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162356.jpg" />
 </div>
 
 
@@ -365,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162113.jpg" />
 </div>
 
 
@@ -393,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162061.jpg" />
 </div>
 
 
@@ -420,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160860.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160859.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160851.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160782.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160780.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160772.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160771.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160767.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160765.jpg" />
 </div>
 
 
@@ -663,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160744.jpg" />
 </div>
 
 
@@ -675,32 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C0DFD6D2459570650E6888EAB93D8B18812041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445452   (160732) от 06.11.2023
-
-Александр Дюма (отец) | Графиня де Монсоро (2011) [MP3, Михаил Поздняков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160732.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Графиня де Монсоро» (1846) – одно из самых значительных произведений Александра Дюма. В этом увлекательном авантюрно-историческом романе писатель с замечательным мастерством воскрешает события второй половины XVI века – эпохи религиозных войн и правления Генриха III, последнего короля династии Валуа. История трагической любви благородного графа де Бюсси и прекрасной (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: МедиаКнигаПродолжительность: 41:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:214BC94F4DFFB47390E88549CEFA2C86305D28C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

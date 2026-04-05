@@ -6,7 +6,7 @@ Paradisio - Greatest Hits (20th Anniversary) (2017) [MP3|320 Kbps] <Eurodance, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618079.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Dance Collection The Remixes 2010s (2015) [MP3|320 кб/с]<Euro Dance, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618027.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bananarama - 30 Years of Bananarama (2012) [MP3|242-290 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616988.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - 100 Greatest Number Ones (2019) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616906.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Heisse Ballerfrauen auf Mallorca Die Partyhits 2017 [MP3|320 Kbps] <Schlage
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616586.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Victor Manuelle - Que Suenen los Tambores (2015) [MP3|320 кб/с]<Latin, Salsa>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616429.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Dancefloor Fuller (2017) [MP3|320 Kbps] <Schlager, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616348.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Darkness Falls - Dance and Cry (2015) [OGG|457-558 кб/с]<Indie Pop, Electroni
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616172.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Radio Italia: Summer Hits 2017 (2017) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615628.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - De Ultieme Feesten Als De Beesten Top 100 (2019) 5CD  [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615150.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - 100 Greatest Chilled Pop (2019) [MP3|320 Kbps] <Pop, Dance, Club>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615140.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - 100 Greatest Summer Songs (2019) [MP3|320 Kbps] <Rock, Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615133.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Fabulous Flips. Volume Two (1995) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614498.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Fabulous Flips. Vol.3 (1997) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock'n'Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614496.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Fabulous Flips (1993) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock'n'Roll>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614495.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Carly Rae Jepsen - Emotion (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614240.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Claudia Mori - E I Ragazzi Del Clan (1994) Compilations [MP3|320 Kbps] <Pop, Cha
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613673.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - The Hits Album - The 70s Pop Album (2019) [MP3|320 Kbps] <Pop, Disco, Other
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613299.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - La Bomba Party (2k17) (2017) [MP3|320 Kbps] <Schlager, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612964.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Tori Kelly - Unbreakable Smile (2015) Target Edition [MP3|320 кб/с]<Pop, Soul
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612429.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Pomplamoose - Besides (2015) [MP3|320 кб/с]<Indie Pop, Female Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612400.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Christina Aguilera - Liberation (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612265.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Ballermann Schlagersommer 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611851.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ VA - Die neue Schlagerparade (2019) 2CD [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611850.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ VA - Happy Easter Dance 3 (2019) [MP3|320 Kbps] <Dance, Clubce>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611849.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ VA - Ballermann Die Hits 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611847.jpg" />
 </div>
 
 

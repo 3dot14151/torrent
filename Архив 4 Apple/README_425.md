@@ -6,7 +6,7 @@ Elmedia Player Pro 8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354301.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Audio Hijack 3.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354267.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Movavi Video Editor 15 Business v15.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354139.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Movavi Video Editor 15.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354021.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Microsoft Office 2021 for Mac LTSC v16.65 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353906.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Elmedia Video Player Pro 6.8 (1105) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353822.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Swinsian 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353688.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Cardhop 1.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353687.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ DxO PhotoLab 4 ELITE Edition 4.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353684.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Nova 2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353683.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Noise Machine 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353682.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353545.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ TablePlus 3.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353533.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Rhinoceros 6 v6.30.20288 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353509.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353317.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Movavi Video Converter 21 Premium 21.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353118.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Adobe Character Animator CC 2018 v1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352993.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Ableton Live Suite 9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352885.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Mp3tag 1.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352559.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Downcast 2.11.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352551.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Later - Create Quick Reminders With Presets 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352497.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ WidsMob Montage 2.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352457.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352453.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Mp3tag 1.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352440.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Transfer 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352439.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ SILKYPIX JPEG Photography 11 v.11.2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352438.jpg" />
 </div>
 
 

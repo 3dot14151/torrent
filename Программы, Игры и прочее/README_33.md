@@ -1,3 +1,108 @@
+###  Публикация: 1472689   (1014208) от 26.05.2021
+
+txtpad+ 3.1.2 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014208.jpg" />
+</div>
+
+
+###  Подробнее
+
+txtpad - это удобный и простой блокнот, который позволяет создавать .txt файлы. В нем нет ничего лишнего, создавайте и редактируйте заметки. Поиск по Вашим заметкам txt. В приложении есть возможность изменять шрифт и размер текста для удобного чтения. Также можно включить темную тему в приложении.Тип издания: PlusРелиз состоялся: 26.05.2021Разработчик: pohrebniakovПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E44535DABA841C4BC737FE80D143F0C936257E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472807   (1014197) от 26.05.2021
+
+TonalEnergy Tuner and Metronome v1.9.1 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014197.jpg" />
+</div>
+
+
+###  Подробнее
+
+TonalEnergy Tuner and Metronome подходит не только для профессионалов, но и для новичков в сфере музыки. Оно дает возможность практиковаться на создании уникальных мелодий и звуков.
+Деревянные духовые инструменты или струнный инструмент или любой тип гитары, это приложение предоставляет набор многофункциональных инструментов для практики. Это гораздо больше, чем (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 18 мая 2021 г.Разработчик: TonalEnergy, IncПоддерживаемая ОС: Android Зависит от устройстваЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F984F93E068AC1B9FBBA148B7A7CEC025A2942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472682   (1014191) от 26.05.2021
+
+chomp SMS 8.39 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014191.jpg" />
+</div>
+
+
+###  Подробнее
+
+chomp SMS - Данное приложение сможет послужить отличной заменой стандартного интерфейса для отправки сообщений. Его признали уже миллионы пользователей, и все больше их становится каждый день. В чем же его главное отличие от стандартного, так это интерфейс, если в стандартном изменить его практически невозможно, то здесь вы с легкостью сможете подобрать тему на свой (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.05.2021Разработчик: DeliciousПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A574E143C84DCD2A2C91AF5BE0214EDF6E14497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472676   (1014177) от 26.05.2021
+
+Material Status Bar 10.23 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Material Status Bar - сделайте строку состояния более удобной и функциональной, благодаря различным настройкам. Программа включает в себя множество полезных настроек, которые меняют поведение и внешний вид строки состояния, что позволяет вам изменить и персонализировать ее на свое усмотрение.Тип издания: ProРелиз состоялся: 26.05.2021Разработчик: ZipoAppsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC45F0140AA45839B5F1609710C94055F68D8B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472764   (1014172) от 26.05.2021
 
 Amber Weather (Янтарная погода) 4.7.1 [Ru/En]
@@ -6,7 +111,7 @@ Amber Weather (Янтарная погода) 4.7.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014172.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013981.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013966.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013808.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013456.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ Avast: Mobile Security & Antivirus 6.38.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012985.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012689.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ BirdNerd v1.0.9b [Ru/En] - Определение птицы по голосу (
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012545.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ Launcher iOS 14 3.9.3 Mod by vovamen24 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012207.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012112.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ Total Launcher 2.8.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012087.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ neXt Launcher 3D 3.7.3.2 Mod by Balatan, chathu_ac, Сіtrus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012054.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ Ratio - The Productivity Launcher 4.1.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011965.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ Wide Launcher - 3X Wider Home Screen 1.6.41 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011951.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ Leanback on Fire 1.48 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011934.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ My Android Tools 1.6.8 Free / 1.6.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011919.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011733.jpg" />
 </div>
 
 
@@ -458,7 +563,7 @@ Mi Видео - бесплатный просмотр и загрузка вид
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011652.jpg" />
 </div>
 
 
@@ -484,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011478.jpg" />
 </div>
 
 
@@ -510,7 +615,7 @@ MIUI Калькулятор v12.3.12 + v12.2.0 (Mods) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011461.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ SoloLearn: Учимся программировать 4.7.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011450.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ Parrot Voice Recorder v3.7.8  [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011055.jpg" />
 </div>
 
 
@@ -573,110 +678,6 @@ Parrot - это приложение для записи голоса, кото�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09245EA4E15C3F6BC0CF9F5F44A4DF24F1732EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477375   (1011050) от 14.06.2021
-
-Total Recall - Call Recorder v2.0.86 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total - Recall Call Recorder – отличная программа для записи звонков и в качестве диктофона для Android. В отличие от большинства приложений типа Запись Звонков, которые просто осуществляют звукозапись звонка с вашего Микрофона (при низком уровне звука), приложение Total Recall разработано с целью реальной записи звонка, которая подразумевает двухстороннюю запись (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.10.2020Разработчик: Killer MobileПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC75EB7AF557041BBAA7DC644CBAAACC0A1EA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477387   (1010911) от 15.06.2021
-
-Трекарта v2021.05 [Ru/En] - оффлайн топо карты для активного отдыха (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Трекарта предназначено для походов, геокешинга, бездорожья, велопрогулок и другой активности на свежем воздухе. Приложение использует офлайн карты, поэтому вам не потребуется интернет-подключение. Вы можете легко импортировать точки и треки из файлов в формате GPX и KML или создавать свои собственные точки и делиться ими с другими. Приложение позволяет (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 10.06.2021Разработчик: Andrey NovikovПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51F5D9BFF6231704614DC16F3C05BCE74D6DD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381083   (1010719) от 16.06.2021
-
-Mubert v4.2.0 [Ru/Multi] - сервис фоновой музыки
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mubert — мобильное приложение, которое генерирует уникальную музыку, индивидуальную для каждого слушателя. Искусственный интеллект создает бесконечную музыку в разных настроениях и жанрах, используя базу сэмплов. Стань частью поколения слушателей музыки будущего. Оцени новый музыкальный формат. Музыка без плейлистов и чартов. Музыка, которая никогда не останавливается.Тип издания: Пиратка (открыт Premium) + ModРелиз состоялся: 15.06.2021Разработчик: MUBERT Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CCD3A07DDF7519B3C7A25A0CB5870EB2C482883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478108   (1010640) от 17.06.2021
-
-AUG Launcher v3.7.7 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010640.jpg" />
-</div>
-
-
-###  Подробнее
-
-AUG Launcher - удобный, многофункциональным и быстрый лаунчер, со своими интересными фишками. Работаем довольно быстро даже на старых телефонах. Лаунчер поддерживает множество жестов которые пользователь может перенастроить под свои нужды.Тип издания: Pro (Mod)Релиз состоялся: 05.06.2021Разработчик: G K RПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619011FD593060253BC7DE825289E5B25A02ACAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

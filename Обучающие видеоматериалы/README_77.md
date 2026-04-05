@@ -1,3 +1,31 @@
+###  Публикация: 1494563   (887037) от 08.09.2021
+
+Антон Севостьянов | Мастер-класс «Прокачайся до сисадмина» (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня поднимем домен на Windows Server 2016 с нуля и до полностью рабочего состояния!
+Главное достоинство доменной сети это простота дальнейшего администрирования, так что для вас это выгоднее в двойне!
+Почему? В сети с доменом, есть сервер, а остальные машины являются клиентами и взаимодействие в сети между компьютерами осуществляется через контроллер домена, (   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 02:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C49F1E6362337006C0FAF8D94566A9BA14AECB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494681   (886952) от 08.09.2021
 
 Udemy, Сергей Лукаш | Профессия Junior и Middle SEO специалист. Курс для начинающих и практический курс [2 курса в 1] (2020-2021) WEB-DL [AD]
@@ -6,7 +34,7 @@ Udemy, Сергей Лукаш | Профессия Junior и Middle SEO спе�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886952.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ Barre3 (2019) WEB-DL [H.264/720p-LQ] (31 Серия) [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886761.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886377.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ Epic Games, Mathew Wadstein | UE4 Projects and File Structure (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885923.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ Packt Publishing, Jonathan A. Daley | Building an Unreal RTS Game: Adding Killer
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885919.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885532.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ Udemy, Cubo Class и др. | Unreal Engine 4 Class. Blueprints Part 1-4 (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885353.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ CG Cookie | Создание зацикленного коридора в Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885168.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ CG Cookie | Создание мини-танка для мобильных иг�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884949.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ CG Cookie | Создание анимации с ригом в Grease Pencil в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884800.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ CG Cookie | Основы моделирования 3D-меша в Blender 2.8 /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884773.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884030.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882306.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882245.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882153.jpg" />
 </div>
 
 
@@ -411,7 +439,7 @@ Lingua Franconia, Катерина Томилина | Школа техник и
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882031.jpg" />
 </div>
 
 
@@ -440,7 +468,7 @@ Pluralsight.com | Начало работы с MariaDB / Getting Started with Ma
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881790.jpg" />
 </div>
 
 
@@ -466,7 +494,7 @@ FXPHD, Jeronimo Maggi | Advanced VEX & Python for Houdini TDs (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880377.jpg" />
 </div>
 
 
@@ -492,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880260.jpg" />
 </div>
 
 
@@ -519,7 +547,7 @@ Udemy / Cronis Academy | Бинарное дерево поиска (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879894.jpg" />
 </div>
 
 
@@ -545,7 +573,7 @@ Udemy / Cronis Academy | Двоичные числа. Все о дополнит
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879867.jpg" />
 </div>
 
 
@@ -571,7 +599,7 @@ Udemy / Cronis Academy | Оценка сложности алгоритмов. �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879765.jpg" />
 </div>
 
 
@@ -597,7 +625,7 @@ Javabegin | Angular для начинающих (2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879649.jpg" />
 </div>
 
 
@@ -623,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879611.jpg" />
 </div>
 
 
@@ -649,7 +677,7 @@ Chris Orwig | [Lynda.com]Photoshop Blend Modes for Photography [H.264/720p] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878679.jpg" />
 </div>
 
 
@@ -661,34 +689,6 @@ Chris Orwig | [Lynda.com]Photoshop Blend Modes for Photography [H.264/720p] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDD93264A20BCBABA8881820FEAA58698D7CAE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495563   (878611) от 13.09.2021
-
-j-design.pro, Сергей Привалов | 3D моделирование в ZBrush для ювелиров (2019) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владение навыками лепки в ZBrush просто необходимо ювелирам и 3D модельерам, чтобы создавать действительно сложные и интересные украшения.
-    Если вы уже создаете ювелирные модели в Rhinoceros, но не всё получается сделать с помощью NURBS поверхностей,
-    вам нужно добавлять на свои модели пластичные формы: фигурки людей, животных, растений, мелкую фактуру, бионические (   Читать дальше...   )Производство: j-design.proЖанр: Создание видеоЯзык озвучки: РусскийПродолжительность: 27:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4484DF85FB7333EE570980F6D87B5AA8FC056DC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

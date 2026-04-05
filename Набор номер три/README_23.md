@@ -1,3 +1,162 @@
+###  Публикация: 1622857   (1029755) от 30.03.2023
+
+Autodesk AutoCAD 2024 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029755.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD – это больше, чем проектирование. Придавайте форму окружающему вас миру с помощью мощных Интернет-ориентированных инструментов AutoCAD – САПР, которая разработана компанией Autodesk. Продукт позволяет создавать впечатляющие 3D-проекты, с высокой скоростью выпускать рабочую документацию и совместно работать в облаке. Доступ к проектам возможен не только с (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6D0665072BF503096F5701761CE0D80D8626EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448723   (1029656) от 22.02.2021
+
+Ученые выяснили, как погиб фараон, начавший войну против гиксосов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Археологи просветили с помощью компьютерного томографа мумию фараона Верхнего Египта Секененра Таа II, который, как считается, поднял восстание против гиксосов – союза азиатских племен неизвестного происхождения, которые захватили Египет в XVIII-XVI веках до нашей эры. Ученые предполагают, что его взяли в плен на поле боя и казнили там же. Статью с описанием исследования (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417596   (1029634) от 22.02.2021
+
+Amnesia: Rebirth (2020) [Ru/Multi] (1.23) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы не решаетесь даже дышать. Тварь в считанных сантиметрах от вас. И она жаждет насытиться охватившим вас ужасом. И вот вы, согнувшись, крадетесь во тьме, пытаясь подавить страх и заглушить голос, что таится внутри. «Я тебя знаю. И знаю, на что ты способна».Тип издания: RepackРазработчик: Frictional GamesЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2EB2175BC0CC264F64B454689BCF3794ADC1967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372048   (1029630) от 22.02.2021
+
+Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.5.7.259658) Repack xatab [Early Access]
+
+>>3
+>>18
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рога трубят, а вороны собираются в стаи. Империя расколота гражданской войной. За ее границами рождаются новые королевства. Возьмите меч, облачитесь в доспехи, соберите верных союзников и отправляйтесь искать славу на бескрайних полях Кальрадии. Установите свою власть, построив новый мир на обломках старого!Тип издания: RepackРазработчик: TaleWorlds EntertainmentЖанр: Экшены, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Турецкий, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Турецкий, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5117A807D58669986A5067DC7C54B8396ECD8445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622757   (1029550) от 31.03.2023
+
+Windows 11 22H2 (Build 22621.1413) Revi-OS [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на Windows 11 x64, без потери функционала, но без работы всех следящих модулей.
+
+ReviOS — специализированная версия Windows с улучшенной производительностью, стабильностью и совместимостью. Он стремится воссоздать то, чем должна была быть Windows как операционная система — легкой и простой.
+(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564F5B8F309BD325F4EA6990070FA9C5547024F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605113   (1029544) от 31.03.2023
+
+Одни из нас / The Last of Us (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-9 из 9) RHS, Jaskier, LineFilm, NewComers, Dubbing-Pro, HDrezka, LostFilm, GoLTFilm, TVShows, Сербин др.
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закалённый в борьбе за выживание Джоэл и Элли — отважная, не по годам смышлёная девушка-подросток — вынуждены объединиться и помогать друг другу в странствиях по руинам Соединённых Штатов.Производство: Канада, США / Naughty Dog, PlayStation Productions, Sony Pictures Television, The Mighty Mint, Word GamesЖанр: ужасы, фантастика, боевик, драмаРежиссер: Али Аббаси, Джереми Уэбб, Нил ДракманнАктеры: Педро Паскаль, Белла Рэмзи, Анна Торв, Ламар Джонсон, Мелани Лински, Нико Паркер, Мерл Дэндридж, Кейвонн Вудард, Джеффри Пирс, Джон ГецПеревод: дублированный (RHS), многоголосый (Jaskier, LineFilm, NewComers, Dubbing-Pro, HDrezka, LostFilm, GoLTFilm, TVShows, Цікава Ідея, DniproFilm/HDrezka, BaibaKo), авторский (Кашкин, Сербин)Язык озвучки: Русский, украинский, английскийСубтитры: Русские, латвийские, литовские, эстонские, английские (Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9D2C22DF2DC4A98255ED572BCD60D41C946D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622758   (1029542) от 31.03.2023
 
 Праведник (2022) WEBRip [H.264/1080p]
@@ -6,7 +165,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029542.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ Immortals: Fenyx Rising (2020) [Ru/En] (1.1.1) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029419.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ The Medium (2021) [Ru/Multi] (1.0.182) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029417.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029366.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029356.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ Microsoft® Windows® 11 Professional VL x64 22H2 RU by OVGorskiy 03.2023
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029351.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029256.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029253.jpg" />
 </div>
 
 
@@ -219,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029250.jpg" />
 </div>
 
 
@@ -245,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029246.jpg" />
 </div>
 
 
@@ -271,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029223.jpg" />
 </div>
 
 
@@ -299,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029214.jpg" />
 </div>
 
 
@@ -325,7 +484,7 @@ Telegram превращается в Clubhouse. В мессенджере поя
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029135.jpg" />
 </div>
 
 
@@ -352,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029125.jpg" />
 </div>
 
 
@@ -379,7 +538,7 @@ MInstAll v.22.02.2021 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029103.jpg" />
 </div>
 
 
@@ -405,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029102.jpg" />
 </div>
 
 
@@ -431,7 +590,7 @@ Microsoft® Windows® 7 Максимальная Ru x86-x64 w.BootMenu by OVGors
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029100.jpg" />
 </div>
 
 
@@ -457,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028948.jpg" />
 </div>
 
 
@@ -483,7 +642,7 @@ Windows 10 20H2 (19042.804) x64 Home + Pro + Enterprise (3in1) by Brux v.02.2021
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028932.jpg" />
 </div>
 
 
@@ -509,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028931.jpg" />
 </div>
 
 
@@ -523,165 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEBB702E00CEA1EC94F549D44ABBC46369F403EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450539   (1028787) от 27.02.2021
-
-Менеджер паролей LastPass содержит целых семь трекеров
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий исследователь безопасности Майк Кукетц (Mike Kuketz) рекомендовал пользователям Android-устройств отказаться от менеджера паролей LastPass, поскольку в нем содержится целых семь трекеров. Однако, по словам производителя, пользователи могут отключить их, если захотят.Кукетц обнаружил трекеры, готовя отчет для некоммерческой организации Exodus. Согласно отчету, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450420   (1028779) от 27.02.2021
-
-В России может появиться идентификация пользователей по номерам телефонов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россвязь хочет идентифицировать пользователей интернет-сервисов и виртуальной телефонии с помощью системы сопоставления телефонного номера и доменного имени. Исследовательскую работу о возможности внедрения такой схемы в России за 32,7 млн руб. проведет подконтрольный Россвязи ЦНИИС, обнаружил “Ъ” на портале госзакупок. Итоги тендера подведены 19 февраля. ЦНИИС должен (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450003   (1028753) от 27.02.2021
-
-Огонь  (2020) WEBRip [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героическая история о пожарных и спасателях. То, что обычно называют подвигом, для них — привычные будни, если только можно привыкнуть к смертельной опасности и предельному риску. Когда людям, попавшим в беду, кажется, что помощи ждать неоткуда, на выручку приходят спасатели, чтобы встать на пути беспощадной стихии.Производство: Россия, Студия ТритэЖанр: Драма, приключенияРежиссер: Алексей НужныйАктеры: Константин Хабенский, Иван Янковский, Стася Милославская, Антон Богданов, Виктор Добронравов, Роман Курцын, Тихон Жизневский, Ирина Горбачева, Евгения Дмитриева, Юрий КузнецовПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 02:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3519214FAF67A5D6CE127346D00632C28EDD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414284   (1028752) от 27.02.2021
-
-Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.99.0983) Repack xatab [Early Access]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соберите отряд и вернитесь в Забытые Королевства. Вас ждет история о дружбе и предательстве, выживании и самопожертвовании, о сладком зове абсолютной власти. Ваш мозг стал вместилищем для личинки иллитида, и она пробуждает в вас таинственные, пугающие способности. Сопротивляйтесь паразиту и обратите тьму против себя самой – или же безоглядно отдайтесь злу и станьте (   Читать дальше...   )Тип издания: RepackРазработчик: Larian StudiosЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFE468B9E34CA9B746ADE9C416EEE8B55AA8C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450639   (1028584) от 28.02.2021
-
-ФНС будет хранить ваши чеки. Чем это чревато?
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028584.jpg" />
-</div>
-
-
-###  Подробнее
-
-ФНС объявила о создании нового сервиса. Теперь чеки будут храниться в вашем электронном кабинете. Налоговики говорят, что это сделает жизнь россиян удобнее. Но эксперты задаются вопросом: не собирается ли государство выводить серые зарплаты из тени?Что произошло?ФНС планирует собирать чеки о ваших транзакциях. Сервис заработает в начале марта, тестовая версия уже (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717280   (1028583) от 28.02.2021
-
-Компьютерная графика - Экспериментальные фантазии [JPG]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028583.jpg" />
-</div>
-
-
-###  Подробнее
-
--Э,слыш,художник что ле?
--А чо,меня нарисуешь?
--о хюдожник,а ито у тибиа акварэль да?
--рисуешь...Я тоже в детстве стихи писал...матерные...(   Читать дальше...   )Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B87F1FEAF495A0A5907EC78050686F15326E2B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 914320   (600283) от 01.07.2015
+
+Надежда Чубарова | Софья и Царство Тьмы (2015) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромная школьница Соня неожиданно открывает в себе магические способности. Укус демона сделал ее темной ведьмой. Одноклассницам, обижавшим ее, придется нелегко. Впрочем, как и родителям, – объясняющим перемены в характере дочки переходным возрастом.
+
+С помощью волшебного зеркала Соня попадает в Царство Тьмы и находит там верного друга – Страшилу. Но Темное Царство (   Читать дальше...   )Жанр: Детская фантастика, ПопаданцыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7ED68584D190651F18E2D04925D7A98F157161B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914106   (600169) от 01.07.2015
+
+П. К. Федоренко | Сколько стоит золотой, или История денег (2005) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта энциклопедия поможет вашему ребенку выяснить откуда и когда возникли средства. В книжке обычным доходчивым языком объясняются все обозначаемые действия, которые происходили на шаге развития идущих в ногу со временем средств разных государств.Жанр: Энциклопедия для детей и родителейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D057ED787E26D8D2BCDEAF6D993B252CD4B151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232342   (600162) от 24.06.2018
 
 Владимир Одноралов | За грибным царем (1989) [FB2]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600162.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600067.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600023.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599917.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599909.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599904.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599900.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599899.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599802.jpg" />
 </div>
 
 
@@ -241,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599693.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599686.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599684.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599681.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599587.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599586.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599537.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599530.jpg" />
 </div>
 
 
@@ -452,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599527.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599432.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599420.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_599061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_599061.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599048.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598943.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598839.jpg" />
 </div>
 
 
@@ -623,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38CA2DAF511B2B3093A0150B74780D1353479EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 687359   (598764) от 08.08.2013
-
-Academia | Армянские сказки [1933] [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые читателю сказки взяты из сборника Срвандзтяна и Навасардяна (где они записаны с некоторой печатью индивидуальной обработки сборщиков); из сборников "Маргаритнер", Эминского сборника, журнала "Базмавеп", рукописных сборников, хранящихся в Государственном музее Армении (где сказки записаны с голоса рассказывающего, почти дословно и (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FE261C82194EC8D6AFF87C8D7DC09A8D8E6015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 687311   (598505) от 08.08.2013
-
-Ованес Туманян | Армянские Сказки [1953] [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий армянский поэт Ованес Туманян (1869–1923) является автором 22 обработок армянских народных сказок. Среди них сказки волшебные, новеллистические, бытовые, анекдоты. Туманян, используя многочисленные варианты, как армянских сказок, так и сказок других народов, создает как бы сводный текст, в котором присутствуют мотивы, эпизоды из разных вариантов. Известно, (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E5BA42044FF31EB33C6910023E1DCF74FABCCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

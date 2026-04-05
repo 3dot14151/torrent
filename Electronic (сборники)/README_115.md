@@ -1,3 +1,64 @@
+###  Публикация: 921049   (577455) от 24.07.2015
+
+VA - Top Hits Progressive (2015) [MP3|320 кб/с]<Bigroom, Progressive, Trance, Electro, Festival Sound>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Paffendorf - P-Train (General Tosh Remixxx) [05:33]
+02. JAGGS - Ramper (Original Mix) [04:12]
+03. Frostfire & Coke Montilla - Zombies (Original Mix) [04:57]
+04. Da Candy with Artem Teya - We Are Young (Da Candy & Hr. Troels Extended Mix) [05:24](   Читать дальше...   )Жанр: Bigroom, Progressive, Trance, Electro, Festival SoundПродолжительность: 10:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB1C9441C243CBE416BD4E56429F1FB1E5904F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361219   (577203) от 10.07.2011
+
+VA - Жаркое лето новинок (2011) [MP3|256 kbps]<Pop, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577203.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Исполнитель: VA
+Альбом: Жаркое лето новинок
+Год выхода: 2011
+Жанр: Pop, ClubПродолжительность: 06:46:04Кодек: MP3
+Битрейт: 192-320 Кбит/c
+Тип битрейта: VBR  24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0834FB05BEF6AF9074364E169835AD2A77978371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361558   (576967) от 10.07.2011
 
 VA - Club TOP Music for Auto compiled bu DJ Najim-4 (2011) [MP3|192-320 kbps]<Electro-House, House, Trance, Dance, Club, Drum n Bass>
@@ -6,7 +67,7 @@ VA - Club TOP Music for Auto compiled bu DJ Najim-4 (2011) [MP3|192-320 kbps]<El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576967.jpg" />
 </div>
 
 
@@ -41,7 +102,7 @@ VA - Beatport Trance Pack (12.08.) (2016) [MP3|320 Kbps] <Trance, Progressive, M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576824.jpg" />
 </div>
 
 
@@ -70,7 +131,7 @@ VA - German Top 50 Official Dance Charts (22.08.) (2016) [MP3|320 Kbps] <House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576725.jpg" />
 </div>
 
 
@@ -99,7 +160,7 @@ VA - Get Ready Beats Vol.1: Finest Deep House Tunes (2016) [MP3|320 Kbps] <Deep 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576713.jpg" />
 </div>
 
 
@@ -128,7 +189,7 @@ VA - Trance Traveling 79 (mixed by VNP) (2016) [MP3|320 Kbps] <Trance, Uplifting
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576617.jpg" />
 </div>
 
 
@@ -157,7 +218,7 @@ VA - Ultimate Hits Summer Revers (2016) [MP3|320 Kbps] <Club, Drum & Bass, House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576606.jpg" />
 </div>
 
 
@@ -186,7 +247,7 @@ VA - Awaken Ibiza - Lights In Remixes (2016) [MP3|235~320 Kbps] <House, Electro 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576545.jpg" />
 </div>
 
 
@@ -215,7 +276,7 @@ VA - Record Super Chart 587 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576328.jpg" />
 </div>
 
 
@@ -244,7 +305,7 @@ VA - Empire Records - Progressive Trance (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576222.jpg" />
 </div>
 
 
@@ -273,7 +334,7 @@ VA - Beatport Top 100 Trance June (2017) [MP3|320 Kbps] <Trance, Progressive Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576023.jpg" />
 </div>
 
 
@@ -302,7 +363,7 @@ VA - Club Dance Ambience Vol.154 (2018) [MP3|320 Kbps] <Dance, Club House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575627.jpg" />
 </div>
 
 
@@ -331,7 +392,7 @@ VA - 60 Minutes. Old School Dance Music vol.8 (mixed by Dj V) (2022) [MP3|320 Kb
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575565.jpg" />
 </div>
 
 
@@ -360,7 +421,7 @@ VA - Extra Trance (episode 5) (2015) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575478.jpg" />
 </div>
 
 
@@ -389,7 +450,7 @@ VA - In Da Club Vol.64 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575127.jpg" />
 </div>
 
 
@@ -424,7 +485,7 @@ VA - LUXEmusic - Dance Super Chart Vol.80 (2016) [MP3|320 Kbps] <House, Electro 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574799.jpg" />
 </div>
 
 
@@ -453,7 +514,7 @@ VA - The Best of Melodic Trance (Compiled by Zebyte ) (2016) [MP3|320 Kbps] <Mel
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574787.jpg" />
 </div>
 
 
@@ -482,7 +543,7 @@ VA - Vocal Trance Collection Vol.3 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574179.jpg" />
 </div>
 
 
@@ -511,7 +572,7 @@ VA - Chillout - 100 Original Hits (2015) [MP3|320 кб/с]<Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574145.jpg" />
 </div>
 
 
@@ -540,7 +601,7 @@ VA - Club Dance Ambience Vol.82 (2016) [MP3|320 Kbps] <House, Progressive, Dance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573869.jpg" />
 </div>
 
 
@@ -569,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573706.jpg" />
 </div>
 
 
@@ -598,7 +659,7 @@ VA - La Terraza The Magic Of Lounge & Chill House Vol. 1 (2016) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573158.jpg" />
 </div>
 
 
@@ -627,7 +688,7 @@ VA - Show Me Love Vol. 1 (The Ultimate Love Compilation) (2016) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572995.jpg" />
 </div>
 
 
@@ -656,7 +717,7 @@ VA - Ibiza House Hits Island Stars (2016) [MP3|320 Kbps] <House, Progressive, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572991.jpg" />
 </div>
 
 
@@ -685,7 +746,7 @@ VA - Festival Ultra Hits & Anthems (2016) [MP3|320 Kbps] <House, Trance, Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572988.jpg" />
 </div>
 
 
@@ -699,64 +760,6 @@ VA - Festival Ultra Hits & Anthems (2016) [MP3|320 Kbps] <House, Trance, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:188CDC3DD31F625582868A7927737DD8BE398500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043460   (572986) от 16.08.2016
-
-VA - Beatport Trance Pack (15.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Tyas  -  Turbo (Original Mix)  7:19
-02. Feel And Two K  -  The End Is Near (Original Mix)  4:52
-03. Sebastian Montano  -  Mare Nostrum (Rework)  8:49
-04. Jean Clemence And Programmer  -  Till the End  7:10(   Читать дальше...   )Жанр: Trance, Melodic, EnergyПродолжительность: 03:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457BBA8CF44BAADFB6CDC99D28058C8F8715B95B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043477   (572985) от 16.08.2016
-
-VA - Vertex Nostalgia Daydreamer (2016) [MP3|320 Kbps] <Trance, Energy, Progressive, Melodic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Rayel & KhoMha  -  All Systems Down  3:32
-02. Cold Rush & Elles De Graaf  -  Daydreamer (Alan Morris Remix)  7:20
-03. John 00 Fleming  -  Altered Senses (Original Mix)  7:06
-04. Dreamy & York  -  Once Upon A Time  8:14(   Читать дальше...   )Жанр: Trance, Energy, Progressive, MelodicПродолжительность: 02:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9598481BC86544047C615163EEA9C06B5BEEFC96
 ```
 
 https://mybot314.ru/tekegram_catalog/

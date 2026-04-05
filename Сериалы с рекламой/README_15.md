@@ -1,3 +1,55 @@
+###  Публикация: 1064725   (680393) от 19.05.2017
+
+База Куантико / Куантико / Quantico (2016) WEB-DL [H.264/720p-LQ] (сезон 2, серии 1-22 из 22) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть совершенно разных новобранцев поступают на стажировку в ФБР на базу Куантико в штате Вирджиния. Базой руководит Миранда Шоу, первая женщина на высшей должности в ФБР. Миранда объединяется со своим бывшим партнером, Лиамом О`Коннором, который ныне работает советником, чтобы отобрать лучших новобранцев в агенты. Тем не менее в будущем один из новобранцев будет (   Читать дальше...   )Производство: США /  Mark Gordon Company, The, Random Acts Entertainment, ABC StudiosЖанр: драмаРежиссер: Марк МанденАктеры: Онжаню Эллис, Приянка Чопра, Джэйк МакЛафлин, Тейт Эллингтон, Грэхэм Роджерс, Джоанна Э. Брэдди, Ясмин Эл Массри, Дюгрей Скотт, Анна Хайа, Хуанита Дж.П. Тейлор и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoПродолжительность: ~00:43:00 серияРеклама: присутствуют голосовые и текстовые вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F015611CFB7C2E1E57113611DF2524A8DC68EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061168   (680391) от 19.05.2017
+
+Скорпион / Scorpion (2016) WEB-DL [H.264/720p-LQ] (сезон 3, серии 1-25 из 25) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет основан на реальных событиях. Это история об эксцентричном гении и его группе вундеркиндов. Они являются аналитическим центром, работающим на службу национальной безопасности, и их задача — разбираться со сложными угрозами современности ...Производство: СШАЖанр: боевик, драмаРежиссер: Гэри Фледер, Дуайт Х. Литтл, Бобби РотАктеры: Элиес Габел, Кэтрин МакФи, Эри Стидэм, Эдди Кэй Томас, Джейдин Вонг, Эмили Робинсон, Роберт Патрик, Рис Риос и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoПродолжительность: ~ 00:43:00 серияРеклама: присутствуют голосовые и текстовые вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDF5B261745AB57E37A4E372E1BD5DEEB371A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201812   (678700) от 02.05.2018
 
 Из Лос-Анджелеса в Вегас / LA to Vegas (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-15 из 15) OMSKBIRD [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678700.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678308.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678294.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676728.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676184.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676174.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675854.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674215.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674210.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672551.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672298.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670598.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668689.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668401.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667363.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666207.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665024.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664099.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664034.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663566.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663006.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661912.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661833.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660593.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D906732D37ACA85C3AA1137F8658C25D7F4A0251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171079   (660591) от 15.05.2018
-
-Последний человек на Земле / The Last Man on Earth (2017) WEBRip [H.264/1080p-LQ] (сезон 4, серии 1-18 из 18) BaibaKo [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой этого сериала - Фил Миллер. Не сказать, что он славный парень. Простой дядька, который ничем особенным не отличается. Он работает на не самой любимой работе, старается поддерживать дружелюбную атмосферу в семье и делает все возможное, чтобы не сорваться с катушек из-за бешеной жизни. Он даже подумать не мог, что на его плечи ляжет надежда на спасение (   Читать дальше...   )Производство: СШАЖанр: комедияРежиссер: Фил Лорд, Кристофер Миллер, Питер АтенсиоАктеры: Уилл Форте, Кристен Шаал, Дженьюэри Джонс, Мэл Родригез, Клеопатра Коулмэн, Мэри и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoПродолжительность: ~00:22:00 серияРеклама: присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228FB443704B56CFF75DB1F740C6D180B90B4299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055900   (659721) от 02.06.2017
-
-Люцифер / Lucifer (2016) WEB-DLRip [H.264/720p-LQ] (сезон 2, серии 1-18 из 18) NewStudio [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заскучавший и несчастный повелитель преисподней, Люцифер Морнингстар оставил свой престол и отправился в современный Лос-Анджелес, где основал ночной клуб «Lux». Очаровательный, харизматичный и дьявольски привлекательный Люцифер наслаждается своим отдыхом — вином, женщинами и музыкой — пока красивая поп-звезда не оказывается убитой на пороге его клуба…Производство: США / DC Entertainment, Vertigo Entertainment, Warner Bros. TelevisionЖанр: фэнтези, драма, криминалРежиссер: Нэйтан Хоуп, Эгил Эгилссон, Луис Шоу МилитоАктеры: Том Эллис, Лорен Джерман, Лесли-Энн Брандт, Кевин Алехандро, Рэйчел Харрис, Д.Б. Вудсайд, Скарлет Эстевез, Локлин Манро, Ивэн Арнольд, Эмили Мэддисон и др.Перевод: Многоголосый профессиональный - NewStudioЯзык озвучки: РусскийПродолжительность: ~00:43:00 серияРеклама: присутствуют голосовые вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37471A24344B90AE6409F5EB351EB7B71F74345A
 ```
 
 https://mybot314.ru/tekegram_catalog/

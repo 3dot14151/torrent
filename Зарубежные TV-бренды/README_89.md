@@ -6,7 +6,7 @@ BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377379.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377373.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Годы опасной жизни / Years of Living Dangerously (2016) DVB 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377283.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377167.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376897.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: В поисках сокровищ: змеиный остров / Tre
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376706.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Загадки планеты Земля / What on Earth? HDTVRip (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375366.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG: Самые странные в мире / World's Weirdest (2011-2016) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375003.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374942.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Discovery: Звездное выживание с Беаром Гриллсом 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374726.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374609.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374601.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373880.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC: Цивилизация / Civilisation (1969) BDRip [H.264/720p-LQ] (Сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372647.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BBC. В краю муссонов: Народы муссонов / Wonders of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372586.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Discovery: Разрушители легенд. Скрытая угроза / My
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372212.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG. Дикая Скандинавия / Wild Nordic (2019) HDTV [H.264/1080i] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371865.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ BBC: Как преуспеть ... / How to Get Ahead (2014) HDTVRip [H.264/720p
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371468.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG. 2000-е: Величайшие трагедии / The 2000s Greatest Tragedie
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370514.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370131.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ BBC: Океанская одиссея / BBC: Deep Ocean (2006) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_368330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_368330.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367688.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ NG: Секретные материалы древности. Святой гр�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367604.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Discovery: Хакер в дикой природе / Hacking the Wild (2017) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367069.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ BBC: Голубая планета (Голубая бездна) / The Blue Plan
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366431.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ BBC: Авиакатастрофа в Мюнхене / The Munich Air Disaster (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366049.jpg" />
 </div>
 
 

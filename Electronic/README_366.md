@@ -1,3 +1,119 @@
+###  Публикация: 1334370   (296371) от 28.10.2019
+
+mindXpander - A Tribute To Laserdance (2000) [FLAC|Lossless|image + .cue] <Spacesynth, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Run (6:00)
+02. Enemy On Earth (5:39)
+03. The Challenge (5:56)
+04. New Adventures (5:54)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E39333374DB22D23ABE1C4B275054F136EFAE28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334367   (296369) от 28.10.2019
+
+Humphrey Robertson - Synthesizer Dance Christmas Edition (2005) [FLAC|Lossless|tracks + .cue] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come All Ye Faithful (4:21)
+02. White Christmas (6:17)
+03. Jingle Bells (4:28)
+04. The Christmas Song (3:52)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309A353F0EF985F8821211DCCF165B7B8C55B72D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079256   (296248) от 03.12.2016
+
+Markus Schulz - Global DJ Broadcast - World Tour - Moscow & Saint Petersburg, Russia (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz (Recorded Live from Stereo Hall in Moscow - November 18th 2016)
+01. Markus Schulz - The Lost Oracle
+02. ID
+03. David Forbes - Lap of the Gods(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3751FA58C136C53AD6408861979505E891A0F1D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079005   (296134) от 03.12.2016
+
+VA - Goa 2016 Vol.5 (Compiled by DJ BIM) (2016) [MP3|320 Kbps] <Goa Trance, Psychedelic, Full On>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azax & Pettra - Aboriginman (feat Mayumana) 6:35
+02. Yoake - Pickers 7:30
+03. Animato & Ticon - Last Resort 8:13
+04. Rocky Tilbor - Carnival Wave (Ritmo Remix) 7:53(   Читать дальше...   )Жанр: Goa Trance, Psychedelic, Full OnПродолжительность: 02:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EB5D8A14CB068D118DF5DED8551AAE67C66310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424106   (296023) от 15.11.2020
 
 Tekniq - Compuglobalhypermeganet (2002) Fliesskoma [FLAC|Lossless|tracks] <IDM, Downtempo, Ambient>
@@ -6,7 +122,7 @@ Tekniq - Compuglobalhypermeganet (2002) Fliesskoma [FLAC|Lossless|tracks] <IDM, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296023.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - 538 Dance Smash: Hits Of The Year (2016) Box Set, 2CD [FLAC|Lossless|image 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295850.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Autumn Leaves Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295814.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Achromania - A Journey Through White Label Trance Vol. 8 (2017) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295223.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Progressions (2017) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295220.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Clinique Mixed XIV (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295218.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Trancemission Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295216.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Wild & Free - Shapes On Shapes (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295213.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Recoverworld Radio 016 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295205.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Fancy - Voices From Heaven (2004) [FLAC|tracks+.cue]<Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295204.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Chilling Process Vol.05 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295203.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Ori Uplift & Dj T.h. - Uplifting Only 249 (2017) [MP3|320 Kbps] <Trance, Up
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295194.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Amsterdam Trance Sessions Vol.13 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295192.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Late Night Alumni - The Ghost (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Do
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295179.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Viewpoints Chapter One (2008) AW-Recordings [FLAC|Lossless|tracks+.cue] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295024.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Fractional - Discography 10 Releases (2004-2016) [FLAC|Lossless|tracks+.cue, tra
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294897.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Club Sounds Best Of 2019 (2019) 3CD [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294877.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Modern Talking - Universe - The 12th Album (2003) [FLAC|tracks+.cue]<Europop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294840.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Музыка Космической Эры (2006) [FLAC|Lossless|image + .c
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294816.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Michael E & Tim Gelo - Bring It Back (2019) [FLAC|Lossless|WEB-DL|tracks] <Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294777.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Future Sound of Egypt 600 - Sands of Time (Mixed by Aly & Fila & Ciaran McA
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294770.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Alan Walker - The Spectre (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Electro, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294766.jpg" />
 </div>
 
 
@@ -626,120 +742,6 @@ Alan Walker - The Spectre (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Electro, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2B7B29551CFDBA3A81813C49257BAE25445AE6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334527   (294680) от 29.10.2019
-
-Alan Walker - Faded (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Electro, Chillwave, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faded (3:33)
- 02. Faded - Instrumental (3:34)Жанр: Electro, Chillwave, Nu-DiscoПродолжительность: 00:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A5D1CAB97BFD23273ADA87BE6D6BD39C139B69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334524   (294663) от 29.10.2019
-
-Alan Walker - Different World (2018) [FLAC|Lossless|tracks + .cue] <Electro, Chillwave, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:16)
- 02. Lost Control (feat. Sorana) (3:42)
- 03. I Don't Wanna Go (feat. Julie Bergan) (2:42)
- 04. Lily (feat. K-391 & Emelie Hollow) (3:16)(   Читать дальше...   )Жанр: Electro, Chillwave, Nu-DiscoПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C23836C84515872A42182FFE15B02908A4F4FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079635   (294537) от 04.12.2016
-
-VA - Glimmer Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero Feedback - Deep in the Rain Forest 6:35
-02. Don Gorda Project - Do That Again 5:53
-03. Enrico Donner - Quote of the Day 5:45
-04. DJ Riquo - Tribalism 5:32(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0048900D85CCDC301872B60D1B483A6CB3F52FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079562   (293898) от 04.12.2016
-
-Boris Brejcha - DJ Mixes Single Tracks (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amisette (9:18)
-02. Fidibus (8:21)
-03. Bebot (8:09)
-04. Black Beauty (7:50)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 03:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8827BB7B81D29F5788CE5FA57D3F8C4539789C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

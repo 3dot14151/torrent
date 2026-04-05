@@ -1,3 +1,36 @@
+###  Публикация: 504372   (687290) от 06.06.2012
+
+Е. Мороз | Рисуем за 7 Дней с Нуля [2012] Flash Video
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоуроки. Я знаю, что Вы давно мечтаете научиться рисовать!
+Но в то же время я точно знаю, что самые лучшие рисунки получаются у тех, кто... РИСУЕТ!
+Поэтому все наши Тренинги и Мастер-Классы ПРАК-ТИ-ЧЕС-КИЕ!
+И мы с Вами уже начинаем создавать наши произведения. ПРЯМО СЕЙЧАС!
+Так что вооружайтесь вдохновением и вперед!
+Наслаждайтесь Творчеством!!!
+Главное: не просто скачивайте, а рисуйте!
+И очень скоро Вашими шедеврами восхитятся Ваши родные, близкие, друзья и коллеги!Жанр: СамоучительПродолжительность: 05:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD819BAA32B09EAFCEC1E1B5D4700AECD9FFEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403630   (686039) от 22.08.2020
 
 Jakub Krompolc | Exploring Human Muscles Setup in Maya (2016) PCRec
@@ -6,7 +39,7 @@ Jakub Krompolc | Exploring Human Muscles Setup in Maya (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686039.jpg" />
 </div>
 
 
@@ -32,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686028.jpg" />
 </div>
 
 
@@ -60,7 +93,7 @@ Design+Code | Flutter для дизайнеров / Flutter for Designers (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685898.jpg" />
 </div>
 
 
@@ -88,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685711.jpg" />
 </div>
 
 
@@ -114,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684677.jpg" />
 </div>
 
 
@@ -140,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684560.jpg" />
 </div>
 
 
@@ -167,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684454.jpg" />
 </div>
 
 
@@ -193,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684452.jpg" />
 </div>
 
 
@@ -219,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684448.jpg" />
 </div>
 
 
@@ -246,7 +279,7 @@ Udemy, Nexttut, Arash Arefnia | Creating Next-Gen Environments in UE5 (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680176.jpg" />
 </div>
 
 
@@ -273,7 +306,7 @@ Udemy, Aray Kaken | Основы DevOps (2021) HDRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680090.jpg" />
 </div>
 
 
@@ -301,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679772.jpg" />
 </div>
 
 
@@ -329,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679758.jpg" />
 </div>
 
 
@@ -355,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679041.jpg" />
 </div>
 
 
@@ -383,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678910.jpg" />
 </div>
 
 
@@ -409,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677864.jpg" />
 </div>
 
 
@@ -435,7 +468,7 @@ SideFx, Ari Danesh | Intro to PDG (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676567.jpg" />
 </div>
 
 
@@ -461,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676475.jpg" />
 </div>
 
 
@@ -487,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676348.jpg" />
 </div>
 
 
@@ -513,7 +546,7 @@ MZED, Марк Эдвард Льюис | Sound Advice Tour (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674768.jpg" />
 </div>
 
 
@@ -539,7 +572,7 @@ Entagma, Moritz Schwind | PDG for Design in Houdini (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674766.jpg" />
 </div>
 
 
@@ -565,7 +598,7 @@ Digital Tutors, Tim Callaway | Joint-Based Facial Rigging in Maya (2013) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674624.jpg" />
 </div>
 
 
@@ -591,7 +624,7 @@ FXPHD, Andrew Lowell | Houdini Procedural Spline Modeling (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674473.jpg" />
 </div>
 
 
@@ -618,7 +651,7 @@ Pluralsight, Alex Jerjomin | Game Environment Modeling Fundamentals (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674323.jpg" />
 </div>
 
 
@@ -644,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674322.jpg" />
 </div>
 
 
@@ -658,33 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:397081AF0146A4444ED87511D389BB8F26B5F274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535577   (674316) от 12.03.2022
-
-Levelup.Digital, Phil Liu | Creating a Fantasy Trim Texture (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умение смоделировать сложные декоративные формы необходимо художникам по окружениям, особенно тем кто хочет работать над фентезийными или научно-фантастическими проектами. Данный урок проведет вас через интересные техники по созданию сверхдетализированных форм с использованием Maya, Substance Designer и Substance Painter для получения невероятных результатов.
-Следуйте (   Читать дальше...   )Производство: Levelup.DigitalЖанр: ТекстурированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 12:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E469064B5693E87C0FAE77FECE74B5ECC384F7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

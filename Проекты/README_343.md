@@ -1,3 +1,267 @@
+###  Публикация: 1785935   (24299) от 18.03.2025
+
+Проекты - VideoHive - Photo Slideshow - 56606651 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый, чистый слайдшоу для ваших творческих нужд.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FD1461CB39B289F67A7017555B8BF3B353029F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786335   (24109) от 20.03.2025
+
+Проекты - VideoHive - Film Transitions for DaVinci Resolve - 56629495 [DRP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Film Transition Pack добавляет классическое, кинематографическое ощущение к вашим видео, помогая вам добиться плавной, профессиональной смены сцен. Независимо от того, работаете ли вы над короткометражным фильмом, рекламой или контентом для социальных сетей, эти переходы привносят отточенное и художественное движение между клипами.Формат: DRP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91D4E302A53AC761FC85CF4BAC9C1F64C8C027F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786692   (23978) от 21.03.2025
+
+Проекты - VideoHive - 50+ Social Media Lower Thirds Template for After Effects - 54990354 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте свои видео яркими на всех платформах с помощью нашего шаблона нижних титров для социальных сетей из 50+  для After Effects! Эта мощная коллекция нижних титров идеально подходит для повышения вашего присутствия в Интернете. С более чем 50 профессионально разработанными и полностью настраиваемыми нижними титрами у вас будет все необходимое для создания привлекательных, (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151985823ABC513A6F69EA6A1B2A97FCD4EC29B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786567   (23963) от 21.03.2025
+
+Проекты - VideoHive - 3D Logo - Logo Intro - 56709178 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый проект для создания логотипа с 3D эффектом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209DB59CC91F006B06626DC8218C79076359BE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786812   (23886) от 22.03.2025
+
+Проекты - VideoHive - Dramatic Lens Filter Effects | After Effects - 56728729 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот пакет After Effects содержит 24 эффекта. Вы можете использовать их для создания уникального вида для вашего видео или изображения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6191B212788EFD60687D7F3E2DDAD2929657B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786905   (23830) от 22.03.2025
+
+Проекты - VideoHive - Logo Reveal - 56709430 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый проект для создания логотипа с глитч эффектом.
+
+Музыка предоставлена в демо режиме.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812AEBACAC3C190EF48DCA38CFCAA5E0DB935921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787054   (23759) от 23.03.2025
+
+Проекты - VideoHive - Logo Opener - 56704718 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый проект для создания логотипа с глитч эффектом.
+
+Музыка предоставлена в демо режиме.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC27488892449296623BB8A510B54730D1ADF0DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787286   (23676) от 24.03.2025
+
+Проекты - VideoHive - Overlay - 300 Motion Elements - 56666709 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23676.jpg" />
+</div>
+
+
+###  Подробнее
+
+335 готовых сцен, полностью анимированных и готовых к действию. Проект полностью модульный, что позволяет быстро адаптироваться под ваши требования. Этот шаблон поможет вам сэкономить время и деньги, а также сделать ваше уникальное видео на профессиональном уровне.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6116092F80028B123B86725A1C30EA6BE09D435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787187   (23638) от 24.03.2025
+
+Проекты - VideoHive - WhatsApp Message Tool - 56388945 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте потрясающие, настраиваемые текстовые сообщения WhatsApp с легкостью.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40B79BA30E7C56868AC12358624B18646829F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787254   (23616) от 24.03.2025
+
+Проекты - VideoHive - Nostalgic Light Leaks Professional Filters - 56656406 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23616.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 наложений и 12 переходов для ваших творческих задач.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D7858177A0063879F2C538D94D67847B3D3BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787363   (23570) от 25.03.2025
 
 Проекты - VideoHive - Wedding titles - 56672969 [AEP]
@@ -6,7 +270,7 @@
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23570.jpg" />
 </div>
 
 
@@ -32,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23546.jpg" />
 </div>
 
 
@@ -60,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23541.jpg" />
 </div>
 
 
@@ -88,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23464.jpg" />
 </div>
 
 
@@ -114,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23447.jpg" />
 </div>
 
 
@@ -142,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23430.jpg" />
 </div>
 
 
@@ -170,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23427.jpg" />
 </div>
 
 
@@ -196,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23411.jpg" />
 </div>
 
 
@@ -224,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23306.jpg" />
 </div>
 
 
@@ -250,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23193.jpg" />
 </div>
 
 
@@ -276,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23099.jpg" />
 </div>
 
 
@@ -304,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23091.jpg" />
 </div>
 
 
@@ -332,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23034.jpg" />
 </div>
 
 
@@ -360,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22893.jpg" />
 </div>
 
 
@@ -388,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22880.jpg" />
 </div>
 
 
@@ -414,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22856.jpg" />
 </div>
 
 
@@ -427,277 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AEC11A5F0EF151D204BFD2C8111FB9FFAE2FA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788695   (22833) от 01.04.2025
-
-Проекты - AeJuice - Noir Film Titles [AEP, MOGRT, DRFX, MP4]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Noir Film Titles — это пакет титров в стиле Нуар для After Effects и Premiere Pro, DaVinci Resolve и других видеоредакторов которые перенесут вас в золотую эру кино.
-В этой коллекции с аутентичным дизайном представлены тщательно продуманные титры с именами актеров, классические надписи об окончании фильма и другие жирные заголовки в фирменном стиле 40-х и 50-х годов, (   Читать дальше...   )Формат: AEP, MOGRT, DRFX, MP4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CFF88A0BA73BD16B8FEB3AB24C54033D7EA8BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788821   (22814) от 01.04.2025
-
-Проекты - VideoHive - Ransom Letters - 49277679 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы ищете уникальность и свежий взгляд на свой проект, то Ransom Letters - идеальный выбор, предлагающий более 2500 элементов, из которых вы можете свободно выбирать то, что вам нужно.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D7E3F380A72A5EA10BBBBD6D72D178B0BC52B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788982   (22812) от 01.04.2025
-
-Проекты - VideoHive - Photo Logo Intro - 56833503 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый проект с логотипом для фотографов.
-
-Музыка предоставлена в демо режиме.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84B045B73DBACB3EF043EF0A0E4909E9B0AB6322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788832   (22809) от 01.04.2025
-
-Проекты - VideoHive - Ethereal Motion Slideshow - 56732181 [MOGRT]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элегантный, красивейший и стильный слайдшоу для ваших творческих задач.
-
-Музыка предоставлена в демо режиме.Формат: MOGRT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC5724F5BFC7FE3FD920BED16599FF6DCC6175E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788891   (22773) от 01.04.2025
-
-Проекты - VideoHive - Romantic Slideshow - 56725995 [MOGRT]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивое, романтическое слайд-шоу для ваших творческих задач.
-
-Музыка предоставлена в демо режиме.Формат: MOGRT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90A88E131BA3D94D817E68BD321245054669404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789070   (22729) от 02.04.2025
-
-Проекты - VideoHive - Slow Shutter Transitions for After Effects - 56797659 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22729.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот пакет входят созданные вручную переходы с медленным затвором и звуковыми эффектами. Экономьте время при редактировании и добавьте уникальный профессиональный штрих к вашему видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608510A69452BAB89760477A329CECBCEE2F894F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789040   (22706) от 02.04.2025
-
-Проекты - VideoHive - Graduation Slideshow Construction Kit - 56855531 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отпразднуйте свой успех, собрав самые красивые изображения с церемонии вручения дипломов!
-
-Музыка предоставлена в демо режиме.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED57D8C4B5971EA062B2CCAF6627FAE688B63F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789327   (22616) от 03.04.2025
-
-Проекты - VideoHive - Photomotion Portrait - 3D Photo Animator - 57289888 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22616.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора: "Устройтесь поудобнее, расслабьтесь и смотрите. Создатель этого проекта при помощи своих видео-уроков проведет вас через все: от самых первых шагов с Photomotion Portrait до более продвинутых техник, гарантируя, что вы получите максимум от своего нового набора инструментов. Мы создали эти курсы для любого уровня мастерства, поэтому независимо от того, (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F741CAA71B125E010A7AB49256B8DB36F45CD3F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789344   (22615) от 03.04.2025
-
-Проекты - VideoHive - History Slideshow - 54325676 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22615.jpg" />
-</div>
-
-
-###  Подробнее
-
-History Slideshow полезно для создания уникального слайд-шоу, заставки, вступления, презентации истории, замечательных воспоминаний и документального фильма. Все в уникальном стиле просмотра фотографий.
-
-Музыка предоставлена в демо режиме.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0FDFC5C6885549DC01367D47C1761AF0CED2487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789457   (22487) от 04.04.2025
-
-Проекты - VideoHive - Dreamlike Haze Effect - 56840482 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте сюрреалистическую, сказочную атмосферу с помощью эффекта Dreamlike Haze . Этот шаблон After Effects добавляет эстетику мягкого фокуса, размытости движения и фрагментации , имитируя ощущение смутных воспоминаний, измененного восприятия или сновидений. Идеально подходит для музыкальных клипов, художественных фильмов, экспериментальных визуальных эффектов и (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4270E191154B839BFD96F77234A825DA3C5096
 ```
 
 https://mybot314.ru/tekegram_catalog/

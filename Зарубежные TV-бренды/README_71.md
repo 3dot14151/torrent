@@ -6,7 +6,7 @@
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550907.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Зараженный. Жизнь с паразитами / Unfested! Living
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550288.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Animal Planet: Голубые Багамы / Bahama Blue (2014) HDTVRip [H.264/7
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550285.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549890.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549882.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549828.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Discovery. Короли столярного дела  / Redwood KINGS (2013) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549345.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548362.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548025.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NG: Последние тайны Третьего рейха  / Nazi Underworld
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548024.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547631.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547628.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547624.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Animal Planet: В дикие края с Эваном. Поездка в Пер�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547623.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NGW: Секретное королевство Борнео: странные и
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546984.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Discovery. Титаник. Ответы из Бездны / Titanic. Answers fro
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546464.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BBC. Большое австралийское приключение / Coast Au
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546138.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545982.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NG:Армия львов: Битва за выживание / Lion Army. Battle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545750.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ NG:Королева тигров / Tiger Queen (2010) HDTVRip[H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544866.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Discovery: Мегаперевозки / Mega Shippers (2016) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544619.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NG. Вампиры в Венеции / Vampires in Venice (2010) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544509.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTV [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544501.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ NGW: Человек против монстра / Man vs Monster (2011-2012) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543707.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ BBC: Лететь ли нам на Марс? Мысли о будущем / The 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543637.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ BBC. Жизнь млекопитающих / The Life of Mammals (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543388.jpg" />
 </div>
 
 

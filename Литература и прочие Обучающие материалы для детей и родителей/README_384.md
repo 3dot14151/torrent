@@ -1,3 +1,57 @@
+###  Публикация: 1593964   (177633) от 01.12.2022
+
+Светлана Ашикова | Изобразительное искусство. Чистая линия. 1 класс. Художественные прописи. Часть 1 (2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тренировочные упражнения художественных прописей "Чистая линия" (в 2 частях) помогут детям отработать различные приемы рисования, овладеть первоначальной художественной грамотой. Они направлены на закрепление навыков владения графитным карандашом при рисовании точек, линий, штрихов, тонировке фона и т.д.
+Задания прописей развивают не только мелкую моторику (   Читать дальше...   )Жанр: книга-тренажерФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02506E15185E7CF5821C1D1D167590D8A16BFF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429229   (177562) от 05.12.2020
+
+Оксана Пойда | Чудесные поделки. Мастерим вместе с детьми (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительно, сколь далеко может шагнуть ребёнок в своём развитии, всего лишь занимаясь декоративно-прикладным творчеством – рисуя, конструируя из бумаги, ракушек, ткани и других подручных материалов. В книге Оксана Пойда рассказывает о том, что можно создать из пластилина, картона, бумаги и ракушек, как рисовать клеем и зубной пастой.
+Каждая поделка снабжена пошаговыми (   Читать дальше...   )Жанр: Детские поделки/Досуг/ТворчествоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D142322FB9EE788CA667D4077CAF8E316203074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429190   (177547) от 05.12.2020
 
 Елена Доброва | Новый год своими руками. Снежинки (2013) [PDF]
@@ -6,7 +60,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177547.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177503.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177395.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177379.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_177219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177219.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_177196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177196.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_177135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177135.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177078.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177033.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176953.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176844.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176767.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176722.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176532.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176470.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176424.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176329.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176308.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176301.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ Manuel Sirgo Alvarez | Бумажные жуки и другие экзотич�
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176291.jpg" />
 </div>
 
 
@@ -544,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176228.jpg" />
 </div>
 
 
@@ -570,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176176.jpg" />
 </div>
 
 
@@ -596,7 +650,7 @@ Bucilla | Схемы для вышивки крестом фирмы Bucilla (19
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176154.jpg" />
 </div>
 
 
@@ -625,7 +679,7 @@ Belfarpost | Настольная экономическая игра. Милл�
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176115.jpg" />
 </div>
 
 
@@ -636,59 +690,6 @@ Belfarpost | Настольная экономическая игра. Милл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5430C3EF1DD97324306F0A16CC02D4B74E024817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429651   (176017) от 07.12.2020
-
-Валерий Медведев | Сделайте весёлое лицо (1970) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F3B54CD6E297386CBA4EE04D5809F7ACB0ABE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466195   (175685) от 07.12.2020
-
-Наталия  Дубровская | Большая книга аппликаций из природных материалов (2010) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир природы наполнен многообразием красок и совершенством форм. И этот мир находится рядом с нами. Надо только увидеть неповторимость каждого листочка на ветке, игру красок в ажурных крылышках бабочки, причудливые узоры морских раковин.
-Эта книга адресована как взрослым, так и детям. С ее помощью вы научитесь создавать необычные аппликации из камней и ракушек, семян (   Читать дальше...   )Жанр: Поделки своими рукамиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A94D5011EED4D1CCC0A13F8FA38CF4AAD1FE390
 ```
 
 https://mybot314.ru/tekegram_catalog/

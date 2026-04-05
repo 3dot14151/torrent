@@ -1,3 +1,61 @@
+###  Публикация: 1263413   (288012) от 19.11.2018
+
+VA - Generative Dub Monster Bass (2018) [MP3|320 Kbps] <Dubstep, Drum and Bass, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288012.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lockjaw - Human Research
+002. Digital - Satsuma
+003. Louis Benton - Only Us
+004. Taelimb - Latex(   Читать дальше...   )Жанр: Dubstep, Drum and Bass, ElectronicПродолжительность: 10:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE0A3D80D6B0C0934520BA8672E4274F39FDDF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263415   (287634) от 19.11.2018
+
+VA - Mastermix Pro House: Cool Dance Hit (2018) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287634.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christian Monique - Wind Of Passion
+002. Carlprit Ft. Edwan - My Kind Of Trouble (Radio Edit)
+003. Beatghosts - Spell (Radio Mix)
+004. Beckers - Radiation (Original Mix)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD59856E3898A4A16C087FA0C0AC84BD6F36D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262924   (287621) от 19.11.2018
 
 VA - Options Remake Of Tracks November -B- (2018) [MP3|320 Kbps] <House>
@@ -6,7 +64,7 @@ VA - Options Remake Of Tracks November -B- (2018) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287621.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Comfort Time (Compiled by Idenline) (2015) [MP3|320 кб/с]<Downtempo, Chi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287442.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ VA - Melodic Techno Tom IV [Compiled by ZeByte] (2017) [MP3|320 Kbps] <Melodic T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286952.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ VA - Fabulous: Best Of (2016) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286696.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ VA - Resident Advisor Top 50 Charted Tracks November (2016) [MP3|320 Kbps] <Micr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286689.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ VA - Specialist Galactic Trance (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286647.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - Club Hits (2016) [MP3|204-320 Kbps] <Club, Vocal, Commercial, Progressive, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286637.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ VA - Club Hits Special Authors (2016) [MP3|320 Kbps] <House, Electro, Hands Up, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286633.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ VA - Traxsource Top 100 November (2016) [MP3|320 Kbps] <Afro House, Minimal, Sou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286556.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ VA - Mayday 25 Years The History Of Rave (2016) [MP3|320 Kbps] <Rave, Techno, Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286271.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ VA - Record Super Chart 611 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286183.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - The Crystal Method - Best275z (1997 - 2015) [MP3|320 Kbps] <Breakbeat, Brea
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285920.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - Classic Trance Collection Vol.1-19 (2013-2014) (Обновляемая) [MP
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285820.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Deep House Collection Vol.190 (2018) [MP3|~ 256 - 320 Kbps] <Deep House, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285431.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - Record Russian Mix Top 100 December (07.12.) (2016) [MP3|256-320 Kbps] <Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285395.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - Beatport Trance Pack (08.12.) (2016) [MP3|320 Kbps] <Trance, Harmonic, Emot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284904.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - Trance Above Charts Top 100 (2016) [MP3|320 Kbps] <Trance, Tech Trance, Mel
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284901.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - YearMix 2K16 (2016) [MP3|201-247 Kbps] <Hands Up, Dance, House, Bigroom, Fu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284900.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Top 100 Indie Dance & Nu Disco November (2016) [MP3|320 Kbps] <New Wave, Nu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284799.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Junkie XL - Best275z (1997 - 2016) [MP3|320 Kbps] <Breakbeat, House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284744.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Relax to House Vol. 5 (2016) [MP3|128-320 Kbps] <House, NuDisco, IndieDance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284604.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Deep House Collection vol.146 (2017) [MP3|320 Kbps] <House, Indie Dance, Ja
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284570.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Record Super Chart #513 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284568.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - 60 minutes. Old School Dance Music vol.4 (mixed by Dj V) (2017) [MP3|320 Kb
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284242.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - 60 minutes. Old School Dance Music vol.4 (mixed by Dj V) (2017) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C44100433AE67DEA3AEDC9E9499FE30864C5A2E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964118   (284135) от 10.12.2015
-
-VA - Christmas Escapades (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Life - G-Pal
-02. Love To Feel You - Calar Del Sole
-03. Tech River (Zoohacker Minimatic Chill Remake) - The Lushlife Project
-04. A Barcode - Soda Inc.(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5075540277EAD770656EBC118818D9E02417213D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964152   (284117) от 10.12.2015
-
-VA - Ethno Dub [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Ethno Dub>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaksa - Colony [04:37]
-02. Gantz - Rising [06:17]
-03. Hathor - Fluoroscope [06:30]
-04. El Mahdy Jr. - Lost Bridge [03:28](   Читать дальше...   )Жанр: Ethno DubПродолжительность: 02:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D136082C6CF37A0EE5EC08CF4F8550149A1AD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

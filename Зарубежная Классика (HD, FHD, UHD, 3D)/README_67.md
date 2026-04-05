@@ -1,3 +1,109 @@
+###  Публикация: 1186656   (265000) от 12.12.2017
+
+Пан Володыевский / Pan Wolodyjowski (1969) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любовь к женщине и верность родине – две страсти главного героя этого фильма. Художественный фильм «Пан Володыевский» является экранизацией одноименного произведения Генрика Сенкевича и заключительной частью известнейшей трилогии «Огнем и мечом», «Потоп». Фильм иллюстрирует славные страницы польской истории, рассказывая о борьбе Польши 1668 года с турецким нашествием. (   Читать дальше...   )Производство: Польша. ТО «Камера»Жанр: ДрамаРежиссер: Ежи ГоффманАктеры: Тадеуш Ломницкий, Магдалена Завадска, Мечислав Павликовский, Ханка Белицка, Барбара Брыльска, Ирэна Карель, Ян Новицкий, Даниэль Ольбрыхский, Марек Перепецко, Мариуш Дмоховский и др.Перевод: ДублированныйСубтитры: АнглийскиеПродолжительность: 02:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E822B55B6E26264689EDDC92B9D4554A7752EC6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187235   (264345) от 13.12.2017
+
+Большая прогулка / La grande vadrouille (1966) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается во время Второй мировой войны на территории оккупированной Франции. Лето 1942 года. После выполнения задания бомбардировщик B-17 Британских Королевских Военно-воздушных сил сбился c курса и был подбит немецкими зенитными орудиями над Парижем.
+Первый пилот самолёта сэр Реджинальд Брук спасён служителем Парижского зоопарка,  раненому (   Читать дальше...   )Производство: Франция, Великобритания / Les Films Corona, The Rank OrganisationЖанр: Комедия, ВоенныйРежиссер: Жерар УриАктеры: Бурвиль, Луи де Фюнес, Клаудио Брук, Андреа Паризи, Колетт Броссе, Майк Маршалл, Мари Марке, Пьер Бертен, Бенно Штерценбах, Мари ДюбуаПеревод: Дублированный, многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 02:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8679DA50C9BA739047BAD9C06F22FA528AF2CF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337765   (263873) от 23.11.2019
+
+Картуш / Cartouche (1961) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завоевав любовь прекрасной цыганки Венеры, парижский разбойник 18-го века Доминик взял себе кличку «Картуш» и стал настоящим французским Робин Гудом.
+Одинаково владея шпагой и языком, Картуш во главе организованной им банды «весельчаков» потрошит кошельки аристократов и раздает добычу беднякам, каждый раз ловко оставляя в дураках своего заклятого врага — начальника (   Читать дальше...   )Производство: Франция, Италия / Filmsonor S.A., Les Films Ariane, Mondex Films, Vides CinematograficaЖанр: Боевик, Драма, Комедия, ПриключенияРежиссер: Филипп де БрокаАктеры: Жан-Поль Бельмондо, Клаудия Кардинале, Джесс Хан, Марсель Далио, Жан Рошфор, Филипп Лемэр, Ноэль Роквер, Одиль Версуа, Жак Шарон, Люсьен РэмбурПеревод: Дублированный, киностудия «Союзмультфильм» со вставками MVO "Екатеринбург Арт" (на вырезанные фрагменты в Советском кинопрокате)Субтитры: ОтсутствуютПродолжительность: 01:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C6723061D34B5599CCC983DBD2C53B181ECE09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191760   (263736) от 15.12.2017
+
+Врата рая / Heaven's Gate (1980) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263736.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе фильма — «война округа Джонсон», столкновение, произошедшее в Вайоминге в 1890 году. В округе Джонсон шериф Джеймс Эверилл пытается защитить интересы европейских иммигрантов-фермеров от посягательств богатых землевладельцев, которые нанимают Натана Чампиона, для устрашения поселенцев. Начинается вооружённый конфликт между наёмниками землевладельцев и фермерами, (   Читать дальше...   )Производство: США / Partisan ProductionsЖанр: Драма, ВестернРежиссер: Майкл ЧиминоАктеры: Крис Кристофферсон, Кристофер Уокен, Джон Хёрт, Сэм Уотерстон, Брэд Дуриф, Изабель Юппер, Джозеф Коттен, Джефф Бриджес, Ронни Хоукинс, Пол КослоСубтитры: Русские, английскиеПродолжительность: 03:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F23C398AADDA398D84A75CFB82C809025B5BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188552   (263709) от 15.12.2017
 
 Свидетель обвинения / Witness for the Prosecution (1957) BDRemux [H.264/1080p]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263709.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263689.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263353.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263264.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262824.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262574.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262423.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_262383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262383.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262178.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262074.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262073.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262041.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261914.jpg" />
 </div>
 
 
@@ -349,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261870.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261711.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261517.jpg" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259165.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259126.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258575.jpg" />
 </div>
 
 
@@ -506,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258367.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258106.jpg" />
 </div>
 
 
@@ -558,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256995.jpg" />
 </div>
 
 
@@ -571,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FDF1E74621FB956483D058B8258391AE51820AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447174   (256659) от 17.11.2025
-
-Тридцать три несчастья / The Notorious Landlady (1962) BDRip [H.264/1080p] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переехав из Америки в Великобританию, дипломат Уильям Гридли снимает жилье у очаровательной миссис Хардвик и вскоре понимает, что влюбился в нее. Вот только наивный американец не в курсе одного странного обстоятельства: у госпожи Хардвик пропал муж, и теперь ее подозревают в убийстве. Узнав об этих досужих домыслах, он обращается за помощью к своему боссу, американскому (   Читать дальше...   )Производство: США / Columbia Pictures CorporationЖанр: Комедия, криминал, детективРежиссер: Ричард КуайнАктеры: Ким Новак, Джек Леммон, Фред Астер, Лайонел Джеффрис, Эстель Уинвуд, Максвелл Рид, Филиппа Беванс, Генри Дэниелл, Рональд Лонг, Ричард ПилПеревод: Дублированный, многоголосый профессиональныйСубтитры: Английские (SDH)Продолжительность: 02:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3088EED254A022E776ADE40ACC9CAA6B6DC96A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619001   (255467) от 06.04.2023
-
-Апокалипсис сегодня / Apocalypse Now (1979/2001) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit] [MVO] [Redux version]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время войны во Вьетнаме спецагент отправляется вверх по реке в Камбоджу с приказом найти и убить полусумасшедшего полковника, создавшего в отдаленном районе нечто вроде собственного королевства насилия. По пути он становится свидетелем мира ужасов войны.Производство: США / Zoetrope StudiosЖанр: военный, драма, история, боевикРежиссер: Фрэнсис Форд КопполаАктеры: Марлон Брандо, Мартин Шин, Роберт Дювалл, Фредерик Форрест, Сэм Боттомс, Лоренс Фишбёрн, Альберт Холл, Харрисон Форд, Деннис Хоппер, Г.Д. СпрэдлинПеревод: Профессиональный многоголосый (КиноМания)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 03:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11ED0920D6EBC9007B9AAEA53BCEDF4DB85364C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625153   (255379) от 09.04.2023
-
-Адрес неизвестен / Address Unknown (1944) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм нуар 1944 года режиссера Уильяма Кэмерона Мензиса, снят по роману Крессманна Тейлора “Адрес неизвестен”. Молодой художник-эмигрант из Штатов возвращается на родину в Германию, привлеченный нацистской пропагандой, даже не подозревая о том, что скрывается за громкими лозунгами и воодушевляющими речами.Производство: США / Columbia PicturesЖанр: драмаРежиссер: Уильям Кэмерон МензиесАктеры: Пол Лукас, Карл Эсмонд, Петер ван Эйк, Мади Кристианс, Моррис Карновский, Кейти Стивенс, Эмори Парнелл, Мэри Янг, Фрэнк Фэйлен, Чарльз ХэлтонПеревод: Одноголосый любительский (sephiroth)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4831176CF751C9FDA4AD2E9939C3A057E37C5BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619610   (255259) от 12.04.2023
-
-Назад в Будущее / Back to the Future (1985) UHD BDRip [H.265/2160p] [4K, HDR10+, Dolby Vision, Profile 8, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток Марти с помощью машины времени, сооружённой его другом-профессором доком Брауном, попадает из 80-х в далекие 50-е. Там он встречается со своими будущими родителями, ещё подростками, и другом-профессором, совсем молодым.Производство: США / Amblin Entertainment, U-Drive Productions, Universal PicturesЖанр: фантастика, комедия, приключенияРежиссер: Роберт ЗемекисАктеры: Майкл Дж. Фокс, Кристофер Ллойд, Лиа Томпсон, Криспин Гловер, Томас Ф. Уилсон, Клаудия Уэллс, Марк МакКлюр, Уэнди Джо Спербер, Джордж ДиЧенцо, Фрэнсис Ли МакКейнПеревод: Дублированный (Blu-Ray CEE)Язык озвучки: русский, английскийСубтитры: русские (full, комментарии), английскиеПродолжительность: 01:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249EF6CDAF614744699CA2D13189AB01C610AFD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1588954   (190839) от 07.11.2022
+
+Могут ли грибы изменить мир? / Les champignons pourront-ils sauver le monde? (2013) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотни миллионов лет назад на Земле начали расти грибы. Они покрывали почву, растения и деревья, постепенно расширяя свои невидимые владения. Грибы – это не животные и не растения, но они составляют царство грибов, разнородную группу, куда входят как гигантские организмы, так и крошечные грибы размером с пылинку. Они пережили ледниковые периоды, эпохи вымирания различных (   Читать дальше...   )Производство: Франция, TV5MONDE EuropeЖанр: документальный, научно-познавательный, флора и фаунаРежиссер: Анна Риццо, Тома СиппПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (неотключаемые, перевод К. Семенюк, Éclair Group)Продолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DAB357066357227EA1E4E195D629C632B15585D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588999   (190836) от 07.11.2022
 
 Воин природы / Nature's Warriors (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190836.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190794.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190113.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190025.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189734.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189376.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189365.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189318.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ NHK. Мир живой природы III / Nature Wonder Land III (2008) SATRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188390.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188170.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186052.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185269.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182103.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182098.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179119.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177448.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176120.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175949.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175028.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174001.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173531.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172320.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172229.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170430.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170350.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FFBA69ADC286F181E2EBFA435B4F35B88BCD84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515352   (170331) от 06.12.2021
-
-Законы Серенгети / The Serengeti Rules (2018) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170331.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1960-е годы несколько молодых экологов начали исследования в разных концах света: джунглях Амазонки и глубинах Северного ледовитого океана, в сердце Африки и на тихоокеанском побережье. Они выдвинули революционную теорию: без хищников не может быть разнообразия. Пятьдесят лет спустя эволюционный биолог Шон Кэррол написал книгу по мотивам этого гениального приключения, (   Читать дальше...   )Производство: Великобритания, США / HHMI Tangled Bank Studios, Overhead Films, Passion Pictures, Science SandboxЖанр: Документальный, Биография, Природа, Фауна, ФлораРежиссер: Николас БраунПеревод: Одноголосый профессиональный (SDI Media)Субтитры: ОтсутствуютПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DA48AEE8E52EB4E399844BFC2E168A11C68F43
 ```
 
 https://mybot314.ru/tekegram_catalog/

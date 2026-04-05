@@ -1,3 +1,32 @@
+###  Публикация: 1322509   (446581) от 30.08.2019
+
+Fly Pan Am - C'est ca (2019) [FLAC|Lossless|tracks + .cue] <Post-rock, Experimental, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avant-Gardez Vous (01:19)
+02. Distance Dealer (04:09)
+03. Bleeding Decay (05:36)
+04. Dizzy Delusions (01:50)(   Читать дальше...   )Жанр: Post-rock, Experimental, Indie RockПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB243BF940CC36E078143E9E5D632762D6DF42B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322566   (446577) от 30.08.2019
 
 Saor - Forgotten Paths (2019) [FLAC|Lossless|tracks + .cue] <Black Metal, Caledonian Metal>
@@ -6,7 +35,7 @@ Saor - Forgotten Paths (2019) [FLAC|Lossless|tracks + .cue] <Black Metal, Caledo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446577.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Let's Have a Party (Girls Gone Rockin' Vol. 2) (2002) 3CD [FLAC|Lossless|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446364.jpg" />
 </div>
 
 
@@ -66,7 +95,7 @@ Meshuggah - The Violent Sleep Of Reason (2016) [FLAC|Lossless|image + .cue] <Mat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446241.jpg" />
 </div>
 
 
@@ -95,7 +124,7 @@ Alex Bollard - Sultan Of Swing (Mark Knopfler's Album Of Hits) 1994 [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446238.jpg" />
 </div>
 
 
@@ -124,7 +153,7 @@ Heaven Shall Burn - Wanderer (2016) Limited Artbook Edition, 3CD [MP3|320 кб/�
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446235.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Steve Stevens - Atomic Playboys (1989) [WavPack|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446230.jpg" />
 </div>
 
 
@@ -187,7 +216,7 @@ Insomnium - Winter's Gate (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446149.jpg" />
 </div>
 
 
@@ -213,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445997.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ The Script - Science And Faith (2010) [MP3|224 kbps]<Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445746.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ Smokie - Greatest Hits (2006) [MP3|320 кб/с]<Soft-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445682.jpg" />
 </div>
 
 
@@ -309,7 +338,7 @@ Florence And The Machine - Lungs (2009) [MP3|320 kbps]<Pop Rock, Folk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445500.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ Eric Pham - Castle Heights (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445374.jpg" />
 </div>
 
 
@@ -364,7 +393,7 @@ Leaves' Eyes - Black Butterfly (2019) EP, Special Edition, 2020, AFM Records [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445363.jpg" />
 </div>
 
 
@@ -393,7 +422,7 @@ Gathering Of Kings - First Mission (2020) [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445255.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ The Pineapple Thief - Versions Of The Truth (2020) 2xCD [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445253.jpg" />
 </div>
 
 
@@ -451,7 +480,7 @@ Il Castello Delle Uova - L'enigma Del Capitale (2020) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445250.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ Behemoth - And the Forests Dream Eternally (1995) Remastered, 2020, 2CD, Metal B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445248.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ Silverchair - The Best Of - Volume 1 (2000) 2CD, Limited Edition [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445240.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ Ozzy Osbourne - Blizzard Of Ozz (1980) 40th Anniversary Expanded Edition, 2020, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445237.jpg" />
 </div>
 
 
@@ -567,7 +596,7 @@ Myrath - 6 Albums, 9CD (2007-2019) [FLAC|Lossless|image + .cue | tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445233.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ ESEL - 2 Relises (2020-2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445221.jpg" />
 </div>
 
 
@@ -625,7 +654,7 @@ Dodsfall (Dødsfall) - Djevelens evangelie (2013) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445220.jpg" />
 </div>
 
 
@@ -654,7 +683,7 @@ Anthems Of Gomorrah - 4 Relises (2022) [MP3|320 Kbps] <Black Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445218.jpg" />
 </div>
 
 
@@ -683,7 +712,7 @@ Los Crocodilos - Выпьем за хардкоръ (2022) [MP3|320 Kbps] <ха�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445217.jpg" />
 </div>
 
 
@@ -712,7 +741,7 @@ Acid Blade - Power Dive (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445216.jpg" />
 </div>
 
 
@@ -726,35 +755,6 @@ Acid Blade - Power Dive (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D5DF24818ACD8F339FC69AE9821BC2C121C8A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944066   (445215) от 05.10.2015
-
-Secret Someones - Secret Someones (2015) 2CD [OGG| 429-549 кб/с]<Alternative, Indie Pop Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445215.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I Won't Follow 03:57
-02. Quit Pulling Me Down 03:57
-03. Let You Go 03:29(   Читать дальше...   )Жанр: Alternative, Indie Pop Rock, Female VocalПродолжительность: 00:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D32203CADF13D134CB2EDC4F4E4EF5753EA5E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

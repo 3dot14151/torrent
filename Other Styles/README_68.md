@@ -1,3 +1,72 @@
+###  Публикация: 506265   (690589) от 05.06.2012
+
+Big City Indians - Uncle Peyote (1999) [MP3|128 кб/с]<Native American, New Age, Flute, Rock, Tribal, Blues, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wise Man 4:41
+02. Uncle Peyote 4:31
+03. Fighting without Fear 7:10
+04. Prayin for the Rain 5:19
+05. Big City Indian 5:14
+06. Thunderbird 5:27
+07. West North South East 6:28
+08. Follow Sitting Bull 5:42
+09. Sweet Illusion 4:02
+10. Fire Spirit (long version) 7:28(   Читать дальше...   )Жанр: Native American, New Age, Flute, Rock, Tribal, Blues, PopПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3CF860F936287B384D7B4802EA7D31263F447F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505416   (690583) от 05.06.2012
+
+Vitaliy Baldych - The Seagull (2011) [FLAC|Lossless]<Relax,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Island
+02. The Seagull
+03. Song of a girl, who stand on the cliff
+04. Presentiment of a storm
+05. After the rain
+06. Traces on sand
+07. Dreams about the argo
+08. Lunar Path
+09. New LifeЖанр: Relax,New AgeПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288698   (690377) от 14.03.2019
 
 Catherine Britt - Catherine Britt & The Cold, Cold Hearts (2018) [FLAC|Lossless|tracks + .cue] <Country>
@@ -6,7 +75,7 @@ Catherine Britt - Catherine Britt & The Cold, Cold Hearts (2018) [FLAC|Lossless|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690377.jpg" />
 </div>
 
 
@@ -35,7 +104,7 @@ George Skaroulis - Reunion (2007) [FLAC|Lossless]<New Age, Piano solo>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690278.jpg" />
 </div>
 
 
@@ -70,7 +139,7 @@ LeAnn Rimes - Unchained Melody: The Early Years (1997) [FLAC|Lossless|tracks + .
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690230.jpg" />
 </div>
 
 
@@ -99,7 +168,7 @@ Ashley McBryde - Girl Going Nowhere (2018) [FLAC|Lossless|tracks + .cue] <Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690228.jpg" />
 </div>
 
 
@@ -128,7 +197,7 @@ Montgomery Gentry - Here's To You (2018) [FLAC|Lossless|tracks + .cue] <Folk, Co
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690225.jpg" />
 </div>
 
 
@@ -157,7 +226,7 @@ Patty Griffin - Patty Griffin (2019) [FLAC|Lossless|tracks + .cue] <Folk, Countr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690220.jpg" />
 </div>
 
 
@@ -186,7 +255,7 @@ VA - Aroma Therapy. Complete 10 CD Collection (2006) [FLAC|Lossless|tracks] <Rel
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690143.jpg" />
 </div>
 
 
@@ -213,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689597.jpg" />
 </div>
 
 
@@ -248,7 +317,7 @@ Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия �
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689378.jpg" />
 </div>
 
 
@@ -277,7 +346,7 @@ Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689374.jpg" />
 </div>
 
 
@@ -306,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689307.jpg" />
 </div>
 
 
@@ -335,7 +404,7 @@ Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия �
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689250.jpg" />
 </div>
 
 
@@ -364,7 +433,7 @@ Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689247.jpg" />
 </div>
 
 
@@ -393,7 +462,7 @@ Really Slow Motion - Battle Angel (2016) [MP3|320 Kbps] <Soundtrack, Instrumenta
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689244.jpg" />
 </div>
 
 
@@ -422,7 +491,7 @@ Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689217.jpg" />
 </div>
 
 
@@ -451,7 +520,7 @@ Audiomachine - Magnus & Magnus: B-Sides (2015) 2 CD [MP3|320 Kbps|CBR] <Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689213.jpg" />
 </div>
 
 
@@ -480,7 +549,7 @@ Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Ser
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689207.jpg" />
 </div>
 
 
@@ -509,7 +578,7 @@ CherryVata - Daybreak (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Beats, Nu Jaz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689100.jpg" />
 </div>
 
 
@@ -538,7 +607,7 @@ Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689099.jpg" />
 </div>
 
 
@@ -567,7 +636,7 @@ The Romantic Strings Orchestra - Thanks For The Memory (1995) [MP3|320 Kbps] <In
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689090.jpg" />
 </div>
 
 
@@ -596,7 +665,7 @@ Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Ser
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689082.jpg" />
 </div>
 
 
@@ -625,7 +694,7 @@ Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688965.jpg" />
 </div>
 
 
@@ -654,7 +723,7 @@ Llewellyn - Native American Gold (2016) [FLAC|Lossless|WEB-DL|tracks] <New age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688743.jpg" />
 </div>
 
 
@@ -681,7 +750,7 @@ Mick Douglas - Healing Sound of the Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688688.jpg" />
 </div>
 
 
@@ -694,64 +763,6 @@ Mick Douglas - Healing Sound of the Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F415FC1A7FFD4B8EE59B25B49778DBCAA793E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028669   (688506) от 23.06.2016
-
-Marcin Przybylowicz - The Witcher 3 Wild Hunt - Hearts Of Stone (Original Soundtrack) (2015) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hearts of Stone (02:54)
-02. Go Back Whence You Came (01:45)
-03. You're... Immortal? (02:54)
-04. Evil's Soft First Touches (02:48)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5E594E28C7C75E42DAB1DBB063761FDC3A9AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028665   (688392) от 23.06.2016
-
-Marcin Przybylowicz and Mikolai Stroinski - The Witcher 3 Wild Hunt (Original Soundtrack) (2015) (Extended Edition) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybylowicz - The Trail (02:50)
-02. Marcin Przybylowicz - Geralt of Rivia (02:22)
-03. Marcin Przybylowicz - Eredin, King of the Hunt (02:27)
-04. Mikolai Stroinski - Wake Up, Ciri (01:34)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81CE68DDC81912008F612950CDD209F523916EE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

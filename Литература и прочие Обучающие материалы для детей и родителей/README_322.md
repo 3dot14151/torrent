@@ -1,3 +1,55 @@
+###  Публикация: 1422238   (313385) от 07.11.2020
+
+Анна Шахова | Самая первая энциклопедия. Подводный мир (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга из серии "Самая первая энциклопедия" от издательства Росмэн рассказывает об обитателях подводного мира морей и океанов нашей планеты. Издание повествует об их повадках, ареале обитания, умении охотиться и маскироваться, внешнем виде и органах чувств. Материал обязательно заинтересует всех ребят, которые увлекаются естественными науками. Текст сопровождается (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C3D6664D1EC97FBCA0C781616F6B267DD4031D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729170   (312536) от 01.12.2013
+
+Вера Инбер | Сороконожки  (1976) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Про милую семью сороконожек. Однажды пришло время малышам идти в школу, и папа с мамой принялись считать, сколько же надо калошек на все ножки?Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B516AEC29254BB531D5E187F6F187C2FD3363A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 729162   (312535) от 01.12.2013
 
 Андрей Шманкевич | Вовка - зелёная фуражка (1967) [DJVU]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312535.jpg" />
 </div>
 
 
@@ -36,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312372.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312364.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312363.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312362.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312353.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312252.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312250.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312249.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312224.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312138.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312071.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312040.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311997.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311989.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311984.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311923.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311784.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311704.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311615.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311589.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311414.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311063.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311032.jpg" />
 </div>
 
 
@@ -637,61 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBA2FEE96C91BD9F073F82BFF04DB140F8F8700A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422416   (310812) от 08.11.2020
-
-Ульф Нильсон | Комиссар Гордон [4 книги] (2019) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смешные и милые истории о комиссаре Гордоне и его помощнице Жаби, рассказанные Ульфом Нильсоном с прекрасными иллюстрациями Гитты Спе, вроде бы адресованы младшим читателям - дошкольникам и первоклассникам. Однако скромное обаяние сыщицкой действительности легко завоюет и взрослое сердце.Жанр: Детская литература/Сказки народов мира/ДетективПеревод: Мария ЛюдковскаяФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDC4FBF162B89D927F276E5B7D03407B315F374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422403   (310811) от 08.11.2020
-
-Винс Воутер | Бумажный мальчик (2021) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько недель изменили жизнь одиннадцатилетнего разносчика газет. Встречи с людьми, чья жизнь не похожа на его собственную, и раскрытая тайна о собственном происхождении помогли герою обрести собственный голос и выбрать свой путь.
-На русском языке публикуется впервые.
-Дата перевода: 2021
-Дата написания: 2013Жанр: Детская литература/Проза для детей/Книги для подростковПеревод: Елена ТепляшинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F44BA3CBE6A04245BB53A9992FB8BB488531571
 ```
 
 https://mybot314.ru/tekegram_catalog/

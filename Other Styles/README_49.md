@@ -1,3 +1,61 @@
+###  Публикация: 1209189   (779259) от 27.02.2018
+
+Acoustic Garden - Concept Emotional (2018) [MP3|320 Kbps] <Country, Folk, Blues>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Ready To Lose
+02. Always
+03. The Present
+04. Change The Weather(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A0CE063E76BE3FB2C67448B0444D26EE8D3D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209910   (779128) от 28.02.2018
+
+Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779128.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Those Loving Hands (10:29)
+2. The Orbs (10:11)
+3. Light and Warmth (11:50)
+4. Gentle was the Moment (6:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B07D438DBA32E548A2E46D8AFF2A7476428048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209214   (779125) от 28.02.2018
 
 Hitoshi Sakimoto, Masaharu Iwata, Mitsuhiro Kaneda - Odin Sphere Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Score>
@@ -6,7 +64,7 @@ Hitoshi Sakimoto, Masaharu Iwata, Mitsuhiro Kaneda - Odin Sphere Original Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779125.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Ludwig Goransson - Black Panther / Чёрная пантера (Original Motion 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779089.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ David Arkenstone - Parisian Lounge (2018) [MP3|320 Kbps] <New Age, Chillout, Lou
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778987.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Ludwig Goransson - Чёрная пантера / Black Panther (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778944.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Lyn Avenue - Never Been to Nashville (2018) EP [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778855.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Hennie Bekker - Temba (1995) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778728.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Hennie Bekker - Kusasa (1999) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778721.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Hennie Bekker - The Smoke That Thunders (1997) Holborne [MP3|320 Kbps] <New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778720.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Hennie Bekker - Jabula (The Joyful Spirit Of Southern Africa) (1998) Avalon Musi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778712.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Giovanni - Love Me Tender (1998) Reissue, 2000, New Castle [FLAC|Lossless|image 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778710.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Kitaro - India (1983) Reissue, 1985, Geffen Records [FLAC|Lossless|image + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778691.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Sally Oldfield - The Enchanted Way (2018) [MP3|320 Kbps] <Folk, Pop, Singer-Song
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778685.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Peder B. Helland - Bright Future (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778652.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Hennie Bekker - Summer Breeze (1993) Holborne [MP3|256 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778559.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Hennie Bekker - Relaxing Pachelbel (2005) Tapestries [MP3|320 Kbps] <New Age, Tr
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778551.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Hennie Bekker - Winter Reflections (1994) Holborne [MP3|256 Kbps] <New Age, Pian
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778549.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778546.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778520.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Francis Goya - Collection 2CD,  (2005) [FLAC|Lossless|image + .cue] <Acoustic Gu
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778474.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Medwyn Goodall - Eagle Spirit (1996) [FLAC|Lossless|tracks] <New Age, Celtic, In
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778361.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Will Brady - 3 альбома (1997-2009) [MP3|192 кб/с] <Instrumental, Blues
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778332.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778285.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Arthur Fieldler & The Boston Pops - Pop Concert Favorites (1992) [FLAC|Lossless|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778166.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778148.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72EF6BD4B6D9259D011D4DC11260B5A9544DA28C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211108   (778069) от 05.03.2018
-
-ДиДюЛя & Chris Wonderful - Аквамарин (2017) [FLAC|Lossless|image + .cue] <Instrumental, Flamenco, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свадебное путешествие (4:16)
-02. Страна дураков (3:59)
-03. Белый месяц (3:41)
-04. Посох шамана (3:48)(   Читать дальше...   )Жанр: Instrumental, Flamenco, New AgeПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50895595C4F6B115FF169FE69F992B65446617D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013172   (777975) от 03.05.2016
-
-Salvador Candel - Armonia (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merlin
-02. En tu mirada
-03. Danza Medieval
-04. Evolucion(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B908D78504836CDB5B03835EA78DEE93AADC7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

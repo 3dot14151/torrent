@@ -1,136 +1,3 @@
-###  Публикация: 1459647   (1023121) от 02.04.2021
-
-А.Н. Трифонова, И.В. Мельситова | Аналитическая химия. Лабораторный практикум (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются основные теоретические положения качественного и количественного анализа, химические методы обнаружения и определения неорганических веществ. Приводятся схемы систематического анализа, а также важнейшие качественные реакции катионов и анионов. Дается описание хода лабораторных работ по бумажной хроматографии, гравиметрическому и титриметрическому (   Читать дальше...   )Жанр: ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4B38309BACB6CE074A43E6E45B5A103F1BDE22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713148   (1023054) от 02.04.2021
-
-Дмитрий Яворницкий (Эварницкий) | Собрание сочинений [6 книг] (1888-1903) [PDF] (Раритетное издание)
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание:
-Яворницкий (Эварницкий) Дмитрий Иванович — украинский, русский и советский историк, археолог, этнограф, фольклорист, лексикограф, писатель. Академик АН УССР (1929), член Московского археологического общества, один из самых значительных исследователей истории Запорожского казачества.
-
-Работы Яворницкого носят бытоописательный характер. Он одним из первых (   Читать дальше...   )Жанр: История, этнография, раритетФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B403FFA37C0E158F607A8E9D0EEA4C6595B2F89A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459585   (1023051) от 02.04.2021
-
-С.А. Матвеев | Все правила английского языка. Уникальный справочник (2021) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это пособие раз и навсегда избавит вас от необходимости искать себе репетитора по английскому языку и загромождать книжную полку бесконечной вереницей справочных изданий. В этой книге собраны все правила английского языка, представленные в виде схем и таблиц, которые сопровождаются яркими примерами и упражнениями. В качестве приложения дана таблица неправильных глаголов, (   Читать дальше...   )Жанр: Иностранные языкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397EC2128E220604A69D67FD31953ECB945FE1B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459910   (1022950) от 03.04.2021
-
-С.Т. Шалтабаева и др. | Мебельное производство. Техник-технолог (2020) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022950.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассмотрены основные стадии проектирования изделий из древесины, особенности конструирования столярных и мебельных изделий.  Разобраны правила разработки, оформления и чтения конструкторской и технологической документации, назначение и виды технологических документов, методики расчетов расхода сырья, материалов, технологического оборудования, технологической (   Читать дальше...   )Жанр: Мебельное производствоФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E800F235D9CA8C340D335F6DD97F9B7205D733FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459985   (1022948) от 03.04.2021
-
-П.С. Дуйсенова и др. | Монтажник оборудования связи (2020) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022948.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассмотрены общие вопросы охраны труда, правила безопасности при выполнении монтажных работ и эксплуатации средств связи, монтажник и техник-электронщик средств связи, выполнение монтажа телекоммуникационных кабелей, выполнение монтажа телекоммуникационной арматуры, монтаж телекоммуникационного оборудования в опорной системе, осмотр смонтированного телекоммуникационного (   Читать дальше...   )Жанр: СвязьФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490101C2055E99F3126DA2CE453CFF4B2BA3B41C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459952   (1022942) от 03.04.2021
 
 И.П. Матвеенко | Основы электроники и микропроцессорной техники. Лабораторный практикум (2015) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022942.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022924.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022892.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022870.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ B.B.Арбузов | Броненосец "Наварин" (1888-1905) (2012) [P
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022776.jpg" />
 </div>
 
 
@@ -271,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022717.jpg" />
 </div>
 
 
@@ -297,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022705.jpg" />
 </div>
 
 
@@ -323,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022700.jpg" />
 </div>
 
 
@@ -349,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022698.jpg" />
 </div>
 
 
@@ -377,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022560.jpg" />
 </div>
 
 
@@ -403,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022555.jpg" />
 </div>
 
 
@@ -429,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022553.jpg" />
 </div>
 
 
@@ -456,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022551.jpg" />
 </div>
 
 
@@ -483,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022536.jpg" />
 </div>
 
 
@@ -509,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022419.jpg" />
 </div>
 
 
@@ -535,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022414.jpg" />
 </div>
 
 
@@ -561,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022406.jpg" />
 </div>
 
 
@@ -587,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022388.jpg" />
 </div>
 
 
@@ -613,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022387.jpg" />
 </div>
 
 
@@ -640,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022385.jpg" />
 </div>
 
 
@@ -666,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022240.jpg" />
 </div>
 
 
@@ -677,6 +544,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9DF6DAD2AAF41ED59F8BAE7666E3E2CBF29F1DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460870   (1022237) от 07.04.2021
+
+В.Я.  Савиных | Элементная база телекоммуникационных устройств (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены пассивные и активные элементы электронных схем. Приводятся основные характеристики и параметры этих приборов, их зависимости от режима работы и температуры. Учебное пособие предназначается для студентов дневной и заочной форм обучения по направлениям: 11.03.01«Радиотехника», 11.03.02 «Инфокоммуникационные технологии и системы связи», 11.03.03 «Конструирование (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65A4A92F404DA2858AA1F5D65651876E4676EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460915   (1022231) от 07.04.2021
+
+Н.А. Мекебаева и др. | Организация питания. Кондитер (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное учебное пособие охватывает широкий круг практических вопросов, касающихся современной технологии кондитерских изделий в объеме, необходимом для сознательного, прочного и глубокого овладения профессией кондитера в соответствии со стандартами предприятий питания, сгруппированных по результатам обучения и критериям оценок.  Учебное пособие предназначено для студентов (   Читать дальше...   )Жанр: Организация питанияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D661192D5CBC264F530F0725D73B9A46A7040510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460853   (1022189) от 07.04.2021
+
+Н.Э. Финк и др. | Слесарь-электрик по ремонту электрооборудования (2020) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022189.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассмотрены вопросы объясняющие устройство, принцип работы, монтаж, техническое обслуживание и ремонт электрооборудования бытовых машин и приборов.  Также раскрыты вопросы по монтажу и техническому обслуживанию осветительной, коммутационной аппаратуры, трансформаторов и электродвигателей.
+Каждый раздел содержит несколько тем, раскрывающих его содержание. (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0859CDCCCA1078FD2B61F20C1C708B7F8CF10361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460796   (1022071) от 08.04.2021
+
+А.Syed  и др | Clinical Neuroimmunology Multiple Sclerosis and Related Disorders 2-е издание (2020) [PDF, EPUB] [EN]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта всеобъемлющая и современная книга предназначена для того, чтобы сделать последние разработки в нейроиммунологии доступными для медицинских специалистов в этой области. Область нейроиммунологии сложна и быстро развивается, особенно с учетом текущих улучшений в целевых биологических методах лечения. Этот ресурс кратко предлагает четкие объяснения этих научных и (   Читать дальше...   )Жанр: Неврология, МедицинаФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8760222D1058D16E3746532ECAD485D1D7F8496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461091   (1022068) от 08.04.2021
+
+А.В. Пузаков | Системы электроснабжения транспортных средств (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведено описание принципов построения и функционирования систем электроснабжения транспортных средств. Раскрыты основные физические законы, на которых базируется работа источников электрической энергии, рассмотрены конструктивное исполнение, параметры и характеристики аккумуляторных батарей и генераторных установок, освещены вопросы технического обслуживания и (   Читать дальше...   )Жанр: Электротехника, электроснабжениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E41110E459EF127395325ADCB91E8D15B79928
 ```
 
 https://mybot314.ru/tekegram_catalog/

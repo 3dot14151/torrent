@@ -1,3 +1,61 @@
+###  Публикация: 1014166   (776946) от 06.05.2016
+
+Lemongrass - Beauty (2016) [MP3|320 кб/с] <Electronic, Ambient, Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something True (ft Jane Maximova) 04:32
+02. Belle Vue 05:12
+03. Beautiful and Free (ft Karen Gibson Roc) 04:15
+04. Sunset People 04:42(   Читать дальше...   )Жанр: Electronic, Ambient, Downtempo, ChilloutПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5751749D6AF4D26429EE7A4C712E2F5F3EB5C130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013809   (776938) от 06.05.2016
+
+Way Out West - We Love Machine – The Remixes (2010) 2CD [FLAC|Lossless|tracks + .cue] <House, Progressive Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Surrender (SommerStad Remix) (06:04)
+02 - Surrender (Eelke Kleijn Remix) (07:22)
+03 - Body Motion (Koen Lebens Remix) (07:58)
+04 - We Love Machine (Jaytech Remix) (07:16)(   Читать дальше...   )Жанр: House, Progressive TranceПродолжительность: 02:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1620CF2140D24E296D9D772EAEC595A96389AD27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211831   (776910) от 09.03.2018
 
 VA - Spatium Options Vol.02 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
@@ -6,7 +64,7 @@ VA - Spatium Options Vol.02 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776910.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Tokyo Chillout Vol.4 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776904.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Sensual Mood Lounge Vol.11 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776903.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Die Landpartie Vol.03 (Best Of Chillout And Ambient Music Deluxe) (2018) [M
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776876.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Perturbator - The Uncanny Valley (2016) + Bonus [MP3|320 кб/с] <Synthpop, Syn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776729.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Cosmin Nicolae - Semnal (2018) Opal Tapes [FLAC|Lossless|WEB-DL|tracks] <Techno,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776578.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Elliptical Sun Sampler 016 (2016) [MP3|320 кб/с] <House, Progressve Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776576.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Festival Anthems Vol.3 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776554.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Miami Opening Party (2018) [MP3|320 Kbps] <House, Club, Nu Disco, Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776541.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ zerO One - Signals (2015) [FLAC|Lossless|tracks] <Chillout, Electronic, Downtemp
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776484.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Best of Chill Out Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776482.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Best Sound of Chill & Lounge (2016) [MP3|320 кб/с] <Lounge, Chill Out>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776178.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Serenity Sexy Lounge & Chill out Pearls Vol 5 (2016) [MP3|320 кб/с] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776166.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Sexomatic - Erotic Chill (2016) [MP3|320 кб/с] <Lounge, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776148.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Chillout For Dinner (Exclusive Selection For Cool People) (2018) [MP3|320 K
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776132.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - The Ultimate Lounge Collection Vol.3 (2018) [MP3|320 Kbps] <Lounge, Electro
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776127.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Sensual Lounge Musique Vol.2 (Selected by Simon Le Grec) (2018) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776125.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Sotto Voce Vol.2 (Compiled by Seven24) (2018) [MP3|320 Kbps] <Downtempo, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776119.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Chillout Reflection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_776097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_776097.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Koan - It's the Quiet Ones You Got to Watch (2018) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776087.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ BCee - Volume Two (2018) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776086.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ BCee - Volume Three (2018) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776056.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Onuka - Onuka (2014) [FLAC|Lossless|image + .cue] <Electronic, Folk, Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776012.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Recoverworld Radio 006 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775859.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Recoverworld Radio 006 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90FD43A8CAEB2A9D0F7369E8E8BCE62A7B84A920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212437   (775822) от 12.03.2018
-
-VA - Marathon 2018: 50 Great Running Tracks (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bob Lee  -  Enhance  3:09
-02.  Ben Billson  -  Advise  3:09
-03.  Artur May  -  Logic  3:09
-04.  Apollo Twin  -  Chest  3:09(   Читать дальше...   )Жанр: HouseПродолжительность: 02:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F79BEEB46EECBD1725A1DD5C3A5D888D953550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212528   (775820) от 12.03.2018
-
-VA - Passion Lounge A Sensual Chillout Mix (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Red Skin Noxe  -  Vanity and Whim  3:24
-02.  Rick Kelly  -  Just Kiss Me  2:58
-03.  Bruce Maginnis & Mike Caen  -  Sand And Silk  3:06
-04.  Keir Fraser & James Braddell  -  Lately  2:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12106A430D205A799DD14EEE0C47FABB153414C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

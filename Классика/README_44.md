@@ -1,3 +1,30 @@
+###  Публикация: 496743   (253218) от 15.05.2012
+
+Johann Sebastian Bach - Violin Concertos BWV 1041, BWV 1042, BWV 1043, BWV 1060: Isaac Stern, New York Philarmonic, conductor Leonard Bernstein (1717-1726) /1995, Sony/ [APE|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto for Violin and Orchestra in A Minor BWV 1041:
+1. I.Жанр: ClassicalПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10063B931DA8E76025AC1B64A2A1A9F13B8230FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496122   (252984) от 14.05.2012
 
 Pink Floyd - Us And Them Symphonic Pink Floyd: The London Philharmonic Orchestra (1995) [FLAC|Lossless]<Modern Classical, Ambient>
@@ -6,7 +33,7 @@ Pink Floyd - Us And Them Symphonic Pink Floyd: The London Philharmonic Orchestra
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252984.jpg" />
 </div>
 
 
@@ -41,7 +68,7 @@ Wolfgang Amadeus Mozart – Mozart, Music for oboe and strings: VA, Virtuosity o
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252929.jpg" />
 </div>
 
 
@@ -76,7 +103,7 @@ Johann Sebastian Bach - Three Concertos for Flute: Ars Rediviva Orchestra, VA, J
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252661.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Armin van Buuren - Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252326.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Ne
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251372.jpg" />
 </div>
 
 
@@ -175,7 +202,7 @@ Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [F
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251122.jpg" />
 </div>
 
 
@@ -210,7 +237,7 @@ Violina Petrychenko - Mrii: Ukrainian Hope (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249458.jpg" />
 </div>
 
 
@@ -239,7 +266,7 @@ Johann Sebastian Bach, Bernard Foccroulle - Toccaten & Passacaglia (2008) Reissu
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245218.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ Rudolf Buchbinder, Strauss, Schubert, Schumann, Beethoven, Chopin - Soirèe De V
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244009.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ VA - The Best 50 of Beautiful Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242777.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ Autumn Tears - Guardian Of The Pale (2023) [FLAC|Lossless|WEB-DL|tracks] <Neocla
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242727.jpg" />
 </div>
 
 
@@ -355,7 +382,7 @@ Steven Ang, Tatiana Konovalova, Francesca Lee - Highlights from Verdi's Macbeth 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242682.jpg" />
 </div>
 
 
@@ -384,7 +411,7 @@ Dejan Lazic - Istrian Rhapsody (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Class
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242141.jpg" />
 </div>
 
 
@@ -413,7 +440,7 @@ VA - Relaxing Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241831.jpg" />
 </div>
 
 
@@ -442,7 +469,7 @@ Maya Beiser - Infinite Bach (album) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241711.jpg" />
 </div>
 
 
@@ -471,7 +498,7 @@ VA - The Best 50 of Romantic Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241503.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ Olafsson - From Afar (Reworks) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Class
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241267.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ Sufjan Stevens • Timo Andres • Conor Hanick - Reflections (2023) [FLAC 24/96
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240097.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ VA - The Best of Classical Music - The Greatest Piano Sonatas (2023) [FLAC|Lossl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239973.jpg" />
 </div>
 
 
@@ -587,7 +614,7 @@ VA - Vocal Miracles (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239670.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ Eydis Evensen - The Light (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239189.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ VA - Gymnopedie Chilled Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classi
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235947.jpg" />
 </div>
 
 
@@ -674,7 +701,7 @@ Niccolo Paganini - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classi
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234559.jpg" />
 </div>
 
 
@@ -703,7 +730,7 @@ Pekka Kuusisto, Joonas Ahonen - Symmetria Pario: Creation (2023) [FLAC|Lossless|
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233035.jpg" />
 </div>
 
 
@@ -732,7 +759,7 @@ BBC Scottish Symphony Orchestra, Alpesh Chauhan - Tchaikovsky: The Tempest, Fran
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232842.jpg" />
 </div>
 
 
@@ -746,41 +773,6 @@ BBC Scottish Symphony Orchestra, Alpesh Chauhan - Tchaikovsky: The Tempest, Fran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8462BF6928EE371CEC2AC1736E88866ED7D5ADDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586579   (229158) от 08.12.2012
-
-Johann Strauss-Best of Strauss: Berliner Philharmoniker & Herbert von Karajan 1983-1991 (1996) [FLAC|Lossless]<Classic>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229158.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Artist’s Life	06:46
-2.	Vienna Blood	08:49
-3.	On The Beautiful Blue Danube	08:02
-4.	Morning Papers	07:59
-5.	Thunder And Lighting Polka	02:47
-6.	March From “Der Zigeunerbaron”	02:46
-7.	Fata-Morgaiia Polka	03:34
-8.	Pizzicato Polka.	02:24
-9.	Rarietzkv March	03:12
-JOHANN STRAUSS, JR.(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A0573951CBFCEDE23D041CADEEFA5DDE1BA7ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

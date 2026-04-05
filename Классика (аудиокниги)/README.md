@@ -1,4 +1,84 @@
 https://t.me/izofen
+###  Публикация: 1862588   (1063558) от 
+
+Николай Лейкин | Сусальные звёзды (2026) [MP3, Геннадий Постригайло]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и большинство произведений Лейкина, книга посвящена жизни петербургского купечества и мещанства. Автор с иронией и знанием дела описывает быт, нравы и характерные типы людей того времени.
+Впервые роман был опубликован в конце XIX века (например, прижизненное издание 1898 года). В последние годы интерес к книге возрос, она переиздается в современных форматах.Жанр: Проза, классика, сатираИздательство: неофициальное изданиеПродолжительность: 10:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC7688A4B284F5A8E5467A30586DCA8A0140281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861435   (1063376) от 
+
+Луи  Буссенар | Монмартрская сирота (2026) [MP3, Пётр Мальцов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Монмартрская сирота» – остросюжетный роман известного французского писателя Луи Буссенара построен на сложном переплетении двух основных сюжетных линий – борьбы за сокровища индейского племени арапагосов, которые нашел в горах владелец ранчо «Монмартр» Дэрош, и драматической любовной истории.Жанр: приключенияИздательство: ИДДКПродолжительность: 10:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A7B66CB4C9B46C75EDB3173455F846ED4C2EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862466   (1063366) от 
+
+Чарльз  Диккенс | Посмертные записки Пиквикского клуба (2026) [MP3, Валерий Толков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063366.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Посмертные записки Пиквикского клуба» (также известные как «Записки Пиквикского клуба») – первый роман английского писателя Чарльза Диккенса, впервые опубликованный в виде серии (с продолжениями) с марта 1836 по ноябрь 1837 года.
+Книга представляет собой череду слабо связанных между собой приключений, написанных для публикации в периодическом издании. Она стала (   Читать дальше...   )Жанр: Зарубежная классикаИздательство: АРДИСПродолжительность: 40:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BAFA8E4F938195FBE5CE6EC762D63E0C82FEE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861584   (1062680) от 
 
 Лао Шэ | Рикша (2026) [MP3, Игорь Гмыза]
@@ -7,7 +87,7 @@ https://t.me/izofen
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062680.jpg" />
 </div>
 
 
@@ -35,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062655.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062592.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061750.jpg" />
 </div>
 
 
@@ -115,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061725.jpg" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061141.jpg" />
 </div>
 
 
@@ -168,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059961.jpg" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057450.jpg" />
 </div>
 
 
@@ -223,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057414.jpg" />
 </div>
 
 
@@ -249,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056952.jpg" />
 </div>
 
 
@@ -277,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056325.jpg" />
 </div>
 
 
@@ -303,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056323.jpg" />
 </div>
 
 
@@ -329,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055980.jpg" />
 </div>
 
 
@@ -355,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054595.jpg" />
 </div>
 
 
@@ -384,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054593.jpg" />
 </div>
 
 
@@ -413,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054427.jpg" />
 </div>
 
 
@@ -439,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054426.jpg" />
 </div>
 
 
@@ -466,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054238.jpg" />
 </div>
 
 
@@ -495,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054032.jpg" />
 </div>
 
 
@@ -521,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053385.jpg" />
 </div>
 
 
@@ -547,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053384.jpg" />
 </div>
 
 
@@ -573,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053383.jpg" />
 </div>
 
 
@@ -599,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053324.jpg" />
 </div>
 
 
@@ -611,86 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71A4EDD052B16713A515490477BA462A0D115B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848997   (1053166) от 20.01.2026
-
-Дмитрий Мамин-Сибиряк | Песня мистера Каль (2026) [MP3, Александр Васильев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Дмитрий Наркисович Мамин-Сибиряк (1852–1912) – русский писатель.
-Произведения писателя посвящены описанию уральских промышленников, горных рабочих. Детям многих поколений Дмитрий Наркисович известен как замечательный сказочник. В его историях оживают детские игрушки и разговаривают различные растения, бродят водяные и спорят буквы, а (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C714FF0CBF959A621E37A6B926EE8AE824AB786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848097   (1052769) от 17.01.2026
-
-Николай Васильевич Гоголь, Федор Михайлович Достоевский, Антон Павлович Чехов и др. | Рождественская шкатулка. Рассказы русских классиков (2025) [MP3, Александр Васильев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный сборник собрал лучшие рождественские и новогодние рассказы величайших отечественных писателей: Н. В. Гоголя, Н. С. Лескова, Ф. М. Достоевского, А. И. Куприна, В. В. Розанова, М. М. Зощенко, А. П. Чехова, В. А. Никифорова-Волгина. В произведениях соединяются традиционное христианство и народный фольклор, Истории призывают нас к любви и милосердию, к тому, (   Читать дальше...   )Жанр: КлассикаИздательство: ЭксмоПродолжительность: 06:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D32B1B7092D11FC5FA50A4D7125DF5CDA50FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848090   (1052596) от 16.01.2026
-
-Брет Гарт | Маленький старатель и другие рассказы (2016) [MP3, Александр Котов, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перу Брета Гарта принадлежат роман «Гэбриел Конрой», ряд повестей, оригинальные стихотворения, популярные в свое время литературные пародии (на Диккенса, Виктора Гюго и др.) и даже пьеса, написанная в соавторстве с Марком Твеном. Однако наибольшую популярность ему принесли рассказы, а в рассказах — образы простых людей Дикого Запада.Жанр: Зарубежная классикаИздательство: СОЮЗПродолжительность: 03:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5E838AEEF1E749B4C2FD820981E940EDA1C651
 ```
 
 https://mybot314.ru/tekegram_catalog/

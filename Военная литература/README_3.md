@@ -1,135 +1,3 @@
-###  Публикация: 608124   (994213) от 24.01.2013
-
-Г.К.Граф | Императорский балтийский флот между двумя войнами. 1906-1914 гг. (2013) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга воспоминаний Г.К. Графа, капитана 2-го ранга (в эмиграции — контр-адмирал), участника Русско-японской, Первой мировой и Гражданской войн, рассказывает о возрождении Балтийского флота России после войны с Японией. Автор рассказывает не только о событиях 1906—1914 гг. на флоте, но и знакомит читателя с жизнью русских офицеров и матросов. Читатель узнает о том, (   Читать дальше...   )Жанр: Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39B55288329B724F15212E0B3C6717FB94C8AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607723   (994133) от 24.01.2013
-
-В. Ю. Русанов | Командармы. Военный биографический словарь [2005] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994133.jpg" />
-</div>
-
-
-###  Подробнее
-
-В словаре помещены биографии командующих советскими армиями периода Второй мировой войны. Военачальники, биографии которых представлены в труде, благодаря своему полководческому таланту внесли значительный вклад в разгром войск гитлеровской Германии и ее сателлитов. Работа по подготовке биографий осуществлялась сотрудниками Института военной истории совместно с представителями Управления учета военнослужащих и Управления присвоения воинских званий и награждений ГУК МО РФ, ЦАМО, МВД России, видов и родов войск Вооруженных Сил Российской Федерации.
-Справочник рассчитан на военных историков и всех читателей, интересующихся героическим прошлым нашей Родины.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C5FC3F77B8356794B682272DA85E3F1B5994AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608200   (994058) от 24.01.2013
-
-В. Ю. Русанов | Комкоры. Военный биографический словарь в двух томах [2006] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994058.jpg" />
-</div>
-
-
-###  Подробнее
-
-В словаре представлены биографии командиров корпусов и равных им по должности периода Великой Отечественной и Второй мировой войн. Военачальники, биографии которых помещены в труде, благодаря своему полководческому таланту внесли значительный вклад в разгром войск гитлеровской Германии и ее союзников. По существу, это первый опыт комплексного исследования биографий военачальников — командиров корпусов.
-Книга рассчитана на военных историков и всех читателей, интересующихся героическим прошлым нашей Родины.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:469722A625D28B6B66F133966E0E6C556D395A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609047   (992815) от 26.01.2013
-
-А. Ипатович-Горанский, В. Яковлев | Курс кавалерийских училищ. Конно-саперное дело (Раритетное издание) [1908] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий курс конно-саперного дела предназначен для кавалерийских училищ, для учебных команд кавалерийских частей, а также для офицеров, командируемых в саперные лагеря для изучения конно-саперного дела. Подрывное, телеграфное, телефонное дело. Оптическая сигнализация. Понятия об искровом телеграфе.Язык: Русский (старая орфография)Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C421FDA2AE1CB0C8073EB9DE192AB7E4745AF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 893948   (991745) от 18.01.2020
-
-А. В. Сульдин | Блокада Ленинграда. Полная хроника – 900 дней и ночей (2015) [FB2, EPUB, PDF, RTF, MOBI]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга серии посвящена блокаде Ленинграда – одной из самых ужасающих страниц Великой отечественной войны. Сейчас трудно представить тяготы, выпавшие на долю жителей города на Неве и мужество его защитников. Захват Ленинграда был составной частью плана «Барбаросса», в котором предусматривался полный разгром Советского Союза за 3–4 месяца. Но этим планам не суждено (   Читать дальше...   )Жанр: История, Военная история, Документальная литература, Военная документалистикаФормат: FB2, EPUB, PDF, RTF, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617C9011DB07FC6C67E2442072AC24D041E6C314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 242593   (991565) от 18.01.2020
 
 В. В. Руденко | Руководство по устройству, эксплуатации и ремонту Человека [2009] [DOC]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991565.jpg" />
 </div>
 
 
@@ -167,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991240.jpg" />
 </div>
 
 
@@ -194,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990227.jpg" />
 </div>
 
 
@@ -220,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987482.jpg" />
 </div>
 
 
@@ -246,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986065.jpg" />
 </div>
 
 
@@ -272,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984865.jpg" />
 </div>
 
 
@@ -301,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984761.jpg" />
 </div>
 
 
@@ -330,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983438.jpg" />
 </div>
 
 
@@ -356,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982038.jpg" />
 </div>
 
 
@@ -382,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981931.jpg" />
 </div>
 
 
@@ -408,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981401.jpg" />
 </div>
 
 
@@ -434,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980698.jpg" />
 </div>
 
 
@@ -460,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980691.jpg" />
 </div>
 
 
@@ -486,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980690.jpg" />
 </div>
 
 
@@ -512,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980248.jpg" />
 </div>
 
 
@@ -539,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979148.jpg" />
 </div>
 
 
@@ -567,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979026.jpg" />
 </div>
 
 
@@ -593,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978169.jpg" />
 </div>
 
 
@@ -620,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977846.jpg" />
 </div>
 
 
@@ -646,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976931.jpg" />
 </div>
 
 
@@ -672,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976193.jpg" />
 </div>
 
 
@@ -684,6 +552,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23DD7B7B6D8535850657E1911073DF3B8EA3EF28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357149   (975380) от 02.02.2020
+
+Сергей Кремлёв | Берия. Лучший менеджер XX века (2017) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975380.jpg" />
+</div>
+
+
+###  Подробнее
+
+6-е издание культового бестселлера, с которого началась полная моральная реабилитация Лаврентия Павловича Берии. Самая честная и подробная биография величайшего Управленца СССР. Лучший памятник единственному достойному наследнику Сталина, который мог исполнить завещание Вождя: вырвать власть из рук чиновников, чтобы вернуть её народу!
+
+В юности Берия мечтал строить (   Читать дальше...   )Жанр: Биографии и мемуары, Военное дело / спецслужбы, Документальная литератураФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889048A044FF07640101E2DE03878D09AABD438A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974604   (974411) от 13.01.2016
+
+Баир Иринчеев | Танки в Зимней войне (2013) [PDF, DJVU, FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много споров до сих пор бурлит вокруг советско-финской войны, известной также как "Зимняя". Много мифов связано с ней. Один из них - о советских танках, совершенно бездарно и беспомощно потерянных в бескрайних снегах Карельского перешейка и в огромном количестве доставшихся Финляндии в качестве трофеев. Каким образом всё обстояло на самом деле, и как действовала (   Читать дальше...   )Жанр: Военная историяФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EAD8583EFABC1071E9831FBBF1BC4F0A11375E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617385   (974046) от 11.02.2013
+
+П.С.Таль-Ата | Описание военных действий под Плевною [1885] [PDF] (Раритетное издание)
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974046.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге описывается один из эпизодов Русско-турецкой войны 1877—1878 гг. - военная операция русско-румынских войск против укрепившихся в городе Плевне турецких войск Османа-паши.Язык: Русский (старая орфография)Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A89E8D2825074CCD9F169C2CB0EE94616726A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616310   (973330) от 11.02.2013
+
+П.А. Жилин | Бородино. 1812 [1987] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейное издание к 175-летию Бородинского сражения. Большое количество цветных иллюстраций, популярный текст позволяют четко и зримо представить историю Отечественной войны 1812 года и проследить буквально по часам весь ход грандиозной Бородинской битвы.Издательство: МысльФормат: DJVUКачество: Отличный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221963FF9593E897566FDED67C40D6FA7FA3DD78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617873   (972481) от 12.02.2013
+
+Петр Швейковский | Суд общества офицеров и дуэль в войсках Российской армии (Раритетное издание) [1898] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый вниманию читателей сборник «Суд общества офицеров и дуэль в войсках Российской армии», составитель которого - полковник Петр Александрович Швейковский, представляет собой действующее законодательство конца XIX начала XX века со всеми прилагающимися комментариями. Издание по праву называли настольной книгой для офицеров всех родов оружия. В книге приводятся (   Читать дальше...   )Язык: Русский (старая орфография)Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6A3B080BCD38ABBA517DCC1A616F4E2422CA64
 ```
 
 https://mybot314.ru/tekegram_catalog/

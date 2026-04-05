@@ -1,3 +1,166 @@
+###  Публикация: 1380884   (824596) от 08.05.2020
+
+Прогулки по Дрездену, Германия / Dresden, Deutschland (2019) CamRip [H.264/1080p] [PR]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Короткометражный фильм по основным достопримечательностям Дрездена в Германии.
+//
+Ein Kurzfilm über die Hauptattraktionen der Stadt Dresden in Deutschland.Производство: Германия, РоссияЖанр: видовой, короткометражныйРежиссер: Денис ВарламовПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 00:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C091C183ECE78412B345314B267BE832010AE8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381310   (824592) от 08.05.2020
+
+Прогулки по Кисловодску (видеоэкскурсия) / Walks in Kislovodsk (2017) CamRip [H.264/1080p] [PR]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Короткометражная видеоэкскурсия «Прогулки по Кисловодску» даёт возможность зрителю увидеть красивые места, которые можно посетить в городе Кисловодске.Производство: Россия, КисловодскЖанр: видовой, короткометражныйРежиссер: Денис ВарламовПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 00:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A683B199C22F909C86E181828C6066BD270F54C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116193   (824577) от 19.03.2017
+
+Орел и решка. Перезагрузка (2017.03.19) WEB-DL [H.264/1080p-LQ] (сезон 14: Бангкок)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2F965E2E1EC77483CF6DAF715728E96D73E2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116183   (824572) от 19.03.2017
+
+Орел и решка. Рай и ад (2017.03.19) WEB-DL [H.264/1080p-LQ] (сезон 13: Райская Камбоджа)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824572.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нелегкого испытания под названием «Кругосветка» ведущие Регина Тодоренко и Леся Никитюк снова вместе отправляются в путешествие. В 13-м сезоне проекта они посетят самые райские и самые адские уголки нашей планеты. Их ждут волшебные тропические курорты и самые опасные места на Земле.
+В первом выпуске шоу Орел и решка. Рай и ад Леся и Регина будут искать рай (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F78F37E63ABEB16ADA67E41413F6FB487895498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116194   (824570) от 19.03.2017
+
+Танцуют все! (2017.03.19) SATRip (сезон 1, выпуск 1)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824570.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Россия" стартует новый суперпроект "Танцуют все!"
+Лучшие танцевальные коллективы со всей страны начинают танцевальный марафон. Они выйдут на сцену, чтобы удивить и поразить зрителей и доказать всей стране, что они настоящие профессионалы! Мы увидим танцы, которые волнуют весь мир, танцы, которые хотят танцевать все!
+Каждую неделю (   Читать дальше...   )Телекомпания: РоссияЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F4E20BA02F7D6DC7574F21B2FA471D7FEED15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380905   (824480) от 08.05.2020
+
+Эрмитаж, Санкт-Петербург / The Hermitage, St. Petersburg (2020) CamRip [H.264/1080p] [PR]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культурный центр России - Санкт-Петербург, основанный в 1703 году Петром Великим, пользуется огромной популярностью у туристов со всего мира.
+Город Санкт-Петербург представляет собой удивительное сочетание культур и традиций России и Европы. В городе насчитывается более 250 музеев.
+Второй по величине музей изобразительного и декоративно-прикладного искусства в мире (   Читать дальше...   )Производство: Россия, Санкт-ПетербургЖанр: видовой, короткометражныйРежиссер: Денис ВарламовПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: АнглийскиеПродолжительность: 00:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA42466C18EC3B19435D9697E677F46DAE96043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381767   (824479) от 08.05.2020
 
 Прогулки по Санкт-Петербургу / Saint Petersburg (2020) CamRip [H.264/1080p] [PR]
@@ -6,7 +169,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824479.jpg" />
 </div>
 
 
@@ -34,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824446.jpg" />
 </div>
 
 
@@ -62,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824427.jpg" />
 </div>
 
 
@@ -88,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824369.jpg" />
 </div>
 
 
@@ -116,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824365.jpg" />
 </div>
 
 
@@ -142,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824207.jpg" />
 </div>
 
 
@@ -168,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824130.jpg" />
 </div>
 
 
@@ -194,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824128.jpg" />
 </div>
 
 
@@ -221,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824125.jpg" />
 </div>
 
 
@@ -250,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824109.jpg" />
 </div>
 
 
@@ -276,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824082.jpg" />
 </div>
 
 
@@ -302,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824002.jpg" />
 </div>
 
 
@@ -328,7 +491,7 @@ Deep Purple: From Here to InFinite (2017) BDRip [H.264/720p-LQ] [VO]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823878.jpg" />
 </div>
 
 
@@ -354,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823873.jpg" />
 </div>
 
 
@@ -380,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823639.jpg" />
 </div>
 
 
@@ -406,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823570.jpg" />
 </div>
 
 
@@ -432,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823557.jpg" />
 </div>
 
 
@@ -458,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823383.jpg" />
 </div>
 
 
@@ -484,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823299.jpg" />
 </div>
 
 
@@ -511,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823199.jpg" />
 </div>
 
 
@@ -522,165 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB680103259EA7A29F59C52F4545C2C935603E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503108   (823169) от 17.10.2021
-
-Сто к одному (17.10.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B03240E693A94943D944A3C57ADBED7E0C14395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503035   (823162) от 17.10.2021
-
-Первая передача на НТВ. Автомобильная передача (17.10.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доставщики еды на велосипедах – по тротуарам, по детям. Как найти «коробейника», если он сбил и был таков? И кто пострадавшим возместит ущерб? Свидетель ДТП: вправе ли очевидец покинуть место происшествия, не дожидаясь полиции? А также — осеннее автопутешествие по Карелии.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A09D41CC895F578ED93A9E7AB1B9B2D925AD4B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503036   (823161) от 17.10.2021
-
-Чудо техники с Сергеем Малозёмовым (17.10.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телефонный спам: помогают ли современные антиспам-услуги бороться с назойливой рекламой? Как российские ученые превращают метан в еду для животных и правда ли, что добавка содержит незаменимые жирные кислоты?Чудо-товары – озонатор для устранения запаха в холодильнике и инновационное средство против ржавчины.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506181030B0656E4EFCF0A7FD522B54D3B3BE51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503057   (823048) от 17.10.2021
-
-Электровелосипед в Доломитах / E-Biking in the Dolomites (2021) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823048.jpg" />
-</div>
-
-
-###  Подробнее
-
-На электровелосипеде по горам.Производство: Италия, MeliЖанр: Документальный, видовойПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D8121CFCB0752FB45ABC9AB90C495538A5B2C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503053   (823042) от 17.10.2021
-
-От тьмы к свету / Dark to Light (2020) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что реально, а что такое иллюзия? Этот фильм немного более экспериментален, чем всё, что я делал до этого. Всегда оставайтесь позитивными, и пусть это видео поможет вам в моменты темноты снова выйти на свет.Производство: ГерманияЖанр: Документальный, видовойРежиссер: Джонатан БеслерПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751A2407D8C2E3DFA34FC3AF6FA0DA9E8EED615C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503029   (823039) от 17.10.2021
-
-Шоумаскгоон (2021) WEBRip [H.264/1080p] (сезон 1, выпуск 4)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борьба за верхние места на «пьедестале» «Шоумаскгоон» накаляется с каждым разом! Участники радикально меняют образы, стараясь перещеголять соперников в новых номерах. Как они оценят друг друга на этот раз и что об их выступлениях скажет специальный гость программы — лидер группы «Ночные снайперы» Диана Арбенина?00:00:00 «Шоумаскгоон». Четвертый выпуск
-00:05:14 «Я не поняла» — Юля Паршута
-00:14:22 Fever — Вячеслав Макаров
-00:24:08 «Катастрофически» — Алиса Мон(   Читать дальше...   )Производство: Россия | «ВайТ Медиа»Жанр: Тв шоу, музыкаСубтитры: ОтсутствуютПродолжительность: 01:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC10EDED102F3CE64CFED3E7EA964F0B8AD87D44
 ```
 
 https://mybot314.ru/tekegram_catalog/

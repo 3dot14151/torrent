@@ -1,3 +1,57 @@
+###  Публикация: 1215225   (759366) от 25.03.2018
+
+JetBrains PyCharm Professional 2017.3.4 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759366.jpg" />
+</div>
+
+
+###  Подробнее
+
+PyCharm - интегрированная среда разработки для языка программирования Python. Предоставляет средства для анализа кода, графический отладчик, инструмент для запуска юнит-тестов и поддержка веб-разработки на Django. PyCharm разработана чешской компанией JetBrains на основе IntelliJ IDEA.PyCharm работает под операционными системами Windows, macOS и Linux.Тип издания: macOS SoftwareРелиз состоялся: 31.01.2018Разработчик: JetBrainsПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05927A01B8A243368D1E8DF15619812B5BF438A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017903   (759094) от 18.05.2016
+
+Sparkle 2.0.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sparkle создана специально для веб-дизайна и строительства веб-сайтов и даёт полный визуальный контроль над всем.
+
+Если вы когда-нибудь занимались ручным кодированием веб-сайтов, вы потратили много часов, чтобы выяснить, как вы могли бы выровнять элементы страницы так же, как вы хотели, или выяснить, почему некоторые браузеры не отображают содержимое. Все это является (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 мая 2016Разработчик: River SRLПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Итальянский, Немецкий и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8443A2135D3CBE3C84AC6C4D4E4B25048A01E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017946   (758960) от 18.05.2016
 
 ProVideoPlayer 2.1.2 [En]
@@ -6,7 +60,7 @@ ProVideoPlayer 2.1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758960.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ Apple GarageBand 10.1.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758915.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Xee 3.5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758834.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ CorelCAD 2016.5 (6.2.1.3056) [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758823.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ ShowKeyPro 1.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757024.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ Tweak Photos - Image Editor 2.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756886.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ BetterZip 4.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756842.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ SoftMaker Office Professional 2021 Rev S1034.0710 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756632.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ Artista Impresso Pro 1.8.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756345.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ FCPX Full Access 2021 Ultimate Bundle/M1 Compatible [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756332.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ Reflector 3.0.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755911.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ Paletter 4 v4.3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755317.jpg" />
 </div>
 
 
@@ -330,7 +384,7 @@ Newsletters Templates NG 2.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755210.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ AppZapper 2.0.3 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755177.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ Fix My iPhone 2.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755061.jpg" />
 </div>
 
 
@@ -413,7 +467,7 @@ Business Card Shop 8.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754466.jpg" />
 </div>
 
 
@@ -439,7 +493,7 @@ The Unarchiver 3.11.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754375.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ PDF Expert 1.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753806.jpg" />
 </div>
 
 
@@ -494,7 +548,7 @@ Classic Color Meter 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753619.jpg" />
 </div>
 
 
@@ -521,7 +575,7 @@ PhotosCollage 1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753612.jpg" />
 </div>
 
 
@@ -547,7 +601,7 @@ PhotoReflector 1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753611.jpg" />
 </div>
 
 
@@ -573,7 +627,7 @@ TinkerTool System 7 v7.71 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753609.jpg" />
 </div>
 
 
@@ -599,7 +653,7 @@ WebScraper 4.15.3 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753522.jpg" />
 </div>
 
 
@@ -625,7 +679,7 @@ PDF Squeezer – PDF Toolbox 6.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753514.jpg" />
 </div>
 
 
@@ -636,62 +690,6 @@ PDF Squeezer - PDF Toolbox предназначен для работы с фа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010B7B364BAF2634EEB461140F273F9404A3F30C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281384   (753486) от 07.02.2019
-
-Instaradio 8.0.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Instaradio - слушайте любимые радиостанции или открывайте новые. Instaradio может быть радио-проигрывателем, которого вы так долго ждали. Попробуйте приложение, которым пользуются тысячи людей, слушающих радио!
-
-Доступны плейлисты для Австралии, Австрии, Бельгии, Канады, Чехии, Дании, Франции, Германии, Италии, Нидерландов, Норвегии, Польши, России, Словении, Испании, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2019Разработчик: Markus JahnsrudПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F1BFD356ED588B080C118523B4E1F02EE0F142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523126   (753385) от 10.01.2022
-
-Music Tag Editor 5.10.4 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Tag Editor - редактор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
-Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
-Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2021Разработчик: SwiftMediaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CFDF12510D2736317BFF80387B1B7575512085
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1172099   (393834) от 07.10.2017
+
+Лайонел Бендер | Изобретения (1997) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга рассказывает удивительную историю появления хорошо знакомых нам вещей. На красочных фотографиях первые телескопы, старинные радиоприемники, солнечные часы и современные компьютеры. Рассмотрите их во всех подробностях! Вы увидите: телескоп Галилео Галилея, заводную бормашину, древнеримский калькулятор, крылья, впервые поднявшие человека в воздух. Вы узнаете: (   Читать дальше...   )Жанр: ЭнциклопедииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF05627072636E623423DB8C47521DC4F0EB6A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568890   (392916) от 02.11.2012
+
+Эдуард Лабулэ | Сказки [1994] [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392916.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередной выпуск "Иллюстрированной библиотеки сказок для детей и взрослых" вошли сказки французского писателя Эдуарда Лабулэ (1811-1883), не известные нашему читателю.
+Памфлет-сказка "Принц-пудель" печатается в переводе Д.Писарева по журнальной публикации 1868 года. Текст более не воспроизводился ни в одном российском издании. Удивительные аналогии и злободневность этой сказочной сатиры должны поразить внимательного читателя, хотя писал великий сказочник все это более ста лет назад.
+Издание богато иллюстрировано рисунками, воспроизведенными с парижского издания книг: "Голубые сказки" и "Новые голубые сказки" Эдуарда Лабулэ, а также рисунками екатеринбургского художника Анатолия Демина.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067BF40E5C9F8D4E9268FBA012A088C375432FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172939   (391775) от 09.10.2017
 
 Александр Беляев | Сборник книг [6] (2016-2017) [FB2]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391775.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391444.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391002.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390719.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390711.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390707.jpg" />
 </div>
 
 
@@ -172,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390524.jpg" />
 </div>
 
 
@@ -198,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390515.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390356.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390289.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390140.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388799.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388033.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387918.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387747.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387746.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387736.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387633.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387623.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387555.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387399.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386849.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386799.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386681.jpg" />
 </div>
 
 
@@ -631,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BC42D2F0183A4B11A91D7E97524A359C81EA6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253215   (385553) от 08.10.2018
-
-Александра Бостром (ред.) | Подружка (1910) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы для детей младшего школьного возраста.Жанр: Детская прозаФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66029C6C1BFD2D463C8C7EE815FC9C29D7E16405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253304   (385549) от 08.10.2018
-
-Туве Янссон | Опасное лето (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето выдалось тревожным — наводнение пришло в долину и затопило дом муми-троллей. Семья отправилась искать новое жильё. На их удачу, волнами к берегу прибило вполне подходящий дом, который, правда, вёл себя немного странно. У него была крыша, похожая на створку раковины, и вращающийся пол, а если дёрнуть за шнурок — с потолка упадёт картина. Или польёт дождь. Или (   Читать дальше...   )Жанр: Детские приключения, СказкиПеревод: Евгения Канищева, Мария ЛюдковскаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984280A4641A1B6FC944ACC571347FC5C9644101
 ```
 
 https://mybot314.ru/tekegram_catalog/

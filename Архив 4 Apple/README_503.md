@@ -6,7 +6,7 @@ Overlay 4.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241692.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Piezo 1.7.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241683.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241642.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ GroupsPro 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241638.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ MediaInfo 0.7.93 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241620.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Xliff Editor 2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241614.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Creative Convert 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241606.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Cookie 6.0.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241599.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ FigrCollage 2 Home Edition v2.5.18[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241574.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Rocket Pro 1.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241566.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Super PhotoCut Pro 2.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241531.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ WonderPen 2.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241519.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Text Workflow 1.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241513.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Nevercenter CameraBag Photo 2022.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241489.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ QR Factory 2.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241483.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Omni Toolbox 1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241481.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Adobe After Effects 2022 22.3.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241477.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Screegle - Clean Screen Sharing 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241469.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Scrutiny 9 v9.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241451.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Omni Recover 3 v3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241445.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Xliff Editor 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241443.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ KCNcrew Pack 03-15-17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241434.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ AnyMP4 Mac Blu-ray Player 6.3.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241427.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Paste 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241414.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Photo Image Editor Pixelstyle 3.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241395.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Capture One 23 Pro 16.2.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241381.jpg" />
 </div>
 
 

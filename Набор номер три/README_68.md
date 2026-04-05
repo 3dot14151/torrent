@@ -1,3 +1,160 @@
+###  Публикация: 1137121   (968327) от 08.02.2020
+
+Собачья жизнь / A Dog's Purpose (2017) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собаки бывают разных пород, мастей и размеров. Они — наши самые верные и преданные друзья, а мы учим их хорошим манерам. Собаки всегда думают о нас, правда, иногда и о беконе. Все они каждый день провожают и встречают нас у порога в уверенности, что пока им есть, кого облизывать и любить, в их жизни есть смысл.Производство: США, Индия / Amblin Entertainment, Original PicturesЖанр: фэнтези, драма, комедия, приключения, семейныйРежиссер: Лассе ХалльстрёмАктеры: Джош Гэд, Дэннис Куэйд, Пегги Липтон, Кей Джей Апа, Брайс Гейзар, Джульет Райлэнс, Люк Кирби, Габриель Роз, Майкл Бофшевер, Бритт РобертсонПеревод: ДублированныйСубтитры: Русские (полные, форсированные), английскиеПродолжительность: 01:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F4FE7FBDB73F5EA3B219FE0E912D255034CD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358197   (968326) от 08.02.2020
+
+Затерянные в России / Jiong ma / Lost in Russia (2020) WEBRip [H.264/1080p-LQ] [DVO] [PR]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бизнесмен из Пекина Сюй Иван мало того, что находится в процессе развода, так ещё и узнаёт, что его пока ещё супруга собралась в Нью-Йорк заключить сделку о продаже их совместного бизнеса. Решив во что бы то ни стало ей помешать, Иван только в аэропорту вспоминает, что оставил паспорт у мамы, а та как раз отправляется поездом в Москву на выступление. Так получается, (   Читать дальше...   )Производство: Китай / Crater Studio 2, Monk StudioЖанр: комедия, приключенияРежиссер: Сюй ЧжэнАктеры: Сюй Чжэн,  Хуан Мэйин, Юань Цуань, Го Цзинфэй,  Цзя Бин, Ольга Магницкая, Годфри Гао,  Шэнь Тэн, Джонни Хуан, Номэнь Ээрдэни, Чжулина, У Юньфан, Чэнь Ци, Хуан Бо и другиеПеревод: Двуголосый любительский (КОЛОБОК)Субтитры: Английские (hardsub), Китайские (hardsub)Продолжительность: 02:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6308CCA8465F8036B7FA12AD9A482A0228F50A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345686   (968325) от 08.02.2020
+
+Викинги / Vikings (2019) WEB-DLRip (сезон 6, серии 1-10 из 20) LostFilm (обновляемая)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение популярного исторического сериала созданного Майклом Херстом специально для канала History.
+Шестой сезон будет посвящен экспансии викингов. «Северяне» отправятся по Шелковому пути и столкнутся не только с Китайской цивилизацией, но и Древней Русью.Производство: Ирландия, Канада / World 2000 Entertainment, Take 5 Productions, Shaw MediaЖанр: история, драма, боевик, мелодрама, приключения, военныйРежиссер: Стивен Ст. Леджер, Дэниэл Гру, Хелен ШейверАктеры: Густаф Скарсгард, Кэтрин Уинник, Александр Людвиг, Джорджия Хёрст, Алекс Хег Андерсен, Дженни Жак, Джордан Патрик Смит, Петер Францен, Джон Кэвэна, Алисия Агнесон и др.Перевод: Многоголосый, профессиональный - LostFilmПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBDCAEE656A08CFBA427A3DCECBAA18B25C5DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431501   (968324) от 08.02.2020
+
+BSPlayer Pro 3.06.220 Mod by Dymonyxx [Ru] - Универсальный мультимедиа плеер
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный мультимедиа плеер для платформы Android. Поддерживает работу на планшетах.Тип издания: ПираткаРелиз состоялся: 08.02.2020Разработчик: BSPlayer mediaПоддерживаемая ОС: Android. 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F17DD8E0E2D8DFC95447AA3D5CEC703040EEA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976705   (968190) от 18.01.2016
+
+Набор обновлений UpdatePack7R2 16.1.17 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98CEE0BE099E3B95B8248790257278692926A75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976761   (968181) от 18.01.2016
+
+007: Спектр / Spectre (2015) BDRip [H.264/720p] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зашифрованное послание из неизвестного источника выводит Бонда на след зловещей глобальной организации под кодовым названием СПЕКТР, в то время как М пытается спасти секретную разведывательную службу от ликвидации.Производство: Великобритания, США  \ B24, Columbia Pictures, Danjaq, Eon Productions Ltd., Metro-Goldwyn-Mayer (MGM), SonyЖанр: Боевик, Триллер, ПриключенияРежиссер: Сэм МендесАктеры: Дэниэл Крэйг, Кристоф Вальц, Леа Сейду, Рэйф Файнс, Моника Беллуччи, Бен Уишоу, Наоми Харрис, Дэйв Батиста, Эндрю Скотт, Рори КиннерПеревод: Дублированный (чистый звук)Язык субтитров: АнглийскийПродолжительность: 02:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE2C765E716A566CD2122C4E3F17AE91CB5765C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976463   (968178) от 18.01.2016
 
 Новые процессоры не будут поддерживать старые Windows
@@ -6,7 +163,7 @@
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968178.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ ArchiCAD 19 Build 4013 + Add-Ons [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968176.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Microsoft® Windows® 10 Professional x86-x64 1511 RU by OVGorskiy® 01.2016 2DV
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968169.jpg" />
 </div>
 
 
@@ -87,7 +244,7 @@ Impire [En/Gr] (Steam-Rip/1.0.1.1/2 DLC) 2013 | R.G. GameWorks
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968076.jpg" />
 </div>
 
 
@@ -113,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968075.jpg" />
 </div>
 
 
@@ -139,7 +296,7 @@ Far Cry 3 [Ru] (Repack/1.0.4.0) 2012 | z10yded
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968071.jpg" />
 </div>
 
 
@@ -167,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967887.jpg" />
 </div>
 
 
@@ -193,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967884.jpg" />
 </div>
 
 
@@ -219,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967881.jpg" />
 </div>
 
 
@@ -245,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967513.jpg" />
 </div>
 
 
@@ -271,7 +428,7 @@ Slax 7.0.8 [i486+x86_64] [EN+RU] 4xCD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967304.jpg" />
 </div>
 
 
@@ -297,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967291.jpg" />
 </div>
 
 
@@ -326,7 +483,7 @@ Auslogics BoostSpeed 8.2.0.0 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967290.jpg" />
 </div>
 
 
@@ -352,7 +509,7 @@ Microsoft Windows 7 SP1-u with IE11 (2 x 3in1) - DG Win&Soft 2016.01 (en-US, ru-
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967289.jpg" />
 </div>
 
 
@@ -378,7 +535,7 @@ War for the Overworld (2015) [Ru/Multi] (1.3.2f3/dlc) SteamRip Let'sPlay [Underl
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967288.jpg" />
 </div>
 
 
@@ -404,7 +561,7 @@ Paragon Hard Disk Manager 15 Professional 10.1.25.813 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967287.jpg" />
 </div>
 
 
@@ -430,7 +587,7 @@ Need For Speed: Rivals (2013) [Ru] (1.4.0.0) Repack =nemos= [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967286.jpg" />
 </div>
 
 
@@ -456,7 +613,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая охота (2015) [Ru/Mu
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967285.jpg" />
 </div>
 
 
@@ -482,7 +639,7 @@ Windows XP Pro SP3 x86 WIM Edition by SmokieBlahBlah 18.01.16 [Ru]
 >>17
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967284.jpg" />
 </div>
 
 
@@ -511,7 +668,7 @@ Impire [En/Gr] (L/1.0.1.1) 2013 | FLT
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967051.jpg" />
 </div>
 
 
@@ -522,172 +679,6 @@ Impire – стратегия, в которой вы выступаете пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:632FB4F01D58D61D1C51E2231F731A7A71E64573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619006   (967050) от 16.02.2013
-
-В Челябинской области упал метеорит
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967050.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 07:30 по московскому времени (09:30 по местному) в Челябинской области произошел взрыв.В Челябинске за минуту до этого в небе произошла резкая вспышка на 2 секунды: "встало светло как днем летом, и до темно-желтого (оранжевого) оттенка и до обычного оттенка. После прошла взрывная волна, были выбиты в большей части стекла нижних этажей, преимущественно со южно-западной стороны."
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618923   (967046) от 16.02.2013
-
-Metal Gear Rising: Revengeance [XBOX360] [Region Free] [En] [LT+3.0] (XGD3 / 15574) 2013
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Metal Gear Rising: Revengeance является шестой игрой в серии Metal Gear Solid и восьмой в серии Metal Gear. Первый анонс этой игры сделал летом 2009 года Хидзо Кодзима, легендарный гейм-художник. Он же заявил, что непосредственного участия в создании Metal Gear Solid: Rising он принимать не будет, довольствуясь продюссерством.
-Слоган игры «молниеносный экшн». То есть это классический прямолинейный шутер типа «стреляй во все, что видишь». В игре Metal Gear Solid: Rising вы играете за Рейдена, который пытается противостоять всевозможным военным компаниям. Ликвидирует врагов Рейден своим собственным мечом. Но разработчики добавили функцию замедления времени, чтобы удары меча могли стать наиболее точными. Игроку на выбор предлагаются разные «планы рассечения». Кстати, кроме врагов, Рейден своим могучим мечом крушить может все подряд.
-По сравнению с предыдущими сериями игры, в Metal Gear Solid: Rising Рейден выглядит несколько по-другому, у него даже изменился цвет глаз и оттенок кожи. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: PlatinumGames и Kojima ProductionsЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619536   (967041) от 16.02.2013
-
-Tom Clancy's H.A.W.X. 2 [Ru] (RePack/1.01) 2010 | R.G. Revenants
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение популярного симулятора полетов, в котором представлено еще больше всяческой современной и футуристической технически.
-В игре вы увидите F-35, бомбы с лазерным наведением и много другого. Полетать предстоит над Москвой, Персидским заливом, Арктикой и Индийским океаном.
-
-Tom Clancy's H.A.W.X. 2 дает возможность поучаствовать в ближних воздушных баталиях, ночных бомбардировках и нанесении тихих ударов при использовании беспилотных летательных аппаратов. Также вам предстоит совершать взлеты и посадки на базы и авианосцы, а во время некоторых миссий даже дозаправляться прямо в полете.
-(   Читать дальше...   )Тип издания: RePackЖанр: Simulation / Flight Combat / 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096B31ACE1FCC1D78AD6691F548E310242F4FD87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613839   (967039) от 16.02.2013
-
-Светофор (2013) SATRip (5 сезон 1-20 серии из 20)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда тебе за тридцать, ты вдруг замечаешь, что твоя жизнь похожа на сигналы светофора. Если ты холостяк, для тебя всегда горит зеленый свет, все вокруг в движении, и ты свободно едешь. Куда хочешь. И с кем хочешь. Если ты встречаешься с девушкой, тебе уже мигает желтый свет. С одной стороны, ты еще в движении, а с другой, уже готовишься остановиться. А если ты женат (   Читать дальше...   )Производство: Россия, Yellow, Black&WhiteЖанр: КомедияРежиссер: Роман ФокинАктеры: Ольга Медынич, Джемал Тетруашвили, Дмитрий Миллер, Александр Макогон, Ирина Низина, Сергей Лобынцев, Александр Никольский, Евгения Каверау, Антонина КомиссароваСубтитры: УкраинскиеПродолжительность: ~ 00:24:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358827   (966918) от 09.02.2020
-
-Windows 10 PRO VL 1909 x64 Rus by OneSmiLe [18363.628]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru_windows_10_business_editions_version_1909_updated_jan_2020_x64_dvd_a4affd95
-Интегрированы последние обновления на 09.02.20.
-Удалены все модерн приложения, вместе с магазином(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3BBA520BC714681D8EAF1AA645873BE6DE44377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358809   (966917) от 09.02.2020
-
-Forza Motorsport 7 (2017) [Ru/Multi] (1.141.192.2/dlc) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ощутите опасность и красоту настоящей гонки на максимальном пределе возможностей в самой реалистичной автомобильной игре Forza Motorsport 7. Соберите более 700 машин, включая огромную коллекцию Ferrari, Porsche и Lamborghini. Проявите свое мастерство в 30 известных локациях, где погодные условия могут меняться каждый раз, когда вы участвуете в гонке.Тип издания: RepackРазработчик: Turn 10 StudiosЖанр: Racing, Arcade, Simulator, 3DЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC41494C0F9437A4693CFA56110E655A660D06EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

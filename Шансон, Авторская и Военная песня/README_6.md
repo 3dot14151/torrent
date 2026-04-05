@@ -1,3 +1,32 @@
+###  Публикация: 972949   (980768) от 07.01.2016
+
+Ольга Стельмах - Зеркало души (2014) [FLAC|Lossless|image + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Завяжи мне глаза (новая версия) (4:01)
+02. Счастье (3:24)
+03. Птицы улетают за моря (2:55)
+04. Двое на ветру (3:33)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13312F21AD2C3F7E3E19E3E73263AED1E50CE028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973084   (980713) от 07.01.2016
 
 Леонид Портной - Зеленое море (2014) [FLAC|Lossless|image + .cue] <Шансон>
@@ -6,7 +35,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980713.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980688.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980686.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980683.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980670.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980666.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980642.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978895.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978535.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976386.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - La Legende De La Chanson (2005) [MP3|320 кб/с] <Chansons Francaises>
 >>Зарубежный Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975487.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975444.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974718.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973630.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Marlene Dietrich - Lili Marlene (1959) [MP3|320 кб/с]<Chanson, Oldies>
 >>Зарубежный Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973253.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971609.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971364.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ VA - Шансон С Человеческим Лицом (2003) [APE|Lossless|im
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970883.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970655.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967202.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ VA - Ветеранам Афгана (2013) [MP3|256 кб/с]<Военная п�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966243.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961924.jpg" />
 </div>
 
 
@@ -662,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959397.jpg" />
 </div>
 
 
@@ -691,7 +720,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958231.jpg" />
 </div>
 
 
@@ -720,7 +749,7 @@ VA - Возвращайтесь друзья (2013) [MP3|128 кб/с]<Военн
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955364.jpg" />
 </div>
 
 
@@ -740,41 +769,6 @@ VA - Возвращайтесь друзья (2013) [MP3|128 кб/с]<Военн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B12C2841DE9087C72728ABBB50ECB4FFA12C839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622786   (955283) от 26.02.2013
-
-VA - С Днем защитника отечества! (2013) 3 CD (unpublished) [FLAC|Lossless]<Army chanson, Instrumental>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. С.Рогожин - Пока ты любишь и ждешь
-02. А.Варум - До свидания, мальчики
-03. Golden French Accordeon - Je T'Aime Mariette
-04. Любэ - Солдат
-05. Разные люди - Субмарина
-06. Ю.Началова - Песнь о солдате
-07. G.E.N.E. - Blooming Kiss (edit)
-08. А.Маршал - Саня
-09. В.Высоцкий - Песня о погибшем летчике
-10. О.Газманов - Родники(   Читать дальше...   )Жанр: Army chansonПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6923ACCDA7AFDC9F2C8C3FC23C362CA09DB3A50F
 ```
 
 https://mybot314.ru/tekegram_catalog/

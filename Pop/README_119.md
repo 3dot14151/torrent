@@ -1,178 +1,3 @@
-###  Публикация: 1025461   (710034) от 12.06.2016
-
-Giorgio and Chris - Loves In You, Loves In Me (1978) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love's In You, Love's In Me (3:35)
-02. Keep It Together (3:26)
-03. I Can't Wait (9:35)
-04. Love Now, Hurt Later (6:08)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4492FE88A2780A2C13B4165F3E250316E45F8EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025459   (710024) от 12.06.2016
-
-Julio Iglesias - Divorcio (2003) [FLAC|Lossless|image + .cue] <Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Divorcio (04:00)
-02.  Corazon de papel (03:58)
-03.  Criollo soy (03:56)
-04.  Qui ganaste (03:02)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D12523B90CABF2A577D0FE300BC9C3163DB7946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219958   (709950) от 16.04.2018
-
-VA - Radio Italia Spring (2018) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709950.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 Non mi avete fatto niente - Ermal Meta & Fabrizio Moro
-02 Nessuno vuole essere Robin - Cesare Cremonini
-03 Da sola / In the night (feat. Tommaso Paradiso e Elisa) - Takagi & Ketra(   Читать дальше...   )Жанр: PopПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD47C2485C4850F61B8D27FBEC1382CFB681BAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025470   (709930) от 12.06.2016
-
-Giorgio Moroder - Midnight Express (1978) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chase (8:25)
-02. Love's Theme (5:33)
-03. (Theme from) Midnight Express (4:39)
-04. Istanbul Blues (3:22)(   Читать дальше...   )Жанр: Electronic, Disco, SoundtrackПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286CBBF8A7B6F7B7133DC96D64CE9FD116F9385E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219978   (709860) от 16.04.2018
-
-Pan Demonium - Start The Fire (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приятное редкое германское диско со звуковыми элементами панфлейты.01. Start The Fire (4:13)
-02. Pandora's Box (4:11)
-03. Magic Music (4:26)
-04. Pantomime (3:49)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7741E0AD0235178E9B26E1139A36986B6E703828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219951   (709768) от 16.04.2018
-
-VA - Now That's What I Call Music! 99 (2018) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709768.jpg" />
-</div>
-
-
-###  Подробнее
-
-И так, 23 марта вышел очередной сборник новинок из топов Великобритании и Ирландии. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности.
-Юбилейный - 100-й выпуск планируется 20 июля 2018 года, так что ждать осталось совсем немного. А теперь наслаждайтесь хорошей музыкой...CD1:
-01. Rudimental featuring Jess Glynne, Macklemore and Dan Caplen - These Days  (3:32)
-02. Dua Lipa 	 - IDGAF   (3:36)
-03. Portugal. The Man - Feel It Still  (2:43)(   Читать дальше...   )Релиз состоялся: 23 марта 2018 г.Жанр: Pop, Rock, DanceПродолжительность: 02:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5073A8FA54CBFB3ADE4C1163CF9C97687F63487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401602   (709403) от 10.08.2020
 
 Dazzle - Dazzle (1979) LP [MP3|320 Kbps] <Funk, Soul, Disco>
@@ -181,7 +6,7 @@ Dazzle - Dazzle (1979) LP [MP3|320 Kbps] <Funk, Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709403.jpg" />
 </div>
 
 
@@ -210,7 +35,7 @@ VA - Happy Acoustic Covers Playlist (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709394.jpg" />
 </div>
 
 
@@ -239,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_709269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_709269.jpg" />
 </div>
 
 
@@ -265,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_709266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_709266.jpg" />
 </div>
 
 
@@ -291,7 +116,7 @@ Angela Bofill - Teaser (1983) Reissue CD, Arista, 1999 [MP3|320 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709089.jpg" />
 </div>
 
 
@@ -320,7 +145,7 @@ VA - Top Easy Listening Hits (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708985.jpg" />
 </div>
 
 
@@ -349,7 +174,7 @@ ABBA - Classic ABBA (2005) Compilation, Remastered [MP3|320 Kbps] <Pop, Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708967.jpg" />
 </div>
 
 
@@ -378,7 +203,7 @@ Chris Rea - New Light Through Old Windows (1988) [FLAC|Lossless|image + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708877.jpg" />
 </div>
 
 
@@ -407,7 +232,7 @@ Joy Peters - Back To Joy (2012) [MP3|320 Kbps] <Euro-Disco, Pop, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708168.jpg" />
 </div>
 
 
@@ -436,7 +261,7 @@ VA - Pure... Guitar Heroes (2010) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Pop-R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708138.jpg" />
 </div>
 
 
@@ -465,7 +290,7 @@ Fresh Fox & Marco - Augenblicke (2016) [MP3|320 кб/с] <EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708031.jpg" />
 </div>
 
 
@@ -494,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707997.jpg" />
 </div>
 
 
@@ -523,7 +348,7 @@ VA - Ultimate Dance (2016) 4CD, Box Set [FLAC|Lossless|tracks + .cue] <Pop, Danc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707617.jpg" />
 </div>
 
 
@@ -552,7 +377,7 @@ VA - Зарубежные хиты и русские перепевки (5 ча�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707210.jpg" />
 </div>
 
 
@@ -578,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707017.jpg" />
 </div>
 
 
@@ -607,7 +432,7 @@ Holy Holy - Paint (2017) [FLAC|Lossless|tracks] <Indie Pop Rock, Psychedelic Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706841.jpg" />
 </div>
 
 
@@ -636,7 +461,7 @@ K.Flay - Every Where Is Some Where (2017) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706715.jpg" />
 </div>
 
 
@@ -665,7 +490,7 @@ Baccara - I Belong To Your Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Euro Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706466.jpg" />
 </div>
 
 
@@ -694,7 +519,7 @@ Nick Straker Band - The Very Best Of (1997) CD [MP3|320 Kbps] <Electronic, Synth
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706190.jpg" />
 </div>
 
 
@@ -723,7 +548,7 @@ Lucky Star - Who's Foolin' Who (1978) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706186.jpg" />
 </div>
 
 
@@ -737,6 +562,180 @@ Lucky Star - Who's Foolin' Who (1978) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20746739D64014584F0633867010AE8F1F15A9B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026181   (706040) от 14.06.2016
+
+Roxette - Sleeping In My Car (1994) Single [FLAC|Lossless|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleeping In My Car    03:34
+02. The Look (Unplugged)    05:12
+03. Sleeping In My Car (The Stockholm Demo Version)    03:14
+04. Almost Unreal    03:56Жанр: Pop RockПродолжительность: 00:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B4DA6396269369761E5D871DA31B7027CF67E34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220327   (705996) от 18.04.2018
+
+My Indigo - My Indigo (2018) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Indigo
+02. Crash and Burn
+03. Out of the Darkness
+04. Indian Summer(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00811D942443650C6CEEBFFAC51C01BD8D507176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026188   (705876) от 14.06.2016
+
+Шоколад - Первый альбом (2004) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Для тебя сегодня я пою
+02. Забудь, прости, прощай
+03. Натали
+04. Елена(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9430F1C8809DBB7D4A1DADD2CE9DF1676FE4909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401428   (705484) от 12.08.2020
+
+Silent Circle - My Star (2020) [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch In The Night (05:18)
+02. Stop The Rain In The Night (03:34)
+03. Love Is Just A Word (03:18)
+04. Time For Love (Super Action Mix) (05:20)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7ADA778A148CAAAFF0B501445F2783F32DC7DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287205   (705358) от 06.03.2019
+
+VA - Disco Feeling (2019) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kc & The Sunshine Band - Keep It Comin' Love (4:30)
+02. Montana - I Love Music (4:35)
+03. The Braxtons - The Boss (5:57)
+04. Randy Crawford - Wishing On A Star (4:52)(   Читать дальше...   )Жанр: DiscoПродолжительность: 2:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B10CA53D45AF9ADCEEA4DE6C59F2D139A296308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131967   (705230) от 07.05.2017
+
+Daniel Grau - El Leon Bailarin (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Leon Bailarin (4:41)
+02. Con El Cielo En Tus Ojos (3:32)
+03. Apartate (6:40)
+04. Corre Caminos (4:32)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282A1C0F078C797753DD8999B861BC554FD27D13
 ```
 
 https://mybot314.ru/tekegram_catalog/

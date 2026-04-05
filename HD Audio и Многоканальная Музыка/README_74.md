@@ -1,32 +1,3 @@
-###  Публикация: 967301   (156915) от 23.12.2015
-
-VA - Мастера блюза 4: Большая машина (1990) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156915.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Бум-Бум-Бум. Boom Boom Boom. (Джон Ли Хукер)
-A2 - Чего ты хочешь? Baby What Yoy Want Me To Do. (Джимми Рид)
-A3 - Уезжай отсюдаю Leave This Neighborhood. (Эдди Тейлор)
-A4 - Я все еще люблю. I Love Her Still. (Пи Ви Крэйтон)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667B6BE0C921CB732F2219A6EBE948D81DA623B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676276   (156887) от 13.11.2023
 
 The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless| image + .cue|Vinyl-Rip] <Classic Rock>
@@ -35,7 +6,7 @@ The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless| image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156887.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - The Absolute Sound 2011 (2011) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Po
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156829.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Архив Популярной Музыки 1-12 (1988-1990) Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156454.jpg" />
 </div>
 
 
@@ -120,7 +91,7 @@ Blue Oyster Cult - Fire Of Unknown Origin (1981)  [FLAC 2.0 24/96|image (Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156257.jpg" />
 </div>
 
 
@@ -149,7 +120,7 @@ Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155993.jpg" />
 </div>
 
 
@@ -184,7 +155,7 @@ Stars On 45' - Звёзды дискотек (2LP) (1983, 1984) [FLAC 2.0 24/96|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155971.jpg" />
 </div>
 
 
@@ -219,7 +190,7 @@ Mylene Farmer - Interstellaires (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155725.jpg" />
 </div>
 
 
@@ -248,7 +219,7 @@ Feuerschwanz - Todsunden (2022) [FLAC 2.0|44/24|tracks|WEB-DL]  <Folk-metal, Med
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154067.jpg" />
 </div>
 
 
@@ -277,7 +248,7 @@ Lord Of The Lost - Blood & Glitter (2022)  [FLAC 2.0|44/24|tracks|WEB-DL] <Dark 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153975.jpg" />
 </div>
 
 
@@ -306,7 +277,7 @@ Pink Floyd - Live at the Rainbow Theatre, London 1972-02-19 (1972) [FLAC 2.0|44/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153682.jpg" />
 </div>
 
 
@@ -335,7 +306,7 @@ Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153594.jpg" />
 </div>
 
 
@@ -364,7 +335,7 @@ DGM - Life (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153423.jpg" />
 </div>
 
 
@@ -393,7 +364,7 @@ Boney-M - Christmas Album (1981) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Disco> [upc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153359.jpg" />
 </div>
 
 
@@ -422,7 +393,7 @@ Foreigner - Inside Information (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153215.jpg" />
 </div>
 
 
@@ -451,7 +422,7 @@ Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153077.jpg" />
 </div>
 
 
@@ -480,7 +451,7 @@ Blue Oyster Cult - The Revolution By Night (1983)  [FLAC 2.0 24/96|image (Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152320.jpg" />
 </div>
 
 
@@ -509,7 +480,7 @@ Carach Angren - Studio Albums (7 releases) (2008-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152209.jpg" />
 </div>
 
 
@@ -538,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152171.jpg" />
 </div>
 
 
@@ -567,7 +538,7 @@ Manfred Mann's Earth Band - The Roaring Silence (1976) [FLAC 2.0|192/24|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151863.jpg" />
 </div>
 
 
@@ -596,7 +567,7 @@ Santana - Caravanserai (1972) Reissue, Remastered, 2022, Sony Records Int'l  [DS
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151812.jpg" />
 </div>
 
 
@@ -625,7 +596,7 @@ Daft Punk - Random Access Memories (2023) Drumless Edition [FLAC 24/88.2|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150787.jpg" />
 </div>
 
 
@@ -654,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150607.jpg" />
 </div>
 
 
@@ -683,7 +654,7 @@ Giant Lungs - Giant Lungs (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Stoner R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150565.jpg" />
 </div>
 
 
@@ -712,7 +683,7 @@ Sean Shibe - Profesión (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Classical>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150562.jpg" />
 </div>
 
 
@@ -741,7 +712,7 @@ Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management (UK) Limited [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150550.jpg" />
 </div>
 
 
@@ -755,6 +726,35 @@ Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management (UK) Limited [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD0AE25CB545A12A906B7CB80EF8CD08F976DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677542   (150543) от 18.11.2023
+
+Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Alternative rock, progressive rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:22)
+02. Apocalypse Please (4:12)
+03. Time is Running Out (3:57)
+04. Sing for Absolution (4:56)(   Читать дальше...   )Жанр: Alternative rock, progressive rockПродолжительность: 01:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C752E8BF354E556D5EE0D805D25E0412BB4A08D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

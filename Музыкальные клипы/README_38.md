@@ -6,7 +6,7 @@ Manfred Mann's Earth Band - Unearthed. The Best of 1973-2005 (2006) DVD5 <Rock>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43535.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ ABBA - Super Troupers (Ultimate Edition) (2004) [2xDVD5, DVD9]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43212.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43190.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Bjork / Greatest Hits: Volumen 1993-2003 (2003) DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42145.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Paul Van Dyk. Video collection (1994 - 2024) DVDRip, WEBRip [H.264/1080p] [handm
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36784.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36441.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Iggy Azalea feat. Charli XCX - Fancy (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35126.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Skylar Grey feat. Eminem - C'Mon Let Me Ride (2012) WEB-DLRip [H.265/2160p] [4K,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35033.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Ava Max - Kings & Queens (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35027.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Katy Perry - Roar (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35025.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ will.i.am feat. Britney Spears - Scream & Shout (2012) WEB-DLRip [H.265/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35020.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Eminem feat. Juicy WRLD - Godzilla (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35007.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Eminem - Berzerk (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35005.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Taylor Swift - We Are Never Ever Getting Back Together (2012) WEB-DLRip [H.265/2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35002.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Eminem - Rap God (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35001.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Eminem feat. Rihanna - Love The Way You Lie (2010) WEB-DLRip [H.265/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34990.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Eminem feat. Rihanna - The Monster (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34908.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Hurts - Wonderful Life (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34907.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Enrique Iglesias feat. Nicole Scherzinger - Heartbeat (2010) WEB-DLRip [H.265/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34902.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Calvin Harris feat. Katy Perry, Pharrell Williams, Big Sean - Feels (2017) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34901.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ The Weeknd feat. Daft Punk - Starboy (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34896.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Marilyn Manson (2024) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34895.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Eminem - Survival (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34885.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Shakira - Me Enamore (2017) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33685.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Katy Perry feat. Snoop Dogg - California Gurls (2010) WEB-DLRip [H.265/2160p] [4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33684.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Shakira - Empire (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33670.jpg" />
 </div>
 
 

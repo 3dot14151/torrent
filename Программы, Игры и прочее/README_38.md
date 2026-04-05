@@ -1,3 +1,108 @@
+###  Публикация: 980938   (954144) от 30.01.2016
+
+Assistant Premium 3.3.9 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никогда не хотели иметь собственного ассистента? А как насчет ассистента на вашем смартфоне? Данное приложение именно то, что вам нужно! Программа умеет отвечать на вопросы, которые вы ей задаете. Это очень удобно! Такая функция делает приложение необычным и интересным. Для того, чтобы отыскать нужную информацию ассистент пользуется функцией распознавания речи, а (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 29.01.2016Разработчик: AssistantПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5300A037959595928F9B2A0739ABEFE2A3683482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980828   (954069) от 30.01.2016
+
+Азбука, цифры, цвета и фигуры v1.05 Ad-Free [Ru]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детская азбука. Алфавит для детей. Цифры для детей. Цвета и фигуры для детей. Уникальное бесплатное обучающее приложение для детей дошкольного возраста. В нашем приложении Ваш ребенок сможет самостоятельно познакомиться с буквами и цифрами, названиями основных цветов и фигур. Яркие картинки и простота управления, несомненно, привлекут внимание Вашего ребенка. В заданиях, (   Читать дальше...   )Тип издания: Ad-Free (удалена реклама)Релиз состоялся: 28.07.2015Разработчик: by.andreidanilevichПоддерживаемая ОС: Android 3.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A0649E4DBF1CBECF096E3AC113CFF61EE438D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832999   (951380) от 03.01.2017
+
+IP Tools Premium v7.0.4 [Ru/Multi] - инструмент для анализа сети
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951380.jpg" />
+</div>
+
+
+###  Подробнее
+
+IP Tools - удобный и мощный инструмент для анализа сети. Программа включает в себя самые распространенные утилиты, которые вы можете встретить в Windows или в Linux. Все, что необходимо для получения информации об ip адресе или сайте теперь в вашем устройстве! Простой интерфейс позволяет быстро узнать свой ip адрес и получить подробную информацию о любом другом адресе (   Читать дальше...   )Тип издания: Пиратка (PREMIUM features Unlocked)Релиз состоялся: 01.01.2017Разработчик: AmazingByteПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B337037A64267068F56B35857F17A846A2E4B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982462   (947809) от 03.02.2016
+
+PRO PDF Reader 4.5.2 [Ru] - Читалка книг и документов форматa PDF и DjVu.
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Читалка книг и документов форматa PDF и DjVu.
+Если вы ищете хорошую PDF читалку, оcтановитесь, вы ее нашли. С помощью этой читалки вы сможете удобно читать книги и документы. Вы можете зафиксировать ширину документа эта настройка не будет сбиваться. Собран лучший функционал со всех читалок в одной.Тип издания: ПираткаРелиз состоялся: 03.02.16Разработчик: Ivan IvanenkoПоддерживаемая ОС: Android 2.3 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A601A60478AB2E7B4209BFF293918DB3DBA321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263252   (947643) от 24.02.2020
 
 Тысяча v6.573 AdFree [Ru]
@@ -6,7 +111,7 @@
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947643.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Garmin: City Navigator Israel NT 2016.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946501.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Swapper for ROOT 2.0.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945692.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ ElectroBuddy Pro 1.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945616.jpg" />
 </div>
 
 
@@ -115,7 +220,7 @@ AntiVirus Android Premium 2.5.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945581.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ Recorder 4 in 1 PRO 1.7.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944268.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944224.jpg" />
 </div>
 
 
@@ -194,7 +299,7 @@ Bini СУПЕР АЗБУКА v2.6.9.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943626.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943618.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ SMD компоненты v1.7.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943560.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943415.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943265.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941115.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939706.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939571.jpg" />
 </div>
 
 
@@ -408,7 +513,7 @@ caRRage 1.2 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939244.jpg" />
 </div>
 
 
@@ -434,7 +539,7 @@ Stardew Valley v1.4.5.141 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939189.jpg" />
 </div>
 
 
@@ -460,7 +565,7 @@ APK Extractor 4.1.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938391.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ Gallery Go by Google Photos v1.0.1.258899354 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937781.jpg" />
 </div>
 
 
@@ -512,7 +617,7 @@ NUMBER 5 : Offline Modern Gun v1.0.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937664.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937663.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937539.jpg" />
 </div>
 
 
@@ -575,114 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCE66430D7A8BA2DB9D9E767DF0B80921A765301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000577   (934860) от 14.01.2017
-
-Автоответчик/ СМС Планировщик PRO 5.9.9 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934860.jpg" />
-</div>
-
-
-###  Подробнее
-
-СМС Автоответчик, СМС Планировщик , автоматическая рассылка SMS (СМС), SMS Auto responder , text autoresponder, SMS Scheduler, Auto SMS Sender– все в одном приложении - виртуальный смс секретарь для всех, кто ведет активный образ жизни. Для встреч, безопасного вождения , спокойного сна , школы, занятий спортом и т.д. - просто включите СМС автоответчик и он будет (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 14.01.17Разработчик: LeMi AppsПоддерживаемая ОС: Android 2.3.3 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212B1E9FE7DD3EC2809CC9313F9EDB8520CCFB55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093419   (934686) от 14.01.2017
-
-Olivia Drive Pro 2.7.8 - бортовой компьютер (OBD2/ELM327) [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная программа представляет собой бортовой компьютер для автомобилей работающих по интерфейсу OBDII с помощью стандарта SAE J1979 который умеет показывать основные параметры системы.
- Присутствует накопительный журнал поездок, разнообразные настройки для правильной работы программы, динамические параметры с графиками около 100 стандартных OBDII PIDs, меню чтения (   Читать дальше...   )Тип издания: ПираткаРазработчик: Vasilenok PavelПоддерживаемая ОС: Android 4.0+Жанр: Автомобили, ТранспортЯзык интерфейса: Русский, Украинский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2016C3252E865AF16F73B5F7FE5483C9691A9DF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978534   (933403) от 12.02.2016
-
-Зрение + v2.2.8 [Ru/Multi] - Гимнастика для глаз
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Персонализированное приложение гимнастики для глаз и упражнений для глаз в виде ежедневных планов тренировок зрительной терапии для улучшения зрения и предотвращения проблем. Бесплатная проверка зрения поможет выявить проблемы со зрением и следить за улучшением зрения. Информация о здоровье глаз и зрительных заболеваниях позволяет "Зрение+" подготовить (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 10.02.2016Разработчик: healthcare4mobileПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD89566D6E157F2FD51164B16769907DA57A0311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364964   (933265) от 05.03.2020
-
-Блокнот Заметки v2.2.3 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основные функции блокнота:
-- создание папок;
-- добавление неограниченного числа заметок в блокнот;
-- редактирование заметок в блокноте;(   Читать дальше...   )Тип издания: Пиратка/МодРелиз состоялся: 25.02.2020Разработчик: HLCSDevПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:620465318F528D1B791DFCAAEDB500BC1A8F97D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

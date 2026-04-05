@@ -1,3 +1,117 @@
+###  Публикация: 1268953   (224925) от 12.12.2018
+
+Pete Namlook & Tetsu Inoue (2350 Broadway, Shades Of Orion, 62 Eulengasse, Time²) - Discography (1993-2007) Fax +49-69/450464, Ambient World [FLAC|Lossless|tracks+.cue, tracks] <Ambient ...
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bypass Mood (04:30)
+ 02. Free And Flowers (25:01)
+ 03. Turn (19:13)
+ 04. I've Got Chillness Illness (16:59)Тип издания: CD, WebЖанр: Ambient/ExperimentalПродолжительность: 01:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0AA964379204E680EB4FC4B1AEF40136D45CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094175   (224905) от 18.11.2020
+
+2814 (２８１４) - Discography 10 Releases (2014-2020) Dream Catalogue [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Vaporwave>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage (15:50)
+ 02. Embrace (13:58)Тип издания: CD, Web, VinylЖанр: Ambient, Experimental, Downtempo, Vaporwave, Drone •Продолжительность: 09:21:53 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1926BE65993AB3C12F7F537B12E84CCBB6BB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650541   (224785) от 03.08.2023
+
+VA - Anniversary Remixes: The Complete Full Length Collection (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scott Cameron - Wheels Stop (Criostasis Remix) [6:51]
+02. Kenny Palmer - Quel'Danas (Paul Skelton Remix) [7:48]
+03. Kenny Palmer - Kirin Tor (Mercurial Virus Remix) [7:15]
+04. DJ Ten - Midnight Oil (Miroslav Vrlik Remix) [5:59](   Читать дальше...   )Жанр: TranceПродолжительность: 03:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440AD5F557E66866A82456B3145A956A450A6ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650762   (224759) от 03.08.2023
+
+VA - IBIZA 2023 (Deluxe Version) (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mood 5 & Liana - Good 2 Me (Stardust Dub Mix) [5:54]
+02. Proone - Hold Me Close (Original Mix) [4:10]
+03. Raw Ordio - Love Her (Original Mix) [5:05]
+04. Lukas Steph & August Norr feat. Ruya Fanny - Be Free (Original Mix) [4:38](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A67E3D2B0BC655B2D93571C4319A4E1D172AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587120   (224747) от 10.12.2012
 
 VA - Deep Winter Chill (2012) [MP3|320 кб/с]<Deep House, Chill House>
@@ -6,7 +120,7 @@ VA - Deep Winter Chill (2012) [MP3|320 кб/с]<Deep House, Chill House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224747.jpg" />
 </div>
 
 
@@ -41,7 +155,7 @@ VA - Best Of Vocal Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224641.jpg" />
 </div>
 
 
@@ -70,7 +184,7 @@ Yota - Room 412 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Nu-Di
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224633.jpg" />
 </div>
 
 
@@ -99,7 +213,7 @@ VA - Best Of Massive EDM Party (2015) [MP3|320 кб/с] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224598.jpg" />
 </div>
 
 
@@ -127,7 +241,7 @@ VA - A Sexy New Year - Chillout Gems (2015) [MP3|320 кб/с] <Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224474.jpg" />
 </div>
 
 
@@ -156,7 +270,7 @@ VA - Milano Fashion Nights: House Music Compilation (2012) [MP3|320 кб/с]<Dee
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224468.jpg" />
 </div>
 
 
@@ -191,7 +305,7 @@ Croatian Amor & Varg2™ - Body Of Lila (2020) Posh Isolation [FLAC|Lossless|WEB
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224369.jpg" />
 </div>
 
 
@@ -220,7 +334,7 @@ V.A. - Buddha-Bar - Best Of 2 by Ravin (2022) [FLAC|Lossless|WEB-DL|tracks] <Tri
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224271.jpg" />
 </div>
 
 
@@ -249,7 +363,7 @@ VA - Infrasonic Summer Selection (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224155.jpg" />
 </div>
 
 
@@ -278,7 +392,7 @@ VA - Trance 4 Friends - Best Of 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224146.jpg" />
 </div>
 
 
@@ -307,7 +421,7 @@ V.A. - Chill Out IBIZA 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Tri
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224104.jpg" />
 </div>
 
 
@@ -336,7 +450,7 @@ VA - Mellow Moments: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224077.jpg" />
 </div>
 
 
@@ -365,7 +479,7 @@ Infected Mushroom - Head of NASA and the 2 Amish Boys (2018) [MP3|320 Kbps] <Psy
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224075.jpg" />
 </div>
 
 
@@ -394,7 +508,7 @@ VA - Santorini: Relaxing Chill-Out Luxury Lounge (2019) [MP3|320 Kbps] <Electron
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223997.jpg" />
 </div>
 
 
@@ -423,7 +537,7 @@ Depeche Mode - Exciter (2001) [FLAC|Lossless|image + .cue] <Leftfield, Downtempo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223925.jpg" />
 </div>
 
 
@@ -452,7 +566,7 @@ Depeche Mode - Black Celebration (1986) [FLAC|Lossless|tracks + .cue] <Synth-pop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223865.jpg" />
 </div>
 
 
@@ -481,7 +595,7 @@ Depeche Mode - Sounds Of The Universe (2009) CD+DVD [FLAC|Lossless|tracks + .cue
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223840.jpg" />
 </div>
 
 
@@ -510,7 +624,7 @@ Depeche Mode - Speak & Spell (1981) 1988, Mute  [FLAC|Lossless|image + .cue] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223716.jpg" />
 </div>
 
 
@@ -539,7 +653,7 @@ VA - 4 Strings - Vocal Trance Hits (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223576.jpg" />
 </div>
 
 
@@ -568,7 +682,7 @@ Fre4knc - Collection 18 Releases (2009-2020) Dispatch Recordings, Flexout Audio 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223561.jpg" />
 </div>
 
 
@@ -594,7 +708,7 @@ Burzum - Thulean Mysteries (2020) 2xCD [FLAC|Lossless|image + .cue] <Dungeon Syn
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223525.jpg" />
 </div>
 
 
@@ -623,7 +737,7 @@ Depeche Mode - Violator (1990) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223493.jpg" />
 </div>
 
 
@@ -637,122 +751,6 @@ Depeche Mode - Violator (1990) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB20B99354ADE22BD0231E461606AF2DEC537A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269153   (223409) от 13.12.2018
-
-Jens Buchert - Gravity (2017) Dimension Music Production [FLAC|Lossless|WEB-DL|tracks] <Ambient Dub, Downbeat, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravity (6:04)
- 02. Hollows (4:22)
- 03. For Berlin (5:33)
- 04. Motiongate (5:12)(   Читать дальше...   )Жанр: Ambient Dub, Downbeat, ChilloutПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8D3C42475AEB2A2908679B1F05B552D6500F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111185   (223138) от 19.11.2020
-
-47 - Label-Pack 26 Releases (2015-2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Champagne Prerogative (06:48)
- 02. Threads (06:10)
- 03. Sand Mountain (05:57)
- 04. Deception (05:27)(   Читать дальше...   )Тип издания: WEBЖанр: Techno/IndustrialПродолжительность: 12:01:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91758B5F9EB889E873FA51389D6D0A3DB727235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651267   (223078) от 05.08.2023
-
-VA - Sensual Chilling Moves (2023) [MP3|320 Kbps] <Downtempo, Lounge, Easy Listening,  Chill-Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Atmosphera - Light from Beyond
-02. Alexander Bollinger - Verano al Fin
-03. The Hardestone - Empire (Lesovsky Remix)
-04. Cosmogong - Magic Bubble(   Читать дальше...   )Жанр: Downtempo, Lounge, Easy Listening,  Chill-OutПродолжительность: 02:58:09 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC7C06B460CAD09447D4C0CF28C6E1250B911F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585212   (222824) от 21.10.2022
-
-VA - Gert Records 10 Years Anniversary - (Mixed by DJ OptimuS) (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ OptimuS - Gert Records 10 Years Anniversary (Continuous DJ Mix)
-02. Cod3@dj - Frozen World (Intro Mix)
-03. Fredix - Childhood (Extended Mix)
-04. Eavent8 - Premonition (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:094C3BD79C1C8A9BB45154C7F5DF9854B0B0016B
 ```
 
 https://mybot314.ru/tekegram_catalog/

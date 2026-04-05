@@ -1,177 +1,3 @@
-###  Публикация: 1504664   (810472) от 24.10.2021
-
-Аркадиас - Чувства-цунами (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чувства-цунами (4:54)
-02. Оригами (3:05)
-03. Солёный дождь (4:01)
-04. Влюблены (Элла) (5:27)(   Читать дальше...   )Жанр: PopПродолжительность: 01:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BCDEEE03B7717E2323944B7CD8124F238B52D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504665   (810355) от 24.10.2021
-
-Аркадиас - Танцор диско (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Танцор диско (4:03)
-02. Ах, эта женщина (5:05)
-03. Только ты необходима мне (3:24)
-04. Аккуратно (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA38A56DFB53E31EF32B735D904BCCDEE59A6FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198248   (810261) от 10.01.2018
-
-Cybotron - Enter (1983) Reissue CD, Decision Records, 2013 [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детроитский электро-форм проект, запущенный Ричардом Дэвисом и Хуаном Аткинсом в 1981 году. (Не путать с австралийской группой Cybotron, которая также выпускала электронную музыку.)01. Enter (5:37)
-02. Alleys Of Your Mind (3:33)
-03. Industrial Lies (6:13)
-04. The Line (5:02)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C2CD300C2C80DC2750A66CEADA7EEE3F081869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504775   (810208) от 24.10.2021
-
-ZAZ - Isa (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les jours heureux
-02. Imagine
-03. De couleurs vives
-04. Ce que tu es dans ma vie(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B756DE49A16C5D00EEF7AD0A5941EB451F005F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198072   (810121) от 10.01.2018
-
-Julio Iglesias - En El Olympia (1976, 1997) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Introduccion: Vivencias
-02. Por el Amor De Una Mujer
-03. Dicen(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A92A890BD90B2D4D8FCAB8946D58D74085AB06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383587   (810120) от 16.05.2020
-
-Hazel English - Wake UP! (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Like (03:46)
-02. Shaking (03:33)
-03. Wake UP! (03:35)
-04. Off My Mind (03:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82640E2E8B396F581EDBE3BBE902AFDEF3275047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504473   (810074) от 24.10.2021
 
 Lana Del Rey - Blue Banisters (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indie-Pop>
@@ -180,7 +6,7 @@ Lana Del Rey - Blue Banisters (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indie-Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810074.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ VA - WMC Bonzai Progressive (2017) [MP3|320 Kbps] <Dance, Club, Electro>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809288.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ VA - Moon River: 20 All-Time Favourite Love Songs (1998) [FLAC|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809151.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ Charli XCX - Number 1 Angel (2017) [FLAC|Lossless|tracks] <Dance-Pop, Electro, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808943.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ VA - NRJ Spring Hits (2017) 3CD [MP3|320 Kbps] <Pop, Dance, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808913.jpg" />
 </div>
 
 
@@ -322,7 +148,7 @@ Cerrone - X-XEX (1993) [FLAC|Lossless|image + .cue] <House, Ambient>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808818.jpg" />
 </div>
 
 
@@ -351,7 +177,7 @@ Laura Taylor - Dancin' In My Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk/Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808335.jpg" />
 </div>
 
 
@@ -380,7 +206,7 @@ VA - Best Of Love Songs (2017) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808286.jpg" />
 </div>
 
 
@@ -409,7 +235,7 @@ Moleskine - Moleskine (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808274.jpg" />
 </div>
 
 
@@ -438,7 +264,7 @@ VA - Electro Pop 2020 [MP3|320 Kbps] <Electro Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808269.jpg" />
 </div>
 
 
@@ -467,7 +293,7 @@ G.B. And The Tracks - Dance To The Music (1978) LP [MP3|320 Kbps] <Electronic, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808224.jpg" />
 </div>
 
 
@@ -496,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808142.jpg" />
 </div>
 
 
@@ -525,7 +351,7 @@ VA - Covers (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808133.jpg" />
 </div>
 
 
@@ -554,7 +380,7 @@ Clara Luciani - Sainte-Victoire (2019) Super-edition [MP3|320 Kbps] <French Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808126.jpg" />
 </div>
 
 
@@ -583,7 +409,7 @@ Benjamin Biolay - Palermo Hollywood (2016) [MP3|320 кб/с] <French Pop, Chanso
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808102.jpg" />
 </div>
 
 
@@ -612,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808022.jpg" />
 </div>
 
 
@@ -641,7 +467,7 @@ Duran Duran - Future Past (2021) [FLAC|Lossless|image + .cue] <Pop, Rock, Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806319.jpg" />
 </div>
 
 
@@ -670,7 +496,7 @@ VA - 101 Girls Night (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806290.jpg" />
 </div>
 
 
@@ -699,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806281.jpg" />
 </div>
 
 
@@ -728,7 +554,7 @@ VA - 101 Party Hits (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806279.jpg" />
 </div>
 
 
@@ -742,6 +568,180 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEA5746D429F4913E6D58CED0206AA6FF8A73B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198631   (806191) от 12.01.2018
+
+Camila Cabello - Camila (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Be The Same (03:46)
+02. All These Years (02:44)
+03. She Loves Control (02:57)
+04. Havana (Feat. Young Thug) (03:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19F0B88897691657E7D67D3939C5DBF9F047FB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384094   (806173) от 18.05.2020
+
+VA - Ballads (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreigner - I Want to Know What Love Is (2013 Remaster)
+02. Spandau Ballet - True (Single Edit)
+03. Dua Lipa - Homesick
+04. Paolo Nutini - Last Request(   Читать дальше...   )Жанр: PopПродолжительность: 03:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3B217E70A0D39507BA521761328369255A5853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383946   (806163) от 18.05.2020
+
+Николай Носков - Блажь (1998) [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я тебя люблю
+02. Я не модный
+03. Дай мне шанс
+04. Сердца крик(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7373F3030373B227E51DAB6D9EFBD625C6F29D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384071   (806159) от 18.05.2020
+
+Lara Fabian - Papillon(S) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papillon
+02. Je Suis A Toi
+03. Changer Le Jeu
+04. Par Amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF53B2CEDBE90ADDE89D98E5DF648BF245332A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504809   (806150) от 26.10.2021
+
+Cerrone - The Classics (Best of Instrumentals) (2021) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Eurodance, Disco (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cerrone's Paradise (Long Version Instrumental) (16:59)
+02. Je suis Music (Long Version Instrumental) (07:47)
+03. Give Me Love (Long Version Instrumental) (07:21)
+04. Midnite Lady (Long Version Instrumental) (07:30)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4881F2D1C3C9C5ACCA6A178B173FBDB0B0759D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010074   (806099) от 23.04.2016
+
+Katy B - Honey (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honey
+02. Who Am I (feat. Craig David & Major Lazer)
+03. So Far Away
+04. Chase Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BE712D09ED253C4C8369981BF819945B6BDE56
 ```
 
 https://mybot314.ru/tekegram_catalog/

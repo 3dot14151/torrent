@@ -1,3 +1,61 @@
+###  Публикация: 1137737   (666771) от 27.05.2017
+
+VA - Buddhatronic The Compilation Vol.2 (2017) [MP3|320 Kbps] <New Age, Chillout, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Artenovum - Blue Sun (ambient Lounge mix) 05:33
+2. Pascheba - Nirvana 03:28
+3. Buddhatronic - World Of Grace (Mystic Voice mix) 04:54
+4. Artenovum - Francesca (Mystic Dream mix) 04:54(   Читать дальше...   )Жанр: New Age, Chillout, LoungeПродолжительность: 01:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427D6B2BDEA4C54E98C9A4F1B36BBA38E9365E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137485   (666770) от 27.05.2017
+
+Jody Direen - Shake Up (2016) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gimme The Beat (3:05)
+02 - Dirt Rich (2:43)
+03 - Fight (3:27)
+04 - Unbroken (3:25)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB62227CCF6F2E310F7CD18BA60E57C79464617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137708   (666721) от 27.05.2017
 
 Di Donna - Kamasutra Secrets (2002) [FLAC|Lossless|tracks + .cue] <New Age>
@@ -6,7 +64,7 @@ Di Donna - Kamasutra Secrets (2002) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666721.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666593.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Guitar Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666578.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666501.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Geoff Zanelli - Pirates of the Caribbean: Dead Men Tell No Tales / Пираты 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666500.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Sergio Santini - Коллекция (2017-2018) [FLAC|Lossless|WEB-DL|tracks] <I
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666466.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Hangedup - 3 albums (2001-2005) [FLAC|Lossless] <Experimental, Instrurumental, P
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_666227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666227.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Hrsta - 3 albums (2001-2007) [FLAC|Lossless] <Post-Rock, Experimental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_666103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666103.jpg" />
 </div>
 
 
@@ -249,7 +307,7 @@ Kevin Wood - Eternal (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666012.jpg" />
 </div>
 
 
@@ -278,7 +336,7 @@ Jupiter Panic - Days of Sorrow (2018) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666008.jpg" />
 </div>
 
 
@@ -307,7 +365,7 @@ David Garcia Diaz - RiME (2017) Deluxe Soundtrack [FLAC|Lossless|WEB-DL|tracks] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665421.jpg" />
 </div>
 
 
@@ -336,7 +394,7 @@ VA - Союз нерушимый... - Песни и танцы народов С
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664684.jpg" />
 </div>
 
 
@@ -364,7 +422,7 @@ Diane Arkenstone & David Arkenstone - Avalon: Between Earth and Sky (2022) [FLAC
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664342.jpg" />
 </div>
 
 
@@ -393,7 +451,7 @@ The Romantic Strings and Orchestra - Stardust Moods (1989) [MP3|320 Kbps] <Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664194.jpg" />
 </div>
 
 
@@ -422,7 +480,7 @@ Eilen Jewell - Sundown Over Ghost Town (2015) [MP3|320 кб/с]<Americana, Count
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663350.jpg" />
 </div>
 
 
@@ -451,7 +509,7 @@ VA - Deep Silence Meditation: Best New Age 2017 Asian Garden Chinese Music [MP3|
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661293.jpg" />
 </div>
 
 
@@ -480,7 +538,7 @@ KoolSax - Meditation (Relax Your Mind to Save the World) (2014) [MP3|320 Kbps] <
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661291.jpg" />
 </div>
 
 
@@ -509,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660499.jpg" />
 </div>
 
 
@@ -544,7 +602,7 @@ John Barry - The Real... John Barry (2016) 3CD [FLAC|Lossless|tracks + .cue] <So
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660008.jpg" />
 </div>
 
 
@@ -573,7 +631,7 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660006.jpg" />
 </div>
 
 
@@ -602,7 +660,7 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659910.jpg" />
 </div>
 
 
@@ -631,7 +689,7 @@ Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659611.jpg" />
 </div>
 
 
@@ -660,7 +718,7 @@ VA - Treme: Music From the Original HBO Series Season 2 (2012) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659283.jpg" />
 </div>
 
 
@@ -695,7 +753,7 @@ Joe Hisaishi - И солнце снова взойдёт / The Sun Also Rises (2
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659214.jpg" />
 </div>
 
 
@@ -709,67 +767,6 @@ Joe Hisaishi - И солнце снова взойдёт / The Sun Also Rises (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:544E0A6223E1332AE5E1982EFE9EDACDD8B3D29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139662   (659194) от 03.06.2017
-
-David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassical, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Repercussions
-02. Magdalena
-03. Valhalla
-04. Delia(   Читать дальше...   )Жанр: Classical, Neoclassical, New AgeПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA13E5DF9B0AC2AE8217469433FD3E361B01735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514324   (659118) от 23.06.2012
-
-Land of Kush - 2 albums (2009-2010) [FLAC|Lossless] <Avant-garde, Free Jazz, Post-Rock, Experimental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_659118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The 1st And The Last (06:07)
-02. Scars (17:26)
-03. Boo (04:00)
-04. Tunnel Visions (09:05)
-05. Fisherman (14:40)
-06. Monogamy (09:41)
-07. Like The Thread Of A Spider (05:04)2009-2010Жанр: Avant-garde, Free Jazz, Post-Rock, ExperimentalПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

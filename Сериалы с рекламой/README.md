@@ -1,4 +1,58 @@
 https://t.me/izofen
+###  Публикация: 1863297   (1063833) от 
+
+Последний бык / Der letzte Bulle (2025) WEBRip [H.264/1080p] (сезон 6, серии 1 из 8) ViruseProject [AD] (Обновляемая)
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063833.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 лет, 3 месяца и 8 дней Михаэль Брисгау (Хеннинг Баум) считался погибшим после авиакатастрофы. Все это время он выживал на одинокой острове в Тихом океане. Теперь «Последний бык» неожиданно возвращается в своё родное отделение в Эссене — заросший, обветренный, но всё такой же неукротимый.
+Мир вокруг стал совсем другим: новые правила, новые коллеги, новые преступления. (   Читать дальше...   )Производство: Германия / Amazon Prime Video, ITV Studios Germany, JoynЖанр: детектив, криминал, комедия, драмаРежиссер: Себастьян Вигг, София Аллет-Кохе, Томас Неннштил и др.Актеры: Хеннинг Баум, Максимилиан Грилл, Хельмфрид фон Люттихау, Роберт Лор, Татьяна Клазинг, Прошат Мадани, Луиза Риш, Флориана Даниэль, Франциска Вайс, Сузанна Симон и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 бегушие строки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602956FA340D9C2F82999BAA15235F68AF5B1496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863298   (1063831) от 
+
+Последний бык / Der letzte Bulle (2025) WEBRip (сезон 6, серии 1 из 8) ViruseProject [AD] (Обновляемая)
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063831.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 лет, 3 месяца и 8 дней Михаэль Брисгау (Хеннинг Баум) считался погибшим после авиакатастрофы. Все это время он выживал на одинокой острове в Тихом океане. Теперь «Последний бык» неожиданно возвращается в своё родное отделение в Эссене — заросший, обветренный, но всё такой же неукротимый.
+Мир вокруг стал совсем другим: новые правила, новые коллеги, новые преступления. (   Читать дальше...   )Производство: Германия / Amazon Prime Video, ITV Studios Germany, JoynЖанр: детектив, криминал, комедия, драмаРежиссер: Себастьян Вигг, София Аллет-Кохе, Томас Неннштил и др.Актеры: Хеннинг Баум, Максимилиан Грилл, Хельмфрид фон Люттихау, Роберт Лор, Татьяна Клазинг, Прошат Мадани, Луиза Риш, Флориана Даниэль, Франциска Вайс, Сузанна Симон и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 бегушие строки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A4FBB087CCFB21E681DD18D4177743FC6CBB94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859772   (1061475) от 
 
 Профайл / Профилирование / Profilage / Paris Murders (2009) BDRip [H.264/1080p] (сезон 1, серии 1 из 6) ViruseProject [AD] (Обновляемая)
@@ -7,7 +61,7 @@ https://t.me/izofen
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061475.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061473.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056267.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056266.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056043.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056042.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048098.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048097.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045900.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045898.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045701.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045167.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045161.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045143.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042700.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042697.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042692.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042495.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042457.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042244.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042234.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042222.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040674.jpg" />
 </div>
 
 
@@ -607,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040610.jpg" />
 </div>
 
 
@@ -618,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DEFEC68AC93898C0000FB5A5F8F26D04716F77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438787   (1040580) от 10.01.2021
-
-Монархиня / Monarca (2021) WEBRip (сезон 2, серии 1-8 из 8) ColdFilm [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040580.jpg" />
-</div>
-
-
-###  Подробнее
-
-У братьев и сестры Карранца появляется новый враг в лице двоюродной сестры Софии, и прошлое их семьи ставит под угрозу будущее империи «Монарка».Производство: Мексика / Lemon Films, Stearns Castle, Ventanarosa ProductionsЖанр: драмаРежиссер: Хосе Мануэль Кравиотто, Фернандо Ровзар, Наталия БеристайнАктеры: Ирене Асуэла, Хуан Мануэль Берналь, Освальдо Бенавидес, Джеймс Хайд, Рехина Павон, Роса Мария Бьянчи, Карла Аделл, Дали Гонзалез, Габриела де ла Гарса, Алехандро де Ойос Парера и др.Перевод: Многоголосый любительский (ColdFilm)Продолжительность: ~00:48:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA97A3B4285A559E53F05DF47D6ED45A6BD68C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440649   (1038450) от 18.01.2021
-
-Миссии / Missions (2019) WEBRip (сезон 2, серии 1-10 из 10) Octopus [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый пилотируемый полёт на Марс прошёл успешно. В команде только лучшие: первоклассные космонавты и девушка-психолог, отвечающая за психическое здоровье экипажа. Однако при возвращении на Землю что-то пошло не так.Производство: Франция, Empreinte DigitaleЖанр: фантастика, драмаРежиссер: Жюльен ЛякомбАктеры: Джорджа Синикорни, Бен Хоумвуд, Hélène Viviès, Клементе Обер, Матиа Млекюз, Арбен Байрактарай, Наташа Эндрюс, Жан-Туссен Бернард, Винсент Лондез, Коме ЛевинПеревод: Многоголосый любительский (Octopus)Субтитры: французские (вшитые, неотключаемые)Продолжительность: ~00:23:00 серияРеклама: присутствуют вставки рекламы (аудио / видео / текст / баннер)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1CEECCD9E7F2E493EE0FE3687714CB9BD26D38
 ```
 
 https://mybot314.ru/tekegram_catalog/

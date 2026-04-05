@@ -1,3 +1,110 @@
+###  Публикация: 1196833   (818764) от 05.01.2018
+
+Garmin: City Navigator Middle East & N Africa NT 2018.10 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перемещайтесь по улицам с уверенностью. Этот продукт содержит подробные карты и точки интереса для навигаторов Гармин, так что вы можете перемещаться с точными подсказками от поворота к повороту на любой адрес или перекресток.Тип издания: карты разблокированыРелиз состоялся: август 2017Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D217156C24E2081124540A5DA42E7D0CE15BA045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994048   (818720) от 16.04.2016
+
+Perfect Angle v1.6 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испытайте свой ум головоломками, основанными на оптических иллюзиях. Найдите вращая камеру идеальный угол для наведения порядка и откройте для себя освежающую историю, полную тайн.Тип издания: FreeРелиз состоялся: 24.03.2016Разработчик: Ivanovich GamesПоддерживаемая ОС: Android 4.0.3+Жанр: Puzzle — Logic (Паззл, Головоломка)Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF5CFEA5C1E288973826A032E2EA01DDA6C7DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197068   (816884) от 06.01.2018
+
+Компьютерный мастер 1.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816884.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью приложения даже самый неопытный человек сможет сам установить операционную систему, удалить любой вирус, настроить роутер (маршрутизатор) и даже собрать компьютер.Тип издания: Пиратка (Полная с Маркета)Релиз состоялся: 5 июня 2016 г.Разработчик: NeosectorgazaПоддерживаемая ОС: Android 2.2 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF446A900D5AE3165476F75F41FE69A4F26CE9AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473042   (815723) от 21.10.2021
+
+Медпомощь При ДТП v1.1.2 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение представляет собой пособие по оказанию экстренной медицинской помощи при ДТП. Содержит в себе алгоритм действий в первые минуты после аварии, особенности оказания первой помощи в тяжелых условиях, а также:
+
+- Правила извлечения, иммобилизации и транспортировки пострадавших
+- Перечень медикаментов автомобильной аптечки, их применение, а также рекомендации (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 30 августа 2021 г.Разработчик: Monolith publisherПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFC92CF110F5879FCA054CF807EB7B9CCCF068D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922620   (815389) от 21.10.2021
 
 Fraction Calculator by Mathlab Pro v3.2.44 [Ru/Multi]
@@ -6,7 +113,7 @@ Fraction Calculator by Mathlab Pro v3.2.44 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815389.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Magic Intuition / Магия Интуиции v4.3.0_15 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815293.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815289.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ Astrodox Astrology / Астродокс Астрология v1.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814940.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ Pool Break Pro 3D Billiards v2.7.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814620.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ Comix Zone 1.1.1 (SEGA Genesis Game) [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814554.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ Shortcut Maker Pro v3.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813988.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811530.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ Yandex.Maps / Мобильные Яндекс.Карты v3.20 (2013) <Ru>
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810994.jpg" />
 </div>
 
 
@@ -243,7 +350,7 @@ Garmin: TOPO UK & Ireland v4 Light [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809661.jpg" />
 </div>
 
 
@@ -269,7 +376,7 @@ Garmin: City Navigator Thailand NT 2016.20 (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809550.jpg" />
 </div>
 
 
@@ -295,7 +402,7 @@ Worms 3 v.2.04 + mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808565.jpg" />
 </div>
 
 
@@ -321,7 +428,7 @@ Garmin: City Navigator Eastern Africa NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807710.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ Pocket Sense v1.0.16 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807430.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ Battletoads. Battletoads And Double Dragon. Антология (SEGA Genesis Gam
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806676.jpg" />
 </div>
 
 
@@ -399,7 +506,7 @@ Golden Axe. Golden Axe 2. Golden Axe 3. Антология (SEGA Genesis Game) [
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804754.jpg" />
 </div>
 
 
@@ -425,7 +532,7 @@ Pilzlexikon 2 PRO 1.0.17 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804173.jpg" />
 </div>
 
 
@@ -451,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802867.jpg" />
 </div>
 
 
@@ -478,7 +585,7 @@ HM Песенник v4.8 Ad-Free [Ru] - гитарный песенник для
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802363.jpg" />
 </div>
 
 
@@ -504,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802288.jpg" />
 </div>
 
 
@@ -530,7 +637,7 @@ Garmin: City Navigator Southern Africa NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802132.jpg" />
 </div>
 
 
@@ -556,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801025.jpg" />
 </div>
 
 
@@ -567,112 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:160ACABC1D2F4718ED6A1C97A8882AA22CC17EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366889   (800746) от 22.05.2020
-
-PhotoMap Pro Gallery 9.4.9 (Paid) [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просмотрите свои фотографии и поездки в увлекательной форме. Держите свои воспоминания живыми, как никогда раньше. PhotoMap - одно из лучших приложений для галерей с уникальными функциями. Вспомните свои поездки, перемещаясь по разным местам путешествий.Тип издания: ПираткаРелиз состоялся: 22.05.2020Разработчик: Dr. Ludger BischofsПоддерживаемая ОС: Android. 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A17EA18CE7DB3D54D322837937A56F59CF452FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384980   (799979) от 23.05.2020
-
-Англо-Русский Словарь / English-Russian Dictionary v3.2.3 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте на Android самый популярный Англо-Русский словарь с более чем 700.000 активными пользователями!!! Содержит более 200.000 словарных статей, с переводами, примерами, идиомами, транскрипцией, озвучкой, неправильными глаголами. Поддерживает поиск в обе стороны, Историю и Избранное.
-Работает оффлайн и не требует никаких дополнительных загрузок. Словарь является (   Читать дальше...   )Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 12.12.2019Разработчик: Alexander KondrashovПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33161134AA214B72682B975E819AE683B468D4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496991   (798925) от 02.11.2021
-
-Проследи за мной. Маячок v1.4.20 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это приложение-маячок поможет вашим друзьям или родственникам проследить за вашим маршрутом или, наоборот, узнать где сейчас находятся они. Для уведомления о местонахождении нажмите кнопку "СТАРТ" и отправьте SMS c ссылкой на трекинг-код нужным людям.
-Получатель, нажав на ссылку из вашего сообщения, автоматически установит-запустит приложение на своём телефоне (   Читать дальше...   )Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 30.10.2021Разработчик: HobbySoftПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6175266E75FBFD0366EC6BF5A81D8D8491E79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508072   (798081) от 06.11.2021
-
-Сапер v6.3 [Ru/En] (обновляемая)
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический сапер для Android (Minesweeper или Mines).Тип издания: Пиратка (открыт Pro)Релиз состоялся: 27.07.2020Разработчик: LdinkaПоддерживаемая ОС: Android 4.1+Жанр: ГоловоломкиЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5844FAB12308933C1CD8ECC55A4005718DC60E02
 ```
 
 https://mybot314.ru/tekegram_catalog/

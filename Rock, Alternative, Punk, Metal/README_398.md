@@ -1,3 +1,148 @@
+###  Публикация: 1535239   (686838) от 06.03.2022
+
+Caliberty - Caliberty (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:47)
+02. Growling Town (04:14)
+03. Back'n'Forth (03:32)
+04. Mr. Goodtime (05:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71284863038694204859DCE0047BBE0548CFCDE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547016   (686794) от 16.05.2017
+
+ДДТ (DDT) - Эй! Ленинград, Петербург, Петроградище!!! (Концерт в "Олимпийском") (2003) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Единочество (02:29)
+02. Ветер (04:27)
+03. Пропавший без вести (04:14)
+04. Актриса весна (07:59)(   Читать дальше...   )Жанр: RockПродолжительность: 01:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF355DFF0F74385A129145E12A000D7610D5399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289482   (686757) от 16.03.2019
+
+Asthma Castle - Mount Crushmore (2019) [FLAC|Lossless|tracks + .cue] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686757.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Incline of Western Civilization  06:23
+2. Mount Crushmore  05:07
+3. Here Come the Black Ship  06:26
+4. Methlehem  06:49(   Читать дальше...   )Жанр: MetalПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A119AA750AC4A793997188D0BE9F6954B5452BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289284   (686756) от 16.03.2019
+
+Tal Wilkenfeld - Love Remains (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Jazz-Rock, Indie-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corner Painter
+02. Counterfeit
+03. Hard To Be Alone
+04. Haunted Love(   Читать дальше...   )Жанр: Alternative, Jazz-Rock, Indie-PopПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F8F683639336E8058C50D7CA1DCBCB756B18F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289423   (686754) от 16.03.2019
+
+Dust Bolt - Trapped in Chaos (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fourth Strike
+02. Dead Inside
+03. The Bad Ad
+04. Bloody Rain(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76814284C36A4040D819979ADF6AE4F56190149C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289599   (686753) от 16.03.2019
 
 Black Therapy - Echoes Of Dying Memories (2019) [MP3|320 Kbps] <Melodic Death Metal>
@@ -6,7 +151,7 @@ Black Therapy - Echoes Of Dying Memories (2019) [MP3|320 Kbps] <Melodic Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686753.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Serdce - Timelessness (2014) [MP3|320 Kbps] <Technical Progressive Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686751.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Myles Kennedy - Year Of The Tiger (2018) [FLAC|Lossless|tracks + .cue] <Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686749.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Neal Morse - Life & Times (2018) [FLAC|Lossless|tracks + .cue] <Rock, Acoustic>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686746.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Tess Parks & Anton Newcombe - Tess Parks & Anton Newcombe (2018) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686743.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Heartland - Into the Future (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686713.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ City Of Lights - Before The Sun Sets (2022) Japanese Edition [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686710.jpg" />
 </div>
 
 
@@ -212,7 +357,7 @@ Tesla - Shock (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686637.jpg" />
 </div>
 
 
@@ -241,7 +386,7 @@ Elvis Presley - In Memory Volume 3 (1993) [FLAC|Lossless|image + .cue] <Rock & R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686630.jpg" />
 </div>
 
 
@@ -270,7 +415,7 @@ King Diamond - Songs for the Dead - Live (2019) 2CD [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686629.jpg" />
 </div>
 
 
@@ -299,7 +444,7 @@ Rotting Christ - The Heretics (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686628.jpg" />
 </div>
 
 
@@ -328,7 +473,7 @@ Vathos - Underwater (2020) [FLAC|Lossless|image + .cue] <Post-Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686592.jpg" />
 </div>
 
 
@@ -357,7 +502,7 @@ Entombed A.D. - 4 Studio Albums (2014-2019) 4xCD [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686591.jpg" />
 </div>
 
 
@@ -386,7 +531,7 @@ VA - Play Station (приложение Audio CD к журналу Play #06'07) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686589.jpg" />
 </div>
 
 
@@ -415,7 +560,7 @@ VA - Happy Acoustic (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686585.jpg" />
 </div>
 
 
@@ -444,7 +589,7 @@ Dukes Of The Orient ‎ - Freakshow (2020) [FLAC|Lossless|image + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686583.jpg" />
 </div>
 
 
@@ -473,7 +618,7 @@ V.A. - Romantic Classic Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686577.jpg" />
 </div>
 
 
@@ -502,7 +647,7 @@ Steve Vai - Modern Primitive (2016) 2CD [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686486.jpg" />
 </div>
 
 
@@ -531,7 +676,7 @@ VA - Greatest Ever! Driving Rock (2012) 3CD [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686485.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ Elvis Presley - In Memory Volume 4 (1993) [FLAC|Lossless|image + .cue] <Rock & R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686479.jpg" />
 </div>
 
 
@@ -589,7 +734,7 @@ Hackneyed - Burn After Reaping (2009) [MP3|320 kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686466.jpg" />
 </div>
 
 
@@ -603,154 +748,6 @@ Hackneyed - Burn After Reaping (2009) [MP3|320 kbps] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:911DD5E286C0B39794350DBE6182BA55EA3A5584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403975   (686458) от 22.08.2020
-
-KMFDM - In Dub (2020) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dub Light
-02. Superhero Dub
-03. Dub Uranus
-04. Bumaye Dub(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD8906EA1825611B0C55CF101EAC544ADFB1BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403888   (686451) от 22.08.2020
-
-Zero People - Конец равновесия (2020) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686451.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Смерть
-2. Храм (Альбомная версия)
-3. Я получил эту роль (Трибьют ДДТ)
-4. Тоска и нежность(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A5B9C6CA197A0F6F712D536F5D913D1647FFAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403951   (686450) от 22.08.2020
-
-Avatar - Hunter Gatherer (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silence in the Age of Apes (04:21)
-02. Colossus (04:02)
-03. A Secret Door (06:07)
-04. God of Sick Dreams (03:57)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CFEBE6E018F7CAC0099D12F3D8A04A391A06DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403950   (686444) от 22.08.2020
-
-Linkin Park - She Couldn't (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Couldn't (05:06)Жанр: Alternative, IndieПродолжительность: 00:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5D5F285D1A8F14E86D9988279B4599BC23BFB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507187   (686419) от 07.06.2012
-
-ReinXeed - Welcome To The Theater (2012) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686419.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Welcome (1:12)
-2. Life will find a way (5:37)
-3. Follow Me (3:52)
-4. Save Us (5:55)
-5. Stranger Tides (5:30)
-6. Somewhere in time (6:16)
-7. Freedom (8:15)
-8. No Fate (6:50)
-9. Temple of the crystal sculls (4:35)
-10. Welcome to the theater (3:46)Жанр: Power MetalПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA4E904084ADD68D7ED19641CF71187B7B93C3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

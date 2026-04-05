@@ -1,3 +1,29 @@
+###  Публикация: 949001   (379474) от 22.10.2015
+
+Алексей Навальный, Адам Михник | Диалоги (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из лидеров польской Солидарности, одержавшей в конце 1980-х победу над коммунистическим режимом, и лидер российской оппозиции, чья историческая победа еще впереди, – им есть о чем поговорить. Методы политической борьбы, неизбежные реформы, люстрация, оценка постсоветского транзита в России и странах Восточной Европы и ситуация сегодняшнего дня – в диалоге двух (   Читать дальше...   )Жанр: Публицистика, обществоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2008B6FC9687118D3DB88702371E2722091092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949136   (379473) от 22.10.2015
 
 Андрей Пионтковский | Призрак России. Кремлевское царство теней (2015) [FB2]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379473.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378731.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378693.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378675.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377756.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377374.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376773.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376605.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376595.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375760.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374172.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373793.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372443.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372282.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372037.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370624.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370518.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370384.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369838.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369648.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369640.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368028.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368026.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367766.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367754.jpg" />
 </div>
 
 
@@ -662,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA8642EA58F13984A2389548F299F3205094BC7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950760   (367552) от 27.10.2015
-
-Алексей Кунгуров | В.В. Путин. Роль в истории (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Кунгуров, оппозиционный журналист и писатель, посвятил немало своих произведений исследованию деятельности В.В. Путина. «В 2015 году исполнилось 15 лет с того дня, когда Владимир Путин встал во главе совета директоров ЗАО «Российская Федерация», – пишет А. Кунгуров. – Есть повод подвести итоги его полуторадесятилетнего «пахания на галерах»… Давайте рассмотрим (   Читать дальше...   )Жанр: Публицистика, обществоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3571281D0319A5563A0A20D70DFFAA7F6266C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

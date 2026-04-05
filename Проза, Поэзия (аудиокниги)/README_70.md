@@ -1,56 +1,3 @@
-###  Публикация: 1328439   (363582) от 30.09.2019
-
-Пол Боулз | Пусть льет (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на русском — второй роман классика современной литературы, написанный сразу после прославившего его романа «Под покровом небес», многим известного по экранизации Бернардо Бертолуччи с Джоном Малковичем и Деброй Уингер в главных ролях. Действие «Пусть льет» происходит в Танжере, в последние дни Международной зоны. Нелсон Даер, скромный кассир нью-йоркского (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58B19445A19E609C20E0585EF0E4FBEF42A3E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177452   (363143) от 25.10.2017
-
-Иван Фолькерт | Сказки темного леса (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свыше полутысячи смешных и жутких, удивительных и кровавых историй, произошедших в среде питерских ролевиков в период с 1991 по 2000 год. Всё, про что бы Вы хотели узнать — история РИ глазами подонков, глумление над людьми, попойки и употребление наркотиков, секты и самоубийства, погромы и провокации, облавы и противодействие властей — всё здесь.
-Это 'темная история' (   Читать дальше...   )Жанр: современная проза, биографияПродолжительность: 23:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD72F7536B97004DDFEA56A9DA833B41CF1D76CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070956   (361883) от 09.11.2016
 
 Дмитрий Фурманов | Чапаев (1964) [MP3]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361883.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361493.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361366.jpg" />
 </div>
 
 
@@ -141,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360496.jpg" />
 </div>
 
 
@@ -167,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359612.jpg" />
 </div>
 
 
@@ -193,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359259.jpg" />
 </div>
 
 
@@ -219,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357366.jpg" />
 </div>
 
 
@@ -245,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357222.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356697.jpg" />
 </div>
 
 
@@ -299,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355883.jpg" />
 </div>
 
 
@@ -326,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354447.jpg" />
 </div>
 
 
@@ -353,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352373.jpg" />
 </div>
 
 
@@ -379,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352312.jpg" />
 </div>
 
 
@@ -405,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350053.jpg" />
 </div>
 
 
@@ -431,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349312.jpg" />
 </div>
 
 
@@ -458,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349221.jpg" />
 </div>
 
 
@@ -484,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347647.jpg" />
 </div>
 
 
@@ -510,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346798.jpg" />
 </div>
 
 
@@ -537,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345837.jpg" />
 </div>
 
 
@@ -563,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345835.jpg" />
 </div>
 
 
@@ -589,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345791.jpg" />
 </div>
 
 
@@ -615,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345746.jpg" />
 </div>
 
 
@@ -641,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345654.jpg" />
 </div>
 
 
@@ -667,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345448.jpg" />
 </div>
 
 
@@ -678,6 +625,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8A1B7160221B1543A1E3A56EE199558BF5E1343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072658   (345212) от 16.11.2016
+
+Пауло Коэльо | Мата Хари. Шпионка (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345212.jpg" />
+</div>
+
+
+###  Подробнее
+
+От детства в маленьком голландском городке и брака с алкоголиком на Яве – к покорению Парижа, куда Мата Хари приехала без денег и где вскоре приобрела славу одной из самых элегантных женщин эпохи, – всю жизнь Мата Хари следовала своей правде, всегда была честна с собой и свободна от предрассудков и шаблонных истин. Она дорого за это заплатила. Пауло Коэльо с блистательным (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 03:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA9FBE8668CAAD8AD6FA4EAE559E6F3DC50CBD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179559   (344567) от 02.11.2017
+
+Дэвид Митчелл | Лужок Черного Лебедя (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Митчелл вновь удивляет читателя. Роман «Лужок Чёрного Лебедя» отличается от всех его романов. Эта книга наполнена аллюзиями на все значительные произведения мировой литературы и все же стоит особняком. И прежде всего потому, что главный герой, Джейсон Тейлор, мальчик, тайком пишущий стихи и борющийся с заиканием, хотя и напоминает нам героев Сэлинджера, Брэдбери, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2739CAA4EDCAFF941000B047A76797BCDAC8AB24
 ```
 
 https://mybot314.ru/tekegram_catalog/

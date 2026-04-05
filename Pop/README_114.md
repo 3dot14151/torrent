@@ -1,175 +1,3 @@
-###  Публикация: 1218427   (723299) от 09.04.2018
-
-Revanche - Music Man (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Get High In N.Y.C. (8:39)
-02. Revenge (8:53)
-03. Music Man (8:17)
-04. 1979 (It's Dancing Time) (8:44)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B540858DA0A1164F7D4F1E7F62E84AE6ED7E5CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218446   (723297) от 09.04.2018
-
-Наталия Могилевская - Самое... Самое (2003) |Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Плачь
-02. Снегопад
-03. Зима
-04. Лимоновый фонарь(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9659F248402CBF504E72DB4F591EFA738A7B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218407   (723115) от 09.04.2018
-
-VA - NRJ Hit Music Only 2018 (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723115.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Maître Gims - Mi Gna (00:03:36)
-02. David Guetta - Like I Do (00:03:23)
-03. Vald - Désaccordé (00:03:35)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7E7D45AE2DA567B2CCD9361400BF1A443A12BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218369   (723023) от 09.04.2018
-
-Dschinghis Khan - Moskau - Das Neue Best Of Album (2018) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dschinghis Khan
-02. Moskau
-03. Mexico
-04. Madagaskar(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCEF097BDD729BF45B0C9C82DE8C22AEC2D1A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285154   (722766) от 25.02.2019
-
-Kipper - This is Different (2006), Bang & Olufsen [WV|Lossless|image + .cue] <Instrumental Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Rebello   (feat.Ding Ding) [07:10]
-02. Jenny Linn Smith   (feat. My Generation) [03:56]
-03. Neil Stacey   (feat. To Be Free) [04:27]
-04. Tommy Blaize   (feat. We Come In Peace)  [03:49](   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AF8FD7A740126F19E09925C1047C99AAA14572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129315   (722498) от 28.04.2017
-
-VA - Disco Hits (2017) [MP3|320 Kbps] <Pop, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Trammps – Disco Inferno (11:00)
-02. Chic – Everybody Dance (Edit Version)Жанр: Pop, R&B, SoulПродолжительность: 02:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125201B4C84B47DF375C012DD243B047FFF8A63C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 144002   (722007) от 28.04.2017
 
 Е.Моргунов, Ю.Никулин, Г.Вицин  - Веселая троица (2004) [MP3|320 kbps]<Retro, Soundtrack>
@@ -178,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_722007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_722007.jpg" />
 </div>
 
 
@@ -207,7 +35,7 @@ VA - 100 Hits - 80's Dance (5CD) (2009) [FLAC|Lossless|image + .cue] <Disco, Syn
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721901.jpg" />
 </div>
 
 
@@ -236,7 +64,7 @@ Brad Paisley (Брэд Пейсли) - Who Needs Pictures (1999) Arista Nashvill
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721736.jpg" />
 </div>
 
 
@@ -265,7 +93,7 @@ Fancy - 30 Years - The New Best Of (2018) [MP3|320 Kbps] <Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721399.jpg" />
 </div>
 
 
@@ -294,7 +122,7 @@ VA - The Sound of NYLO 4 (2020) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721291.jpg" />
 </div>
 
 
@@ -323,7 +151,7 @@ VA - Summer Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721286.jpg" />
 </div>
 
 
@@ -352,7 +180,7 @@ VA - 100 Hits - The Best Love Album (2017) [MP3|320 Kbps] <Pop, R&B, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721272.jpg" />
 </div>
 
 
@@ -381,7 +209,7 @@ Herbie Mann - 2 Albums (1976, 1978) [MP3|320 Kbps] <Funk Soul, Jazz, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721188.jpg" />
 </div>
 
 
@@ -410,7 +238,7 @@ Miquel Brown - Symphony Of Love (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721079.jpg" />
 </div>
 
 
@@ -439,7 +267,7 @@ Robyn - Honey (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop, Dance-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721076.jpg" />
 </div>
 
 
@@ -468,7 +296,7 @@ Big Wild - Superdream (2019) [FLAC|Lossless|tracks + .cue] <Dance-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721075.jpg" />
 </div>
 
 
@@ -497,7 +325,7 @@ Modern Boots - The Best Of Modern Boots (2019) [MP3|320 Kbps] <Italo-Disco, Synt
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720954.jpg" />
 </div>
 
 
@@ -526,7 +354,7 @@ Modern Boots - The Best Of Modern Boots (2019) [FLAC|Lossless|WEB-DL|tracks] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720945.jpg" />
 </div>
 
 
@@ -555,7 +383,7 @@ Didi Robinson - Du Warst Mein Schoenster Traum (1992) [FLAC|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720802.jpg" />
 </div>
 
 
@@ -584,7 +412,7 @@ VA - Spring Break Party 2017 Powered By Xtreme Sound (2017) [MP3|320 Kbps] <Deut
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720776.jpg" />
 </div>
 
 
@@ -613,7 +441,7 @@ Julio Iglesias - Recital At The Festival ''The Golden Orpheus '73'' (1973) [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720646.jpg" />
 </div>
 
 
@@ -642,7 +470,7 @@ Siberian Heat & Elen Cora - Brilliants: Best Of US (2015) LP, Compilation [OGG|3
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720547.jpg" />
 </div>
 
 
@@ -671,7 +499,7 @@ Tam Harrow - Incredible Idiot (2015) Limited Edition [FLAC|Lossless|image + .cue
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720545.jpg" />
 </div>
 
 
@@ -700,7 +528,7 @@ Tom Hooker - Back In Time (2017) 2CD, Limited Edition [FLAC|Lossless|image + .cu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720463.jpg" />
 </div>
 
 
@@ -729,7 +557,7 @@ Dalida - 30 ans deja (2017) 2CD  [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720437.jpg" />
 </div>
 
 
@@ -743,6 +571,180 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6906B8F49C3FF7E6534980B7FDAEE250F10E48BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129834   (720338) от 29.04.2017
+
+VA - 538 Hitzone 81 (2017) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Electronic, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boef - Habiba (3:35)
+02. Anne-Marie - Ciao Adios (3:19)
+03. Kensington - Bridges (3:38)
+04. Burak Yeter feat. Danelle Sandoval - Tuesday (3:59)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Indie, Electronic, R&B, Soul, Ballad, Hip Hop, Electronic, Dance, Dancepop, Trance, Electro, Pop Rock, Pop RapПродолжительность: 02:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C504A049E721CFEAD4ACCA3A2B7A7C1673F9B767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129517   (720333) от 29.04.2017
+
+Филипп Киркоров - 4 альбома (1990-1993) Vinil-Rip [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночной бал (К. Кравчик — Л. Рубальская)
+02. Кармен (3. Попова — О. Серебренников)
+03. Бегущая по волнам (В. Казасян — И. Резник)
+04. Не смотри ты на часы (А. Иосифов — Л. Дербенёв)(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1790380B961E31C85569892E884A5C41E8DDA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129802   (720332) от 29.04.2017
+
+Den Harrow - The 12'' Collection 1984-1987 (2015) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad Desire (12'' Version) 6:31
+02. Future Brain (12'' Version) 5:32
+03. Bad Boy (12'' Version) 5:49
+04. Make Ends Meet (12'' Version) 5:37(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFD35017B44D97CAF71E5748C9C958163BE343A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129685   (720321) от 29.04.2017
+
+VA - 100 Hits Sunday Morning Songs (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Dance, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну какой релиз публиковать субботним предпраздничным утром - конечно 100 Hits: Sunday Morning Songs. Этим сборником британский лейбл Demon Music Group продолжает серию боксетов для самых различных слушателей (ссылку на серию NNM-Club вы найдете в конце релиза). Сдесь собраны спокойные, светлые и умиротворяющие композиции со всего света. 100 мягких мелодий собраны (   Читать дальше...   )CD1:
+01. Kris Kristofferson - Sunday Morning Comin' Down  (4:33)
+02. Johny Cash - It Ain't Me Babe  (3:04)
+03. Lulu - The Man Who Sold The World  (3:51)(   Читать дальше...   )Релиз состоялся: 17 февраля 2017Жанр: Dance, Pop, RockПродолжительность: 06:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B187667912098D3F6F8FAD72AF6995110B2BC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129692   (720232) от 29.04.2017
+
+VA - BRAVO Hits 97 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katy Perry feat. Skip Marley - Chained To The Rhythm (3:57)
+02. Ed Sheeran - Castle On The Hill (4:21)
+03. Alma - Chasing Highs (3:15)
+04. Zedd & Alessia Cara - Stay (3:30)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3B1F1E0B4C9C23DB1CB3A498CB799790E225B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218782   (719383) от 11.04.2018
+
+VA - Ministry Of Sound I Love Acoustic (2018) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sigala & Paloma Faith - Lullaby
+02 - Jax Jones, RAYE - You Don't Know Me - Acoustic Version
+03 - Stormzy, Wretch 32, Aion Clarke, Aion - Blinded By Your Grace, Pt. 2 (Acoustic)
+04 - Not3s, Mabel - My Lover - Radio Edit(   Читать дальше...   )Жанр: PopПродолжительность: 03:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D097931383994319CFEC5F2D523F5BA09CD067A
 ```
 
 https://mybot314.ru/tekegram_catalog/

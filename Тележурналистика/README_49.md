@@ -1,29 +1,3 @@
-###  Публикация: 1149379   (601095) от 10.07.2017
-
-Рабочее место – война (2017) HDTVRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из героев фильма, тележурналист Арабие Дибе, оказался на линии фронта с первых дней конфликта. Он несколько раз был ранен, в шее у него до сих пор остаётся осколок, но сразу после очередного выздоровления он снова и снова возвращается туда, где идёт война. Яра Салех и её съёмочная группа были похищены, один из членов команды был казнён. Спастись из плена удалось (   Читать дальше...   )Телекомпания: Россия / RТДЖанр: ДокументальныйПеревод: Двухголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 00:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB20CEF6B2116808BB0CC7E1510D2841614CB638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913709   (601068) от 30.06.2015
 
 Артем Гришанов - Война на Украине (2014-2015) WEB-DLRip [720p]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601068.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600484.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600482.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600428.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600422.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600367.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600357.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600287.jpg" />
 </div>
 
 
@@ -245,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600246.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599931.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599175.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598638.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598465.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598344.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598064.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598055.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597839.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596583.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596580.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596576.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596083.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595208.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595133.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594795.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594790.jpg" />
 </div>
 
 
@@ -674,6 +648,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66568F3E0788848B14FB9D07F37CD1220D073CF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125857   (594701) от 14.07.2017
+
+За строчкой архивной… (Закрытый архив) (2016) WEB-DLRip (1 сезон: 12 серий из 12)
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не все события получают должную огласку. Многие факты неизвестны широкой публике. Истину нельзя утаить.
+Цикл программ о неизвестных политических, военных, социальных, экономических страницах истории России 20-го века.Телекомпания: Россия, ЗАО Телекомпания «ФОРМАТ ТВ»Жанр: Документальный, история, журналистикаПродолжительность: 12 х ~ 00:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE0FA5ACB5CA558700BC014388A593F4EEAE24F
 ```
 
 https://mybot314.ru/tekegram_catalog/

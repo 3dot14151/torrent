@@ -7,7 +7,7 @@ Crystal Lake - The Weight of Sound (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054615.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Sigh - Infidel Art (1995) 2xCD, Reissue, Remastered, 2025, Peaceville Records Lt
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047364.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Broken Valentine - 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Grunge, Hard Roc
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046430.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Razor Highway - Grace Through Insanity (2019) Japanese Edition [FLAC|Lossless|im
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046334.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Loudness - Live Loud Alive (1983) 2CD [APE|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046103.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Wirbelwind - Time To Realize (2021) Japanese Edition, EP [FLAC|Lossless|image + 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045578.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044511.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Onmyo-Za - Ryuou Douji (2023) Jараnеsе Еditiоn [FLAC|Lossless|image + .cu
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043914.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Parasitario - Everything Belongs to Death (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040136.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ZUTOMAYO - Дискография (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <JRo
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039537.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Evilgloom - Addictions (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu-Metal
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038358.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lovebites - Judgement Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038339.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kaneyorimasaru - Дискография (2019 - 2023) [FLAC|Lossless|WEB-DL|trac
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037771.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ lynch - Reborn (2023) [FLAC|Lossless|tracks] <Alternative Metal, Visual Kei>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035329.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Lovebites - Electric Pentagram (2020) Japanese Edition [FLAC|Lossless|WEB-DL|tra
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027211.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026409.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Carmen Maki - 7 аlbums, 9 CD (1971-2012) [FLAC|Lossless|tracks + .cue] <Prog Ro
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023977.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Akira Takasaki - Osaka Works #128 (2006) [WavPack|Lossless|image + .cue] <Heavy 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001025.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Katsu Ohta - Micronist III (2016) [WavPack|Lossless|image + .cue] <Neoclassical 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001022.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Katsu Ohta - Micronist II (2015) [WavPack|Lossless|image + .cue] <Neoclassical M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993276.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Onmyo-Za - Kumikyoku "Yoshitsune" - Muma-Enjou (2004) [WavPack|Lossless|image + 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992577.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Katsu Ohta - Micronist (2003) [WavPack|Lossless|image + .cue] <Neoclassical Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939274.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Zhaoze - 1911 (2011) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Ambient, Psychede
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920680.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Onmyo-Za - Karyo-Binga (2016) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892527.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Loudness - Rise To Glory -8118- (2018) 2xCD [FLAC|Lossless|image + .cue] <Heavy 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877440.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Loudness - Sаmsаrа Flight (2016) 2xCD, Compilation, 35th Anniversary [FLAC|Lo
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875970.jpg" />
 </div>
 
 

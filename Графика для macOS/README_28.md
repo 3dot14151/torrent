@@ -6,7 +6,7 @@ Pixea Plus for Mac 5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133820.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Photo Mechanic Plus 6 v.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133615.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Toon Boom Animate Pro 2 + Videotutorial [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133321.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ EdgeView 4..4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133105.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DxO PureRAW 3 for Mac v.3.9.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122575.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MetaImage for Mac 2.6.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122517.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Lyn 2.3.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122381.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Color Folder - Custom Icons for Mac 3.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122331.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ MetaRename for Mac 1.0.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122136.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ PhotosRevive for Mac 2.1.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121858.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Sketch 99.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121598.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Aiseesoft HEIC Converter 1.0.36 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121037.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ApolloOne - Photo Video Viewer Pro 3.3.8 (patch only) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120972.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ FoneLab HEIC Converter 1.0.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120967.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Topaz Gigapixel AI for Mac 7.0.0 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120805.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Adobe Photoshop for Mac 2024 v.25.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120383.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Canvas X Draw 7.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120332.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Amadine 1.5.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120252.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Imagenomic Professional Plugin Suite For Adobe Photoshop 2024 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120028.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Imagenomic Noiseware for PS (Mac) 6.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119953.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ My PaintBrush Pro 2.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119790.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ HitPaw Photo AI for Mac 3.1.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119533.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ HitPaw Watermark Remover for Mac 2.4.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119514.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ PowerPhotos 2.5.6 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119446.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ SILKYPIX JPEG Photography 11 v.11.2.14.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118584.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.14.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118568.jpg" />
 </div>
 
 

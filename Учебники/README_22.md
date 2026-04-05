@@ -1,3 +1,57 @@
+###  Публикация: 1109384   (856931) от 28.02.2017
+
+О.С. Ефремова | Охрана труда в организации в схемах и таблицах (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856931.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издании рассматривается система охраны труда в РФ. Особенностью данного издания является содержание информации в удобной и доступной для восприятия форме - в схемах и таблицах. Наглядность, краткость и доходчивость схематичного изложения материала позволит легче ориентироваться в столь сложной теме, как охрана труда.
+ Для руководителей, юристов, работников, отвечающих (   Читать дальше...   )Жанр: Охрана трудаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343BA6E815980D1A81FFF291D08644BDAD216BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498579   (856035) от 27.09.2021
+
+В.Б. Топильский | Микроэлектронные измерительные преобразователи (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856035.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрен комплекс вопросов, связанных с аналоговой и аналого-цифровой схемотехникой информационно-измерительных систем (ИИС) и систем управления. Подробно описаны компоненты таких систем (микроэлектронные сенсоры, усилители сигналов, аналого-цифровые преобразователи и устройства отображения информации).
+Приведены схемы включения элементов ИИС (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90AFF65B0546341E88E49F56C567542B48F681FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000982   (855606) от 27.03.2016
 
 А.В. Булычев, А.А. Наволочный | Релейная защита в распределительных электрических сетях (2011) [FB2, RTF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855606.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855221.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854705.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850384.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846845.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845098.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844745.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844657.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844639.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844406.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844398.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844175.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844166.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844047.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843198.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843101.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843029.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843010.jpg" />
 </div>
 
 
@@ -479,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842994.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842341.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841339.jpg" />
 </div>
 
 
@@ -557,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840089.jpg" />
 </div>
 
 
@@ -583,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839896.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839687.jpg" />
 </div>
 
 
@@ -621,60 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6333E9AAA5E0F617A77B885ABE39F27481A70BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112964   (838409) от 11.03.2017
-
-Б.Я. Лурье, П.Дж. Энрайт | Классические методы автоматического управления (2004) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материал книги основан на классических частотных подходах к проектированию линейных и нелинейных систем. Подробно описаны методы, включая метод динамической нелинейной коррекции, дающие высокие результаты при проектировании высокоточных систем управления для техники связи, электроники, роботов, биомеханических систем и космических аппаратов.
- Рассмотрено формирование (   Читать дальше...   )Жанр: Автоматика, электроникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D97D3FEB3E2BCA42AE664FC8120B9845492143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113491   (838311) от 11.03.2017
-
-В.Ф. Травень и др. | Задачи по органической химии (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное учебное пособие подготовлено с учетом новых требований, предъявляемых к содержанию учебных изданий двухуровневой системы высшего образования. Задачи систематизированы по разделам в соответствии с главами учебника «Органическая химия» (Травень В.Ф., М.: Лаборатория знаний, 5-е издание, 2016 г.), который входит в комплект «Учебник—Задачник—Практикум».
-Каждый (   Читать дальше...   )Жанр: ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8922878BF986B788323082D68D5063C06738CB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

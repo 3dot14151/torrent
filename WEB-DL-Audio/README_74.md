@@ -6,7 +6,7 @@ Macade - Dialoghi (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103459.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Melanie Scholtz - Seven (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103458.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Matt Panayides Trio - With Eyes Closed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103457.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Melinda Sullivan and Larry Goldings - Big Foot (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103455.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Miki Yamanaka - Chance (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103453.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Skillet - Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <christian roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103433.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Aaron Rimbui - Imani (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103414.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rosalie Cunningham - To Shoot Another Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103413.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Warren Haynes - Million Voices Whisper (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103408.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Boney James - Slow Burn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103405.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Christophe Goze - My Kind Of Blue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103404.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Kristin Korb - Sweet Dreams (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103401.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Brothers of Metal - Fimbulvinter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103399.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Grant Richards - Menagerie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103392.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Francesco Venerucci - INDIAN SUMMER (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103391.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kevin A Knowles - Vagabond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103390.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Gregory Kunde - Then and Now (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, V
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103389.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Jason Jackson - Looking Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103388.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Zephira - Wisdom's Wrath (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103370.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Robert Jon & The Wreck - Red Moon Rising (Deluxe Edition) (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103362.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ King Crimson - Red (1974) Expanded & Remastered Original Album Mix, 2014, Discip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103358.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Randy Hoexter - Tomorrowsville (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Con
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103350.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Michael Mayo - Fly (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103349.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Odrysian - Third Eye Blind (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103348.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Pink Magic Orchestra - Pink Magic Orchestra (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103346.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Molly Miller Trio - Last Sunday (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103344.jpg" />
 </div>
 
 

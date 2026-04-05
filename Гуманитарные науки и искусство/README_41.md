@@ -1,85 +1,3 @@
-###  Публикация: 1284868   (724920) от 24.02.2019
-
-Х. Н. Момджян | Поль Лафарг и философия марксизма (1978) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724920.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге освещается с возможной полнотой роль Поля Лафарга как теоретика, его место в защите, обогащении и пропаганде марксистских идей. В центре внимания философские, социологические, этические и атеистические воззрения выдающегося французского марксиста. Анализ наследия П. Лафарга является составной частью решения такой кардинальной проблемы, как глубокое и всестороннее (   Читать дальше...   )Жанр: История, политология, философия, этика, эстетика, социологияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024D9C3881FF4474215F2E52F9A05A15DD61BD4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284871   (724908) от 24.02.2019
-
-М. Б. Митин | О работе И. В. Сталина «Анархизм или социализм?» (1948) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа товарища Сталина «Анархизм или социализм?» занимает одно из выдающихся мест среди творений марксистско-ленинской мысли.
-
-Произведение товарища Сталина «Анархизм или социализм?» является одним из лучших изложений мировоззрения диалектического материализма, теории классовой борьбы пролетариата, марксистского учения о диктатуре пролетариата, основ научного коммунизма (   Читать дальше...   )Жанр: История, политология, экономика, публицистика, социология, правоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CAA6F12CAD1BF85414A556A04FF1D71B9B2F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128520   (724506) от 27.04.2017
-
-Н. А. Рубакин | Как и когда разные народы научились говорить каждый на своем языке? (1909) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724506.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время на всей земле существует более восьмисот разных языков. В одной только Aзии насчитано 153 языка, в Африке — 114, в Австралии и Океании —117, в Америке — 423, в Европе — 53. Это не считая наречий. А если считать и наречия, то всех их на земле больше трехсот с половиною тысяч.
-
-Значит, вот сколько на свете разных языков. На одном говорят сотни миллионов (   Читать дальше...   )Жанр: История, филология, языкознание, лингвистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465D6BAE35BD4E9534A4B35F57F37131D22F5BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023476   (724411) от 05.06.2016
 
 М. А. Мамонова | Запад и Восток: традиции и новации рациональности мышления (1991) [PDF]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724411.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724117.jpg" />
 </div>
 
 
@@ -140,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724113.jpg" />
 </div>
 
 
@@ -166,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724089.jpg" />
 </div>
 
 
@@ -192,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723738.jpg" />
 </div>
 
 
@@ -218,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722390.jpg" />
 </div>
 
 
@@ -245,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721730.jpg" />
 </div>
 
 
@@ -271,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720786.jpg" />
 </div>
 
 
@@ -297,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718597.jpg" />
 </div>
 
 
@@ -325,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717525.jpg" />
 </div>
 
 
@@ -351,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717067.jpg" />
 </div>
 
 
@@ -379,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716980.jpg" />
 </div>
 
 
@@ -405,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716953.jpg" />
 </div>
 
 
@@ -431,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716940.jpg" />
 </div>
 
 
@@ -457,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716823.jpg" />
 </div>
 
 
@@ -483,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716672.jpg" />
 </div>
 
 
@@ -509,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715045.jpg" />
 </div>
 
 
@@ -535,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714484.jpg" />
 </div>
 
 
@@ -561,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714483.jpg" />
 </div>
 
 
@@ -587,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714427.jpg" />
 </div>
 
 
@@ -615,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714421.jpg" />
 </div>
 
 
@@ -641,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714418.jpg" />
 </div>
 
 
@@ -669,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714414.jpg" />
 </div>
 
 
@@ -682,6 +600,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C789E44C304D093CD27310004AA8C1C7F783D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130608   (714344) от 02.05.2017
+
+И. Д. Андреев | О методах научного познания (1964) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все научные и технические открытия, все достижения ученых и практиков стали возможными потому, что человек в процессе производственной деятельности научился познавать окружающий его мир, находить внутренние связи и отношения предметов и явлений, скрытую от непосредственного наблюдения их сущность. А познав причины возникновения предметов и явлений, важнейшие свойства (   Читать дальше...   )Жанр: История, философия, науковедение, логика, математикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DC874ECBC5576A0D3660402EBC394323BB72C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130618   (714343) от 02.05.2017
+
+П. В. Копнин (рук. кол.) | Логика научного исследования (1965) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отношение нового знания к предшествующему не укладывается в рамки формально-логического закона противоречия; новые результаты не только могут логически не следовать из ранее достигнутого знания, но вступать с ним в противоречие.
+
+Под логическим надо понимать совокупность всех закономерностей движения мышления к новым результатам, носящим характер объективной истины. (   Читать дальше...   )Жанр: История, философия, науковедение, логикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A507DD99373E00BF409B8CDB7496FAF53AEFFA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219541   (713905) от 14.04.2018
+
+Г. Никольсон | Дипломатическое искусство (1962) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарольд Никольсон - английский дипломат и историк, перу которого принадлежит ряд книг по истории дипломатии и дипломатической практике.
+
+В 1941 году в Советском Союзе была издана широко известная книга Г. Никольсона "Дипломатия", а в 1945 году - "Как делался мир в 1919 году".
+(   Читать дальше...   )Жанр: История, политология, дипломатия, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AE4A602A4189B346700FDDA0874D5610EEE32F
 ```
 
 https://mybot314.ru/tekegram_catalog/

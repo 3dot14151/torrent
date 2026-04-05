@@ -1,3 +1,32 @@
+###  Публикация: 1249709   (433455) от 24.09.2018
+
+Chaos Magic ) - Chaos Magic (Japanese Edition (2015) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Alive
+02. Dangerous Game
+03. One Drop Of Blood
+04. Seraphim(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8690428859AA8FAE056C2F84C0E3AB95F56A29F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249497   (433450) от 24.09.2018
 
 VA - Beauty in Darkness Vol. 3 (1998) [FLAC|Lossless|image + .cue] <Goth Rock, Doom Metal, Black Metal>
@@ -6,7 +35,7 @@ VA - Beauty in Darkness Vol. 3 (1998) [FLAC|Lossless|image + .cue] <Goth Rock, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433450.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433442.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lindemann - Fish On (2015) Single [FLAC|image+.cue]<Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433423.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433299.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ Antimatter - 6 альбомов + компиляция (2001 - 2015) Discography
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433102.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Shores of Ladon - Eindringling (2013) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432860.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Enertia - Piece Of The Factory (2015) [FLAC|Lossless|image + .cue] <Heavy, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432858.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Stigmhate - Zodacare Od Zodameranu (2014) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432856.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Bolder Damn - Mourning (1971) Reissue, 2008, Erebus Records [MP3|320 Kbps] <Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432752.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Gaia Prelude - Promised Land (2008) Japanese Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432701.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Gary Hoey - Monster Surf (2005) [FLAC|Lossless|tracks + .cue] <Surf, Instrumenta
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432688.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ The Quireboys - Twisted Love (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432681.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Tango Down - Damage Control (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432529.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Colin James - Blue Highways (2016) [FLAC|Lossless|image + .cue] <Blues Rock, Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432521.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Running Wild - Black Hand Inn (1994) Deluxe Expanded Edition, 2017, Noise [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432464.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Marilyn Manson - We Know Where You Fucking Live (2017) Single [MP3|320 Kbps] <Al
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432344.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Foo Fighters - Concrete And Gold (2017) [MP3|320 Kbps] <Alt. Rock, Post-Grunge, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432326.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Eldiarn - Безудержное счастье (2016) [MP3|320 Kbps] <Folk Meta
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432265.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Rob Zombie - Music Box - The Best Of (2004) [FLAC|Lossless|tracks + .cue] <Indus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432257.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Tommy James & The Shondells - I Think We're Alone Now (1967) [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432253.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ The Parlor Mob - 2 альбома, 1 EP (2008-2015) [FLAC|Lossless|tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432221.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Phil Collins - The Singles (2016) Expanded Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432143.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432071.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432065.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Make Way for Man - Rites (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431993.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Make Way for Man - Rites (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E09693382F8E45477F32CB20358869AF0928CFAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410865   (431991) от 23.09.2020
-
-Carillon - Love Mirage (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.     Love Mirage
-02.     Heart Hero
-03.     Ro. 12:19
-04.     No Ves?(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A1EF290F84873BB846FA1FC66436B22F28A07D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1771455   (31799) от 06.01.2025
+
+Fully Fluent - Learn Languages / Бегло - Изучайте языки v2.5.4 Mod by misuri78 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31799.jpg" />
+</div>
+
+
+###  Подробнее
+
+🌟 Станьте бегло говорящим быстро с Бегло! 🌟
+Представьте, как вы говорите как носитель языка на работе 💼 или во время путешествий ✈️. Представьте, какие двери это откроет 🚪, какие связи вы сможете установить! 🤝
+Бегло поможет вам овладеть английским, испанским, французским, хинди, португальским, китайским (мандарин) (   Читать дальше...   )Тип издания: FullРелиз состоялся: 06.01.2025Разработчик: Fully FluentПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A4ACEAE6D39BD2CBA1420D33FFD4F3F9F9735B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771611   (31727) от 07.01.2025
+
+Здоровая шея  v1.1.6 Mod by 0x7d [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оздоравливающий комплекс, содержащий упражнения для шеи за 30 дней, с помощью которого вы избавитесь от хронической головной боли и головокружений, а также чувства напряжения и скованности в шейно-воротниковой зоне. Приложение поможет восстановить здоровый мышечный тонус, стимулировать кровообращение, а также улучшить нервную и мышечную подвижность верхних отделов (   Читать дальше...   )Тип издания: ModРелиз состоялся: 06.01.2025Разработчик: mEL StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D1678405FDA01E6D646EA1BC8261145E5714E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715330   (31663) от 08.01.2025
+
+Smart AudioBook Player Pro v11.1.9 (A8.0+) Mod by 0x7d [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 07.01.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD7116E2FFEDA2E86E1001326B5B3BB1453C2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771849   (31641) от 08.01.2025
+
+Filmora - Редактор видео с AI v14.4.01 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Filmora - программа для редактирования видеозаписей теперь доступна в вашем мобильном телефоне. Совершенно бесплатная, без водяных знаков и ограничений по времени. С Filmora видеозаписи создаются очень быстро и легко. Мощный инструмент содержит все функции редактирования, которыми оснащены профессиональные студии. С помощью Filmora можно создавать забавные видеоролики (   Читать дальше...   )Тип издания: Pro / ExtraModРелиз состоялся: 07.01.2025Разработчик: FilmoraGo StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811A9BEA3019CDDC44278B66EE84FF31FB84BA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772522   (31279) от 11.01.2025
 
 Просто Радио онлайн v13.5 Mod by 0x7d [Ru/En]
@@ -6,7 +112,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31279.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ SnapEdit - AI photo editor v7.2.8 Mod by Maximoff⁠ [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31267.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Drink Water / Напоминание пить воду v2.26.0 Mod by PieMods [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31254.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Background Video Recorder Pro v11.3.59 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31252.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31193.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ FotoTweak - AI Image Generator v1.0.46 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30979.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ Diabetes:M v9.0.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30976.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ Gif Me! Camera Pro v1.90 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30937.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30583.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ WPS Office + PDF v18.15 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30543.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ Pro Pool 2025 v1.60 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30536.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30524.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ English LinDuo HD v5.33.1 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30518.jpg" />
 </div>
 
 
@@ -351,7 +457,7 @@ AudioBooks v6.0 Plus Mod by smold2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30451.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ Garmin: TOPO Great Britain v3 PRO [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30424.jpg" />
 </div>
 
 
@@ -406,7 +512,7 @@ Lumii - Фоторедактор, Фильтры v1.700.167 Mod by PieMods [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30407.jpg" />
 </div>
 
 
@@ -432,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30368.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30332.jpg" />
 </div>
 
 
@@ -487,7 +593,7 @@ Art Me: ИИ-художник v5.4 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30246.jpg" />
 </div>
 
 
@@ -514,7 +620,7 @@ Reviver: Premium v1.0.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30201.jpg" />
 </div>
 
 
@@ -541,7 +647,7 @@ Monolith v1.1.12.065 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30172.jpg" />
 </div>
 
 
@@ -568,7 +674,7 @@ Arcane Quest Legends 2 Offline v1.0.10 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30171.jpg" />
 </div>
 
 
@@ -579,117 +685,6 @@ Arcane Quest Legends 2 Offline v1.0.10 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BA1FABC0C98A1EC1A37CAE64569DF84FA8CB42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774584   (30170) от 22.01.2025
-
-Bright Memory: Infinite v1.0 b82 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30170.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2036 году в небе по всему миру произошло странное явление, которому ученые не могут найти объяснения. Исследовательская организация сверхъестественных наук (SRO) отправила агентов в различные регионы для исследования этого явления. Вскоре выясняется, что эти странные происшествия связаны с архаичной тайной - пока еще неизвестной историей двух миров, которая вот-вот (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 20 янв. 2025 г.Разработчик: FYQD-StudioПоддерживаемая ОС: Android 8.0+ (arm64-v8a)Жанр: ЭкшнЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FB35D586742CBEF962CB0E5FE2CC4DD8D6ECFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774613   (30151) от 22.01.2025
-
-Reaper v2.0.2 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в мир, изобилующий магией и чудовищами! Станьте Черным мечником и сокрушите тысячи врагов в эпической экшен-RPG!
-
-★ Игра полностью переведена на русский язык.
-★ Выполняйте бесчисленные задания, раскрывающие секреты Дебрей.(   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 27 дек. 2024 г.Разработчик: HEXAGEПоддерживаемая ОС: Android 10+ (arm64-v8a)Жанр: АркадаЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B2A2418FEF29C69212A08CEC6A98E4A828782D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774629   (30147) от 22.01.2025
-
-Teslagrad v2.2 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30147.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Королевстве Электропия король управляет железным кулаком, сражаясь и уничтожая секту технологических колдунов, которые владеют массивной башней посреди города по имени Теслаград.
-Teslagrad –это 2D-головоломка-платформер с элементами экшна, в которой магнетизм и другие электромагнитные силы являются ключом к прохождению игры и открывают тайны, хранящиеся в давно (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 20 декабря 2024Разработчик: PlaydigiousПоддерживаемая ОС: Android 5.0+Жанр: ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A037DF334F2E6BFE4F558DA3E08F6A4EDBA0C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774588   (30124) от 22.01.2025
-
-Together We Live v1.0.1g [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30124.jpg" />
-</div>
-
-
-###  Подробнее
-
-История:
-""Пробуждение""
-Кёя просыпается в тускло освещенной комнате.
-По словам прошедшей мимо девушки, мир погиб.(   Читать дальше...   )Тип издания: PaidРелиз состоялся: 18 дек. 2024 г.Разработчик: KEMCOПоддерживаемая ОС: Android 6.0+ (arm64-v8a)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B31EB81AA5BEB8469E6B5785C6F8DAEBA2333B
 ```
 
 https://mybot314.ru/tekegram_catalog/

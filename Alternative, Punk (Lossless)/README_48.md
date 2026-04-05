@@ -6,7 +6,7 @@ Turnover - Altogether (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279170.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Villagers - The Art of Pretending to Swim (2018) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279165.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Royal Coda - Compassion (2019) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Exp
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277428.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Silversun Pickups - 5 альбомов, 2 EP (2005 - 2017) [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276760.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Alternative Nation (1985-1994) [FLAC|Lossless|image + .cue] <Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276584.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Snow Patrol - Reworked (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276368.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Alex Lahey - The Best of Luck Club (2019) [FLAC|Lossless|tracks + .cue] <Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274910.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ LP - Lost On You (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative/Indie Rock, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274491.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lo Moon - Lo Moon (2018) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274141.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Audioslave - Discography (2002-2006) 3CD [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273540.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Streetlight Manifesto - Somewhere in the Between (2007) [FLAC|Lossless]<Ska-Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272967.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Coldplay - Everyday Life (2019) Scene [FLAC|Lossless|tracks] <Indie Rock, Britpo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271444.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Adelitas Way - Notorious (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271270.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ blink-182 - Nine (2019) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270632.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Spacehog - 4 альбома (1995 - 2013) [FLAC|Lossless|tracks + .cue]<Indie, B
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270183.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Joywave - Content (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Electronic>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269593.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Church - The Best Of The Church (1999) Compilation [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268214.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Belle and Sebastian - How to Solve Our Human Problems (Part 1) (2017) EP [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268038.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nothing More - The Stories We Tell Ourselves (2017) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267046.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Serj Tankian - Imperfect Harmonies (2010) [FLAC|Lossless]<Avantgarde, Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266426.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Milky Chance ‎ - Mind the Moon (2019) [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_266123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_266123.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Shadows - illuminate (2017) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore, Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265812.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Limp Bizkit - Collected (2008) Compilation [FLAC|Lossless|tracks + .cue] <Nu Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264886.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Beck ‎ - Hyperspace (2019) [FLAC|Lossless|tracks] <Indie Rock, Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264636.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ My Vitriol - The Secret Sessions (2016) [FLAC|Lossless|tracks] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264513.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Stand Atlantic - Skinny Dipping (2018) [FLAC|Lossless|tracks + .cue] <Pop-Punk, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264433.jpg" />
 </div>
 
 

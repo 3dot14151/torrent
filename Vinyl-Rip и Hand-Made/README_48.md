@@ -1,3 +1,32 @@
+###  Публикация: 1652456   (216793) от 12.08.2023
+
+VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216793.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Маут И Мак Нийл - Скажи Мне Что-Нибудь • Кажи Ми Нещо
+А2 Лефт Сайд - Добро Пожаловать Домой • Добре Дошла У Дома
+А3 Кристоф - Рука За Руку • Ръка За Ръка
+А4 Ню Сийкърс - Никогда Не Кончится Песня Любви • Никога Няма Да Свърши Песента На Любовта(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, DiscoПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6E9BE83D0223A49F259F34022772FCCCCBCCF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649764   (216114) от 13.08.2023
 
 Orphaned Land (& Amaseffer) - Studio Albums (10 releases) (1993-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death/Middle Eastern Folk Metal>
@@ -6,7 +35,7 @@ Orphaned Land (& Amaseffer) - Studio Albums (10 releases) (1993-2018) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216114.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214753.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Frankie Goes To Hollywood - Liverpool (1986/1988) Reissue [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214672.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bullet For My Valentine - Studio Albums (7 releases) (2006 - 2021) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214597.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphoni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214374.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214264.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ ELO (Electric Light Orchestra) - Discovery (1979) [FLAC 2.0|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214043.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Pink Floyd - The Dark Side of the Moon (1973) [FLAC 2.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213980.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Kiss – 42 Альбома (1974-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213969.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Gloria Gaynor/Глория Гейнор - Love Tracks/Пути Любви (1978/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213843.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213671.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Asia - Astra (1985) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Prog Rock, Symphon
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213667.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Within Temptation - Shed My Skin (2021) hand made [restored, declipped] [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213660.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213540.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213390.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Master / Мастер (1990) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Thrash, Hea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213384.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Sweet - Легенды Зарубежного Рока (2000) Compilation, Unoff
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212054.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211934.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Gloryhammer - Studio Albums (4 releases) (2013-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211882.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Janis Joplin - Легенды Зарубежного Рока (2001) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211804.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211473.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211409.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211271.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Alice Cooper - Легенды Зарубежного Рока (2000) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211108.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210780.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ A4 Сцена прощания(   Читать дальше...   )Жанр: Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EFF4AC77BF50A3704E82B84B4F0FB9D6C5FCD82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642386   (210315) от 28.06.2023
-
-Леонид Агутин - Летний Дождь (1998) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Latin, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210315.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Не Унывай!
-A2 Летний Дождь
-A3 Полночи
-A4 Танцевали Пары(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,162 +1,3 @@
-###  Публикация: 195891   (828549) от 26.04.2010
-
-Максим Левин | Библия хакера 2 [2 тома] (2003-2004) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга 1
-Итак, опять про хакеров автора Максима Левина. Но теперь уже — «Библия». А почему именно библия?! Беда вся в том, что дело не в хакерах, так как знание каких-то там «принципов» еще не делает человека хакером. Это факт!
-Хотя бы потому, что необходимо еще много знать и уметь, чтобы получить признание в так называемых хакерских кругах. Поэтому «определитесь» (   Читать дальше...   )Жанр: Компьютер и интернетФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502349   (827880) от 14.10.2021
-
-Артур О’Двайр | Осваиваем C++17 STL (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используйте компоненты стандартной библиотеки в C++17 в полной мере. Стандарт C++17, которому посвящена книга, удвоил объем библиотеки в сравнении с С++11. Вы узнаете о наиболее важных особенностях стандартной библиотеки C++17 со множеством примеров, научитесь создавать свои типы итераторов, диспетчеры памяти, пулы потоков выполнения. Также рассмотрены от- личия (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CE60C380734F054DC7FBDF18C54A868405A3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381276   (827468) от 06.05.2020
-
-Fabien Potencier | Symfony 5. The Fast Track / Фабьен Потенсье | Symfony 5. Быстрый старт (2020) [PDF] [RU, EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли быстро разработать современное веб-приложение, насладившись процессом? С Symfony 5 это возможно. В этой книге от создателя Symfony изложен прагматичный подход к разработке веб-приложений с помощью Symfony 5: от начала до развёртывания в продакшене. Впервые ли вы работаете с Symfony или решили пополнить свои знания — данное практическое руководство содержит (   Читать дальше...   )Жанр: Программирование, PHP, SymfonyФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C5BB1A65AF18A91E926C134E86414D0D5EBD6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381251   (827364) от 06.05.2020
-
-З. Фрайман | Создание приложений для смартфонов и планшетов под ОС Android (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемое пособие по созданию приложений для смартфонов и планшетов под ОС Android, несмотря на большое количество изданий по этой теме, является на данный момент единственной книгой такого рода, предназначенной в первую очередь для старшеклассников, а не для начинающих или опытных программистов.
-Именно выбор учеников 9–11 классов в качестве целевой аудитории (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F007DD2D08CCF505372D4E130EED032DB4626FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502706   (826216) от 15.10.2021
-
-Эрик Фримен, Элизабет Робсон | Head First. Паттерны проектирования, 2-е издание (2022) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настройте свой мозг на дизайн паттернов. Вот что вам понадобится, когда вы пытаетесь что-то выучить, в то время как ваш мозг не хочет воспринимать информацию. Наверняка вашу задачу кто-то уже решал. В этой книге вы узнаете, почему (и как) следует использовать опыт других разработчиков, которые уже сталкивались с аналогичной задачей и успешно решили ее. Заодно мы (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6608128C6D0DF10A58F2EA76CD1ABE53661E1E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115109   (825969) от 18.03.2017
-
-Роберт У. Себеста | Концепции языков программирования [11-е издание] (2016) [PDF, EPUB] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Concepts of Computer Programming Languages знакомит студентов с фундаментальными концепциями языков программирования и предоставляет им инструменты, необходимые для оценки современных языков. Глубокое обсуждение структур языка программирования, таких как синтаксис, лексический и синтаксический анализ, также готовит учащихся к программированию в компиляторе. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D746F04FFDBE6D715783105107652EFC62DA2931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115159   (825877) от 18.03.2017
 
 Грег Лим | Базовый Angular 2 на Typescript (2017) [PDF] [En]
@@ -165,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825877.jpg" />
 </div>
 
 
@@ -191,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825730.jpg" />
 </div>
 
 
@@ -217,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824487.jpg" />
 </div>
 
 
@@ -243,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824313.jpg" />
 </div>
 
 
@@ -269,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824252.jpg" />
 </div>
 
 
@@ -295,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823980.jpg" />
 </div>
 
 
@@ -321,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822580.jpg" />
 </div>
 
 
@@ -347,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822574.jpg" />
 </div>
 
 
@@ -375,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822439.jpg" />
 </div>
 
 
@@ -401,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822331.jpg" />
 </div>
 
 
@@ -428,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820972.jpg" />
 </div>
 
 
@@ -455,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820904.jpg" />
 </div>
 
 
@@ -481,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820825.jpg" />
 </div>
 
 
@@ -507,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820823.jpg" />
 </div>
 
 
@@ -533,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820699.jpg" />
 </div>
 
 
@@ -559,7 +400,7 @@ Nate Murray и др. | ng-book 2: The Complete Book on Angular 2 [+ Code] (2017)
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820343.jpg" />
 </div>
 
 
@@ -588,7 +429,7 @@ Mark J. Collins | Pro HTML5 with CSS, JavaScript, and Multimedia: Complete Websi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820328.jpg" />
 </div>
 
 
@@ -616,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820222.jpg" />
 </div>
 
 
@@ -642,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818917.jpg" />
 </div>
 
 
@@ -668,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817349.jpg" />
 </div>
 
 
@@ -679,6 +520,166 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66B8EFE6C047F9CB838281BE2858B23970F5DE41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007912   (817301) от 17.04.2016
+
+Иван Кузнецов | Как быстро отсканировать книгу в формат PDF (2012) [FB2, RTF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817301.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом кратком пособии вы узнаете о быстром сканировании книг в формат PDF и о технологии ClearScan, доступной в Adobe Acrobat начиная с версии 9.0. На мой взгляд, это замечательная технология, делающая формат PDF подходящим для отсканированного текста. Фактически, при деструктивном сканировании (книга разрывается на листы и используется листовой сканер), процесс (   Читать дальше...   )Жанр: Компьютерная литератураФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BD401F5C8EB99694F845177C43C02B65FA654A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 51215   (817217) от 20.10.2021
+
+Д. Н. Колисниченко | Ubuntu Linux. Краткое руководство пользователя (2007) [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для домашнего и офисного начинающего пользователя и поможет ему самостоятельно установить и настроить ОС Ubuntu Linux. Рассмотрены вопросы, возникающие при ежедневной работе:  установка и удаление программ, использование файловой системы, настройка сети и Интернета, настройка приложений для работы в Интернете, управление периферийными устройствами.Жанр: Компьютерная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392D81F0FD97237264E8E9FA23AEC86EFD7ACF34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 224672   (817204) от 20.10.2021
+
+Д. Н. Колисниченко | Linux. От новичка к профессионалу (2010) [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во втором издании настоящего руководства даны ответы на все вопросы, возникающие при работе с Linux: от установки и настройки этой ОС до настройки сервера на базе Linux. Материал книги максимально охватывает все сферы применения Linux от запуска Windows-игр под управлением Linux до настройки собственного Web-сервера.
+
+Также рассмотрены: вход в систему, работа с файловой (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8780381980C7427CB5B47C6F6E356CB100A7751C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197169   (816759) от 06.01.2018
+
+Джеймс Чамберс и др. | ASP.NET Core. Разработка приложений (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные разработчики занимаются построением кроссплатформенных приложений, их сопровождением и развертыванием. Чтобы облегчить им тяжкий труд, был создан новый фреймворк компании Microsoft — ASP.NET Core. Теперь в вашем распоряжении множество разнообразных библиотек с открытым кодом, более того, сам фреймворк является продуктом с открытым кодом.
+Как же освоить (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Е. МатвеевФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A345C85E2966690872DA3DE411D16213EBBF28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503543   (815738) от 21.10.2021
+
+Sam Newman | Monolith to Microservices: Evolutionary Patterns to Transform Your Monolith (2019) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще несколько лет назад некоторые из нас лишь поговаривали о том, что, дескать, микрослужбы (микросервисы) — интересная идея. И вот не успели мы оглянуться, как они стали архитектурой, принятой по умолчанию в сотнях компаний по всему миру (многие, вероятно, запущены как стартапы, призванные решать проблемы, вызванные микрослужбами), что заставило всех "перейти (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A953B8DE6C8F4137723269488833A3110B801CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197447   (815510) от 07.01.2018
+
+A.M. Елизаров и др. | Веб-технологии для математика: основы MathML (2010) [DJVU, PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство содержит рекомендации по подготовке математических текстов для публикаций в электронной форме с использованием языка MathML. Описаны технология MathML и программные средства, позволяющие конвертировать в MathML документы, подготовленные с помощью имеющихся стандартных технологий (MathML, Mathematica, Maple, Word).
+Для научных работников, преподавателей, (   Читать дальше...   )Жанр: Компьютерная литература, математикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6295BDD716AED7ACF904C7AF37858792E422B4D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

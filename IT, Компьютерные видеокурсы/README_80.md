@@ -1,32 +1,3 @@
-###  Публикация: 1514331   (216265) от 03.12.2021
-
-С. Росс | Mindjet MindManager. Интеграция v2019 с линейкой Microsoft Office Word, Excel, Outlook и Project (2019) WEBRip
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216265.jpg" />
-</div>
-
-
-###  Подробнее
-
-MINDMANAGER ИНТЕГРАЦИЯ MINDMANAGER 2019 С ЛИНЕЙКОЙ MICROSOFT OFFICE: WORD, EXCEL, OUTLOOK И PROJECT
-Опубликовано чт, 20/06/2019 - 12:32 пользователем Corel_info
-Набор приложений MS Office стал неотъемлемой частью современного рабочего места.
-Большинство из нас просто не могли бы выполнять свою работу или вести свой бизнес без него. MindManager 2019 for Windows обладает (   Читать дальше...   )Жанр: Обучающий вэбинарПродолжительность: 01:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52F63C3FF2579BA912C478A4F68821599D66728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514360   (215972) от 03.12.2021
 
 Udemy, Дмитрий . | Java до уровня Junior Developer за 3 месяца (1 часть) (2021) WEB-DL
@@ -35,7 +6,7 @@ Udemy, Дмитрий . | Java до уровня Junior Developer за 3 мес�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215972.jpg" />
 </div>
 
 
@@ -62,7 +33,7 @@ Udemy, Семен Паничев | С++ GOF Паттерны проектиро�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215843.jpg" />
 </div>
 
 
@@ -91,7 +62,7 @@ Udemy, Журавлёв Сергей | C++ | STL | Библиотека стан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215594.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ Udemy, Eduard Kozlov | Эффективная разработка модуле�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215428.jpg" />
 </div>
 
 
@@ -146,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215415.jpg" />
 </div>
 
 
@@ -173,7 +144,7 @@ Plastik | Университет Кибербезопасности и Анон�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215349.jpg" />
 </div>
 
 
@@ -199,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215310.jpg" />
 </div>
 
 
@@ -225,7 +196,7 @@ JustNote Team, Дмитрий Гомонов | Курс по ремонту но
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215058.jpg" />
 </div>
 
 
@@ -254,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214972.jpg" />
 </div>
 
 
@@ -282,7 +253,7 @@ JUG Ru Group | HolyJS 2021 Moscow. Конференция для JavaScript-ра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214813.jpg" />
 </div>
 
 
@@ -308,7 +279,7 @@ JUG Ru Group | DevOops 2021. DevOps-конференция (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214570.jpg" />
 </div>
 
 
@@ -336,7 +307,7 @@ SEO Conference | Материалы VI Международной SEO Conference
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214562.jpg" />
 </div>
 
 
@@ -364,7 +335,7 @@ Udemy, Anton Golosnichenko | Разработка API на Nest.js [2021] (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214550.jpg" />
 </div>
 
 
@@ -391,7 +362,7 @@ Lynda.com | Создание веб-приложений с помощью Ajax 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214411.jpg" />
 </div>
 
 
@@ -417,7 +388,7 @@ Rebrain, Андрей Буранов | Практикум Bash by REBRAIN (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214263.jpg" />
 </div>
 
 
@@ -446,7 +417,7 @@ Udemy, Журавлёв Сергей | C++ Основы многопоточно
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214035.jpg" />
 </div>
 
 
@@ -474,7 +445,7 @@ Udemy, Mefodiy Kelevra | Мастер Класс по шифрованию | Ver
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213995.jpg" />
 </div>
 
 
@@ -503,7 +474,7 @@ Udemy, Mefodiy Kelevra | Wifi Pentesting | Взлом Wifi - Новый взгл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213927.jpg" />
 </div>
 
 
@@ -532,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213459.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213458.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Oleg Lav | DefenderUI пользовательский интерфейс Micros
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213357.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ KodeKloud, Mumshad Mannambeth, Vijin Palazhi | Learning Linux Basics Course & La
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213141.jpg" />
 </div>
 
 
@@ -640,7 +611,7 @@ KodeKloud, Mumshad Mannambeth | DevOps Pre-Requisite Course (2022) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213136.jpg" />
 </div>
 
 
@@ -667,7 +638,7 @@ Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213123.jpg" />
 </div>
 
 
@@ -696,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212682.jpg" />
 </div>
 
 
@@ -709,6 +680,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E629B34AC40A6450C9FCFF1AD5C474F49BFB3A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830933   (212625) от 28.10.2025
+
+1С Учебный центр №3, Дмитрий Гончаров | Управление производством и ремонтами в прикладном решении «1С:ERP Управление предприятием 2» (2024) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основной целью курса является освоение технологии работы с функционалом управления производством и ремонтами, реализованного в прикладном решении «1С:ERP Управление предприятием».Производство: 1С Учебный центр №3Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 18:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D6E5E67B9AC5143AE189BA446C54ABF73098A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

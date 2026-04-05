@@ -1,29 +1,3 @@
-###  Публикация: 1163653   (448550) от 06.09.2017
-
-Николай Куштум | Подвиг (1962) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть для среднего и старшего школьного возраста.Жанр: Детская проза Военная прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9C4A284DD0EA5DA69D972FCD9BB591BF3BE676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943545   (447472) от 04.10.2015
 
 Леонид Завадовский | В тайге (1926) [DJVU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447472.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447470.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447465.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446924.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446758.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446246.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445328.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445327.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445326.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445202.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445129.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445075.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444629.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444506.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443031.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442882.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442871.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442847.jpg" />
 </div>
 
 
@@ -513,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442685.jpg" />
 </div>
 
 
@@ -539,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442462.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442163.jpg" />
 </div>
 
 
@@ -592,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442014.jpg" />
 </div>
 
 
@@ -619,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440799.jpg" />
 </div>
 
 
@@ -646,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440794.jpg" />
 </div>
 
 
@@ -673,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440671.jpg" />
 </div>
 
 
@@ -684,6 +658,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E38F6E22CCC533834083660E9C2F04FD6E43398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570649   (440641) от 18.08.2022
+
+Валько | Сказки волшебного леса [4 книги] (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валько – немецкий художник и иллюстратор, автор детских книг, среди них серия детских сказок «Сказки волшебного леса». Настоящее имя – Вальтер Кесслер. Сотрудничал с кинокомпанией Disney и со студией Стивена Спилберга London Amblimation Studio.
+Серия  «Сказки волшебного леса» это  весёлые истории о жизни обитателей Волшебного леса – Медведя-лакомки (большого любителя (   Читать дальше...   )Жанр: Детская литература, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8477A73BF7DEECC424B8E358F43C6FA8760B15EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 922585   (569932) от 28.07.2015
+
+Журнал | Калашников №7 (июль 2015) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал является официальным печатным изданием Федерации практической стрельбы России и Союза российских оружейников. Журнал предоставляет достоверную информацию о боевом, специальном, служебном, охотничьем, пневматическом, газовом и холодном оружии, исторические материалы, тренинги. Новости с оружейных выставок, байки охотников, холодное оружие и многое другое.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFD5352E0A239F19C8BBE21C83C2A84E4CF7809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922345   (569929) от 28.07.2015
+
+Журнал | Изысканная выпечка №89 (2015) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря новому красочному изданию Вы узнаете о тонкостях кулинарных рецептов, технологиях приготовления и секретах использования инструментов для выпечки, о которых вы даже не догадывались. Научитесь готовить праздничные торты — от именинного с кремом и немецкого пасхального кекса до тортов «Захер», «Сент-Оноре» — и многое другое. В каждом номере - классические (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0DC57DFF870E7A6ADFA66A1A5EC95999DB0421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555313   (569913) от 03.06.2022
+
+Коллекция календарей | Playboy [USA и др.] (2022) [PDF, JPG] [En/De]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция календарей на 2022 год от эротических мужских журналов.Жанр: Мужской журналФормат: PDF, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2713328C8140CFCD195993BB1D684944DB214845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922588   (569880) от 28.07.2015
+
+Журнал | Калашников №8 (август 2015) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал является официальным печатным изданием Федерации практической стрельбы России и Союза российских оружейников. Журнал предоставляет достоверную информацию о боевом, специальном, служебном, охотничьем, пневматическом, газовом и холодном оружии, исторические материалы, тренинги. Новости с оружейных выставок, байки охотников, холодное оружие и многое другое.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8589D860BD6AE09E46E2FBD909301D363436B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922116   (569870) от 28.07.2015
+
+Журнал | Химия и жизнь №7 (2015) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569870.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Химия и жизнь» – это не обычный научно-популярный журнал, а произведение искусства, которое заключает в себе сущность современного знания о нашем мире. Журнал в значительной мере ориентирован на преподавателей и школьников. В журнале опубликованы статьи по проблемам образования и материалы, которые могут быть использованы как дополнительные к школьному курсу.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66FB81AFF3843551B41CF400401065C1EA33208B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 689693   (569795) от 15.08.2013
 
 Журнал | PC Magazine [Россия] №8 (266) (август 2013) [PDF]
@@ -6,7 +136,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569795.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569723.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569631.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569575.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569565.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569552.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569492.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569458.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569358.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569294.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569249.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569241.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569190.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569183.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569098.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569046.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569025.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568982.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568960.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568948.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568936.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64D59F7B75DC3D8BA8DF6314B8789157A681A616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044146   (568928) от 18.08.2016
-
-Журнал | Ступени оракула №17 (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание предлагает разнообразие точек зрения — от фантастических предположений до научных теорий, оставляя выбор за читателем. Мнения профессионалов и свидетельства очевидцев, факты, феномены, версии. Журнал, открывающий мир!Жанр: Эзотерика, мистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B163FE5AE737CFF6DF79BDE9B9E24D7000128CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555537   (568899) от 04.06.2022
-
-Журнал | CQ Amateur Radio №3 (2022) [PDF][En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский журнал, посвященный радиосвязи на КВ и УКВ. В каждом номере описания различной аппаратуры, радиолюбительские конструкции и антенны, результаты различных соревнований по радиосвязи на КВ и УКВ и самая последняя DX-info.Жанр: КВ и УКВ радиосвязьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599A8C44F5EC20A8F96B59E79DE2BD2CE34DF5DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555545   (568897) от 04.06.2022
-
-Журнал | CQ Amateur Radio №4 (2022) [PDF][En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский журнал, посвященный радиосвязи на КВ и УКВ. В каждом номере описания различной аппаратуры, радиолюбительские конструкции и антенны, результаты различных соревнований по радиосвязи на КВ и УКВ и самая последняя DX-info.Жанр: КВ и УКВ радиосвязьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8B956047C49F3D3117D1F616BB1E2551AC52FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555522   (568891) от 04.06.2022
-
-Журнал | CQ Amateur Radio №2 (2022) [PDF][En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский журнал, посвященный радиосвязи на КВ и УКВ. В каждом номере описания различной аппаратуры, радиолюбительские конструкции и антенны, результаты различных соревнований по радиосвязи на КВ и УКВ и самая последняя DX-info.Жанр: КВ и УКВ радиосвязьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CDC586D643FF99895A7CFFEB29E8A26C4FCA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529424   (568800) от 30.07.2012
-
-Журнал | Шитье и крой (ШиК) №8 [+выкройки] (август 2012) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто шьет. В номере представлена 41 модель модной женской и детской одежды из итальянского журнала BOUTIQUE. Дизайнерская коллекция от мастера линий Мартино Мидали. Летний гардероб в белом цвете. Платья и топы в актуальных природных оттенках земли и растений. Пляжная мода. Элегантный черный цвет любительницам ретро. Модели в стиле кантри с оттенком (   Читать дальше...   )Формат: PDF, JPG (выкройки)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382A7E3E4DFC08BBFA3D22D6ECA5C12860351BCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

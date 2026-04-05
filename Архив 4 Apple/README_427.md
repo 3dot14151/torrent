@@ -6,7 +6,7 @@ RightFont 5 v5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351480.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vox 2.6.3 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351432.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Dash 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351430.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Movist 1.3.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351416.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Audio Hijack 3.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351354.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Gemini 1.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351293.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351235.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Scrivener 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351184.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ DaisyDisk 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351169.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ ExpanDrive 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351163.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350877.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Wondershare Video Converter Ultimate 10.0.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350805.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Adobe Bridge 2021 11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350795.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Acronis True Image 2016 (2.0.5694) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350715.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Mitti 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350291.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Tooth Fairy 2.5.1 (44)[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350284.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ DMG Canvas 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350281.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ AirRadar 5 v5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350280.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Rogue Amoeba Farrago 1.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350277.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ WidsMob ImageConvert - JPG/PNG 3.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350182.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Boxy SVG 3 v.3.89.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350181.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Allavsoft Video Downloader Converter 3.25.0.8298 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350177.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Alarm Clock Pro 12 v12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350157.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Adguard 2.1.3.611 nightly (CL - 1.5.60) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350148.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ cDock 3 v3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350144.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ AnyTrans for Android 7 v7.3.0 (build 20190925) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350143.jpg" />
 </div>
 
 

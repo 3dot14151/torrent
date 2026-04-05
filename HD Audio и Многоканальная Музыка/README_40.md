@@ -1,32 +1,3 @@
-###  Публикация: 1072908   (349829) от 14.11.2016
-
-Святослав Рихтер - Сергей Рахманинов – Тринадцать прелюдий (1985) [WavPack|96/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Шесть прелюдий из соч. 23
-01. Фа Диез Минор. Largo (№1)  3:50
-02. Си-Бемоль Мажор. Maestoso (№2)  3:26(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F63D89CDCD569479C8D0A620B3130E10F1477FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 841255   (349609) от 06.10.2019
 
 Игорь Тальков - Лучшие песни (2008) [DTS|Lossless]<Авторская песня>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349609.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349603.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349096.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348959.jpg" />
 </div>
 
 
@@ -150,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348773.jpg" />
 </div>
 
 
@@ -179,7 +150,7 @@ Pink Floyd - Atom Heart Mother (1970) [DTS 4.0|44.1/16|image +.cue|DVD-AudioV] <
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347008.jpg" />
 </div>
 
 
@@ -208,7 +179,7 @@ Klaus Schulze & Rainer Bloss - Dziekuje Poland Live '83 (1985) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346793.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ Robert Plant and The Sensational Space Shifters - Carry Fire (2017) [DSD 2.0|282
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346191.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ Sting - 57TH & 9TH (2016) [WavPack 2.0|192/32|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345064.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Yes - Time And A Word (1970) 1991 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344299.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Manfred Mann's Earth Band - Somewhere In Afrika (1982) [FLAC 2.0|192/24|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342543.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Richard Friedman - Directions: Center [DTS 5.1 CD-Audio from Audio-DVD] (2000) <
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_341116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_341116.jpg" />
 </div>
 
 
@@ -379,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339855.jpg" />
 </div>
 
 
@@ -408,7 +379,7 @@ Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [WavPack|192/32|tracks|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337859.jpg" />
 </div>
 
 
@@ -437,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337196.jpg" />
 </div>
 
 
@@ -463,7 +434,7 @@ Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Space Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335358.jpg" />
 </div>
 
 
@@ -492,7 +463,7 @@ VA - Добрые колыбельные для сладких снов (3) в �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335158.jpg" />
 </div>
 
 
@@ -521,7 +492,7 @@ Boycott - Группа Boycott (1989) Licensed From – Polarvox Oy [FLAC 2.0|19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334580.jpg" />
 </div>
 
 
@@ -550,7 +521,7 @@ Lana Del Rey - Norman Fucking Rockwell! (2019) [FLAC 2.0|24/192|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334550.jpg" />
 </div>
 
 
@@ -579,7 +550,7 @@ Black Sabbath - Technical Ecstazy (1976)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Har
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332391.jpg" />
 </div>
 
 
@@ -608,7 +579,7 @@ Dolly Parton · Linda Ronstadt · Emmylou Harris - Trio (1989) [FLAC 2.0|192/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332013.jpg" />
 </div>
 
 
@@ -637,7 +608,7 @@ VA - Югославская Эстрадная Музыка (1976) [FLAC 2.0|96/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332009.jpg" />
 </div>
 
 
@@ -666,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330981.jpg" />
 </div>
 
 
@@ -695,7 +666,7 @@ VA - Hotrocks (1989) Repress [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Rol
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328048.jpg" />
 </div>
 
 
@@ -724,7 +695,7 @@ Pink Floyd - The Endless River (2014) [DTS 5.1 CD-DA|44.1 /16|image+cue|Blu-ray]
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327971.jpg" />
 </div>
 
 
@@ -738,6 +709,35 @@ Pink Floyd - The Endless River (2014) [DTS 5.1 CD-DA|44.1 /16|image+cue|Blu-ray]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EB8B63FB7200470DDB61935D5DE5D36C76E6D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710099   (327320) от 17.11.2015
+
+Святослав Рихтер - П. Чайковский  – Концерт №1 Си Бемоль для фортепиано с оркестром (1973) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Allegro Non Troppo E Molto Maestoso. Allegro Con Sprito  22:04
+Сторона 2
+1. Andantino Semplice  6:44(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DD8E0C7BA4566AFB6AB201940DCC45AB7F3523
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1562780   (212717) от 10.07.2022
+
+2Do - Reminders & Task Planner 2.15 Mod by Scream [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: Pro (Unlocked)Релиз состоялся: 08.04.2020Разработчик: Beehive InnovationsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1778FDB9EE5AEEF209E27C2EBE26A45B67110A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562887   (212690) от 11.07.2022
+
+Авто Кликер / Auto Clicker 4.0.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auto Clicker - это невероятно простой в применении автоматический кликер для устройств с системой Android. Вы сможете сделать игры с мобильного устройства ещё более простыми. Приложение Auto Clicker позволит вам автоматизировать различные монотонные задачи. Особенно полезна данная программа для игр, в которых вам нужно щёлкать или нажимать без остановки, чтобы выиграть. (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 03.05.2022Разработчик: Karta StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6956773887BD83C50A227CA69201265B2F9B79AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438140   (212679) от 11.07.2022
+
+Звук. Музыка и подкасты v4.14 Premium [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звук всегда на одной волне с вами. Скачивание музыки еще никогда не было таким доступным. Отдыхайте, учитесь, работайте, медитируйте и путешествуйте под подходящее музыкальное сопровождение, развлекательные или познавательные подкасты от аудиосервиса. Скачать Звук — это значит установить музыкальный плеер на свой телефон.Тип издания: Пиратка (Premium)Релиз состоялся: 24 июн. 2022 г.Разработчик: ZvukDevЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC980F01794E26BAF8C61C8B746AFD036E9134BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562900   (212659) от 12.07.2022
+
+MLUSB Mounter: Менеджер файлов 1.64.001 Mod by ~Timozhai~ [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212659.jpg" />
+</div>
+
+
+###  Подробнее
+
+MLUSB Mounter - это разработанный в Японии файловый менеджер для управления и организации файлов на смартфоне или планшете. Вы можете легко создать резервную копию и просто копировать важные фотографии, видео и музыку со смартфона или планшета на USB-диски и USB-флеш-накопители, а также SD-карты через USB-картридер (далее называемые USB-устройствами). Также вы можете (   Читать дальше...   )Тип издания: Pro (Unlocked)Релиз состоялся: 12.07.2022Разработчик: メディアロジック (Media Logic, corp.)Поддерживаемая ОС: Android 2.2+Язык интерфейса: Русский, Английский, Японский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E5A4E1E5F6310ABC380DF42BA9722EDB791C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388303   (212644) от 12.07.2022
 
 AndroPods  v1.5.19 [Ru/En]
@@ -6,7 +110,7 @@ AndroPods  v1.5.19 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212644.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ Plus Messenger - Улучшенный Телеграм 8.8.5.1 Mod by Taver Andr
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212591.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ Tor Browser For Android 11.0.15 (96.3.0-Release) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212552.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ YouTube Pro 17.28.32 Mod by BlackViper [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212509.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ MAPS.ME: Offline maps GPS Nav 14.0.71356 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212462.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ SHJARAH vpn v1.0.7 b8 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212350.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ Colorize от Photomyne v3.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212333.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212275.jpg" />
 </div>
 
 
@@ -223,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212149.jpg" />
 </div>
 
 
@@ -252,7 +356,7 @@ HiPER Calc Pro v11.2.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212146.jpg" />
 </div>
 
 
@@ -278,7 +382,7 @@ Flud v1.12.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212145.jpg" />
 </div>
 
 
@@ -304,7 +408,7 @@ SoundHound ∞ - Music Discovery v10.5.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212144.jpg" />
 </div>
 
 
@@ -330,7 +434,7 @@ TapScanner v3.0.88 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212142.jpg" />
 </div>
 
 
@@ -359,7 +463,7 @@ FBReader Premium v3.8.20 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212141.jpg" />
 </div>
 
 
@@ -385,7 +489,7 @@ Document Scanner - PDF Creator 6.5.7 (Pro) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212051.jpg" />
 </div>
 
 
@@ -412,7 +516,7 @@ InstAddr 2022.10.07.1 (1091001) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212033.jpg" />
 </div>
 
 
@@ -440,7 +544,7 @@ ArtRage: Draw, Paint, Create v1.4.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212007.jpg" />
 </div>
 
 
@@ -466,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211872.jpg" />
 </div>
 
 
@@ -492,7 +596,7 @@ Remini - Улучшение Фото 3.4.1.202137084 Mod by cxv [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211677.jpg" />
 </div>
 
 
@@ -518,7 +622,7 @@ Boost for reddit v1.12.7 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211670.jpg" />
 </div>
 
 
@@ -544,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211620.jpg" />
 </div>
 
 
@@ -570,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211451.jpg" />
 </div>
 
 
@@ -581,110 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:331C54C8F8E90E5AC07EE5E7AE06216874F5565C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567399   (211358) от 02.08.2022
-
-VPNhub - Безлимитный и безопасный 3.24.1-mobile Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211358.jpg" />
-</div>
-
-
-###  Подробнее
-
-VPNhub - Безлимитный и безопасный - очень популярный способ преодоления самых разнообразных преград на просторах современного интернета. А так же он обладает весьма схожим логотипом с одним, всем известным ресурсом, что ещё более привлекает пользователей к данному приложению. При этом программа обеспечивает не только доступом к закрытым "территориям", но (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.07.2022Разработчик: Appatomic LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483AEFCAD37BE929BCCE23E828375C5B8F0D3E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567414   (211332) от 02.08.2022
-
-Turbo VPN - безопасный ВПН 3.8.3.1 Mod by LeeApk [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Turbo VPN - безопасный ВПН - ещё один проект, что обязательно стоит рассмотреть всем кто хочет получить возможность свободного и безопасного перемещения по интернету со своего мобильного устройства. Пользователи смогут снова посещать закрытые ранее для них ресурсы, получать с них информацию и файлы, и при этом быть уверенным в том, что их конфиденциальность и защита (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.07.2022Разработчик: Innovative ConnectingПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424B23C5BA82AD54E34F4CF11A1D577B5431DAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567525   (211245) от 03.08.2022
-
-tTorrent Pro - Торрент-клиент 1.8.2 Mod by Number one' [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211245.jpg" />
-</div>
-
-
-###  Подробнее
-
-tTorrent - удобный, функциональный и из-за прочих свойств весьма востребованный торрент-клиент, что помогает пользователям легко и без каких-либо проблем загружать нужные им файлы. При этом можно будет не только скачивать, но и выгружать. Создавая и оформляя раздачи не сталкиваясь с неудобствами из управления. Ну а разнообразные настройки помогут подобрать оптимальный (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 21.04.2022Разработчик: tagsoftПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C8D8FD62B72B9B3A5286F514268BFF3C8875D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531693   (211098) от 01.01.2023
-
-Stickman v4.1 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stickman: рисовать мультики, создать мультик. Как сделать мультик? Нарисуй его сам! Сделай несколько кадров и они оживут на твоём экране. Сделай мультфильм своими руками: рисовать мультфильмы поэтапно легко! Используй приложение для рисования, чтобы создать несколько кадров и анимировать их в собственный мультфильм. Рисуем мультик поэтапно: рисование и анимация комиксов (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 25.12.2022Разработчик: Appache Tools: easy to useПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B662856160AD157FEA42AFE96CB7216D9030876A
 ```
 
 https://mybot314.ru/tekegram_catalog/

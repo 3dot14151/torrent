@@ -1,3 +1,29 @@
+###  Публикация: 1126766   (764082) от 19.04.2017
+
+Притяжение (2017) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764082.jpg" />
+</div>
+
+
+###  Подробнее
+
+…Как только что стало известно, сбитый над Москвой неопознанный объект имеет, возможно, внеземное происхождение. Большая часть столичного Чертанова оцеплена, к месту крушения стягиваются представители силовых структур, решается вопрос об эвакуации местных жителей. По словам нашего источника в Минобороны, сейчас специальная комиссия пытается вступить в контакт с так (   Читать дальше...   )Производство: Россия / Кинокомпания «Водород», Art Pictures StudioЖанр: фантастикаРежиссер: Фёдор БондарчукАктеры: Ирина Старшенбаум, Олег Меньшиков, Александр Петров, Никита Кукушкин, Евгений Сангаджиев, Дарья Руденок, Риналь Мухаметов, Людмила Максакова, Евгений Коряковский, Ульяна Куликова, Сергей Шаталов, Евгений Михеев, Никита Тарасов, Сергей ГармашПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 02:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829C4E3C69CB6DA13B97258AABBA1D2EED676E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279365   (764034) от 31.01.2019
 
 ESET Endpoint Security 5.0.2272.7 [Ru]
@@ -6,7 +32,7 @@ ESET Endpoint Security 5.0.2272.7 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764034.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Prana Breath / Праническое дыхание (Пранаяма) v9.4.2_3
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764010.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764007.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Windows 10 Pro 1709 x86/x64 by kuloymin v12.4 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763852.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Skype 7.41.32.101 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763845.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Time Boss v2.47 Eng/Rus
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763769.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Dungeon Siege 2 [Ru] (L) 2005
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763758.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763556.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_763508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_763508.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763388.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Cent Browser 3.8.5.69 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763311.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763193.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763186.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762751.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762735.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Frontlines: Fuel of War (2008) [Ru/En] (1.3/MP) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762315.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Age of Empires II (2013) [Ru/Multi] (3.9.2684.0/dlc) SteamRip Let'sРlay [HD Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762058.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761470.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Techsmith Snagit 10.0.1 Build 58 [Английский + Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761238.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ BELOFF 2018.3.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761019.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761016.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760846.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ OS X El Capitan 10.11.5 (15F34) [Multi/Ru] (Installer)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760489.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Call of Duty: World at War (2008) [Ru] (1.7.1263) [MP+SP] Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760484.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760483.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8169D50061A82131D915518CADCBC968E8B943F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868157   (760143) от 11.04.2015
-
-Лучше звоните Солу / Better Call Saul (2015) WEB-DL [H.264/1080p-LQ] (сезон 1, серия 1-10 из 10) (NewStudio)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760143.jpg" />
-</div>
-
-
-###  Подробнее
-
-История об испытаниях и невзгодах, которые приходится преодолеть Солу Гудману, адвокату по уголовным делам, в тот период, когда он пытается открыть свою собственную адвокатскую контору в Альбукерке, штат Нью-Мексико.Производство: СШАЖанр: драма, комедия, криминалРежиссер: Колин Бакси, Адам Бернштейн, Винс ГиллиганАктеры: Боб Оденкёрк, Ри Сихорн, Патрик Фабиан, Майкл МакКин, Майкл Мэндо, Джонатан Бэнкс, Ген Н. Чавес, Джил Мюррэй, Тим Чайлдресс и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioФормат: MKVПродолжительность: ~ 00:53:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83452F263E2A7C2C5030E9D91814824822470EDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

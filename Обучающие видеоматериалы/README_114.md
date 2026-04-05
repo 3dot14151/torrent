@@ -1,3 +1,32 @@
+###  Публикация: 1022643   (723350) от 05.06.2016
+
+Николай Угольник | Проектирование внутренних электрических сетей в Autocad (комплект золотой) (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Понятное видео-руководство от А до Я
++ быстрые расчеты эл. схем, щитов и кабелей
++ ВСЕ чертежи-заготовки элементов, схем и спецификаций
+(   Читать дальше...   )Жанр: Проектирование, внутренних электрических сетей,  дизайн, уроки, autocaПродолжительность: 09:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629CEF28AB3E25C4871239C31C588B9F4E5D3D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022892   (723346) от 05.06.2016
 
 Брокер Открытие | Арсенал теории для начинающего трейдера на Московской Бирже (2015-2016) PCRec
@@ -6,7 +35,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723346.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ ITVDN | Видео курс C# Starter Express (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723339.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722436.jpg" />
 </div>
 
 
@@ -86,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722432.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ Levelup.Digital, Simon Barle | Game-Ready Tree Creation from Maya to Unreal (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722362.jpg" />
 </div>
 
 
@@ -141,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722348.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722035.jpg" />
 </div>
 
 
@@ -199,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722016.jpg" />
 </div>
 
 
@@ -227,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721595.jpg" />
 </div>
 
 
@@ -253,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720929.jpg" />
 </div>
 
 
@@ -280,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720925.jpg" />
 </div>
 
 
@@ -307,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720906.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720729.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ GeekBrains | Профессия Веб-аналитик (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720624.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720559.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720523.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ Udemy, Bhrugen Patel, Andrei Brizhak | ASP.NET Core MVC для .NET 5. Перв�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720147.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719468.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718686.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718523.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718436.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718430.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718424.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ CGcircuit, Daviv CGMK | Houdini Elements - Smoke (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718366.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718351.jpg" />
 </div>
 
 
@@ -687,33 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78B76B291B7D69D4D004A2889BF6C0C076212056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531808   (718341) от 17.02.2022
-
-Sapphire FX | Houdini Ship Destruction (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718341.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном тренинге мы будем рассматривать процесс создания одной сцены, но с большим количеством разнообразных эффектов, включая разрушение, взрывы, симуляцию вторичных элементов и жидкости.
-Тренинг рассчитан на людей, имеющих базовые понятия работы в Houdini. На протяжении 6 недель, мы будем подробно разбирать все типы симуляций — частичек, волюметриков в Pyro, RBD (   Читать дальше...   )Производство: Sapphire FXЖанр: СимуляцияЯзык озвучки: АнглийскийПродолжительность: 19:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684C88AF569A2B1D4BD11F58A0C756F57A57055C
 ```
 
 https://mybot314.ru/tekegram_catalog/

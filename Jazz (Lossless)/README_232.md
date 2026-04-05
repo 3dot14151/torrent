@@ -6,7 +6,7 @@ Wilbur Harden & John Coltrane - Tanganyika Strut (1958) 1991, Savoy Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269227.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Matt Belsante - Nice 'n' Easy (2018) Green Hill Productions [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269226.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Harry Connick, Jr. & Kelli O'Hara - Songs From Thou Shalt Not (2006) Columbia Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269225.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Junior Mance - Three Classic Albums Plus 1959 - 1961 (2013) 2CD, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269015.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jay Thomas & The Cantaloupes - The Art of Jazz: Live At SAM (2015) McVouty Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269013.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jazzmeia Horn - A Social Call (2017) Prestige [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269012.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jazzmeia Horn - Love & Liberation (2019) Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269010.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ David Liebman, Eric Ineke, Mario Laginha Quintet - Is Seeing Believing? (2016) D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269008.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Eliane Elias - Love Stories (2019) Concord Jazz [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268979.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bobby Timmons - Six Classic Albums (1957 - 1962) 4CD, 2013, Real Gone Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268926.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Carmell Jones - Jay Hawk Talk 1965 (2014) Universal [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268242.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Count Basie And Lester Young - Classic 1936-1947 Studio Sessions (2016) 8CD, Mos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268228.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Nick Brignola - What It Takes (1991) Reservoir [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268112.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Nick Brignola - All Business (1999) Reservoir [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268110.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Larry Goldings Trio - Moonbird (1999) Palmetto Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268100.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Jeff Baker - Phrases (2018) OA2 Records [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267905.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Aldo Romano - Melodies En Noir & Blanc (2017) Le Triton [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267142.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Count Basie And His Orchestra - 88 Basie Street (1983) 1994, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267139.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sinne Eeg - Waiting For Dawn (2007) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267132.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Orchestra of Mirrored Reflections - Best (2019) [FLAC|Lossless|Web-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267123.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Yojo - Abduction (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Noir Jazz, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267115.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sinne Eeg - Dreams (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267103.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dexter Gordon - Those Were The Days 1967 - 1971 (2014) Boundee [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_266998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266998.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Bunny Berigan - 1937 - 1938 (1994) Classics [FLAC|Lossless|image + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266737.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Art Van Damme - State Of Art (1967 - 1970) 2000, MPS [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266735.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Nicki Parrott - Moon River (2008) [FLAC|Lossless]<Mainstream Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266615.jpg" />
 </div>
 
 

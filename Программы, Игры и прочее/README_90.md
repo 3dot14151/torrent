@@ -1,3 +1,108 @@
+###  Публикация: 1579962   (232323) от 29.09.2022
+
+1.1.1.1: Faster & Safer Intern 6.17 b2698 (ZeroTrust, Unlimited) [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232323.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.1.1.1 — общедоступный преобразователь DNS , управляемый Cloudflare, который предлагает быстрый и конфиденциальный способ просмотра Интернета. В отличие от большинства преобразователей DNS, 1.1.1.1 не продает пользовательские данные рекламодателям. Кроме того, 1.1.1.1 считается самым быстрым доступным преобразователем DNS.
+Разблокируйте любой сайт.Тип издания: ModРазработчик: Cloudflare, Inc.Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49F5845B9F20DDA720212319A15DD130CE3ED59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579904   (232277) от 29.09.2022
+
+Urban VPN proxy Unblocker 1.0.51 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разблокируйте любой сайт. Оставайтесь анонимными и безопасными с неограниченным Premium VPN для Android! Всего один щелчок - и вы в пути!Тип издания: ModРелиз состоялся: 6 сент. 2022 г.Разработчик: Urban VPNПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EC512221743F331CFFC6016978371BE26A2193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497841   (231795) от 02.10.2022
+
+Erudite v12.10.0 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Erudite - это приложение для изучения английского, в котором сочетаются англо-русский словарь, переводчик , дидактические карточки, разговорник и упражнения. Если хотите изучать английский наиболее эффективным способом, нет лучшего выбора, чем Erudite!Тип издания: PremiumРелиз состоялся: 31.08.2022Разработчик: EruditeПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F061E0344A2481C0380027A0944B4B7C514E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530464   (231727) от 02.10.2022
+
+Universal Copy v6.3.3 Мод by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда вы хотите копирования текста из приложения и вы не можете использовать Android долгое нажатие по умолчанию? Универсальный Copy принимает эту роль на себя! Активируйте режим универсального копирования и выберите текст, который вы хотите скопировать, это все! Скопируйте текст из любого приложения: Facebook, Twitter, Instagram, YouTube, Tumblr... Легко. Просто.Тип издания: PremiumРелиз состоялся: 27.08.2022Разработчик: Camel CorporationПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE689AC0726013A54087E13E577468B29839A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648451   (231417) от 23.07.2023
 
 InShot v1.950.1411 Mod by Alexey070315 [Ru/Multi]
@@ -6,7 +111,7 @@ InShot v1.950.1411 Mod by Alexey070315 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231417.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ DOG VPN-Unlimited freedom VPN 3.8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231252.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ VPN Russia - VPN сервера в России v1.136 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231194.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Made - Редактор и коллаж 1.2.14 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231146.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Locus Map 4 v4.10.0 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231044.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230966.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ Mivo - Видеоредактор 3.34.619 Mod by AppModz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230948.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ SMD info v1.39 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230924.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ MediBang Paint Pro 25.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230879.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ X Icon Changer - Change Icons 4.2.9 Mod by Citrus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230864.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ TrackView - HomeSafe v3.8.12  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230862.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ Dynamic Island 1.3.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230826.jpg" />
 </div>
 
 
@@ -322,7 +427,7 @@ NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0.3 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230824.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ PixelLab Pro - Text on pictures 2.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230675.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ Moviebase Premium 4.1.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230673.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ DiskDigger Pro 1.0-pro-2023-04-11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230544.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ Always on Edge 8.0.1 Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230524.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ EasyWay - общественный транспорт 6.0.2.44 Lite-Mod by andy_
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230376.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ AmiHear - Hearing Aid App 2.6 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230010.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228795.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228763.jpg" />
 </div>
 
 
@@ -559,7 +664,7 @@ Muscle & Motion - Posture 2.2.08 premium [Ru/Multi]
 >>Прочее для мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228712.jpg" />
 </div>
 
 
@@ -573,114 +678,6 @@ Muscle & Motion - Posture 2.2.08 premium [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9977AB068AC34AFA69579237C32ABDE1E02402CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512867   (228483) от 26.11.2021
-
-Anatomy Learning 3D Full v2.1 Unlocked [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anatomy Learning - 3D анатомический атлас включает в себя анатомическую базу организма человек. Будет эффективным помощником как для первокурсников медицинских университетов, так и практикующим врачам. Атлас включает в себя возможность проведения проверки знаний по изученным базам, возможность управлять 3D-моделью: поворачивать и масшатбировать, убирать кожу для (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 01.04.2020Разработчик: Rodrigo Blanco SaladoПоддерживаемая ОС: Android 4.4 и вышеЯзык интерфейса: Русский, Английский, французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D790F21E292D81C6A0C2A420B70F8F93845FBDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649596   (228362) от 29.07.2023
-
-Garmin: TopoActive Africa 2023 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ориентируйтесь на отдыхе в 58 африканских странах с помощью этой карты, составленной с использованием базы данных OpenStreetMap (OSM)
-- Включает маршрутизируемые уличные и внедорожные сети, международные границы, водные пути, природные объекты, зоны землепользования, исторические места, сооружения аэропортов, здания и многое другое
-- Отображает тысячи достопримечательностей, (   Читать дальше...   )Тип издания: разблокированоРелиз состоялся: ноябрь 2022Разработчик: GarminПоддерживаемая ОС: GarminЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C64AC7A452580C0EA608519CC8273324C1B5D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964872   (227838) от 13.12.2015
-
-Garmin: TOPO Czech PRO v2.01 [Cz]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подготовтесь к вашему следующему большому приключению в Чешской Республике с этими топографическими картами. С ними можно планировать как пеший, так и велосипедный маршрут.
-- Масштаб 1:10000 , для более 326 000 км маршрутизируемых дорог
-- Содержат более 100 000 км не маршрутизируемых трасс и 26 000 дорожной сети за пределами территории Чешской Республики (в граничащих (   Читать дальше...   )Тип издания: карты заблокированы (таблетка есть в комплекте)Релиз состоялся: апрель 2015Разработчик: GarminПоддерживаемая ОС: GarminЯзык интерфейса: чешскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32DFC86DBDCBF60BE7E802EC63066320BF8F91B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424670   (226975) от 17.11.2020
-
-Drad Paradise: The Road Warrior v 1.7 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Dead Paradise: Road Warrior - это бесплатная игра-стрелялка с гонками на смерть с автомобильными сражениями на дорогах ярости! Выбирайте и повышайте уровень своей машины смерти, улучшайте стрелковое оружие и несите разрушение своему врагу! Станьте лучшим убийцей в гонке апокалипсиса. Заставь соперников дрожать от страха! Покажи им лучшую езду, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 11 ноября 2020 г.Разработчик: SMOKOKO LTDПоддерживаемая ОС: Android 4.4 и вышеЖанр: Racing (Гонка), Shooter (Шутер)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E47D207DDD47A439857E29B4FFEECFF81A3E65
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 890260   (744249) от 20.04.2015
+
+В.Непочатов, Д.Виноградов | Android... это несложно. Разработка приложений и cоздание игр для ОС Android (2013-2015) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеокурс содержит уроки по программированию и разработке Android приложений и игр для смартфонов и планшетов, тесты, практические задачи, обзоры полезных инструментов и ресурсов для Android разработчиков, а также решения часто возникающих вопросов и проблем с которыми сталкиваются Android разработчики. Уроки предназначены для начинающих пользователей, не имеющих опыта разработки мобильных приложений.
+
+В видеоуроках курса, последовательно, от простого к сложному, отражены основные принципы и технологии разработки (   Читать дальше...   )Жанр: Разработка, ПрограммированиеПродолжительность: 16:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13498B110EB3CD4540B56D54CC1B379612EF4B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 890275   (744247) от 20.04.2015
 
 Специалист | Конфигурирование, сборка и установка ядра Linux. Обучающее видео (2014) PCRec
@@ -6,7 +34,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744247.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Pluralsight, Chidi Mbadugha | 3ds Max Graphite Modeling Tools Fundamentals (2017
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743427.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743407.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743201.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743193.jpg" />
 </div>
 
 
@@ -147,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743191.jpg" />
 </div>
 
 
@@ -176,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743190.jpg" />
 </div>
 
 
@@ -204,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742552.jpg" />
 </div>
 
 
@@ -230,7 +258,7 @@ TeamLead | Confluence. Базовый тренинг для администра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742478.jpg" />
 </div>
 
 
@@ -259,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742004.jpg" />
 </div>
 
 
@@ -288,7 +316,7 @@ Knower school, Дмитрий Смирнов | Создание 3D график�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741892.jpg" />
 </div>
 
 
@@ -315,7 +343,7 @@ HTML Academy | React. Разработка сложных клиентских �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741876.jpg" />
 </div>
 
 
@@ -344,7 +372,7 @@ ITVDN | Видео курс Выполнение домашнего задани
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741490.jpg" />
 </div>
 
 
@@ -370,7 +398,7 @@ Geekbrains | FreeBSD. Администрирование серверов (2014)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741407.jpg" />
 </div>
 
 
@@ -396,7 +424,7 @@ Allan McKay | FX Technical Director Transformation Module 16 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741261.jpg" />
 </div>
 
 
@@ -424,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741256.jpg" />
 </div>
 
 
@@ -450,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741243.jpg" />
 </div>
 
 
@@ -477,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741098.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740078.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ CtrlPaint.com | 3D for illustrators. 3D Paintover Starter Kit (2016) PCRec [H.26
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739956.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ Udemy, René Fürst | OpenVPN verstehen und einrichten – Sicher im Netzwerk (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738993.jpg" />
 </div>
 
 
@@ -588,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738708.jpg" />
 </div>
 
 
@@ -614,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738697.jpg" />
 </div>
 
 
@@ -643,7 +671,7 @@ Skillshare, Nexttut | Blender 3.0 Modelling for Beginners (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738665.jpg" />
 </div>
 
 
@@ -671,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738664.jpg" />
 </div>
 
 
@@ -685,32 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC0132DA4FBB7299151B5EC76B62A295BBE844CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526214   (738660) от 23.01.2022
-
-Wingfox Studio, Changming Wang | Ultimate Illustration Course Coloring and Lighting (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738660.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом уроке вы узнаете, как создать иллюстрацию, похожую на плакат, на всем пути от эскиза до окончательных деталей. После этого урока вы сможете освоить новые и практические приемы изготовления плакатов, игровых карточек, скинов чемпионов, скетчей, доп. Это краткое руководство по иллюстрации того, как представить цвета и свет.Производство: Wingfox StudioЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 11:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A32FC0365E38F5C6769D2A88A49F7337FABE22
 ```
 
 https://mybot314.ru/tekegram_catalog/

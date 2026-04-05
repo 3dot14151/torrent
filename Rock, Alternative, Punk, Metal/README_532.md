@@ -1,3 +1,118 @@
+###  Публикация: 1047923   (547134) от 01.09.2016
+
+LP (Laura Pergolizzi) - Death Valley (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative/Indie Rock, Pop Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muddy Waters (3:49)
+02. Lost On You (4:28)
+03. Strange (3:55)
+04. Death Valley (2:52)(   Читать дальше...   )Жанр: Alternative/Indie Rock, Pop Rock, Folk RockПродолжительность: 00:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0650F568CAC384877532C6BA316D24DBBA3F7B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238299   (547131) от 29.07.2018
+
+Kataklysm - Meditations (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guillotine
+02. Outsider
+03. The Last Breath I'll Take Is Yours
+04. Narcissist(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BCD883C5FB97684857B95808025C4CDF8895C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238341   (547075) от 29.07.2018
+
+Icon - 4 альбома (1984 - 1989) [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icon - американская группа heavy metal / glam metal, созданная в 1979 году, расформированная в 1990 году. Ревормировалась в 2008 году, в настоящее время состоит из трех участников классического состава: Dan Wexler (guitar), Stephen Clifford (lead vocals) и John Aquilino (guitar), а также Dave Henzerling (bass) и Gary Bruzzese (drums). Началось все в 1981 году со (   Читать дальше...   )1984 - Icon
+1985 - Night Of The Crime
+1987 - An Even More Perfect Union (2009)Жанр: Hard Rock, GlamПродолжительность: 03:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC8198F6D928DD3947FA44A608662049F3AD433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238409   (547070) от 29.07.2018
+
+King Company - Queen Of Hearts (2018) Japanese Edition [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547070.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Queen Of Hearts (4:12)
+ 2. One Day Of Your Life (4:14)
+ 3. Stars (4:24)
+ 4. Living In A Hurricane (3:58)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF141B02DEED605AF92E7B83421F066037054794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238390   (547027) от 29.07.2018
 
 VA - Rock Road Trip: The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Rock, Alternative, Hard Rock, Pop Rock>
@@ -6,7 +121,7 @@ VA - Rock Road Trip: The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Rock, Al
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547027.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ Mono Inc. - Welcome to Hell (2018) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547025.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Accuser - Dependent Domination (2011) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547018.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Guesch Patti - Labyrinthe (1988) EMI France [APE|Lossless|image + .cue] <Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546962.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ Popa Chubby - Universal Breakdown Blues (2013) [FLAC|Lossless]<Blues-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546681.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ Unwritten Rulz - Filter Thru the Static (2012) [MP3|256 Kbps] <Alternative Rock,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546583.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Shotgun - Dallasian Rock (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Classic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546533.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ Unwritten Rulz - Burn It Down (2016) [MP3|320 Kbps] <Alternative Rock, Hard Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546532.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ Unwritten Rulz - Life of the Party (2014) [MP3|256 Kbps] <Alternative Rock, Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546531.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ Anthony Green - Pixie Queen (2016) [MP3|320 Kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546530.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ Blues Pills - Golden Treasures (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546527.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ Mark Wood - Voodoo Violince (1991) [MP3|320 Kbps] <Melodic Rock, Instrumental Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546462.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ Smokie - From The Heart (2006) [FLAC|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546461.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ Puscifer (Maynard James Keenan of Tool & A Perfect Circle) - Money $hot (Shot) (
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546419.jpg" />
 </div>
 
 
@@ -412,7 +527,7 @@ Florence + The Machine - Wish That You Were Here (From "Miss Peregrine’s Home 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546416.jpg" />
 </div>
 
 
@@ -438,7 +553,7 @@ A Day To Remember - Bad Vibrations (2016) Deluxe Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546379.jpg" />
 </div>
 
 
@@ -467,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546275.jpg" />
 </div>
 
 
@@ -496,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546262.jpg" />
 </div>
 
 
@@ -525,7 +640,7 @@ The Wolverhinos - Love Runs Out! (2017) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546235.jpg" />
 </div>
 
 
@@ -554,7 +669,7 @@ Rise Against - The Ghost Note Symphonies, Vol 1 (2018) [MP3|320 Kbps] <Punk Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546183.jpg" />
 </div>
 
 
@@ -583,7 +698,7 @@ Ancient Skin - Nobis Quoque Peccatoribus (2008) [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545862.jpg" />
 </div>
 
 
@@ -612,7 +727,7 @@ Eternal Suffering - Echo Of Lost Words (2010) [FLAC|Lossless|image + .cue] <Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545858.jpg" />
 </div>
 
 
@@ -626,122 +741,6 @@ Eternal Suffering - Echo Of Lost Words (2010) [FLAC|Lossless|image + .cue] <Brut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C41DAD7B7BC1B34F2905EBE280963D67C4CB343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048650   (545852) от 03.09.2016
-
-Lоrd Оf Тhе Lоst - Еmруrеаn (2016) 2CD [FLAC|Lossless|image + .cue] <Gothic Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adonai
-02. Lament For The Condemned
-03. Now We Are The Aliens
-04. Lost In Oblivion(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F611F51611E72D1B3AE8B4460FF1525B35E8F079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048621   (545803) от 03.09.2016
-
-Stereoside - Hellbent (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miracle
-02. Apple Pie
-03. Hellbent
-04. Crazier Than You(   Читать дальше...   )Жанр: Hard Rock, Post-GrungeПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D0E5578F79EB87E59EADCEFE012FB5AC964E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048651   (545795) от 03.09.2016
-
-The Quireboys - Twisted Love (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Torn & Frayed
-02. Ghost Train
-03. Killing Time
-04. Twisted Love (Album Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E719F6ABECEECE23EE9C755C8EB890259B5C759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048756   (545751) от 03.09.2016
-
-VA - Shine 3 (1995) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545751.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pulp - Common People [04:11]
- 2. Oasis - Roll With It [04:01]
- 3. Supergrass - Alright [03:01]
- 4. The Lightning Seeds - Marvellous [03:43](   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7090C7178DB0DF6751050FCE0F0CA47D0BC4E0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

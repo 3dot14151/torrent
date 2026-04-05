@@ -1,3 +1,32 @@
+###  Публикация: 1642386   (210315) от 28.06.2023
+
+Леонид Агутин - Летний Дождь (1998) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Latin, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210315.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Не Унывай!
+A2 Летний Дождь
+A3 Полночи
+A4 Танцевали Пары(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603756   (210261) от 11.01.2023
 
 Шахерезада - Свадьба в Малиновке (1992) [WavPack 2.0|192/32|tracks|MB-Rip] <Pop, Dance, Disco>
@@ -6,7 +35,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210261.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210213.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Azul Y Negro - Digital (1983)  [FLAC|2.0 24/192|image (Vinyl-Rip)<Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209828.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bloodbound - Studio Albums (10 releases) (2005-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209326.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209223.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209153.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Blackmore's Night - Дискография (13 albums) (1997-2021) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208677.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Megadeth - Дискография (23 releases) (1985-2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207992.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ Sinead O'Connor - I Do Not Want What I Haven't Got (1990/1993) Reissue, Unoffici
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207971.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ VA - K-Tel's 40 Super Greats (1975) 2 x LP, Compilation, Gatefold [FLAC|24/96|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207751.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ VA - In Love - Greatest Love 5 (1991) Compilation, Gatefold [FLAC|24/96|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207678.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Queen - Greatest Hits (1990) Мелодия, по лицензии EMI Records L
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207268.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Immortal - Studio Albums (8 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207230.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207094.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, It
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206927.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Slipknot - Studio Albums (8 releases) (1997 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206839.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Middle Of The Road - Middle Of The Road (1972/1977) [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206695.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Eleine - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206467.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ AC/DC - Studio Albums (7 releases) (1990 - 2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206229.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206046.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205984.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205759.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205374.jpg" />
 </div>
 
 
@@ -677,7 +706,7 @@ Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205144.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ Kreator - Violent Revolution (2001) Nuclear Blast, Reissue 2022 [FLAC 24/192|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205122.jpg" />
 </div>
 
 
@@ -720,35 +749,6 @@ A4 All of the Same Blood(   Читать дальше...   )Жанр: Thrash Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D634E009E064101BADD89BCC1A58B569E1C50319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655086   (204616) от 24.08.2023
-
-Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crusher Destroyer
-02. March Of The Fire Ants
-03. Where Strides The Behemoth
-04. Workhorse(   Читать дальше...   )Жанр: Progressive, Sludge MetalПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3B124811987B455D7D1285CC972C8BE9AD3F0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

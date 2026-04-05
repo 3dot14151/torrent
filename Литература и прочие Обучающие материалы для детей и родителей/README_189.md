@@ -1,3 +1,58 @@
+###  Публикация: 1142303   (644602) от 13.06.2017
+
+Ольга Опанасенко | Никола Тесла (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «Удивительные личности для детей» – это уникальный проект для качественного досуга родителей и детей. Книги серии написаны в увлекательной и доступной форме, что делает сам процесс чтения не скучным и полезным.
+
+Главные герои книг – знаменитые личности, которые добились выдающихся результатов, благодаря упорному труду и неиссякаемой вере в себя. В конце каждой (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C14FF85298CE3F29C376146A4512ECDD5D70833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517984   (644562) от 02.07.2012
+
+О. Холодова | Юным умникам и умницам. Задания по развитию познавательных способностей. 4 класс [2011] [JPEG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание является продолжением аналогичных методических пособий по развитию познавательных способностей младших школьников, предназначенных для 1 и 2 и 3 классов. Пособие представляет собой методические рекомендации по работе с рабочими тетрадями "Юным умникам и умницам. 9-10 лет (4 класс)". В нем раскрываются смысл и цели данных тетрадей и приведены подробные указания по проведению занятий по РТС (развитию познавательных способностей) с детьми 9-10 лет.
+Пособие адресовано учителям начальной школы, родителям, а также тем, кто интересуется развитием познавательных способностей детей 9-10 лет.Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7DAA164B4C1F9B5937D00B350C5BB988A5160B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032801   (644116) от 08.07.2016
 
 Э. Эмден | Весенний марш (1930) [PDF]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644116.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644108.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643907.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643820.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643815.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643709.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643708.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643705.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643551.jpg" />
 </div>
 
 
@@ -248,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643494.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643487.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643436.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643428.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643419.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643389.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643381.jpg" />
 </div>
 
 
@@ -433,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643373.jpg" />
 </div>
 
 
@@ -459,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643370.jpg" />
 </div>
 
 
@@ -485,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643368.jpg" />
 </div>
 
 
@@ -513,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643340.jpg" />
 </div>
 
 
@@ -546,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643301.jpg" />
 </div>
 
 
@@ -572,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643292.jpg" />
 </div>
 
 
@@ -598,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643222.jpg" />
 </div>
 
 
@@ -625,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643215.jpg" />
 </div>
 
 
@@ -636,61 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4D70BC750FECAD439A1B58BDEA93B73A05204CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292876   (643198) от 31.03.2019
-
-Бьярне Ройтер | Кольцо принца Файсала (2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исторический роман, от которого не оторваться. Мир XVII века, каким его воссоздал наш современник. Пиратские нравы, рабовладельческие суда, очарование странствий – и всё это от первого лица, как в крутой видеоигре. Вот какая удивительная книга у вас в руках!
-Том Коллинз заглядывает в морскую пучину. И ловит там взгляд – пронзительный, завораживающий. С этого начинаются (   Читать дальше...   )Жанр: Приключения для детей, Исторические приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4328D12C3BD42D7C0D48A883FABE32BD5A531549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292871   (643192) от 31.03.2019
-
-Луиджи Баллерини | Синьорина Корица (2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Едва ли найдётся любитель сладостей, который не останется в восторге от кондитерской Синьорины Корицы. Хотя отыскать её совсем не просто! Магазинчик притаился в глубине пустынной улицы, около заброшенной фабрики. Зато он распространяет на всю округу чудесные ароматы.
-
-Когда двенадцатилетняя Марта забрела сюда, она сразу влюбилась в эти запахи, в аккуратные, но почему-то (   Читать дальше...   )Жанр: Приключения для детей, СказкиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C112AC4D0E98A7459755E67DA3B4F3E01B5295
 ```
 
 https://mybot314.ru/tekegram_catalog/

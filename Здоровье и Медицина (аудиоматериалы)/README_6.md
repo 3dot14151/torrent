@@ -1,3 +1,29 @@
+###  Публикация: 1332352   (313323) от 20.10.2019
+
+Дениэл Либерман | Дофамин: самый нужный гормон. Как молекула управляет человеком (2019) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему любовь проходит, а чувства остывают? Почему «острые ощущения» теряют свои яркие краски? Почему мы можем быть одержимы желанием получить что-либо и потерять всякий интерес, как только это становится нашим? И что связывает секс, творчество и политические убеждения? Ответ на эти вопросы кроется в одной-единственной молекуле – дофамине. Как этот гормон заставляет (   Читать дальше...   )Жанр: Зарубежная психология, Научно-популярная литература, Нейробиология, Нейропсихология, О психологии популярноЯзык озвучки: РусскийПродолжительность: 08:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B93D6C045C1430145300F6E414B4D04F16049D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961653   (296806) от 03.12.2015
 
 Михаил Щетинин | Дыхание по Стрельниковой (2015) [MP3]
@@ -6,7 +32,7 @@
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296806.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292801.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288674.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288239.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285630.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285308.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282376.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270529.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270460.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261664.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260042.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257735.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257703.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257598.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257595.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255600.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253102.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252493.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251666.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249959.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249358.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246120.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245875.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245440.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245387.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DD706D3793E38F6F857A622051F4CE552AD60CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620820   (245309) от 22.03.2023
-
-Джейсон Фанг | Дикий гормон (2019) [MP3, Максим Доронин]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Искусство медицины очень своеобразно. Время от времени возникают методы лечения, которые на самом деле не работают. По инерции эти методы передаются от одного поколения врачей к последующему и сохраняют жизнеспособность удивительно долго, несмотря на отсутствие их эффективности. К сожалению, лечение ожирения стоит в одном ряду с этими примерами. Уже более тридцати (   Читать дальше...   )Жанр: Здоровье, МедицинаПродолжительность: 10:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB74D3F7CA2599F245804CD9600E43E3BB8A8021
 ```
 
 https://mybot314.ru/tekegram_catalog/

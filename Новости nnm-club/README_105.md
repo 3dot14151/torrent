@@ -1,3 +1,29 @@
+###  Публикация: 1024206   (705273) от 14.06.2016
+
+Homeworld Remastered Collection (2015) [Ru/Multi] (2.1) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Homeworld Remastered Collection, переиздание классической стратегии про войну в космосе. Когда-то Homeworld стал одной из первых по-настоящему трехмерных стратегий в реальном времени, но это не единственное, чем запомнилась эта серия. То была настоящая космическая опера, непростая история о том, как внеземная раса Кушан пытается выжить в противостоянии со зловещей (   Читать дальше...   )Тип издания: LicenseРазработчик: Gearbox SoftwareЖанр: Strategy (Real-time), 3D, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EDA965AAADA49F488B460F9D232DE0DCC98CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287181   (705061) от 06.03.2019
 
 "Матвиенко предложила регулярно замерять индекс счастья россиян."
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_705061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_705061.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Grand Theft Auto: Vice City [Ru/En] (RePack) 2003 | R.G. NoLimits-Team GameS
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704977.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Android 9 сделали доступным на десятках старых �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_704689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704689.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704679.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_704264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704264.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_704263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704263.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Windows 10 PE (x86/x64) v.5.0.2 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704248.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704240.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_703978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703978.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_703971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703971.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_703702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703702.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_703691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703691.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ AusLogics BoostSpeed 9.0.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703408.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 (15.06.2016
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703402.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703397.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Adobe Premiere Pro 2020 14.3.2.42 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702988.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Spellforce 3 (2017) [Ru/Multi] (1.40) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702831.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702773.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ SUPERAntiSpyware Professional 6.0.1186 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702692.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Adobe Media Encoder CC 2017 (v11.1.0) Multilingual Update 2
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702290.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_702197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702197.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702007.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_701710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701710.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701498.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_701104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701104.jpg" />
 </div>
 
 
@@ -643,33 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402335   (701031) от 14.08.2020
-
-Kaspersky Internet Security 2020 21.1.15.500 (без KSeC) [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Защитите вашу жизнь в интернете
-Kaspersky Internet Security — это оптимальная защита для компьютера. В состав продукта, помимо антивирусной защиты, входит защита интернет-соединения, веб-камеры, платежей в интернете, детей от нежелательной информации, а также возможность блокировки рекламных баннеров, запрета от сбора данных и защиты с помощью аппаратной виртуализации. (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDBCEFD95FB0AF68F891FCC7827F08DCB0201E54
 ```
 
 https://mybot314.ru/tekegram_catalog/

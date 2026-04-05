@@ -1,3 +1,133 @@
+###  Публикация: 1481359   (1008282) от 03.07.2021
+
+Вселенная Стивена: Фильм / Steven Universe: The Movie (2019) WEB-DL [H.264/1080p] (MVO)
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло несколько лет после конфликта между Землёй и высшей властью Алмазов из родного мира, когда команде Стивена удалось заключить мир между органической жизнью и самоцветами. Однако прошлое возвращается в обличье загадочной Шпинель, которая затаила обиду на мать мальчика, бывшую правительницу Родного мира. Бунтарка хочет уничтожить Стивена, его близких и даже всю (   Читать дальше...   )Производство: США, Cartoon Network StudiosЖанр: Приключения, Комедия, МузыкальныйРежиссер: Ребекка ШугарПеревод: Профессиональный MVO (NewStation, Cactus Team, Синема УС)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECFA42EBC7DA50DFA47AF3CA4A08D327A254E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481617   (1008106) от 04.07.2021
+
+Тайна Мосли / Mosley (2019) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008106.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далеком-далеком прошлом удивительные животные Торифанты восстают против жизни в рабстве людей и отправляются в опасное путешествие в поисках... свободы. Ведь их прошлое хранит невероятную тайну.Производство: Новая Зеландия, Китай / Huhu Studios, China Film AnimationЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Кирби ЭткинсАктеры: Кирби Эткинс, Леа Эткинс, Риз Дэрби, Джон Рис-Дэвис, Джон Филлипс, Курт Клонингер, Люси Лоулесс, Стивен Гледхилл, Темуэра Моррисон, Айди УокерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFF16C6E646A199F9190A6714D96BB31D94206C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 419088   (1007927) от 05.07.2021
+
+Бременские музыканты (1969, 1973) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная фантазия, любимая не одним поколением зрителей, о необыкновенных, очень опасных и веселых приключениях бременских музыкантов: Трубадура, кота, собаки, петуха и осла. Музыканты путешествуют по Германии времен братьев Гримм и поют вполне современные песни. Время от времени совершают подвиги. Все было хорошо, но во время одного циркового представления приглянулась (   Читать дальше...   )Жанр: Детский, Рисованная анимацияРежиссер: Василий ЛивановСубтитры: ОтсутствуютПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FE991EAAB4CBDB3A3540DB492A583369C43612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481644   (1007851) от 06.07.2021
+
+Кролик Питер 2 / Peter Rabbit 2: The Runaway (2021) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории маленького и непоседливого кролика по имени Питер. Беатрис, Томас и крольчата, наконец, находят общий язык и начинают спокойную и размеренную жизнь за городом. Однако Питеру это совсем не по нраву: его мятежная душа требует приключений, и он отправляется на их поиски в большой город, туда, где его проделки уж точно оценят по достоинству. Тем временем, (   Читать дальше...   )Производство: Австралия, Индия, США, Великобритания, Канада / 2.0 Entertainment, Animal Logic, Columbia Pictures Corporation, MRC Film, Olive Bridge EntertainmentЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Уилл ГлакАктеры: Джеймс Корден, Элизабет Дебики, Ленни Джеймс, Марго Робби, Айми Хорн, Руперт Дегас, Донал Глисон, Роуз Бирн, Дэвид Ойелоуо, Ивен ЛеслиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскийПродолжительность: 01:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD0CEC35C671702EEB38A8D9F1F47AAD8425060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482131   (1007681) от 07.07.2021
+
+Том и Джерри в Нью-Йорке / Tom and Jerry in New York (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф полнометражного фильма 2021 года «Том и Джерри». Двое самых знаменитых в мире «заклятых друзей» Том и Джерри заселяются в роскошный нью-йоркский отель «Royal Gate» и, разумеется, устраивают безумный хаос по всему городу. К их приключениям присоединятся бульдог Спайк и кот Бутч.Производство: США / Cartoon Network Studios, Renegade Animation, Turner Entertainment, Warner Bros. AnimationЖанр: Минисериал, КомедияРежиссер: Даррел Ван СиттерсАктеры: Грэй Гриффин, Стефен Стэнтон, Рик Зефф, Джои Д’Аурия, Сэм Квасман, Кэти Ли, Дайан Мишель, Дэниэл Росс, Лесли Дэвид Бэйкер, Флула БоргПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: ~00:21:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752F5B97BD129AA99E5658A2B5F5EFB523A1CB58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482320   (1007552) от 08.07.2021
 
 Кролик Питер 2 / Peter Rabbit 2: The Runaway (2021) WEB-DL [H.264/1080p-LQ] [UKR / EN Sub] [Line]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007552.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007527.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007453.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007244.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007243.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007242.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007218.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007213.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007177.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007149.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007084.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007058.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007016.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007015.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007013.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007004.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006944.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006823.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006820.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006788.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006523.jpg" />
 </div>
 
 
@@ -541,137 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA31F6D4E77A97114A4439B7883AD55701C45FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484035   (1006353) от 17.07.2021
-
-Космический джем: Новое поколение / Space Jam: A New Legacy (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]  [EN / En Sub] [HMAX]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы спасти сына, знаменитый чемпион НБА отправляется в сказочный мир, где в команде мультяшек вынужден сражаться на баскетбольной площадке с цифровыми копиями знаменитых игроков.Производство: США / Warner Bros., Warner Animation Group, SpringHill EntertainmentЖанр: мультфильм, фантастика, фэнтези, комедия, приключения, семейный, спортРежиссер: Малкольм Д. ЛиАктеры: Леброн Джеймс, Дон Чидл, Седрик Джо, Крис Дэвис, Сонекуа Мартин-Грин, Сейэйр Дж Райт, Харпер Ли Александр, Зоша Рокемор, Стивен Канколе, Джалин ХоллПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (Full, SDH)Продолжительность: 01:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99E3877D1414A07465C7E61ED25086B6A1EA217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484234   (1006228) от 18.07.2021
-
-Мазафакер / Mutafukaz (2017) BDRip [H.264/1080p-LQ] [AVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006228.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городе Dead Meat City живет парень Анджелино, для друзей - просто Лино. Город печально известен высоким уровнем преступности, поэтому тут лучше не выделываться. Лино работает курьером, и однажды во время доставки, засмотревшись на симпатичную девушку, попадает под колеса грузовика. С этого момента в жизни парня и его друзей начинается настоящий хаос.Производство: Франция, Япония / Ankama, Studio 4°CЖанр: мультфильм, фантастика, боевик, для взрослыхРежиссер: Сёдзиро Нисими, Гийом РенарПеревод: Авторский Дмитрий "Goblin" ПучковЯзык озвучки: Русский (присутствует ненормативная лексика)Субтитры: отсутствуютПродолжительность: 01:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B91CDFE5651C36F800D09B6F69150A6F0C5F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 174449   (1006206) от 18.07.2021
-
-Дамбо / Dumbo (1941) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006206.jpg" />
-</div>
-
-
-###  Подробнее
-
-«The One...The Only...The FABULOUS...»
-Классическая постановка Уолта Диснея. Один из самых очаровательных и всеми любимых мультфильмов - история маленького слоненка с очень большими ушами, который научился летать. Открыть удивительный талант и поверить в себя Дамбо помог неунывающий мышонок Тимоти, который стал ему настоящим другом… Так неразговорчивый и неуклюжий (   Читать дальше...   )Производство: Walt Disney / СШАЖанр: Рисованная анимация, Детский, Приключения, Музыкальный, СемейныйРежиссер: Бен ШарпстинПеревод: Полный дубляж, вкл. песниЯзык субтитров: Russian, English (Вшитые отключаемые)Продолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A969671072F2A89F9929C4F1B2DACB493E3CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 207462   (1006176) от 18.07.2021
-
-Дамбо / Dumbo (1941) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006176.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о маленьком слоненке из цирка, родившемся с очень большими ушами, что было рассмотрено как позорное явление среди цирковых слонов. Но зато он научился летать.Производство: США / Walt Disney Animation StudiosЖанр: мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Сэмюэл Армстронг, Норман Фергюсон, Уилфред ДжексонПеревод: Дублированный (Включая песни) + Профессиональный двухголосыйСубтитры: русские, английскиеПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554DDC26A2803753DC8D6534086A0DE4E3BB46E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484406   (1006083) от 19.07.2021
-
-Принцесса и бандит (2020) WEBRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды принцесса влюбилась в бандита… и к чему это привело.Производство: Россия / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Мария Соснина, Михаил АлдашинАктеры: Софья Трифонова, Виталий БазилевскийСубтитры: ОтсутствуютПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B140A146D5AF1C06F6432CEEE5C4B189EFEE0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

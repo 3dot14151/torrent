@@ -1,4 +1,58 @@
 https://t.me/izofen
+###  Публикация: 1863414   (1064000) от 
+
+В.Ф. Власов | Электронные и ионные приборы (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие для радиотехнических высших учебных заведений и факультетов.
+Издание 3-е, переработанное и дополненное.Жанр: ЭлектроникаИздательство: СвязьиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:039ED006A16FBAAC320087D6EE91F11A3E9C2E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863411   (1063999) от 
+
+Л.И. Волгин | Измерительные преобразователи переменного напряжения в постоянное (1977) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены методы построения измерительных преобразователей, переменного напряжения в постоянное по уровню средневыпрямленного, эффективного и амплитудного значения. Изложение материала и схемные решения ориентированы на применение интегральных усилителей.
+Книга рассчитана на широкий круг специалистов в области радио-, электро- и информационно-измерительной техники.Жанр: ЭлектроникаИздательство: Советское радиоФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC45A94E943B23382FCE78ED99F3EF0DA61A7CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860333   (1061648) от 
 
 Михаил Момот | Мобильные роботы на базе Arduino (+Электронный архив). 3-е издание (2023) [PDF]
@@ -7,7 +61,7 @@ https://t.me/izofen
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061648.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061302.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060901.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060742.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060741.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059465.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058262.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058146.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058145.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058038.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058037.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057282.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056732.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ Stephen Corda | Introduction to Aerospace Engineering with a Flight Test Perspec
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055688.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ Francis D. K. Ching, Steven R. Winkel | Building Codes Illustrated. A Guide to U
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054618.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ Yong Ching Lim, Paulo S. R. Diniz, Yih-Fang Huang | Signal Processing for Autono
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054469.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Ap
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054145.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054080.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ Dan Piestun, Felecia Killings и др. | Basic Electrical And Electronics Engine
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053441.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052673.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052658.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052651.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052020.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051781.jpg" />
 </div>
 
 
@@ -632,59 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1473FC8123B88539992D96EFB5699DCF8BD36F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846446   (1051494) от 08.01.2026
-
-В.В. Мельников (ред.) | Справочник радиолюбителя (1962) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель настоящего справочника помочь радиолюбителям в их практической работе. Справочник рассчитан на радиолюбителя средней квалификации, имеющего подготовку в объеме 8—10 классов общеобразовательной школы и несколько лет радиолюбительской практики, поэтому, в частности, в него не включены общие сведения по математике и электротехнике.
-В отличие от ранее выпущенных, (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Свердловское книжное издательствоФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF0AAD791FBAD17F6D2EDE2B5E6CA0284FCC865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842345   (1048725) от 15.12.2025
-
-С.Г. Бунин | Справочник радиолюбителя-коротковолновика (1978) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048725.jpg" />
-</div>
-
-
-###  Подробнее
-
-В справочнике описаны принципы конструирования приемной и передающей аппаратуры, антенн, механизм прохождения радиоволн, применение современных видов радиосвязи. Изложены методы борьбы с помехами телевидению и радиоприему. Приведен расчет основных узлов радиоустройств И справочные данные, необходимые коротковолновику в повседневной работе. Рассчитан на широкий круг (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ТехнiкаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22C73E7D4D20136F8A115B37A99BC374D6034D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

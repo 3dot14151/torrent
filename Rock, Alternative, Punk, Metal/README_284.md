@@ -1,3 +1,148 @@
+###  Публикация: 1506403   (801046) от 30.10.2021
+
+Netherbird - Arete (2021) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ame Damnee (Instrumental)
+02. Towers Of The Night
+03. Void Dancer
+04. Infernal Vistas(   Читать дальше...   )Жанр: Melodic Black Metal, Symphonic MetalПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B660438AE2679AD85285DFE976756B4E4CEA6226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199590   (801035) от 16.01.2018
+
+Midnight Flyer - Midnight Flyer (1981) Reissue, 2013, Air Mail Archive [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Boy
+02. Love Games
+03. French Kisses
+04. In My Eyes(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD383E497291171F2C7797AB2CB7B103A7AFA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384817   (800995) от 22.05.2020
+
+Mercenary - The Hours That Remain (2006) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redefine Me
+02. Year Of The Plague
+03. My World Is Ending
+04. This Eternal Instant(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68D67A67B777EB4F8C1DFCF3759CC8E98DA208A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506410   (800978) от 30.10.2021
+
+Legacy Pilots - The Penrose Triangle (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Days 04:55
+02. Ghosts of the Ocean 04:55
+03. Heaven Must Know 05:50
+04. Mad Kings 05:34(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FC15C80A07F104E4E9E1E50F525D386B34B835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506104   (800897) от 30.10.2021
+
+Electric Light Orchestra - Ballads (2021) [MP3|320 Kbps] <Progressive-Rock, Art-Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800897.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mr. Radio (5:04)
+2. Eldorado (5:18)
+3. Can't Get It Out Of My Head (2012 Version) (4:34)
+4. Mister Kingdom (5:30)(   Читать дальше...   )Жанр: Progressive-Rock, Art-Pop-RockПродолжительность: 01:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EFA50553C086173B35DC8A8442749058F69823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506196   (800896) от 30.10.2021
 
 Эпидемия - Призраки и тени (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -6,7 +151,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800896.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ The Lucid Furs - Damn! That Was Easy (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800893.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) Enhanced, Remastered,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800870.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800851.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Golgotha - Elemental Changes (1998) [APE|Lossless|image + .cue] <Death Metal, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800711.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Demented Ted - Promises Impure (1993) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800658.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Golgotha - Melancholy (1995) [FLAC|Lossless|image + .cue] <Death Metal, Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800656.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ In Mourning - Shrouded Divine (2008) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800648.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Billy's Band - Песни Дедов Морозов (2016) 2017, Self-released [
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800621.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Panhandle - Panhandle (1972) Reissue, 2016, Prog Temple [MP3|320 Kbps] <Rock, Bl
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800608.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ PSI - Horizonte (1977) 2016, Poland, GAD Records/Chickadisc [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800599.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800549.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Ten Fe - Hit the Light (2017) [APE|Lossless|tracks + .cue] <Indie, Electronic>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800496.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Stone The Crows - Ode To John Law (1970) Reissue, 1996, Repertoire Records [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800445.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Uriah Heep - Demons and Wizards (1972) Remastered, 2017, Sanctuary Records Group
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800431.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ The Doors - The Doors (1967) Remastered, 2017, 50th Anniversary Deluxe Edition [
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800428.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Night - 2 Albums (1979, 1980) Reissue CD, 2012,Gonzo Multimedia [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800422.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800414.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ Everything Everything - A Fever Dream (2017) [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800406.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800403.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ Zaratustra - It Was A Night (1999) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800400.jpg" />
 </div>
 
 
@@ -597,151 +742,6 @@ Zaratustra - It Was A Night (1999) [FLAC|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A265C8817E395F6CC4BB47F903D6862436545677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199665   (800362) от 17.01.2018
-
-Per Frost - The Calling (2018) [MP3|320 Kbps] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Crow Blues (04:11)
-02. A Case Of You (04:44)
-03. Take Me To The River (03:59)
-04. Tannis Bay (03:34)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1F93DCC8A4C4BFDC8E24E611FCF1A7A9B9CB51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199699   (800361) от 17.01.2018
-
-Полини - Время дождей (2017) [MP3|320 Kbps] <Acoustic Rock, Folk Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Так и стоял до рассвета
-02. Солнце на коне
-03. Золотое правило
-04. Время дождей(   Читать дальше...   )Жанр: Acoustic Rock, Folk Rock, Art RockПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3D09498E4ACBF30BCF72186D65DBE7E961A17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199817   (800352) от 17.01.2018
-
-Маша Кудрявцева и группа Кудри - Люди и тени (2017) [MP3|320 Kbps] <Art Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По линиям метро
-02. То снег, то дождь
-03. Там, где ты
-04. О личном(   Читать дальше...   )Жанр: Art Pop, RockПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E2DC84687DB09D5E663806C37AD289E0FA3B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385134   (800342) от 23.05.2020
-
-666 - Мясо с кровью (2020) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800342.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пули в тело - деньги в дело
-2. Летучие мыши
-3. Под прицелом
-4. Ад(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600D27C868143ECCB1CF5F78C7486D808F9BB513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385021   (800333) от 23.05.2020
-
-Pavlov's Dog - At The Sound Of The Bell (1976) [FLAC|Lossless|image + .cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Came Shining (4:20)
-02. Standing Here With You (Megan's Song) (3:52)
-03. Mersey (3:05)
-04. Valkerie (5:22)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59877B90D58A60C5B22FD747460EECE38EA470C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

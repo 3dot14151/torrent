@@ -1,3 +1,61 @@
+###  Публикация: 1621691   (1030993) от 25.03.2023
+
+VA - Trance Reserve Music 2022 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katrin's World & Trance Reserve - RUSH (Extended Mix) [5:55]
+02. Trance Reserve - Black Shark (Extended Mix) [5:54]
+03. U-Mount & SpaceLine - Libra Terra (Extended Mix) [7:34]
+04. Sergiy Akinshin - RUN (Extended Mix) [6:57](   Читать дальше...   )Жанр: TranceПродолжительность: 01:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D05AE6E685C2F73177445AFCE66B12B2BB4E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621431   (1030988) от 25.03.2023
+
+VA - Delhi Trance Festival (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flambo - By Your Side (Expand) [3:23]
+02. Flambo - Trancetastic (Original Mix) [4:55]
+03. Tonliebe - Unbreakable (Instrumental Version) [3:21]
+04. Mike Rules - Sunflower (Original Mix) [5:38](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868E9DD477DB6C571ADD6A4B3D44ED988C20C386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621141   (1030986) от 25.03.2023
 
 VA - VA Trance 2023 [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - VA Trance 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030986.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Aly & Fila - FSOE Top 20: February (2021) [MP3|320 Kbps] <Trance, Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030701.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - The World Series Of Trance Vol.1 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030481.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Global Trance Masters Vol.1 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030475.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Global Trance Masters Vol.2 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030473.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Black Hole Trance Music 02-21 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030472.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Raz Nitzan - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Trance, Vocal Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030269.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Ferry Corsten - Resonation Vol.1 (2021) [MP3|320 Kbps] <Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029317.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Black Hole Trance Music 03-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025295.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Complex Numbers - Техно-опера "Мы, XXII век" (2018) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022811.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Black Hole Trance Music 04-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020281.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Black Hole Trance Music 05-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014809.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Dream Dance Vol. 91 (2021) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006254.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Trance Dance - Back to the 90s (2019) 2CD [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004066.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Dream Dance Vol.88 (2020) [MP3|320 Kbps] <Trance, Progressive House, Vocal 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001885.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Wave of Trance Vol.1 (2013) [MP3|320 кб/с]<Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990578.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Black Hole Trance Music 01-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984915.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - Defragmentation (Mixed by DJ Бинокль) (2008) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963270.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ DJ Иван Ионов - Soundcheck - Summer Non Stop (2005) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963222.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Dreaming - Mixed by Dj Anna Lee (2007) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963213.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Dj Donatas VZ - Nobody Harder - Volume Zero (2004) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963210.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ DJ Aligator Project - The Sound Of Scandinavia (2002) [MP3|320 Kbps] <Trance, Eu
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960738.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VA - Suanda Winter Vol. 3 (2016) [MP3|320 кб/с] <Trance, Chillout>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954839.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ VA - Silent Shore Records - The Best Of (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954016.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ VA - Silent Shore Records - The Best Of (2016) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25453CB333FBF50F6CE2F1298A31A3A131990B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089164   (953904) от 02.01.2017
-
-VA - Best 10 Trance Of The Year (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.M.P - November Leaves (Psymfonius Remix) 06:35
-02. Barzek - July (Stephane Badey Remix) 08:28
-03. Noize Compressor - Hurricane (Original Mix) 06:54
-04. Pax (UK) - Transatlantic (Mobil Remix) 06:18(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2715BD45BBA4822F640821617E893EA54701F27C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089596   (950787) от 04.01.2017
-
-VA - Atmosfera Records Best Of 2016 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Decline - Lunge (Original Mix) [4:23]
-02. Sentencia - Above The Sky (Original Mix) [4:30]
-03. Dmitry Kostyuchenko - Heaven Love (Original Mix) [7:39]
-04. Yuri Pike - 21 (Original Mix) [6:19](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730889C090C28D327B2E1B4F93E31870BC5BFAD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

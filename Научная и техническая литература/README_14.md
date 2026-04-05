@@ -1,135 +1,3 @@
-###  Публикация: 1850985   (1054889) от 31.01.2026
-
-А.А. Матвеева, М.А. Беляева | Пусть соперничают сто школ. О философах древности и первых царствах на территории Китая (2022) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каким был Древний Китай до того, как стать единой Империей?
-Периоды Чуньцю и Чжаньго были неспокойным временем для Поднебесной – многочисленные царства десятилетиями вели кровопролитные воины за гегемонию на Великой китайской равнине. Тем не менее, в историю эта эпоха вошла не как век военных, а как век философов.
-Это было время Конфуция, Лао-цзы, Мэн-цзы и множества (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: ШансФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00CABAFA2418E186757DBAF1D6588BEE6BFFED2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850984   (1054888) от 31.01.2026
-
-Александр Пятигорский | Буддийская философия мысли (2020) [PDF, FB2, EPUB, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Моисеевич Пятигорский (1929–2009) – выдающийся мыслитель, востоковед, писатель, автор философских и буддологических монографий, романов, а также многочисленных философских работ и эссе. Эта книга была написана Александром Пятигорским на английском языке («The Buddhist Philosophy of Thought», 1984) и, таким образом, впервые публикуется на русском языке. (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: КоЛибриФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC1067F919AE2676886B0E7175C30EE8AD795C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850982   (1054887) от 31.01.2026
-
-Татьяна Ермакова, Елена Островская, Валерий Рудой | Классическая буддийская философия (2021) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учение Будды Шакьямуни о вступлении в Нирвану, его теоретическая интерпретация в текстах постканонической традиции считаются среди большинства специалистов предметом слишком сложным и в силу этого едва ли способным увлечь читающую публику. Но выходящие на эту тему книги неизменно привлекают широкое внимание. Работа, написанная ведущими буддологами России, посвящена (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: Академический ПроектФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935BB81E3D7FD4D2787257B607BB2DFA0E876037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850980   (1054886) от 31.01.2026
-
-Е. Торчинов, Ю. Щуцкий | Ицзин. Книга Перемен (2023) [PDF, FB2, EPUB, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054886.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ицзин» («Книга Перемен») – одна из древнейших книг китайской цивилизации и, пожалуй, одна из самых знаменитых. В основе ее лежат 64 гексаграммы, особые символы, призванные очертить определенные жизненные ситуации и раскрыть вопрошающему их дальнейшее развитие. Однако значение и смысл «Книги Перемен» выходят далеко за рамки «предсказателя судьбы». Своей мудростью (   Читать дальше...   )Жанр: Восточная философия, ИсторияПеревод: Е. Торчинов, Ю. ЩуцкийИздательство: Азбука-АттикусФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6512CD895EB59E70E63FE2BAF129830F985B9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850979   (1054885) от 31.01.2026
-
-Херли Крил | Философская мысль Китая. От Конфуция до Мао Цзэдуна (2017) [PDF, FB2, EPUB, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хёрли Крил - выдающийся американский синолог, автор научных трудов, посвященных истории, государственному устройству, философским и религиозным течениям Китая. В настоящей книге, предназначенной для широкой читательской аудитории, ученый рассматривает главные этапы формирования философской системы Поднебесной со времен династии Шан (ХV-ХIII вв. до н. э.) до провозглашения (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: ЦентрполиграфФормат: PDF, FB2, EPUB, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AF79F4CB56B70AE8B57121884B4670D4A1F5F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850978   (1054884) от 31.01.2026
 
 Лао-Цзы | Книга о Пути Жизни. Дао-Дэ цзин (2018) [PDF, FB2, EPUB, RTF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054884.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054883.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ José Luis Cisneros-Molina, Dũng Tráng Lê, José Seade | Handbook of Geometry
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054873.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054871.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054870.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054788.jpg" />
 </div>
 
 
@@ -296,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054787.jpg" />
 </div>
 
 
@@ -322,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054786.jpg" />
 </div>
 
 
@@ -348,7 +216,7 @@ P. Гароди, И. Валлерстайн | Мифы израильской п
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054785.jpg" />
 </div>
 
 
@@ -375,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054783.jpg" />
 </div>
 
 
@@ -401,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054782.jpg" />
 </div>
 
 
@@ -427,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054781.jpg" />
 </div>
 
 
@@ -454,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054780.jpg" />
 </div>
 
 
@@ -480,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054779.jpg" />
 </div>
 
 
@@ -507,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054776.jpg" />
 </div>
 
 
@@ -533,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054775.jpg" />
 </div>
 
 
@@ -559,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054774.jpg" />
 </div>
 
 
@@ -586,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054773.jpg" />
 </div>
 
 
@@ -613,7 +481,7 @@ M. Hazewinkel (ред.) | Handbook of Algebra [6 книг] (1996 - 2009) [PDF]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054767.jpg" />
 </div>
 
 
@@ -639,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054698.jpg" />
 </div>
 
 
@@ -665,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054697.jpg" />
 </div>
 
 
@@ -676,6 +544,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE16C730BE51971F19916C78EAB7DE01D8BF5EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850535   (1054696) от 29.01.2026
+
+И.И. Резвицкий | Личность. Индивидуальность. Общество [Проблема индивидуализации и ее соц.-филос. смысл] (1984) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое человеческая индивидуальность? Как строить свою жизнь, чтобы с наибольшей полнотой реализовать себя? Какую роль играет индивидуализация, индивидуальный подход в социальном познании и управлении, в воспитании личности? Отвечая на эти мало разработанные в философской науке вопросы, автор книги — доктор философских наук, профессор И. И. Резвицкий — освещает (   Читать дальше...   )Жанр: История, политология, философия, психология, социологияИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1196B53C84EDF43206E98B6B83C265EA1966694C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850521   (1054693) от 29.01.2026
+
+И.Н. Сиземская | Человек и труд: условия гармонии и развития [Социально-философский анализ общественного производства] (1981) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054693.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге кандидата философских наук И. Н. Сиземской рассматриваются актуальные вопросы развития труда и человека в условиях социализма. Как соотносятся между собой экономическая эффективность и гуманистическая ценность производственной деятельности, экономический рост и духовный прогресс общества, профессионализм и свободная самодеятельность? Автор показывает, что (   Читать дальше...   )Жанр: История, политология, публицистика, экономика, философияИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC32F8168DECA976075A7CE39AED68CD6EE6B50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850824   (1054633) от 30.01.2026
+
+Alfred Hassner, Irishi Namboothiri, Meir Golan | Organic Syntheses Based on Name Reactions. A Practical Encyclopedic Guide to Nearly 800 Transformations. 4th Edition (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Organic Syntheses Based on Name Reactions is an invaluable reference book for organic chemists in academia and industry. In continuation of Hassner and Namboothiri’s popular 3rd Edition, this new edition with full colored graphics covers nearly 800 reactions, with numerous chemo-, regio- and stereoselective reactions. A diligently prepared summary of important information (   Читать дальше...   )Жанр: Organic Chemistry, ChemistryЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A8AA739F5B384E3379C9F20C7F92F7417D624C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850822   (1054632) от 30.01.2026
+
+G. Miller, Scott Spoolman, Danielle Andrews-Brown | Environmental Science (MindTap Course List). 17th Edition (2024) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Discover Miller/Spoolman/Andrews-Brown's ENVIRONMENTAL SCIENCE, 17th Ed., and get inspired to care for the planet. Written in collaboration with National Geographic Learning, this edition equips you with the tools and knowledge to make a difference in today's environmental issues. Explore exclusive content featuring the important work of diverse National Geographic (   Читать дальше...   )Жанр: Environmental Studies, Environmental ScienceЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1E792FD8947133479D76FD1D16D57DF73F25F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850821   (1054631) от 30.01.2026
+
+Emily Schlickman, Brett Milligan | Design by Fire. Resistance, Co-Creation and Retreat in the Pyrocene (2023) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Across the world, the risks of wildfires are increasing and expanding. Due to past and current human actions, we dwell in the age of fire – the Pyrocene – and the many challenges and climate adaptation questions it provokes. Exploring our past and current relationships with fire, this book speculates on the pyro futures yet to be designed and cared for.
+
+Drawing (   Читать дальше...   )Жанр: Landscape Architecture, Urban & Land Use Planning, Environmental ScienceЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BC0235C52251C8FBF749943EC45DD5FB6EE0B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

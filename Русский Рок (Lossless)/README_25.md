@@ -1,61 +1,3 @@
-###  Публикация: 1548459   (598362) от 03.05.2022
-
-Bastard Folk - Трактир на перекрестке (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Эй, налей [00:03:20]
-02 - Раз весёлый каннибал [00:02:20]
-03 - Ведьмина вода [00:02:53]
-04 - Кот за дрот [00:03:21](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EE46AC2FA582F100D95AFDC9214AEE0977FA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914290   (597975) от 02.07.2015
-
-Браво - Grand Collection (2008) [FLAC|image+.cue]<Rock, Rock-n-Roll>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Король Оранжевое Лето
-02. Верю я
-03. Московский бит
-04. Будь со мной(   Читать дальше...   )Жанр: Rock, Rock-n-RollПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B00B37A57CF2B3107F384781468128F01F5F1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039236   (597265) от 31.07.2016
 
 Давид Тухманов и группа Москва - НЛО (1982) Reissue, 2007 [FLAC|Lossless|image + .cue] <Art Rock, Pop Rock>
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597265.jpg" />
 </div>
 
 
@@ -93,7 +35,7 @@ IZTUMANA - Zoomorph (2014) [APE|Lossless|image + .cue] <Space-Rock, Psychedelic 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596178.jpg" />
 </div>
 
 
@@ -122,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_595753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_595753.jpg" />
 </div>
 
 
@@ -162,7 +104,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593901.jpg" />
 </div>
 
 
@@ -191,7 +133,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593518.jpg" />
 </div>
 
 
@@ -220,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593063.jpg" />
 </div>
 
 
@@ -250,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593010.jpg" />
 </div>
 
 
@@ -279,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592998.jpg" />
 </div>
 
 
@@ -308,7 +250,7 @@ The Faceless Hunter - One Minute to Midnight (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590754.jpg" />
 </div>
 
 
@@ -337,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590750.jpg" />
 </div>
 
 
@@ -366,7 +308,7 @@ Morok - Вне света & На круги своя (1997) 2CD, Remastered & Re
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590228.jpg" />
 </div>
 
 
@@ -395,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590192.jpg" />
 </div>
 
 
@@ -424,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589424.jpg" />
 </div>
 
 
@@ -453,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588184.jpg" />
 </div>
 
 
@@ -482,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585851.jpg" />
 </div>
 
 
@@ -511,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584324.jpg" />
 </div>
 
 
@@ -540,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581871.jpg" />
 </div>
 
 
@@ -569,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578203.jpg" />
 </div>
 
 
@@ -598,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_577821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_577821.jpg" />
 </div>
 
 
@@ -633,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574430.jpg" />
 </div>
 
 
@@ -662,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573812.jpg" />
 </div>
 
 
@@ -691,7 +633,7 @@ Znaki - Видеть больше (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572521.jpg" />
 </div>
 
 
@@ -720,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572429.jpg" />
 </div>
 
 
@@ -749,7 +691,7 @@ Siberian Meat Grinder - Hail To The Tsar , Versus The World (2015) [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570953.jpg" />
 </div>
 
 
@@ -763,6 +705,61 @@ Siberian Meat Grinder - Hail To The Tsar , Versus The World (2015) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8D19999E190F23BC039133B0881B64C02E35775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 223406   (570790) от 05.08.2010
+
+Хард-рок баллады из России vol.1 (2005) [FLAC | Lossless]< Rock >
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_570790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922192   (569800) от 28.07.2015
+
+Ночные снайперы - Star Hit Звёздная коллекция (2010) [FLAC|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 31-я весна [4:01]
+02. Катастрофически [3:23]
+03. Актриса [4:14]
+04. Асфальт [3:17](   Читать дальше...   )Жанр: RockПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504E3D9DDF9837E91F1EE05455835181064BE833
 ```
 
 https://mybot314.ru/tekegram_catalog/

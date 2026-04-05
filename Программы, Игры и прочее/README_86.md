@@ -1,3 +1,107 @@
+###  Публикация: 1834476   (250402) от 03.11.2025
+
+OsmAnd+  Карты & GPS Офлайн v5.2.7 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250402.jpg" />
+</div>
+
+
+###  Подробнее
+
+OsmAnd+ - это приложение с картами всего мира на основе OpenStreetMap (OSM). Позволяет осуществлять навигацию с учётом предпочитаемых дорог и габаритов транспортного средства. Планировать маршруты с учетом уклонов и записывать GPX треки без подключения к интернету. OsmAnd+ является приложением с открытым исходным кодом. Мы не собираем данные о пользователях и вы (   Читать дальше...   )Тип издания: Live ModРелиз состоялся: 02.11.2025Разработчик: OsmAndПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B946E21EB593BB247F60A9CF0CB32F4CBC93C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834482   (250397) от 03.11.2025
+
+Jigsawscapes® - Пазлы v4.2.7 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пазлы — игра-головоломка для взрослых в хорошем качестве. Любимая миллионами, увлекательная игра в магазине Google Play. Вы можете скачать бесплатную игру в пазлы для телефона или планшета Android. Она поможет вам держать мозг в тонусе и отвлечься от повседневных забот. Пазлы развивают ваше логические мышление и укрепляют память. Игра в пазлы - это хороший способ (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 02.11.2025Разработчик: Oakever GamesПоддерживаемая ОС: Android 7.0+Жанр: Головоломка, ПазлыЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C502E999467F42F852BB07793F4249ACF271A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834440   (250396) от 03.11.2025
+
+Picsart AI Photo Editor, Video v28.7.3 Gold Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к сообществу Picsart, насчитывающему более 150 миллионов авторов по всему миру. С помощью фоторедактора и видеоредактора Picsart AI вы сможете воплотить свои творческие идеи в жизнь. Создавайте с помощью инструментов искусственного интеллекта, создавайте коллажи профессионального уровня, создавайте и добавляйте наклейки, быстро удаляйте и меняйте (   Читать дальше...   )Тип издания: Full / GoldРелиз состоялся: 02.11.2025Разработчик: PicsArt, Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD830D969F1DDEE444253702F95881C325A07421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834383   (250393) от 03.11.2025
+
+Exo Player - Видеоплеер и IPTV v2.0.6 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой видеопроигрыватель с поддержкой 4K и 8К и расширенными возможностями. Позволяет транслировать видео через Google Cast, устанавливать в качестве статуса WhatsApp да воспроизводить оное в плавающем окне. 📱Приложение работает безупречно, что позволяет смотреть видео без задержек и перерывов. Он также оптимизирован для использования аккумулятора, поэтому (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 02.11.2025Разработчик: I N F I N I T YПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB31691F1B0443EDA731778F6629E2A7855E073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834437   (250392) от 03.11.2025
 
 All File Reader and Viewer v54 Mod by vadj [Ru/Multi]
@@ -6,7 +110,7 @@ All File Reader and Viewer v54 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250392.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250391.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ GO Weather EX Premium 6.162 Mod by Balatan, tasker67 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250322.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250313.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Meditopia: Сон и Медитация 3.24.0 Mod by ApkDone Team [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250209.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Screen Stream Mirroring Pro 2.7.0c Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250204.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ PhotoLayers v4.0.0 [En/Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250190.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Garmin: TOPO Sweden v6 PRO [Sv]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250116.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Garmin: TrekMap Italia v6 PRO [It]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250110.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250070.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Pure Tuber: Block Ads on Video (Ранее. Vanced Tuber) 3.8.0.101 Mod by Valik
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249769.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ OD VPN - Fast & Stable Server Premium v3.5.1 b3501 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249697.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249393.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249338.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Seven / 7 Минут Упражнение v9.24.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249336.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Gallery - Photo Gallery, Album (XGallery) v2.0.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249335.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ AirBrush: ИИ Фоторедактор v7.19.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249333.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ BikeComputer Pro v9.2.4 GP Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249332.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Remini / Улучшение Фото v3.7.1156.202517454 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249049.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249046.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ Ventusky: Прогноз погоды v48.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248601.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248599.jpg" />
 </div>
 
 
@@ -564,115 +668,6 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.3 Mod by vadj [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B174B9D9220CCD1BA05BBFAD799D4D0FFE0752C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833976   (248597) от 02.11.2025
-
-ТВ+ Эфир: Цифровое телевидение v4.2.5 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248597.jpg" />
-</div>
-
-
-###  Подробнее
-
-TV+: Бесплатное Онлайн Телевидение
-Погрузитесь в мир бесплатного онлайн телевидения с приложением TV+. Насладитесь основными российскими телеканалами в HD качестве, а также региональным цифровым ТВ прямо на вашем телефоне. С TV плюс вы всегда на связи с любимыми передачами и шоу!Тип издания: ModРелиз состоялся: 02.11.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D794D3638686A4C1A6F4163EB7FCAA4FD07CC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833964   (247855) от 02.11.2025
-
-Talksy: Навык общения v0.1.8 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весьма оригинальное приложение, способное помочь вам в совершенствовании навыков общения. Позволяет тренировать как словарный запас разговорной речи, так и чёткость, дикцию, качество общения. В приложении предоставлено множество полезных заданий.Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: Korop AppsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4A2F506378A128578845762A69792A18EEADF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833965   (247853) от 02.11.2025
-
-Food.ru: пошаговые рецепты v02.14.00 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Food.ru — это пошаговые рецепты и мобильное приложение про все, что связано с едой. Любите готовить и хотите получать новые рецепты бесплатно? Или учитесь готовить еду и хотите делать правильно все, от готовки до сервировки? Тогда вам поможет наша база знаний:
-- кулинарные обзоры;
-- советы от шеф-поваров;
-- подборки и лайфхаки;(   Читать дальше...   )Тип издания: ModРелиз состоялся: 01.11.2025Разработчик: X5MediaПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F837A18922EA73C925560AD0B8E19BC2AA7C7CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833977   (247837) от 02.11.2025
-
-Sipnetic v1.1.8 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весьма недурственное (по утверждению разработчика) приложение для SIP-телефонии. Обширные настройки качества и безопасности подтверждают данное мнение. Ничего лишнего.
-Sipnetic – это бесплатный программный IP-телефон, разработанный на базе протокола SIP. Приложение позволяет подключаться к вашему провайдеру VoIP, облачной АТС или корпоративному серверу телефонии.Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: IPTONПоддерживаемая ОС: Android 4.0.1+ (реком. 7.0+)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B761532FCAD7EF4F8216392186D8A8F525E808
 ```
 
 https://mybot314.ru/tekegram_catalog/

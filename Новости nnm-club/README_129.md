@@ -1,3 +1,55 @@
+###  Публикация: 911569   (613723) от 24.06.2015
+
+Убей меня три раза / Kill Me Three Times (2014) BDRip [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая женщина, живущая в австралийском городке, является нитью, которая связывает три истории - убийства, шантажа и мести.Производство: США, Австралия / Cargo Entertainment, Feisty Dame Productions, Media House Capital, Parabolic Pictures Inc., Stable Way EntertainmentЖанр: Триллер, Криминал, КомедияРежиссер: Крив СтендерсАктеры: Саймон Пегг, Стив Ле Маркванд, Алиси Брага, Тереза Палмер, Салливан Степлтон, Люк Хемсворт, Каллэн Мулвей, Брайан Браун, Антонио Баримен, Дэниэл БеренджерПеревод: Многоголосый закадровый, любительский (BadCatStudio), Одноголосый закадровый, любительский (PashaUp)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Full), Английский (Full)Продолжительность: 01:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D960D599B389CD5A366CBA9F34EAFA43A4B3620D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230652   (613642) от 13.06.2018
+
+foobar2000 1.3.18 Final DarkOne + DUIFoon Portable by MC Web [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613642.jpg" />
+</div>
+
+
+###  Подробнее
+
+foobar2000 - это аудиоплеер, подкупающий своим весьма качественным звуком, имеющий широкие возможности настройки, спартанский непритязательный интерфейс и довольно низкие системные требования. Foobar проигрывает файлы многих форматов: MP3, MP1, MP2, MP4, MPC, Ogg Vorbis, AAC, FLAC / Ogg FLAC, WavPack, AIFF, AU, WAV, SND, CDDA, WMA (для lheubt форматов нужны соответствующие (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9B03124D836C49022A1C04C2880CC0D0E1A10B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142800   (613533) от 13.06.2018
 
 RAGE (2011) [Ru] (1.0.35.4669/dlc) Rip Other s [Anarchy Edition]
@@ -6,7 +58,7 @@ RAGE (2011) [Ru] (1.0.35.4669/dlc) Rip Other s [Anarchy Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613533.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Titan Quest (2016) [Ru/En] (1.56/dlc) Repack R.G. Механики [Anniversary 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613531.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613485.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_613195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_613195.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Ra Bright Edition 2016 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613117.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ DU Battery Saver Pro 4.2.0.2 [Rus/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613110.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4405.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613107.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613003.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612605.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612555.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Acronis True Image Home 2012 Update 2.1 Build 7133 Plus Pack + Acronis Disk Dire
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612484.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611975.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Minecraft (2011) [Ru/Multi] (1.8.7) RePack YaKrevetko
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611967.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611934.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611925.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611763.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ BELOFF 2016.7.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611386.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Sniper: Ghost Warrior 2 (2013) [Ru] (1.09/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611375.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611351.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ ANIMUSIC-2 (2005) DVD-9 DL
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611306.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ CrossOver Linux 13.2.0 [x86-x64] (deb, rpm, bin)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611297.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611286.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610826.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_610719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_610719.jpg" />
 </div>
 
 
@@ -632,67 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854235   (610694) от 01.07.2017
-
-Office HD: TextMaker, PlanMaker и Presentations v2016.767.0623 Patched [Ru/Multi] - мощный офисный пакет для планшетов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный офисный пакет для планшетов, а не для смартфонов. Самый серьезный офис для андроид - немцы максимально скопировали MS Office. Одни инструкции на textmaker и planmaker - по 500 и 700 страниц. Planmaker имеет даже некоторые функции, которых нет в Excel, разве что макросы не поддерживаются.Тип издания: Пиратка / ВзломанаРелиз состоялся: 27.06.2017Разработчик: SoftMaker Software GmbHПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911D7F16925ECA0D1B67D72EBB483EDD2CE232AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524796   (610637) от 19.07.2012
-
-VA - Музыка к фильму Брат, Брат2 (3CD) (2012) [MP3|320 кб/с]<Саундтрек, rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смысловые Галлюцинации — Розовые очки
- 02. Океан Ельзи — Кавачай
- 03. Сплин — Молоко и мед
- 04. Воплi Вiдоплясова — День народження
- 05. Павел Кузьмин & Жанна — Верю я
- 06. Настя — Ветер
- 07. Би-2 — Свадебная
- 08. Телевизор — Ты на пути в чикаго
- 09. Танкi — Возьми меня силой
- 10. Сергей Савин — С тобой(   Читать дальше...   )Жанр: Саундтрек, rockПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E91065C8666F4E72B3B8E71375A84D4307292A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

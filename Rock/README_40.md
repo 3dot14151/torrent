@@ -6,7 +6,7 @@ William D. Drake - Revere Reach (2015) [MP3|320 кб/с]<Progressive Rock, Alter
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612909.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Solstice Coil - Commute (2015) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612907.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lloyd Project - Shelter (2015) [MP3|320 кб/с]<Progressive / Art Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612898.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Led Zeppelin - Ottawa Sunshine (1998) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612740.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dark - Dark (2015) [MP3|320 кб/с]<Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612693.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Aristocrats - Tres Caballeros (2015) [MP3|320 кб/с]<Progressive Rock, Jaz
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612692.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Frank Zappa - Dance Me This (2015) [MP3|320 кб/с]<Progressive Rock, Experimen
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612519.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Herman's Hermits - The Best Of Herman's Hermits (2015) [MP3|320 Kbps] <Rock, Bea
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612028.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sanguine Hum - 3 альбома (2012-2015) [MP3|320 кб/с]<Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610886.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Cindy Alter - Faith And Fire (2015) [MP3|320 кб/с]<Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610879.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ad Astra - 2 альбома (2008-2015) [MP3|320 кб/с]<Progressive Rock, Symp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610769.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Emmy Lou & The Rhythm Boys - Tag Along With... (2013) [MP3|320 Kbps] <Rockabilly
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609726.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bishop Black - Scraping Through the South (2014) [MP3|320 Kbps] <Blues Rock, Sou
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609724.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Emmy Lou & The Rhythm Boys - Roller Coaster Ride (2015) [MP3|320 Kbps] <Rockabil
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609719.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Devil's Daughters with Danny B. Harvey - The Devil's Daughters (2014) [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609496.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Brainstorm - Чайки на крышах (2013) [MP3|320 кб/с]<Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608684.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Apogee - The Art Of Mind (2015) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607232.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Rolling Stones - Honk (2019) Deluxe [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606451.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Stone The Crows - Teenage Licks (1971) [MP3|320 кб/с]<Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605359.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Fuse - Fuse (2010) [MP3|320 Kbps] <Rock, Electric Violin Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605051.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Chris Norman - Golden Hits (2011) 2CD [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605009.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604982.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604268.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Not Drowning, Waving - Claim (серия "Другие восьмидесяты�
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604060.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Skys - Automatic Minds (2019) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604049.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Klabautermann - Innsia Ut (2017) [MP3|320 Kbps] <Norway Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603910.jpg" />
 </div>
 
 

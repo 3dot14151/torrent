@@ -1,3 +1,90 @@
+###  Публикация: 1562081   (509020) от 09.07.2022
+
+Journey - Freedom (2022) [MP3|320 Kbps] <Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Together We Run (4:49)
+02. Don't Give Up On Us (5:23)
+03. Still Believe In Love (5:16)
+04. You Got The Best Of Me (5:33)(   Читать дальше...   )Жанр: Rock, AORПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19EF326AB40E7DC1C57C9A526002302F071BCD12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562373   (508952) от 09.07.2022
+
+Dreamtide - Drama Dust Dream (2022) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508952.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stop Being Deep  04:22
+2. Spin  05:30
+3. Around  05:06
+4. Ni Dos Ni Agua  02:45(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C7E7DC46E17CD28952557D65930D10E0F98BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562045   (508941) от 09.07.2022
+
+Imagine Dragons - Mercury - Acts 1 & 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Electronic, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508941.jpg" />
+</div>
+
+
+###  Подробнее
+
+15. Bones
+16. Symphony
+17. Sharks
+18. I Don't Like Myself(   Читать дальше...   )Жанр: Indie Rock, Electronic, Alternative RockПродолжительность: 01:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22DD6F4E1F5ECB78E953034BA66BAF596787F535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562237   (508935) от 09.07.2022
 
 Within Temptation - Don't Pray For Me (2022) EP [MP3|320 Kbps] <Metal>
@@ -6,7 +93,7 @@ Within Temptation - Don't Pray For Me (2022) EP [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508935.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508931.jpg" />
 </div>
 
 
@@ -61,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508906.jpg" />
 </div>
 
 
@@ -90,7 +177,7 @@ Oxford Collapse - Some Wilderness (2004) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508903.jpg" />
 </div>
 
 
@@ -119,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508901.jpg" />
 </div>
 
 
@@ -148,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508899.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ Craig Finn - Faith in the Future (2015) [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508897.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508851.jpg" />
 </div>
 
 
@@ -235,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_508850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_508850.jpg" />
 </div>
 
 
@@ -264,7 +351,7 @@ Craig Finn - We All Want The Same Things (2017) [FLAC|Lossless|tracks + .cue] <I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508838.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ Craig Finn - I Need a New War (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508837.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508833.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ Biffy Clyro - MTV Unplugged (2018) Live at Roundhouse London [FLAC|Lossless|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508830.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Biffy Clyro - Ellipsis (2016) Japan [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508828.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Through Fire - All Animal (2019) [MP3|320 kbps] <Alternative Metal, Modern Rock,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508827.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508720.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Mungo Jerry - Cool Jesus (2011) [MP3|320 кб/с]<Rock, Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508642.jpg" />
 </div>
 
 
@@ -502,7 +589,7 @@ Zonaria - Arrival Of The Red Sun (2012) [FLAC|Lossless]<Melodic Death Metal/Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508640.jpg" />
 </div>
 
 
@@ -529,41 +616,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 538788   (508633) от 24.08.2012
-
-Grave - Endless Procession of Souls (2012) [FLAC|Lossless]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dystopia (0:33)
-02. Amongst Marble And The Dead (5:21)
-03. Disembodied Steps (5:42)
-04. Flesh Epistle (3:24)
-05. Passion Of The Weak (4:35)
-06. Winds Of Chains (5:38)
-07. Encountering The Divine (3:54)
-08. Perimortem (4:41)
-09. Plague Of Nations (3:35)
-10. Epos (7:43)Жанр: Death MetalПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538771   (508501) от 24.08.2012
 
 V.A. - A Tribute to Чёрный Обелиск XXV (2012) [FLAC|Lossless]<Heavy Metal>
@@ -572,7 +624,7 @@ V.A. - A Tribute to Чёрный Обелиск XXV (2012) [FLAC|Lossless]<Heavy
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508501.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Captain Marryat - Captain Marryat (1974) [MP3|320 кб/с]<Rock, Psychedelic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508321.jpg" />
 </div>
 
 
@@ -636,7 +688,7 @@ Chris - Days Of Summer Gone (2013) [MP3|320 кб/с]<Art Rock, Prog Rock, Sympho
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508239.jpg" />
 </div>
 
 
@@ -665,7 +717,7 @@ Black Light Burns - Cruel Melody (2008) Limited Edition [MP3|320 кб/с]<Altern
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508230.jpg" />
 </div>
 
 
@@ -694,7 +746,7 @@ Led Zeppelin - Studio Discography (1969-1982) 10 Remastered CD /2012, KronStudio
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508218.jpg" />
 </div>
 
 
@@ -705,64 +757,6 @@ Led Zeppelin - Studio Discography (1969-1982) 10 Remastered CD /2012, KronStudio
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232371   (508193) от 01.09.2010
-
-Papa Roach - Time For Annihilation... On the Record & On the Road (2010) [FLAC|Lossless]<Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn (3:26)
-02. One Track Mind (3:26)
-03. Kick In The Teeth (3:11)
-04. No Matter What (3:33)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562531   (508159) от 10.07.2022
-
-Negative 13 - Mourning Asteri (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Scars Are Showing Again (00:04:04)
-02 - Never Ending Exit Wound (00:03:19)
-03 - Pain Prism (00:05:50)
-04 - Mourning Asteri (00:02:28)(   Читать дальше...   )Жанр: Sludge Metal, Doom MetalПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF8973793095CD8EC80D6179BFDB3B3340D1B41
 ```
 
 https://mybot314.ru/tekegram_catalog/

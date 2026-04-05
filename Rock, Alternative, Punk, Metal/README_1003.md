@@ -1,3 +1,32 @@
+###  Публикация: 1427479   (183490) от 28.11.2020
+
+She Hates Emotions - Melancholic Maniac (2020) [FLAC|Lossless|tracks + .cue] <Gothic Rock, Darkwave, Synth Gothic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's A Dreamer (Intro)
+02. Edge Of The Night
+03. City Lights
+04. The Final Dance(   Читать дальше...   )Жанр: Gothic Rock, Darkwave, Synth GothicПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874634A3199E3D2EB7FA360735EE0C8465C152DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427513   (183444) от 28.11.2020
 
 Jon Anderson - Song of Seven (1980) 2020 Remastered & Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Art Rock>
@@ -6,7 +35,7 @@ Jon Anderson - Song of Seven (1980) 2020 Remastered & Expanded Edition [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183444.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Autumn, Leaves, Scars - Unter dem Füsse der trauerd Winde (2021) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183350.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Disturbed - Evolution (2018) Deluxe Edition [FLAC|Lossless|image + .cue] <Nu Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183340.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dream Theater - Distant Memories: Live In London (2020) 3xCD, Bonus Track Editio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183314.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183303.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Graveyard - 6 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock, Hard Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183293.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ We Blame The Empire - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183291.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Alien Autopsy - Cosmic Inception (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183287.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Law of Contagion - Oecumenical Rites for the Antichrist (2022) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183283.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Doodseskader - Year One (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Grun
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183277.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ We Killed The Lion - Boogie Shoe Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183272.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Mono Inc. - Melodies in Black (2020) 2xCD [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183266.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Legal Hate - Moral Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183262.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Alanis Morissette - Jagged Little Pill (1995) Maverick 9362-45901-2 [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183258.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Mindless Paradise - Faerie's Aire and Death Waltz (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183256.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Powerhead - Curse Of Stone (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183249.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Mister Earthbound - Shadow Work (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183243.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183238.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Lawful Killing - The First Division (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183227.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183214.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Foreigner - The Can't Slow Down: B-Sides and Extra Tracks (2020) [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183208.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183201.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Era of Discord - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183198.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Tommy Gunn - La Peneratica Svavolya (2009) [APE|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183196.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Leaves' Eyes - The Last Viking (2020) 2xCD, Limited Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183181.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ CD - 1 - The Last Viking:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E85D8598B9C459824E4B569C90AAB18B08A03C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592492   (183158) от 23.11.2022
-
-Paragon - Controlled Demolition (2019) [FLAC|Lossless|image + .cue] <Power, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Controlled Demolition
-02. Reborn
-03. Abattoir
-04. Mean Machine(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6DEF15C56C57AB6EA1457D32383922D4E83040
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sinclair Intimacy Institute, Марк Шон | Pro секс: Обратная с
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174234.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173864.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173151.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Sinclaire Institute | Секреты совершенного секса [2005] 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173078.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Mark Schoen | Секреты совершенного секса / The Better Se
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173065.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172882.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Patricia Llewellyn | Жить Вкусно с Джейми Оливером / Ja
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172712.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172706.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172695.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ OratoricaMedia, Владимир Тарасов - Искусство управ�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172694.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ SovaFilm, Игорь Пелинский | Худеем с умом! Меню д�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172558.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172529.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Mark Schoen | Увлекательный секс: Продвинутая сек
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172151.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171633.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171478.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Udemy, Krista King | Станьте Мастером Математическо�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170379.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167605.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163031.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Skillbox, Андрей Котельников, Никита Акулич | По�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162228.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ PBS, Джозеф Кэмпбелл, Билл Мойерс | Сила Мифа (1
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162128.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160975.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160778.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Level One, Анна Петрова | Грамотность без зубреж�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160766.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Skillbox, Евгений Мирошниченко  | Шахматы с нуля 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154498.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147108.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Klaus | Зеркало Интернета 2. Поиск приватной ин�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146234.jpg" />
 </div>
 
 

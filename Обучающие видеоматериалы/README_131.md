@@ -1,3 +1,30 @@
+###  Публикация: 1551257   (590054) от 15.05.2022
+
+FlippedNormals, Morten Jaeger | Stylized Character Sculpting in Zbrush - Majora & Skull Kid (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590054.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом 10-часовом курсе мы шаг за шагом рассмотрим, как создать Skull Kid с маской Майоры из франшизы "Легенда о Зельде". Вы сможете следить за каждым шагом, так как ничего не пропущено и не ускорено.
+К каждой главе есть полный комментарий, дающий вам представление о том, как работает профессиональный художник персонажей ZBrush.Производство: FlippedNormalsЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 09:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166BDDB141D2B1E98D5246F04068C5243B630CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551283   (590048) от 15.05.2022
 
 Stepik, Артем Егоров | Объектно-ориентированное программирование на Python (2022) WEB-DL [AD] [RU]
@@ -6,7 +33,7 @@ Stepik, Артем Егоров | Объектно-ориентированно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590048.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Geekbrains | Основы программирования (2015) PCRec [H.264/7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589409.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ AnimSquad, Zach Parrish & Brent Homman | Master Class: Disney's Zach Parrish & B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589311.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589267.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ Animsquad, Zach Parrish | Master Class: Animating a Cartoony Shot (2016) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589265.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ Udemy, Aleksandr Ponov | Автоматизация тестирования+П�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589205.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ Ultimate Photo Course | The Ultimate Wildlife Photography Bundle (2021) PCRec [A
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588876.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ Kelly Brown | Newborn Poses Bundle (2020) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588873.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ Nate Photographic, Nate Johnson | Lightroom Mastery Bundle (2008) PCRec [AD] [EN
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588848.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ Arno de Bruijn | Online Workshop Off-Camera Flash + MagMod (2022) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588454.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ The Gnomon Workshop, Taylor Whitsett | Character Rigging in Maya for Game Produc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588359.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587825.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587822.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587287.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ Udemy.Рудь И | Планирование и установка Skype for Bus
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587123.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ Larry Jordan |  Final Cut Pro X Workflow and Editing - Final Cut Pro X Рабо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586782.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586661.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586628.jpg" />
 </div>
 
 
@@ -488,7 +515,7 @@ e-Legion & Google | Онлайн-школа android-разработчиков (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586621.jpg" />
 </div>
 
 
@@ -516,7 +543,7 @@ Pluralsight, Delano Athias | Rigging Tank Treads in Maya (2013) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586582.jpg" />
 </div>
 
 
@@ -542,7 +569,7 @@ Udemy, Никита Хохлов | Python ООП - С нуля до Профи" 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586505.jpg" />
 </div>
 
 
@@ -568,7 +595,7 @@ English Club TV Ltd | Basic Lexis - Elementary (A1) — Начальный ур�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585925.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585823.jpg" />
 </div>
 
 
@@ -620,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585733.jpg" />
 </div>
 
 
@@ -648,7 +675,7 @@ MrChipTricks и др.| Трюки с фишками / Chip Tricks (2017) CamRip 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585113.jpg" />
 </div>
 
 
@@ -659,34 +686,6 @@ MrChipTricks и др.| Трюки с фишками / Chip Tricks (2017) CamRip 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA0C72047E004B955C08DB3B89CED92012E7EB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357772   (584860) от 03.07.2011
-
-Б.К.С. Айенгар | Мастер-класс в Москве [2009] DVDRip
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о семинаре Б.К.С. Айенгара (Апрель 2009 г.) (Айенгара Йога). Самый известный йогин нашего времени - 90-летний гуру Шри Айенгар посетил Москву по приглашению Йога-журнала и провел мастер-классы для нескольких тысяч российских учеников йоги.
-С 23 по 26 апреля прошла очередная конференция Yoga Journal. На этот раз она была полностью посвящена одному человеку – Б.К.С. Айенгару
-На 9 DVD - подробный отчет о пребывании Учителя в Москве, более 20 часов теории и практики йоги Айенгара - из первых рук. Уникальный фильм включает в себя приветственное слово Гуруджи, 4 мастер-класса под его руководством, 4 класса пранаямы с Фаеком Бирия, Манусо Маносом и Патчи Лизарди, сессию вопросов и ответов, репортажи о приеме в посольстве Индии и визите Айенгара в московские центры йоги, видеоотчеты о пресс-конференции Гуруджи и посвященном ему йога-шоу.Жанр: ЙогаПродолжительность: 12:30:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

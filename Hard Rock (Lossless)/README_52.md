@@ -1,3 +1,90 @@
+###  Публикация: 1168192   (410344) от 23.09.2017
+
+Def Leppard - Best Of (2004) Limited Edition, 2CD [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Rock (3:56)
+02. Waterloo Sunset (3:46)
+03. Promises (4:00)
+04. Slang (2:38)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D6761DE064FC96BBD4EE396A7BF980C1E53D8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168337   (410334) от 23.09.2017
+
+Deep Purple - Fireball (1971) Anniversary Edition, Remastered, 1996, EMI [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fireball (3:25)
+02. No No No (6:54)
+03. Demon's Eye (5:21)
+04. Anyone's Daughter (4:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F277116671F2493816841F35D1092C7BA91010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168315   (410254) от 23.09.2017
+
+Deep Purple - In Rock (1970) Anniversary Edition, Remastered, 1995, EMI [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speed King (5:53)
+02. Bloodsucker (4:13)
+03. Child In Time (10:18)
+04. Flight Of The Rat (7:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E89C99940C67AB45B463B37061F89CF1A1A7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066591   (410084) от 27.10.2016
 
 Anatomic - In For The Thrill (2000) [APE|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +93,7 @@ Anatomic - In For The Thrill (2000) [APE|Lossless|image + .cue] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410084.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Asphalt Valentine - Strip Rock Roll (2009) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410083.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Art Nation - Liberation (2017) Sony Music [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408612.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Steve Lee (Gotthard) - The Eyes of a Tiger: In Memory of Our Unforgotten Friend!
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408340.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ David Lee Roth - 8 Albums, 1 EP (1985 - 2013) 10 CD [FLAC|Lossless|image + .cue|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408098.jpg" />
 </div>
 
 
@@ -148,7 +235,7 @@ Alter Bridge - Live At The Royal Albert Hall Featuring The Parallax Orchestra (2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407909.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ Cinderella - The Mercury Years (2018) 5CD Box Set [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407810.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ King's X - Three Sides Of One (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407491.jpg" />
 </div>
 
 
@@ -235,7 +322,7 @@ Slade - Cum On Feel the Hitz: The Best of Slade (2020) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407128.jpg" />
 </div>
 
 
@@ -264,7 +351,7 @@ Billy Idol - The best (1994) [FLAC|Lossless|image + .cue] <Punk Rock,  Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404895.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ Twisted Sister - 11 альбомов, 19CD (1982-2016) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404727.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Baroness - Yellow & Green (2012) 2CD [FLAC|Lossless]<Stoner / Progressive Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404184.jpg" />
 </div>
 
 
@@ -356,7 +443,7 @@ Deep Purple - Machine Head (1972) 4 Remastered CD Box Set /2012, EMI Records/ [W
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399837.jpg" />
 </div>
 
 
@@ -390,7 +477,7 @@ UFO - The Salentino Cuts (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398515.jpg" />
 </div>
 
 
@@ -419,7 +506,7 @@ Survivor - 8 Albums, 5 Compilations, 1 Live (1979 - 2006) 36 CD [FLAC|APE|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397437.jpg" />
 </div>
 
 
@@ -448,7 +535,7 @@ Jimi Jamison (Target, Cobra and Solo Albums) - 9 Albums (1976 - 2012) [FLAC|APE|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394725.jpg" />
 </div>
 
 
@@ -477,7 +564,7 @@ Nordic Union - Animalistic (2022) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388047.jpg" />
 </div>
 
 
@@ -506,7 +593,7 @@ Pat Travers - The Art of Time Travel (2022) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388044.jpg" />
 </div>
 
 
@@ -535,7 +622,7 @@ Femme Fatale - One More For The Road (2016) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388040.jpg" />
 </div>
 
 
@@ -564,7 +651,7 @@ Gun - Favourite Pleasures (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387526.jpg" />
 </div>
 
 
@@ -593,7 +680,7 @@ Sven Gali - Sven Gali (1993) Japan [APE|Lossless|image + .cue] <Hard Rock, Glam>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385118.jpg" />
 </div>
 
 
@@ -622,7 +709,7 @@ Monster Truck - 3 Albums (2013-2018) [FLAC|Lossless|image + .cue] <Hard Rock, So
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381623.jpg" />
 </div>
 
 
@@ -651,7 +738,7 @@ It's A Beautiful Day - Pacific High Recording Studios (1971) live, 2022, Pacific
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381549.jpg" />
 </div>
 
 
@@ -665,93 +752,6 @@ It's A Beautiful Day - Pacific High Recording Studios (1971) live, 2022, Pacific
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89358A5D08726D3EB7AD9A52348CE1F25D1E1E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574972   (379503) от 08.09.2022
-
-Voltage - Tomorrow Hits Today (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow Hits Today [04:31]
-02. Waitin' for the Sundown [04:30]
-03. Voodoo Doll [04:52]
-04. I'll Be Alright [04:03](   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B7BF5BCC4D043A2C4E6672066AE199FB5D46AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326936   (378780) от 23.09.2019
-
-Place Vendome - 4 Albums (2005-2017) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Place Vendome - проект в который входят бывший вокалист «HELLOWEEN» Михаэль Киске «Michael Kiske» и басист «PINK CREAM 69» Денис Уорд (Dennis Ward) был основан в 2004 году. На выбор названия проекта, предположительно, повлиял фильм Place Vendome (Вандомская площадь, 1998) с участием Катрин Денёв.Список альбомов:
-2005 - Place Vendome
-2009 - Streets Of Fire
-2013 - Thunder In The Distance(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15142409C3B2AB3E3E9A4F0CEAEA31926797B1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175404   (378466) от 18.10.2017
-
-Atomic Rooster - 11 альбомов, 25CD (1970-2016) [FLAC|Lossless|image + .cue, tracks + .cue] <Prog-Rock, Psychedelic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Atomic Rooster — британская рок-группа, образовавшаяся в 1969 году в Лондоне, Англия, и исполнявшая прогрессивный рок. Клавишник Винсент Крейн, единственный постоянный участник группы, был и автором большей части её песенного материала. Три первых альбома Atomic Rooster входили в UK Albums Chart, два сингла группы («Tomorrow Night», #11и «Devil’s Answer», #4) становились (   Читать дальше...   )Список альбомов:
-1970 | Atomic Ro-o-oster
-1970 | Death Walks Behind You
-1971 | In Hearing Of(   Читать дальше...   )Жанр: Prog-Rock, Psychedelic Rock, Hard Rock |Продолжительность: 23:10:08 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B140319C0344511F5C0929E5FF121EB42512ED74
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ TRX TV | Strength (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747707.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TRX TV | Get Mobile (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747706.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TRX TV | Flow Mobility (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747569.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TRX TV | 3D Strong (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747568.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TRX TV | Power (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747565.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ TRX TV | Endurance (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747563.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TRX TV | Absolute Power (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747559.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ TRX TV | StayMobile (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747556.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738664.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Jillian Michaels | Hard Body (2013) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736543.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716170.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689847.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676475.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660733.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655077.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653011.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651772.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648092.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_647659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647659.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645748.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644270.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633831.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Mike Dolce | UFC FIT (2013) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627146.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Shaun T | Shaun Week: Insane Focus (2017) DVDRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627014.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Mike Donavanik | HIIT Workout (2016-2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623266.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Jillian Michaels | Hot Body, Healthy Mommy (2016) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614314.jpg" />
 </div>
 
 

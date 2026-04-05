@@ -1,136 +1,3 @@
-###  Публикация: 1185033   (296760) от 19.11.2017
-
-Александр Мясников | Энциклопедия доктора Мясникова о самом главном [3 тома] (2015-2017) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто не застрахован от болезней. Плохая экология, стрессы на работе, несбалансированное питание могут привести к развитию разных заболеваний. Многие недуги легче предотвратить, чем лечить, но часто мы не знаем, как это сделать.
-Представленные книги – кладезь знаний по медицине, описанных простым и понятным языком. Они подскажут, какие симптомы должны заставить обратиться (   Читать дальше...   )Жанр: Здоровье, Медицина, Энциклопедии, Диагностика заболеванийФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61539002A077A2880806199CB2A5DB34D51F5D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961516   (296710) от 03.12.2015
-
-Л. М. Воронина, В. Н. Пенькова (ред.) | Ангола. Справочная карта (1983) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание содержит подробную справочную карту Анголы с административным делением (масштаб 1:2 500 000) и указатель географических названий. На основном листе есть три врезки: экономическая карта (масштаб 1:7 500 000), климатическая карта (масштаб 1:15 000 000) и карта народов (масштаб 1:15 000 000).Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BDDC944C21CD857B47401F18B380CA355717E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334277   (296577) от 28.10.2019
-
-В.А. Державина | Английский язык. Времена глаголов (2019) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296577.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассматриваются английские времена групп Simple, Perfect и Continuous. Большое внимание уделено сравнению употребления времен, так как именно выбор временной формы часто вызывает трудности у изучающего английский язык.
-
-Сопоставляется употребление Present Simple и Present Continuous, Past Simple и Past Continuous, Present Perfect и Present Perfect Continuous, (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE78326D8E1B942B7540A68091EC9FEDC3B2449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962035   (296299) от 03.12.2015
-
-Книжная серия | Мир Математики [45 книг + 2 Спецвыпуска] (2014) [PDF, DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальная и занимательная коллекция, которая поможет ответить на самые каверзные вопросы математики сопровождающие нас изо дня в день, хотя мы об этом можем даже не догадываться. Увлекательное путешествие через вселенную математики, во время которого вы познакомитесь с ее самыми интересными сторонами, а также с великими мыслителями, которые заложили для нее фундамент. (   Читать дальше...   )Формат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D49DCFDA6459AC92D2EEB932CA528882404C2FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424121   (295310) от 15.11.2020
-
-Н.М. Попов | Измерения в электрических сетях 0,4...10 кВ (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295310.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассмотрено распределение электроэнергии от электростанций до потребителей, приведены приборы и методы для измерений электрических и неэлектрических величин в системах электроснабжения, приводится принцип работы и подключение приборов напрямую и к трансформаторам тока и напряжения, методика измерений в электрических сетях в эксплуатационных условиях, системы (   Читать дальше...   )Жанр: Электротехника, измеренияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9A2F25B7D0FBA64E41164C85BE6143C13F228F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 268629   (295277) от 10.12.2010
 
 Цзинь Синь-Чжун | Китайская народная медицина [1959] [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295277.jpg" />
 </div>
 
 
@@ -167,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295219.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295047.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295045.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295044.jpg" />
 </div>
 
 
@@ -271,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295028.jpg" />
 </div>
 
 
@@ -297,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294943.jpg" />
 </div>
 
 
@@ -323,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294920.jpg" />
 </div>
 
 
@@ -350,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294791.jpg" />
 </div>
 
 
@@ -376,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294621.jpg" />
 </div>
 
 
@@ -402,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294376.jpg" />
 </div>
 
 
@@ -428,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294196.jpg" />
 </div>
 
 
@@ -454,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294182.jpg" />
 </div>
 
 
@@ -480,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294161.jpg" />
 </div>
 
 
@@ -506,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294157.jpg" />
 </div>
 
 
@@ -532,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294154.jpg" />
 </div>
 
 
@@ -558,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294148.jpg" />
 </div>
 
 
@@ -584,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294143.jpg" />
 </div>
 
 
@@ -610,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294100.jpg" />
 </div>
 
 
@@ -639,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294094.jpg" />
 </div>
 
 
@@ -665,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294090.jpg" />
 </div>
 
 
@@ -676,6 +543,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E5636C797632344293B618CF940796BA04D1DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079603   (294088) от 04.12.2016
+
+Я.Л. Ревич и др. | Технология строительного производства (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294088.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге "Технология строительного производства" излагаются современные методы производства строительно-монтажных работ с применением традиционных и новейших материалов и средств механизации.
+ Настоящее пособие может быть использовано студентами строительных, инженерно-экономических  высших  учебных  заведений, обучающихся по специальности 080502 «Экономика (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6574E61606790182CDB4967FACFAAC206485D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078689   (294011) от 04.12.2016
+
+Т.И. Трофимова, А.В. Фирсов | Курс физики. Задачи и решения (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное учебное пособие совместно с учебными пособиями «Курс физики» Т.И. Трофимовой, «Физика в таблицах и формулах» того же автора и «Курс физики. Колебания и волны» Т.И. Трофимовой и А.В. Фирсова составляют единый учебно-методический комплект по физике для студентов втузов. Около половины задач приведены с подробными решениями и объяснениями, остальные предусмотрены (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD677F02AE522122C34FE2932A73667F1E2AEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079641   (294009) от 04.12.2016
+
+Г. А. Капралов, М. С. Шатерникова (сост.) | Мифы и реальность: Зарубежное кино сегодня [10 выпусков из 11] (1971-1989) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель сборников — знакомить читателей с общим положением дел и характерными тенденциями развития современного кинематографа капиталистических стран, выявлять и поддерживать прогрессивные явления, разоблачать все формы и методы, которыми пользуются буржуазные идеологи, поставившие на службу своим целям это популярнейшее и влиятельнейшее из искусств.Жанр: История, экономика, политология, искусство, культурология, киноискусство, эстетикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0408BB1EA5D82F83CBE51378CBA7A851EE6C24B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079126   (293999) от 04.12.2016
+
+С.А. Фролов | Начертательная геометрия (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник соответствует примерной программе по начертательной геометрии для вузов технических направлений. Подчеркнута роль инвариантных свойств ортогонального проецирования в создании теоретической базы курса. Особое внимание уделено способам образования поверхностей, их заданию на эпюре Монжа.
+Для облегчения чтения чертежей они выполнены линиями двух цветов. Кроме (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7164EC3FD8470F88EFBF6F06979F93E038161C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079172   (293988) от 04.12.2016
+
+П.П. Безруких и др. | Ветроэнергетика: Справочно-методическое издание (2014) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293988.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрено современное состояние ветроэнергетики мира, динамика и перспективы ее развития. Изложены теоретические основы ветроэнергетики. Приведены основные особенности режимов работы ВЭУ и ВЭС. Приведены описания конструкций различных типов ВЭУ и схемы главных соединений ВЭУ и ВЭС. Даны текущие и перспективные оценки установленной мощности и вырабатываемой (   Читать дальше...   )Жанр: ЭнергетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5CDE9CA8FDC9F9E41270975E7F6CFC6AE70600
 ```
 
 https://mybot314.ru/tekegram_catalog/

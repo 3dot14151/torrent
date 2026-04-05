@@ -1,3 +1,32 @@
+###  Публикация: 1573171   (414906) от 30.08.2022
+
+Дездемон Сидоров - Велоанархист (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Да здравствует панк! [00:03:16]
+02 - Колосья [00:04:01]
+03 - Велосипед [00:04:30]
+04 - Батарейки (Никто не выйдет отсюда живым) [00:04:05](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C65E802947C5291FAA8B499A735C951E6D48D75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573027   (414905) от 30.08.2022
 
 In Flames - Clayman (2000) Reissue, Remastered, 2020, Nuclear Blast [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -6,7 +35,7 @@ In Flames - Clayman (2000) Reissue, Remastered, 2020, Nuclear Blast [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414905.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Love Affair - The Everlasting Love Affair (1968) Reissue, 2005, Dogtoire [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414868.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Tim Buckley - Greetings From L.A. (1972)[FLAC|Lossless|WEB-DL|tracks] <Funk, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414795.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Volume - The Volume (2022) [MP3|320 Kbps] <Heavy Prog, Psych, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414783.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Lifeburn - Город греха (2022) [MP3|320 Kbps] <Hard & Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414778.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Sepultura - SepulQuarta (2021) Japan Edition [WavPack|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414755.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Omega - Gammapolis & Live At Kisstadion (1979) 2xCD, Compilation, Reissue, 2022,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414751.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Jane's Addiction - Ritual De Lo Habitual (1990) [FLAC|Lossless|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414747.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Enter Shikari - The Spark (2017) [MP3|320 Kbps] <Post-Hardcore, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414707.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Edge Of Sanity - 8 Albums, 2 Compilations, 3 Singles & EP (1990 - 2012) 21CD [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414702.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ NorthTale - Welcome to Paradise (2019) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414677.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Pixies - Head Carrier (2016) [FLAC|Lossless|tracks + .cue] <Alt. Rock, Indie-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414577.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Jeff Loomis - Plains Of Oblivion (Limited Edition) (2012) [FLAC|Lossless]<Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_414528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_414528.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ BlackRain - Dying Breed (2019) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414490.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414407.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414333.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ The Hu - The Gereg (2019) [FLAC|Lossless|Web-DL|tracks] <Rock, Folk, Heavy Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414199.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Pretty Maids - Kingmaker (2016) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414169.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Seether - 11 альбомов (2000-2011) [FLAC|Lossless]<Post-Grunge>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414003.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ TesseracT - Polaris / Errai (2016) 2CD [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413997.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Celestial Bloodshed - Cursed, Scarred And Forever Possessed (2008) [APE|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413995.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Taxxi - Collection (2020) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413993.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Wolfs Moon - Elysium Dreams (1999) [APE|Lossless|image + .cue] <Power Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413992.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Intense - Songs Of A Broken Future (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413989.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_413891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_413891.jpg" />
 </div>
 
 
@@ -724,41 +753,6 @@ https://mybot314.ru/tekegram_catalog/
 08. Класический Депресняк (05:30)
 09. Старик в зазеркалье (04:36)
 10. Ворон (04:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558722   (413889) от 10.10.2012
-
-Чайф и  Ансамбль Изумруд - Изумрудные хиты (2005) [FLAC|Lossless]<Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_413889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вольный ветер
-02. Матаня (Среднеуральская)
-03. За полшага
-04. Африка
-05. Аргентина - Ямайка 5:0
-06. Сальто назад
-07. Всему своё время
-08. Никто не услышит (Ой-йо)
-09. Пиво
-10. С войны(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:58:14
 
 ## Скачать торент
 ```bash

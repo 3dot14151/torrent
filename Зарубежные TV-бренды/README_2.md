@@ -6,7 +6,7 @@
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026846.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026688.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026682.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Свидетели катастроф / Witness to Disaster (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026201.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025889.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025357.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025201.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025192.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW: Удивительные большероты / Incredible Gulpers (2016) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024828.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2020) WEBRi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024478.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023966.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023953.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC: Это Слейд / It's Slade (1999) TVRip [EN]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023609.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC: Маленькие гиганты / Tiny Giants (2014) UHD BDRemux [H.265/2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023603.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG. Самые лучшие суперкары / Ultimate Supercar (2019) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022909.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022873.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022205.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022204.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022166.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021870.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ BBC. Уродливая красота / Ugly Beauty (2009) DVB
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021259.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ BBC. Идеальная планета / A Perfect Planet (2021) UHD BDRip [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020535.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Discovery. Автомир Майка Брюера / Mike Brewer's World of Cars 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020200.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019720.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019566.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ BBC. Шпион в снегах: Тайны снежных обитателей 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018896.jpg" />
 </div>
 
 

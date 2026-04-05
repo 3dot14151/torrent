@@ -1,3 +1,29 @@
+###  Публикация: 1195001   (150893) от 27.12.2017
+
+HighLights | Веб-дизайн. Продвинутый уровень (2016) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс для практикующих дизайнеров, которые хотят повысить качество своих работ и открыть для себя новые приемы в веб-дизайне.Жанр: ДизайнПродолжительность: 19:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E53F551C752731590598E3C563E71BD7B071F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434276   (150770) от 24.12.2020
 
 Мадина Дмитриева | Бизнес на краткосрочной аренде апартаментов (2019) PCRec
@@ -6,7 +32,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150770.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Level One, Дмитрий Шелег | Первая помощь. Курс, ко
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150684.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Liveclasses, Алексей Шадрин | Секреты современног
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150645.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Udemy, Alexander Hanneman | VFX Compositing Elements Photorealistically in Nuke 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150634.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150633.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ SOA Academy | Postproduction & Matte Painting Online (2021) WEB-DL [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150631.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150626.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150617.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150602.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150473.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150416.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150359.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ cg-school.org, Андрей Заморский | Сборник видеоуро
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150318.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ CGMA, Nate Wragg | Character Design for Animation (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150281.jpg" />
 </div>
 
 
@@ -391,7 +417,7 @@ Bang Bang Education | Дизайн-библиотека (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150247.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150072.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149956.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149825.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Skillbox, Александр Доброкотов, Александр Жадан
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149742.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149376.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149315.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149288.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Learn Squared, Maciej Kuciara | Intro to Environment Painting (2016) WEB-DLRip [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149167.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Udemy, Majid Kamran Ahmadabad | Моделирование мультиплик�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149102.jpg" />
 </div>
 
 
@@ -667,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149095.jpg" />
 </div>
 
 
@@ -681,35 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD8D5C505482C15C784EF097B3560130D5921CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519222   (149090) от 23.12.2021
-
-Whitephotoschool, София Карайванская | Коммерческая фотография ONLINE. Тариф - Базовый (2021) PCRec
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149090.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЧТО ТЕБЯ ЖДËТ НА КУРСЕ:
-
-14 ВИДЕОУРОКОВ
-7 лекций + 7 уроков по съёмкам «от и до»(   Читать дальше...   )Производство: WhitephotoschoolЖанр: фотографияПродолжительность: 08:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D4C8CD45AB7425B7708684308F21CF0A7E27E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

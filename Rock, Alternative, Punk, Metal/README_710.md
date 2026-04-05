@@ -1,3 +1,32 @@
+###  Публикация: 1418460   (349413) от 24.10.2020
+
+Superior Stream - Anatomy Of A Human Heart Pt.1&2 (2020) 2xCD [MP3|320 Kbps] <Progressive Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349413.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. First Breath (01:20)
+ 02. The Unknown (03:36)
+ 03. Motion (03:49)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C866408EEDA0C0CDCAB3EA34D4829BBDF372E567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179398   (349350) от 31.10.2017
 
 Dr. Living Dead! - Cosmic Conqueror (2017) [MP3|320 Kbps] <Thrash Metal, Crossover>
@@ -6,7 +35,7 @@ Dr. Living Dead! - Cosmic Conqueror (2017) [MP3|320 Kbps] <Thrash Metal, Crossov
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349350.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Moody Blues - Every Good Boy Deserves Favour (1971) Remastered /2007, Thresh
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349307.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Pride Of Lions - Lion Heart (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349294.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Canedy - Warrior (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349291.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Kadavar - The Isolation Tapes (2020) [MP3|320 Kbps] <Progressive Rock, Psychedel
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349287.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ CWT - Дайте вакцину! (2020) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349286.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Hawkwind Light Orchestra - Carnivorous (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349285.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Mors Principium Est - Seven (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349284.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Nova Rex - Rock Star Roadshow (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349208.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Punk Rock Halloween - Loud Fast And Scary (2017) 2CD [MP3|320 Kbps] <Punk R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349206.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA (We Are Triumphant) - Hybrid Theory: an Encore (2020) Linkin Park Tribute [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348945.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348942.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Deep Purple - Classic Songs Live In Concert (2017) [MP3|320 Kbps] <Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348913.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Queen - Forever (2014) 2 CD, Deluxe Edition [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348887.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348819.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348678.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Blind Stare - The Dividing Line (2012) [FLAC|Lossless]<Melodic Death, Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_348601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_348601.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348525.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ The Stranglers - Greatest Hits On CD&DVD (2012) [MP3|320 кб/с]<Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348201.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ Dying Fetus - Descend Into Depravity (Japanese Edition) (2009) [FLAC|Lossless]<T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_348196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_348196.jpg" />
 </div>
 
 
@@ -601,7 +630,7 @@ Cactus - The New Cactus Band (1970-1973) 5 CD Box Set /Victor,2009/ [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_348192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_348192.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ Anthea - Illusion (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348168.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ One Mind Ministry - Gates of Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348167.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ Mutautu - 2 Albums (2019-2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Bluesy Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348166.jpg" />
 </div>
 
 
@@ -723,7 +752,7 @@ Stratovarius - Fright Night (1989) Remastered, 1994, Victor [OGG Vorbis|484 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348165.jpg" />
 </div>
 
 
@@ -737,35 +766,6 @@ Stratovarius - Fright Night (1989) Remastered, 1994, Victor [OGG Vorbis|484 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7308C6E5CE58FACAA4FFDB82DBA892EF0F4FE3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578365   (348164) от 22.09.2022
-
-Stratovarius - Dreamspace (1994) Remastered, 1994, T&T [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing Shadows	4:38
-02. 4th Reich	5:49
-03. Eyes Of The World	5:57
-04. Hold On To Your Dream	3:34(   Читать дальше...   )Жанр: Rock, Speed Metal, Heavy MetalПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC335291AAE17EEF1CF2C0027A593FD7C1521CB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

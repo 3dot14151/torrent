@@ -1,3 +1,81 @@
+###  Публикация: 1701958   (116116) от 23.02.2024
+
+Forgiveness (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forgiveness – отправьтесь навстречу типичному приключению с видом от 1-ого лица, сюжет которого разворачивается в 80-е годы. Герой только что развелся со своей женой и решает переехать в старый дом, где раньше жил с матерью. Но как только он туда переезжает, то сразу понимает, что там происходит нечто странное. Попросту говоря, окунитесь с головой в достаточно атмосферный (   Читать дальше...   )Тип издания: RepackРазработчик: GAZЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Польский, Турецкий, СловацкийЯзык интерфейса: Английский, Польский, Турецкий, Словацкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11E9AEEF908A432BEE071C3C882D180A6071238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702236   (115906) от 24.02.2024
+
+Lazaret (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lazaret - это напряженный психологический хоррор от первого лица, в котором геймеры примут на себя роль члена спасательной команды, вызванной для расследования сигнала бедствия, который поступил с корабля MTS Endurance, исчезнувшего четыре года назад во время путешествия через Атлантику. Теперь главному герою предстоит самолично выяснить, что за ужасы случились на (   Читать дальше...   )Тип издания: RepackРазработчик: Aegon GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD9F2D71AC9043B89B04E524D3685C058727FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702729   (115602) от 26.02.2024
+
+My Lovely Daughter (2024) [Multi] (1.27f6/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115602.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Lovely Daughter - симулятор алхимика, исследующий личные страдания любящего отца, потерявшего дочь. Игра дает в полной мере ощутить его пустоту, отчаяние и безумие. На что готов пойти любящий родитель, чтобы вернуть к жизни свое дитя? Игра исследует темные стороны человеческого сознания. Вы играете за Фауста - известного в округе алхимика. Он пытается во множественное (   Читать дальше...   )Тип издания: LicenseРазработчик: GameChanger StudioЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Английский, Китайский (традиционный, упрощенный)Язык интерфейса: Английский, Китайский (традиционный, упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4691FB6A3AC7367E83D704043A9DC3BF38AE6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703058   (115409) от 27.02.2024
 
 DREDGE (2023) [Ru/Multi] (1.4.2/dlc) Scene Tenoke
@@ -6,7 +84,7 @@ DREDGE (2023) [Ru/Multi] (1.4.2/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115409.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.09) License GOG [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115274.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Witch of Fern Island (2023) [Multi] (1.0.0_B/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115109.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Nathan Morgan: Dilemma (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114947.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534/dlc) Repack Other s [Supporter Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114934.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Invisible Fear (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114910.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Beyond the Fringe (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114567.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ SANYA / САНЁК (2024) [Ru/Multi] (3.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114445.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Lil' Guardsman (2024) [Multi] (1.0.5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111194.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Harmony: The Fall of Reverie (2023) [Multi] (1.03.1485026) License GOG [Soundtra
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110903.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Echoes of Despair (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108444.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ no sleep for sole (2024) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108077.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ A Memoir Blue (2022) [Ru/Multi] (Build 8901003) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106071.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Crystal Shard Adventure Bundle (2016) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106045.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Lunar Glow Stellar Dance (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105191.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104836.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Don't Starve Together (2016) [Ru/Multi] (692916/dlc) Repack Let'sРlay [MEGA PAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102695.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ An Airport for Aliens Currently Run by Dogs (2021) [En] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100623.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100615.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Hauma: A Detective Noir Story (2023) [Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100577.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90716.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Nightlong: Union City Conspiracy [Ru] (RePack) 1998 | Kirill Games
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90518.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88904.jpg" />
 </div>
 
 
@@ -591,89 +669,6 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC36E45418C59209C834A68FD5CF0B4269A71B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479832   (86985) от 07.04.2012
-
-Morpheus [Ru] (P) 1998
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы - полярный исследователь, Мэтью Холмс-младший. Ваш отец потерялся во льдах много лет назад. И вот вы, так же, как он когда-то, обнаруживаете среди льдов Арктики судно, именуемое Геркуланией. Загадочное, безжизненное на первый взгляд, оно чем то притягивает вас. Вы просто не можете уйти, не поняв его загадку, не раскрыв тайну многих людей, населявших это судно. Да и чем черт не шутит, может быть найдете какую-либо информацию об отце.Тип издания: ПираткаЖанр: КвестЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6CDCBA1F130F2931263C867D5C6DDFEA6043CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479150   (86881) от 06.04.2012
-
-Alone in the Dark: The New Nightmare / Alone in The Dark 4: По Ту Сторону Кошмара [Ru] (RePack) 2001 | Pilotus
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Угрюмый Остров веками скрывал свои мрачные тайны. Настал роковой момент, когда зловещие обитатели проклятого клочка суши решили поделиться сокровенным…
-Специальный агент ФБР и доктор антропологии летели сюда вместе, но прибыли порознь. Каждый из героев безнадежно одинок в окружающей тьме… Тьме собственных взаимоотношений и своего прошлого, тьме, приютившей невыносимо уродливых тварей. Эталон жанра ужасов, навеянный творчеством великого Говарда Ф. Лавкрафта, заставит игрока пережить, возможно, самые страшные часы земной жизни.Тип издания: RePackЖанр: Трехмерный экшен от третьего лица с элементами приключения и ужасаЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477978   (86450) от 04.04.2012
-
-Yesterday / Yesterday: Печать Люцифера [Ru/En] (RePack) 2012 | R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йорк, 2011 год. Кому есть дело до погибших бездомных? Неужели никому, даже если их убивают какие-то психи? Никому… Кроме Генри Уайта, интеллигентного юноши, наследника одного из самых крупных состояний в Америке. Однажды, помогая нищим, прозябающим на заброшенной станции метро, молодой человек попал в серьезный переплет и угодил в плен к бродягам, одержимым идеями испанской инквизиции. Интересно, не тех ли самых убийц отыскал Генри?...
-
-Знаменитая студия Pendulo, уже почти два десятилетия талантливо развлекающая публику юмористическими квестами, на этот раз выступила в новом амплуа, создав мрачный психологический триллер с мистическим уклоном «Yesterday: Печать Люцифера». Вы возьмете под контроль стразу трех персонажей и вместе с ними побываете в Америке, Европе, Азии, где, конечно, вам придется немало поломать голову над хитроумными загадками. Алхимия, сатанизм, Ватикан, Y-образные шрамы — какое уж тут веселье: все необычайно мрачно, но традиционно интригующе.
-
-Будьте готовы к неожиданностям. Взгляните своим (   Читать дальше...   )Тип издания: RePackРазработчик: Pendulo StudiosЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0EFDEA25DBAE35AC689D2EEBE36E9EC3CA50F00
 ```
 
 https://mybot314.ru/tekegram_catalog/

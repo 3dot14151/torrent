@@ -1,3 +1,61 @@
+###  Публикация: 1151290   (570696) от 20.07.2017
+
+VA - Summer Time (Dance Hits) (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nitro – From the Save 23
+02. Silvio Racciatti – Dreaming of Ibiza
+03. Tiziano Digital Emotion – Jump Project 77
+04. Playantony – Waiting(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623AAE352951DE69577A2F2FC7CD4AF363A211D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234583   (569378) от 06.07.2018
+
+VA - SHINE Ibiza Soundtrack (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk presents SHINE - SHINE Ibiza Anthem 2018 (Edit)
+02. Giuseppe Ottaviani - Ozone (Craig Connelly Remix)
+03. Jordan Suckley and Alex M.O.R.P.H. - Ambush
+04. Woody van Eyden and James Cottle - Caliber-12(   Читать дальше...   )Жанр: TranceПродолжительность: 03:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF2D2F042E4AD0BE28E4C2AA3702135A04E3C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234579   (569374) от 06.07.2018
 
 VA - Ibiza Trance (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Ibiza Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569374.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Future Classics Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569004.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Trance Maschine Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568967.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Future Classics Vol.3 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564204.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Trance Summer Essentials (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564203.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Afterdark 002 [Los Angeles] (2019) (Mixed by Sneijder) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564101.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Trance Space Sound (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558672.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Trance Euphoria Vol.4 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555804.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Vocal Trance Gems - Summer (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553617.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 July (2018) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553317.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Black Hole Trance Music 07 - 18 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553290.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Suanda Ibiza (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551587.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Summer Hits (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Progressive Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551139.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Armin van Buuren - Old Skool (2016) Mini Album [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547318.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Suanda Ibiza (2016) [MP3|320 Kbps] <Trance, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545861.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Trance Aliens (2016) [MP3|320 Kbps] <Trance, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545793.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Best Of Critical State 003 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545506.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Nothing But... The Future of Trance Vol.08 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545503.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Summer Dream (Mixed by LTN) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545502.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Whos Afraid Of 138 Top 15 (2016-09) (2016) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544973.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Armada Captivating - Smooth Sensation (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544916.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Trance Hits Top 20 (2016-08) (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543878.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Trance Compilation, Vol.17 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543690.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Anjunabeats In Ibiza (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543678.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Anjunabeats In Ibiza (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC81DFD372CE776D7EA7877511D65B383B948641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239109   (542525) от 03.08.2018
-
-VA - We Love New Trance Vol.1 [Mixed by Dave Zee] (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk & Emanuele Braveri feat. Rebecca Louise Burch - Escape Reality Tonight (Original Mix) 7:42
-02. Andres Sanchez - Eternity (Original Mix) 4:59
-03. Talla 2XLC - Uprising (Original Mix) 7:07
-04. RAM & Darren Porter - The Calling (Grotesque 300 Anthem) 7:50(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED2BB5996F9A127D45DD18E789FE5DC37645C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154910   (537245) от 01.08.2017
-
-Cj Stereogun - Top & New (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cj Stereogun - Autumn Wave (Original Mix) 08:06
-02. Cj Stereogun - Cassiopeia (Original Mix) 07:02
-03. Cj Stereogun - Dolphin Pond (Original Mix) 08:27
-04. Cj Stereogun - Ice Planet (Uplifting Trance Mix 2017) 06:04(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1114AD0FB4323D9B491D034B6EF0814CD9C6B793
 ```
 
 https://mybot314.ru/tekegram_catalog/

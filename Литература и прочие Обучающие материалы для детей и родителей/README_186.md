@@ -1,3 +1,57 @@
+###  Публикация: 905233   (651577) от 05.06.2015
+
+Ф.С. Капица, Т.М. Колядич | История мировой культуры (2010) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник школьника - современное и самое полное учебное пособие, составленное по действующей базовой программе, утвержденной Министерством образования и науки РФ. Серия составлена и разработана опытными учителями московских школ и преподавателями МГУ им. М.В.Ломоносова.
+
+Издание, охватывающее все аспекты школьной программы, предназначено для школьников 4-11 классов, (   Читать дальше...   )Жанр: Учебная литература, СправочникиФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484F5728C09FFEE3F42A9D8019163005EEDC577A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905372   (651561) от 05.06.2015
+
+К. Ушинский, Н. Некрасов и др. | Делу время, потехе час (1988) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651561.jpg" />
+</div>
+
+
+###  Подробнее
+
+О труде, главном содержании человеческой жизни, издавна говорилось в пословицах,пелось в народных песнях, сказывалось в сказках. Радость труда, любовь к родной земле, остаются с человеком навсегда с детства. Вот почему рассказы, стихи, народные песни из этой книги никогда не устареют, будут читаться и всегда найдут отклик в человеческой душе.Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBFC315DFFA6171AD047265A5B80479F6CA9788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905229   (651555) от 05.06.2015
 
 Р.Л. Стайн | Ужастики. Ужасная училка (1998) [FB2]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651555.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651449.jpg" />
 </div>
 
 
@@ -63,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651440.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651366.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651245.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651200.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651165.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651106.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650757.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650747.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650680.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650517.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650514.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650373.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650261.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649943.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649941.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649929.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649833.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649674.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649598.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649595.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649490.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649433.jpg" />
 </div>
 
 
@@ -630,61 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E48CC118E16683A2FCFF3E5C7A23EA711B89246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031709   (649425) от 05.07.2016
-
-Надежда Созонова, Екатерина Куцина | Грамматика для дошкольников (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное методическое пособие направлено на освоение ребенком грамматического строя русского языка. Работая с предлагаемым материалом, дети научатся:
-согласовывать существительные с притяжательными местоимениями и с прилагательными в роде и числе;
-правильно употреблять предлоги;
-составлять предложения по сюжетным картинкам и вопросам.(   Читать дальше...   )Жанр: Логопедия, грамматикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BDA6A386059A13CC1CB1261620BF3DB6DD1A69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905494   (649168) от 06.06.2015
-
-Галина Шалаева | Кем мне стать? Большая книга профессий (2010) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сейчас появилось много новых профессий, например, бизнесмен, менеджер, банкир, дизайнер, политолог, визажист и др., всех и не перечислить, при этом появляются всё новые и новые. Даже взрослые не всегда знают, чем занимается человек той или иной профессии. Что же говорить о детях, которые порой не представляют, что обозначают названия профессий. А выбирать свое будущее (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F96F1BF2095F7FE6FB0D5978405D1DAB7C6A59
 ```
 
 https://mybot314.ru/tekegram_catalog/

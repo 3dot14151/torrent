@@ -1,3 +1,30 @@
+###  Публикация: 1820075   (745) от 26.09.2025
+
+Буренка Даша (2015-2023) WEBRip (серии 1-116 из 116)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Караоке-проект, основанный на народных песнях и сказках, а также на историях о главных персонажах.
+Буренка Даша» - это уникальный мультипликационный караоке-проект, основанный на народных песнях и сказках, а также на авторских историях о главных персонажах. Каждая песня – это увлекательное путешествие, в которое дружная семья Даши приглашает детей и их родителей. (   Читать дальше...   )Производство: Беларусь / Animator ProЖанр: мультфильм, детский, познавательный, обучающий, развивающий, караокеРежиссер: Александр Брухнов, Виталий Захаров, Сергей ЧернышёвАктеры: настасия Федорцова, Илия Федорцова, Олег ЛихорадПродолжительность: ~ 00:02:20 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE2E11593A1B00D3B824D4EEBDF7BA0EEF7759B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743848   (738) от 27.09.2025
 
 Маша и Медведь (2009 - 2025) BDRip, WEB-DL [H.264/1080p] [Коллекция]
@@ -6,7 +33,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_738.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_728.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107.jpg" />
 </div>
 
 

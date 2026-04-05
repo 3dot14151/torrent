@@ -1,3 +1,61 @@
+###  Публикация: 1357704   (970632) от 06.02.2020
+
+Shinnobu - The Enigma V (Masterminds) (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of His Eyes the Peace V (7:05)
+02. After of Your Life (6:34)
+03. Mea Maxima Culpa (6:25)
+04. The Man V (9:33)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9D49C8E8CA5497C891F6CA87CCDB7D3F423CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974313   (970582) от 16.01.2016
+
+Христина Соловій - Жива вода (2015) [FLAC|Lossless|image+.cue] <Pop-Folk, Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Несе Галя воду (3:57)
+02. Янчик (2:41)
+03. Тримай (3:28)
+04. Синя пісня (3:18)(   Читать дальше...   )Жанр: Pop-Folk, Folk RockПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1720B062A974FF1FF948667554E119641A194BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975966   (970471) от 16.01.2016
 
 VA - Quentin Tarantino's The Hateful Eight / Омерзительная восьмёрка (Original Motion Picture Soundtrack) (2015) Score by Ennio Morricone [MP3|320 кб/с] <Soundtracks>
@@ -6,7 +64,7 @@ VA - Quentin Tarantino's The Hateful Eight / Омерзительная вось
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970471.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Bear McCreary - See / Видеть: Season 1 (Apple TV+ Original Series Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969705.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - 100 Greatest Modern Country Songs (2020) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969689.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Birds of Prey / Хищные птицы: Потрясающая истор�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969641.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Birds of Prey / Хищные птицы (Потрясающая истор�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969632.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Birds of Prey / Хищные птицы (Потрясающая истор�
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969562.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968921.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Крид: Наследие Рокки  / Creed (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968650.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ David Arkenstone - Ocean Dreams (2006) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968177.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Dale Cooper Quartet and the Dictaphones - Parole De Navarre (2006) [FLAC|Lossles
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967578.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Alexandre Desplat - Little Women / Маленькие женщины (Original M
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967311.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Alexandre Desplat - Little Women / Маленькие женщины (Original M
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967229.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Sacred Spa Music Series. Wrapped In Stillness (2002) [APE|Lossless|tracks +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967218.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Death Stranding (Songs from the Video Game) (2020) [MP3|320 кб/с]<Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966978.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Bombshell: The New Marilyn Musical From SMASH (Deluxe Edition) (2013) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966675.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Richard Clayderman and The Ray Hamilton Orchestra - Romantic Piano (2014) Box-se
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966478.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Randy Newman - Marriage Story / Брачная история (Original Music fr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966204.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Randy Newman - Marriage Story / Брачная история (Original Music fr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966202.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ Jim Brickman - Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966195.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ V.A. - We Are The World - USA For Africa (1985) [FLAC (tracks+cue)|Lossless]<Pop
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966182.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - 100 Greatest Country The Best Hits from Nashville And Beyond (2020) [MP3|32
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966086.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ VA - Death Stranding (Songs from the Video Game) (2020) [FLAC 2.0|48/24|tracks|W
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965962.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VA - Country Hitmix (2000) Mix [FLAC|Lossless|image + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965684.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ Henry Jackman - The 5th Wave / 5-я Волна  (Original Motion Picture Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965539.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ Henry Jackman - The 5th Wave / 5-я Волна  (Original Motion Picture Soundtr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E1B2DD5BC0045A0CF3EA849B6516CF96FF663E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359361   (964992) от 11.02.2020
-
-Грязный Эндрю - Матерные частушки (2019) [MP3|320 Kbps] <Частушки>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964992.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Матерные частушки, часть1
-2. Матерные частушки, часть2
-3. Матерные частушки, часть3
-4. Матерные частушки, часть4(   Читать дальше...   )Жанр: ЧастушкиПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB78E5DF6025CE9068DF8650E16D7228B365E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978160   (964709) от 22.01.2016
-
-Jim Brickman - Believe (2014) [MP3|320 кб/с] <New Age, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine in the Rain
-02. The Road Before Us
-03. Daybreak
-04. As the River Flows(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3540745F64BD706D78D64BE4359632F535D8B008
 ```
 
 https://mybot314.ru/tekegram_catalog/

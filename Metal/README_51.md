@@ -6,7 +6,7 @@ Immanent - Human Reflection (2015) [MP3|320 кб/с]<Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616578.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rosetta - Quintessential Ephemera (2015) Japanese Edition [MP3|320 кб/с]<Post
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616577.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Downfall - A Place In Existence (2015) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616576.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Doomraiser - Reverse (Passaggio Inverso) (2015) [MP3|320 кб/с]<Traditional Do
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616574.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Nightshift - Winter Within (2014) [MP3|320 кб/с]<Heavy / Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616572.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dendera - Pillars Of Creation (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616571.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nuclear Storm - Tales from the Depth (2022) [MP3|320 Kbps] <Melodic Death, Black
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616531.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Alkenion - Time Machine II (2015) [MP3|320 кб/с]<Progressive / Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616437.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Old Drake - Old Drake (2015) [MP3|320 кб/с]<Heavy Metal, Guitar Instrumental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616433.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sorrowfield - The Great Abduction (2015) [MP3|320 кб/с]<Heavy / Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616431.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Chabtan - The Kiss Of Coatlicue (2015) [MP3|320 кб/с]<Melodic Death Metal, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616326.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kezia - The Dirty Affair (2015) [MP3|320 кб/с]<Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616053.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Die Apokalyptischen Reiter - Wilde Kinder (2022) [MP3|320 Kbps] <Melodic Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614903.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Stone Sour - Hydrograd (2017) [MP3|320 Kbps] <Alt. Metal, Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614449.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Two Dead Roses - Overlords Ov the Ufo (2015) [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614153.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Toxic Holocaust - Chemistry Of Consciousness (2013) Deluxe Edition [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613981.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Drowning - Senescent Signs (2016) [MP3|320 Kbps] <Doom Metal, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613979.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Acacia Strain - Gravebloom (2017) [MP3|320 Kbps] <Metalcore, Deathcore, Hard
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613067.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Aasgard - Obscurantist Purification (2015) [MP3|320 кб/с]<Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612999.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Helrunar - Niederkunfft (2015) [MP3|320 кб/с]<Pagan-Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612997.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Titans Eve - 3 альбома (2010-2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612994.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Brutallian - Blow On The Eye (2015) [MP3|320 кб/с]<Thrash / Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612993.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Supresion - Emerging Extermination (2015) [MP3|320 кб/с]<Thrash / Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612992.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Mourning's Hope - The Storm Within (2015) [MP3|320 кб/с]<Progressive Metal, I
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612991.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Aeveron - 4 альбома, 1 EP (2004-2015) [MP3|320 кб/с]<Melodic Black / D
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612924.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Tulsadoom - Storms Of The Netherworld (2015) [MP3|320 кб/с]<Black Metal, Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612922.jpg" />
 </div>
 
 

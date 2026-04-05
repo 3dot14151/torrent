@@ -1,3 +1,29 @@
+###  Публикация: 1505480   (804240) от 27.10.2021
+
+Под гипнозом / Hypnotic (2021) WEB-DL [H.264/1080p-LQ] [EN / EN, RU Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая женщина, стремящаяся к самосовершенствованию, обращается за помощью к известному гипнотерапевту. Но после нескольких интенсивных сеансов она обнаруживает неожиданные и смертельные последствия.Производство: США / The Long GameЖанр: триллер, драмаРежиссер: Мэтт Энджел, Suzanne CooteАктеры: Кейт Сигел, Джейсон О’Мара, Дьюли Хилл, Люси Гест, Джейм М. Каллика, Таня Диксон-Уоррен, Дариен Мартин, Люк РодерикПеревод: ОтсутствуетСубтитры: Русские, английские, украинские, немецкие, французскиеПродолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBF0FE20C052566CF085FBC33AD13930A1C28F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198910   (804231) от 13.01.2018
 
 Мешок мрамора / Un sac de billes / A Bag of Marbles (2016) BDRemux [H.264/1080p] [FRA / EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804231.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804113.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803712.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803275.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803085.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803044.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803015.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803008.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802609.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802388.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802280.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801628.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801238.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801224.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801021.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800792.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800466.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800135.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800051.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799973.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799108.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799050.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797862.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797368.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797367.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86975B30B7DE48568B4DD1B503A2C91857131350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199887   (797364) от 18.01.2018
-
-Я тебя помню / Eg man pig / I Remember You (2017) BDRemux [H.264/1080p] [ICE / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ужасы переселения могут настичь даже в тихой Исландии. Пока семья, переехавшая в старый дом, понимает, что он проклят, в городской церкви вешается женщина, у которой три года назад пропал восьмилетний сын — и эти события как-то связывает пропажа другого ребенка 60 лет назад.Производство: Исландия, Zik Zak Filmworks, Zik Zak KvikmyndirЖанр: Драма, Ужасы, Детектив, ТриллерРежиссер: Оскар Тор АксельссонАктеры: Аугуста Эва Эрлендсдоуттир, Йоуханнес Хёйкьюр Йоуханнессон, Тор Кристьянссон, Анна Гунндис Гюдмундсдоттир, Сара Догг Асгерсдотти, Тростур Лео Гуннарссон, Тор Тулиниус ...Перевод: ОтсутствуетЯзык озвучки: ИсландскийСубтитры: АнглийскиеПродолжительность: 01:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B07710297AA7D614CAE57E7C073252F2C431650
 ```
 
 https://mybot314.ru/tekegram_catalog/

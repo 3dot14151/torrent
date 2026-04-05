@@ -1,3 +1,55 @@
+###  Публикация: 1791434   (67797) от 14.04.2025
+
+Джуманджи / Jumanji (1997-1998) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 2, серии 1-13 из 13) СТС [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе со своими любимыми героями Джуди, Питером и Аланом Пэрришом зритель вновь отправится в волшебный мир самой непредсказуемой игры, где его ждут новые удивительные приключения и неожиданные встречи.Производство: США / Adelaide Productions Inc., Columbia TriStar Children's Television, Columbia TriStar Television, Interscope, Interscope Communications, Teitler FilmЖанр: мультфильм, фэнтези, боевик, триллер, комедия, приключения, семейныйРежиссер: Боб Хэчкок, Энди Том, Дэвид ШварцАктеры: Билл Фагербакки, Деби Дерриберри, Эшли Джонсон, Мелани Чартофф, Шерман Ховард, Тим Карри, Дэнни Манн, Ричард Алан, Билли Уэст, Уильям СэндерсонПеревод: Дублированный (СТС)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2832A11E50DB01089BA4DF8B7BA19D610EA9B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798419   (66623) от 22.05.2025
+
+Неуязвимый / Invincible (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-8 из 8) Condor Films Studio, RHS, Flarrow Films, TVShows, LostFilm, HDRezka, NewComers
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66623.jpg" />
+</div>
+
+
+###  Подробнее
+
+17-летний Марк Грэйсон узнаёт, что его отец является самым могучим супергероем на Земле. Теперь подростку предстоит совладать с силами, которые достались ему по наследству. Основано на комиксах Роберта Киркмана, автора серии комиксов «Ходячие мертвецы» (2003-2019).Производство: США / Amazon Studios, Image Comics, Skybound EntertainmentЖанр: мультфильм, ужасы, фантастика, фэнтези, боевик, триллер, драма, приключенияРежиссер: Джефф АлленАктеры: Сандра О, Дж.К. Симмонс, Стивен Ян, Зази Битц, Уолтон Гоггинс, Гиллиан Джейкобс, Джейсон Манцукас, Грэй Гриффин, Кевин Майкл Ричардсон, Закари КуинтоПеревод: Дублированный (Condor Films Studio, Red Head Sound, Flarrow Films), многоголосый (TVShows, LostFilm, HDRezka, NewComers)Субтитры: Русские (Full), украинские, английские (Full, SDH)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C1404CF660810443C0AF407B9346C191B129F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801573   (66194) от 12.06.2025
 
 Герои в масках / PJ Masks (2015) WEB-DL [H.264/1080p] (сезон 1, cерии 1-26 из 26) Кипарис
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66194.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66183.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66180.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66175.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66172.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62872.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62586.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62317.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61950.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61762.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61322.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61297.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61120.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60906.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60157.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60150.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60149.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60002.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59939.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59466.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59302.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59097.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57975.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57878.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07AAF4CDBA6D8D03609777154129BB8917DF3470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702482   (57587) от 05.05.2024
-
-Звёздные войны: Бракованная партия / Star Wars: The Bad Batch (2024) WEB-DLRip [H.264/720p] (сезон 3, серии 1-15 из 15) LostFilm
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57587.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эпичном завершающем сезоне мультсериала «Звёздные войны: Бракованная партия» Отряд испытает пределы своих возможностей в борьбе за воссоединение с Омегой, в то время как сама она преодолевает испытания в отдалённой имперской лаборатории. В условиях, когда группа раздроблена и ей со всех сторон грозят опасности, клонам придётся искать неожиданных союзников, отправляться (   Читать дальше...   )Производство: США / Disney+, Lucasfilm Animation, LucasfilmЖанр: мультфильм, фантастика, боевик, драма, приключенияРежиссер: Дэйв ФилониАктеры: Ди Брэдли Бейкер, Эрнесто Баутиста, Мин-На Вэнь, Ношир Далаль, Эндрю Кисино, Стефен Стэнтон, Бен Дискин, Кори БертонПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: РусскийСубтитры: НетПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18829F6EAF0D554B7869076F8BB4B4FC1733648C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701587   (57376) от 07.05.2024
-
-Звёздные войны: Бракованная партия / Star Wars: The Bad Batch (2024) WEB-DLRip [H.264/1080p] (сезон 3, серии 1-15 из 15) CFS, NewComers, AlexFilm, TVShows, NewStudio, Lostfilm
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет сосредоточен вокруг экспериментального отряда генно-модифицированных клонов, которые не попали под действие чипов во время поступления «Приказа 66» и стали врагами новому имперскому порядку. Пятеро солдат не могут заставить себя казнить невинных гражданских лиц и обвиняются в государственной измене. Главные герои находят поддержку в лице молодого рекрута, ребенка (   Читать дальше...   )Производство: США, Disney+, Lucasfilm Animation, Lucasfilm Ltd.Жанр: мультфильм, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Брэд Рау, Стюарт Ли, Натаниель ВильянуэваАктеры: Ди Брэдли Бейкер, Мишель Энг, Ношир Далаль, Ри Перлман, Стивен Стэнтон, Бен Дискин, Гвендолин Ео, Лиам О’Брайен, Сэм Ригел, Боб БергенПеревод: Дублированный (Condor Films Studio), многоголосый профессиональный (NewComers, AlexFilm, TVShows, NewStudio, Lostfilm)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C004175FA86BDEA047272B53BB66E8EBD4F651
 ```
 
 https://mybot314.ru/tekegram_catalog/

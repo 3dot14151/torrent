@@ -1,3 +1,107 @@
+###  Публикация: 1366903   (920133) от 13.03.2020
+
+Pro QR & Barcode Scanner PDF417 Scanner, Reader v2.1.0.7 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сканер Pro QR code & Barcode PDF417 обладает высоким уровнем мощности и мгновенно способен считывать информацию со штрих-кодов и QR-кодов. Он поддерживает все возможные форматы (EAN-13, EAN-8, UPC-A, UPC-E, Code-39 и др.) и подходит абсолютно для любой ОС Андроид. Просмотр кода осуществляется при помощи камеры устройства после включения этого приложения. Сканер (   Читать дальше...   )Тип издания: Mod (Отвязан от сервисов Google Play)Релиз состоялся: 13.03.2020Разработчик: Grato Apps lnc.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F9E73A7ECD27EEB06C2F8BD06DAD13E8966CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351128   (920082) от 13.03.2020
+
+XRecorder Pro 1.2.2.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захват фото и видео изображения с экрана смартфона.Тип издания: ПираткаРелиз состоялся: 13.03.20Разработчик: InShot Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF56D8C03076E5C3FC1D79FBD26822F07C7D7061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366693   (919785) от 13.03.2020
+
+Star Wars: Knights of the Old Republic (KOTOR) + Mod v1.0.7 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Star Wars: KOTOR – вот уже четыре тысячи лет идет война в Галактической империи и сотни Рыцарей Джедаев погибли в этой безжалостной войне против ситхов. Только на вас вся надежда! Сможете ли вы освоить удивительную Силу, чтобы спасти Всю Империю? Или вы пойдете по пути Темного рыцаря? Станете вы героем или злодеем, спасителем или завоевателем… только вы сможете выбрать (   Читать дальше...   )Тип издания: Premium+Релиз состоялся: 17.09.2019Разработчик: Aspyr Media, Inc.Поддерживаемая ОС: Android 4.1+Жанр: Приключения, RPG, РолевыеЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BBCA35362EA5A25578E61EF441196B1A14EEA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367133   (919126) от 14.03.2020
+
+GameKeyboard + v6.1.1 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919126.jpg" />
+</div>
+
+
+###  Подробнее
+
+GameKeyboard – это простое и надежное приложение если вы собрались поиграть в игры что требуют наличия джойстика а у вас при этом его нету. Его будет очень легко настроить да и к тому же все клавиши можно перемещать в нужные вам места. Однако будьте внимательны ведь некоторые функции доступны только при наличии root прав, хотя для большинства из них они не требуется, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.08.2017Разработчик: LocnetПоддерживаемая ОС: Android 2.2+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E2762724DF09106A4C6FD18DDE0255D5E879B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367104   (918977) от 14.03.2020
 
 Groovepad - Music & Beat Maker v1.1.0 [En]
@@ -6,7 +110,7 @@ Groovepad - Music & Beat Maker v1.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918977.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Oreny - Icon Pack v1.6.2.4.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918970.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918966.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Analog Electronic Toolbox v3.77 [En] - набор инструментов дл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918862.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ GT Recovery - Undelete,Restore 2.6.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918853.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Gym Pro - Домашние тренировки v112.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918756.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Hungry Shark VR v1.0 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918629.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Mod Master For Minecraft v3.9.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918492.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Speedcam Downloader v4.0.7 [Ru] - закачка файлов радаров д�
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918218.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ ProCam X (HD Camera Pro) 1.16 (Paid) [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917096.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ iGO Primo NextGen 9.18.27.682862  arimi @ Vamibg skin mod [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916722.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ PhotoPills v1.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915776.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ SimpleRockets 2 v0.9.205 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915672.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ DraStic DS Emulator vr2.5.2.0a build 101 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915668.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ AIDE Premium Key v3.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915543.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ App Cloner v2.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915526.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915404.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Apex Launcher Pro v4.7.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915380.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Screen Stream Mirroring v2.5.4e [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915374.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ LOCKED - Секретный Альбом v1.3.3 [Ru/Multi] - Спрятать Ф
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915283.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ Diaro - личный дневник v3.20.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915270.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ Sci-Fi Launcher Pro v2.8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915229.jpg" />
 </div>
 
 
@@ -567,111 +671,6 @@ Sci-Fi Launcher Pro позволит вам почувствовать себя 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:496DA6108D9E8A5666CEE0A82A676B7324E4C9D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367225   (915226) от 16.03.2020
-
-SHAREit - Connect & Transfer v5.3.52_ww [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное приложение создано компанией Lenovo и впервые появилось на смартфонах и планшетах компании. Теперь оно доступно всем Android-пользователям. Благодаря SHAREit вы можете передавать любые файлы на устройства, где установлена такая же программа.
-Данное приложение выгодно отличает тот факт, что в подключении к Интернету оно не нуждается, а также может похвастаться (   Читать дальше...   )Тип издания: Mod (Вырезана реклама / Ad Free)Релиз состоялся: 10.03.2020Разработчик: SHAREit Technologies Co.Ltd ЕЩЁ!Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6198C619CE9AD5B4E7186195776D499A30B82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367213   (915212) от 16.03.2020
-
-LIMBO v1.18 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915212.jpg" />
-</div>
-
-
-###  Подробнее
-
-LIMBO - мультиплатформенная компьютерная игра разработанная Датской студией Playdead и впервые увидевшей свет еще в 2010 году. Первая версия LIMBO была выпущена для игровых консолей и в последствии, в связи небывалой популярностью, портирована на большинство игровых платформ в том числе и на Андроид устройства. По своим техническим характеристикам игры является 2D (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13.11.2019Разработчик: PlaydeadПоддерживаемая ОС: Android 4.4+Жанр: АркадыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBEB37C53C63CA3BC9FE7B871BD48C107FF9502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481902   (915018) от 22.08.2021
-
-ipTView v1.9.5 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915018.jpg" />
-</div>
-
-
-###  Подробнее
-
-ipTView - простейший плеер для просмотра онлайн TV. Размер программы 85 килобайт, используются только встроенные возможности устройства, на котором установлена программа. Не требуется ни каких регистраций и других действий, для просмотра видеоконтента. Имеет возможность добавлять как свои плей-листы так и ссылки на каналы.Тип издания: Пиратка (Mod)Релиз состоялся: 18.08.2021Разработчик: GSeeMe.comПоддерживаемая ОС: Android 2.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9A8AEADF4B210FE89EC7187BE3957F99DB4B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097186   (914991) от 26.01.2017
-
-iGO Primo NextGen 9.18.27.682862 pongo skin [Ru/Multi]
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационное ПО iGO Primo NextGen версии 9.18.27.682862 со скином от pongo + дополнительными плагинами для PDA/PNA устройств и ГУ автомобиля под управлением операционной системы Android.Тип издания: ПираткаРелиз состоялся: 14.12.2016/23.01.2017 (skin)Разработчик: NNGПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800739ED45D33638214B8852591EF28DEFF10E61
 ```
 
 https://mybot314.ru/tekegram_catalog/

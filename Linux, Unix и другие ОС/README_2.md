@@ -1,29 +1,3 @@
-###  Публикация: 1355433   (980813) от 28.01.2020
-
-Kerio Control Software Appliance 9.3.3 build 3634 [i386] 1xCD [Multi]
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kerio Control — это комплексное решение в области безопасности, объединяющее несколько функций нового поколения (next generation) — в том числе межсетевой экран (файервол) и маршрутизатор, систему обнаружения и предотвращения вторжений (IPS), антивирус, VPN, фильтр веб-содержимого и фильтрациюприложений. Эти широкие возможности и непревзойденная гибкость в развертывании (   Читать дальше...   )Язык интерфейса: Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352D444454AA90F9B1F3F4BA58BE5FE892B0A686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355551   (980807) от 28.01.2020
 
 Kerio Operator Software Appliance 2.6.3 build 9208 [i386] 1xCD [Multi]
@@ -32,7 +6,7 @@ Kerio Operator Software Appliance 2.6.3 build 9208 [i386] 1xCD [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980807.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Slackware Live Beta3 (Mate, XFCE, KDE, Plasma5), Slackware64 Install DVD Current
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979977.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Tor Browser 5.0.7 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978814.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ JonDo/Tor-Secure-Live-DVD 0.9.88.2 [анонимный доступ в сети]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978741.jpg" />
 </div>
 
 
@@ -141,7 +115,7 @@ Q4OS 1.4.5 Live (Легкий дистрибутив) [Trinity - форк KDE 3.
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977889.jpg" />
 </div>
 
 
@@ -169,7 +143,7 @@ Frugalware Linux 1.8 [x86_64] (5xDVD+1xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977512.jpg" />
 </div>
 
 
@@ -197,7 +171,7 @@ DSL OS 4.11 rc2 [x86] (1xCD)
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974565.jpg" />
 </div>
 
 
@@ -230,7 +204,7 @@ Menuet OS 0.99.01 [x86, x86_64] (1 FDD)
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974447.jpg" />
 </div>
 
 
@@ -258,7 +232,7 @@ Slackware 14.2 Beta1 [x32, x64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974204.jpg" />
 </div>
 
 
@@ -286,7 +260,7 @@ Scientific Linux 6.5 Live RC1 [i386, x86-64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971711.jpg" />
 </div>
 
 
@@ -314,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971667.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ Tails 0.22.1 RC1 [анонимный доступ в сети] [i386] 1xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971627.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ MultiBootUSB 7.5.0 [x86, x86_64] (deb, rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970371.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ Parted Magic 2016.01.06 [i686, amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970299.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ Insofta Cover Commander 3.6.0 Repack The Hacker [x86-64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969434.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ Mythbuntu 12.04.2 LTS [i386, x86-64] (2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968602.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ KaOS Linux 2016.01 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967525.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Debian GNU/Linux 10.3.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966007.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ Debian GNU/Linux 10.3.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965949.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Microsoft Office 2003 Professional SP3 (обновления 02.01.2016) Repack 
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965243.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963943.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ BackBox Linux 3.13 (Анализ безопасности, хакинг) [i386, 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963603.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ ArchLinux 2013.02.01 [i686 + x86_64] (1xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962599.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ Mageia 4 RC [i586, x86-64] 7xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962432.jpg" />
 </div>
 
 
@@ -699,7 +673,7 @@ Q4OS 1.4.6 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961958.jpg" />
 </div>
 
 
@@ -712,6 +686,34 @@ Q4OS - дистрибутив операционной системы Linux, с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBA58488F5C077A6CB5EF2A76346944EA78661DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979246   (960879) от 25.01.2016
+
+Debian GNU/Linux 8.3.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Debian с радостью сообщает о третьем обновлении своего стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются при необходимости.
+
+Заметьте, что это (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE1FDC84A1E0D9D965738306F02A4EC30F90B9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Discovery: Золотой путь Паркера Шнабеля / Gold rush Par
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674221.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Замерзшая планета / Frozen planet (7 серий из 7, в�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_673890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_673890.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NGW: Маленький гигант / Little giant (2015) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673298.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG: Жизнь в эпоху самолётов / Living in the Age of Airplanes
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673197.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NG: Пустынное море / The Desert Sea (2016) HDTVRip [H.264/720p-LQ] 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672423.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NG: Известная Вселенная. От атома до космоса /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672390.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PBS: Мозг с Дэвидом Иглменом / The Brain with David Eagleman
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672313.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672187.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670629.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NG: Секретные материалы древности:  Вампиры с
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669951.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BBC: Жизнь в воздухе / Life In The Air (2016) HDTVRip [H.264/720p-L
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668809.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BBC. Мир природы. Обитатели пробкового леса (28
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668526.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: Землетрясение на Эвересте / Earthquake on Everest (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668098.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Discovery: Смертельный улов / Deadliest Catch (2010) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667249.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Animal Planet. Кошек не любить нельзя [2 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667100.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Animal Planet. Кошек не любить нельзя [1 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667039.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666921.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666353.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ BBC. Восхождение животных: Триумф позвоночны�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665946.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Animal Planet. Кошек не любить нельзя [3 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665929.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Animal Planet. Кошек не любить нельзя [5 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665928.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Animal Planet. Кошек не любить нельзя [4 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665925.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NG: Секс в каменном веке / Sex in the Stone Age (2011) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665885.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Animal Planet. Кошек не любить нельзя [6 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665744.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665235.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ NG: Начало (Происхождение: Путешествие челов�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665040.jpg" />
 </div>
 
 

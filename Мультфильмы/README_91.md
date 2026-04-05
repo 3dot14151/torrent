@@ -1,3 +1,133 @@
+###  Публикация: 804088   (831008) от 15.03.2017
+
+Механика сердца / Jack et la mecanique du coeur (2013) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдинбург, 1874 год. Джек, главный персонаж анимационного фильма «Механика сердца» (Jack et la mcanique du coeur), появился на свет в невероятно холодный день, и его сердце тут же остановилось, замерзнув. Мать бросила ребенка, и его спасла доктор Мадлен, волшебница, которая заменила погибшее сердце механическими часами. Такое сердце будет исправно работать, но лишь (   Читать дальше...   )Производство: Франция, Бельгия / Canal+ (fr), France 3 CinmaЖанр: Мультфильм, мюзикл, фэнтези, драма, мелодрама, приключенияРежиссер: Стефан Берла / Stphane Berla, Матиас Мальзьё / Mathias MalzieuАктеры: Матиас Мальзьё, Оливия Руис, Гран Кор Маляд, Жан Рошфор, Росси де Пальма, Мари Винсент, Эмили Луазо, Артур Х., ДаниПеревод: Двухголосый закадровый (любительский)Субтитры: ОтсутствуютПродолжительность: 01:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601DF455AFDC0517D06BD53A1E46169729D4BA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380741   (830949) от 04.05.2020
+
+Союз зверей: Спасение двуногих / Pets United (2019) WEB-DL [H.264/1080p-LQ] [PL] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830949.jpg" />
+</div>
+
+
+###  Подробнее
+
+В суперсовременном комфортабельном мегаполисе Робо-Сити всегда порядок и спокойствие, ведь за этим следят роботы. Они — главные помощники людей и их питомцев. Единственный нарушитель спокойствия — местный «Робин Гуд», бродячий пес Роджер, который крадет еду у богатых избалованных зверюшек и раздает ее бездомным. Как же он злит гламурную кошечку Белль! Вот только (   Читать дальше...   )Производство: Германия, Китай, Великобритания / China Film, Euro Sino Entertainment, Fish Blowing BubblesЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Райнхард КлооссАктеры: Натали Дормер, Эдди Марсан, Джефф Баррелл, Харви Фридман, Иэн Одль, Брайан Ларкин, Наоми МакДональд, Андрес Уильямс, Феликс АуэрПеревод: отсутствуетЯзык озвучки: дублированный - польскийСубтитры: ОтсутствуютПродолжительность: 01:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C775F55F1EBADA1EF3033341367E80F687FF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315009   (830879) от 04.05.2020
+
+Моана / Moana (2016) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесстрашная Моана, дочь вождя маленького племени на острове в Тихом океане, больше всего на свете мечтает о приключениях и решает отправиться в опасное морское путешествие. Вместе с некогда могущественным полубогом Мауи им предстоит пересечь океан, сразиться со страшными чудовищами и разрушить древнее заклятие.Производство: США / Hurwitz Creative, Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон Маскер, Дон ХоллПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B6A9A0B1BCDF6EDBB8D1A65FD5E581D1DC5048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380748   (830752) от 04.05.2020
+
+Моана / Moana (2016) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесстрашная Моана, дочь вождя маленького племени на острове в Тихом океане, больше всего на свете мечтает о приключениях и решает отправиться в опасное морское путешествие. Вместе с некогда могущественным полубогом Мауи им предстоит пересечь океан, сразиться со страшными чудовищами и разрушить древнее заклятие.Производство: США / Hurwitz Creative, Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон Маскер, Дон ХоллПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D4AC01B1B81242491782A23C7191B67E47C29E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653406   (830380) от 07.05.2013
+
+Мулан / Mulan (1998) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для великого народа наступили тяжелые времена: на страну напало воинственное племя гуннов. Переодевшись в мужскую одежду, Мулан присоединяется к другим воинам и отправляется в опасный поход к подножию заснеженных гор. Ее сопровождает забавный дракончик Мушу, который больше похож на маленькую собачку, чем на мифическое чудовище. Пытаясь скрыть тайну, они попадают (   Читать дальше...   )Жанр: Мультфильм, мюзикл, приключения, семейныйРежиссер: Тони Бэнкрофт, Бэрри КукПерсонажи: Эдди Мёрфи (Mushu, озвучка), Лиа Салонга (Mulan, озвучка), Мигель Феррер (Shan-Yu, озвучка), Харви Фирштейн (Yao, озвучка), Фреда  Фо Шен (Fa Li, озвучка), Джун Форэй (Grandmother Fa, озвучка), Джеймс Хонг (Chi Fu, озвучка), Мириам Маргулис (The Matchmaker, озвучка), Пэт Морита (The Emperor, озвучка), Марни Никсон (Grandmother Fa, озвучка), О Сун Тек (Fa Zhou, озвучка), (   Читать дальше...   )Перевод: ДублированныйЯзык субтитров: Русские (4 вида), английские (2 вида), украинскиеПродолжительность: 01:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DDD9907D4FB0690C4BF24A84C33A85B7E5EECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502219   (830106) от 13.10.2021
 
 Клоун Коко видит призраков / Koko Sees Spooks (1925) DVDRip
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830106.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830010.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829994.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829687.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829636.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829536.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829475.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829470.jpg" />
 </div>
 
 
@@ -219,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_829395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829395.jpg" />
 </div>
 
 
@@ -245,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829266.jpg" />
 </div>
 
 
@@ -271,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829238.jpg" />
 </div>
 
 
@@ -297,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829149.jpg" />
 </div>
 
 
@@ -323,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828822.jpg" />
 </div>
 
 
@@ -351,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828734.jpg" />
 </div>
 
 
@@ -377,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828731.jpg" />
 </div>
 
 
@@ -405,7 +535,7 @@ Lego Звездные войны: Хроники Йоды. Атака джеда
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828637.jpg" />
 </div>
 
 
@@ -431,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828636.jpg" />
 </div>
 
 
@@ -457,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828620.jpg" />
 </div>
 
 
@@ -483,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828530.jpg" />
 </div>
 
 
@@ -510,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828328.jpg" />
 </div>
 
 
@@ -537,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828139.jpg" />
 </div>
 
 
@@ -548,136 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D757EAEC88079900656AFF5F69334C12AF90DA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502387   (828129) от 14.10.2021
-
-4 сапога и барсук / Knutsen & Ludvigsen 2 - Det store dyret (2020) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь с самой веселой парочкой друзей на свете! Они привыкли уютно жить под землей, но однажды их выгоняют из собственного дома. Друзья не привыкли унывать и решают, что им точно смогут помочь… пираты! И как хорошо, что они знают одного! Веселый дуэт отправляется в незабываемое путешествие по тропическим пустыням, самым высоким в мире горам и доходят даже до (   Читать дальше...   )Производство: Норвегия | Headspin, Qvisten Animation, StarcomЖанр: Мультфильм, мюзикл, фэнтези, комедия, семейныйРежиссер: Гунхильд Энгер, Руне СпаансАктеры: Джон Ф. Брунгот, Херман Сабадо, Пер Инге Торкельсен, Хайди Голдман, Энн Грете Прюс, Марика Энстад, Бартек Камински, Мимми Тамба, Кристин Гру, Хассе ХоупПеревод: Дублированный (iTunes)Язык озвучки: Русский, норвежскийСубтитры: ОтсутствуютПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB2A1BB04A481026E37088527E44532C9B73CDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502421   (828041) от 14.10.2021
-
-4 сапога и барсук / Knutsen & Ludvigsen 2 - Det store dyret (2020) BDRip [H.264/720p] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь с самой веселой парочкой друзей на свете! Они привыкли уютно жить под землей, но однажды их выгоняют из собственного дома. Друзья не привыкли унывать и решают, что им точно смогут помочь… пираты! И как хорошо, что они знают одного! Веселый дуэт отправляется в незабываемое путешествие по тропическим пустыням, самым высоким в мире горам и доходят даже до (   Читать дальше...   )Производство: Норвегия | Headspin, Qvisten Animation, StarcomЖанр: Мультфильм, мюзикл, фэнтези, комедия, семейныйРежиссер: Гунхильд Энгер, Руне СпаансАктеры: Джон Ф. Брунгот, Херман Сабадо, Пер Инге Торкельсен, Хайди Голдман, Энн Грете Прюс, Марика Энстад, Бартек Камински, Мимми Тамба, Кристин Гру, Хассе ХоупПеревод: Дублированный (iTunes)Язык озвучки: Русский, норвежскийСубтитры: ОтсутствуютПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F0C55A35AB4B35DCB80D7380C7D960D559C1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502287   (828038) от 14.10.2021
-
-Босс-молокосос 2 / The Boss Baby: Family Business (2021) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Тим и Тед давно повзрослели и отдалились друг от друга. Тед стал генеральным директором инвестиционного фонда, а Тим посвятил себя семье. Он женился, поселился в пригороде и обзавелся двумя прекрасными дочерьми — Тиной и Табитой. 7-летняя Табита — умная и очень усердная. Несмотря на свой юный возраст, она уже лучшая в классе, а малышка Тина на самом деле оказывается (   Читать дальше...   )Производство: США / DreamWorks AnimationЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Том МакГратАктеры: Алек Болдуин, Джеймс Марсден, Эми Седарис, Ариана Гринблатт, Джефф Голдблюм, Ева Лонгория, Джеймс МакГрат, Джимми Киммел, Лиза Кудроу, Рафаэль АлехандроПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английскиеПродолжительность: 01:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F153A9CA79ED684FFA9F93EA74D0AA22D517B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502290   (828032) от 14.10.2021
-
-Босс-молокосос 2 / The Boss Baby: Family Business (2021) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Тим и Тед давно повзрослели и отдалились друг от друга. Тед стал генеральным директором инвестиционного фонда, а Тим посвятил себя семье. Он женился, поселился в пригороде и обзавелся двумя прекрасными дочерьми — Тиной и Табитой. 7-летняя Табита — умная и очень усердная. Несмотря на свой юный возраст, она уже лучшая в классе, а малышка Тина на самом деле оказывается (   Читать дальше...   )Производство: США / DreamWorks AnimationЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Том МакГратАктеры: Алек Болдуин, Джеймс Марсден, Эми Седарис, Ариана Гринблатт, Джефф Голдблюм, Ева Лонгория, Джеймс МакГрат, Джимми Киммел, Лиза Кудроу, Рафаэль АлехандроПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английскиеПродолжительность: 01:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D872247255DFFB997AA70BE11BC05564427E267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502307   (827955) от 14.10.2021
-
-Мулан. Новая легенда / Mulan: Heng kong chu shi / Kung Fu Mulan (2020) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она сильна и духом, и телом, она овладела искусством кунг-фу, она готова сражаться за свою родину. Но она — женщина, не имеющая права вступать в ряды армии. Пойдя на хитрость, девушка занимает в строю место отца. Теперь ей придется скрывать свое истинное лицо от новых друзей, но честь обманом не добудешь — ёе нужно заслужить в сражениях, благородными поступками, (   Читать дальше...   )Производство: Китай / Gold Valley FilmsЖанр: мультфильм, боевикРежиссер: Лео ЛяоПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7975DE4CA5ED4DDEB927F9C680EF4EE7EC2E698C
 ```
 
 https://mybot314.ru/tekegram_catalog/

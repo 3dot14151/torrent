@@ -1,32 +1,3 @@
-###  Публикация: 1512130   (787757) от 23.11.2021
-
-javascript.ninja, Виталий Слободин, Илья Климов | CI/CD для frontend-инженера (2021) WEB-DL [AD]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787757.jpg" />
-</div>
-
-
-###  Подробнее
-
-DevOps - это прежде всего культура, а не должность. Эффективное понимание DevOps-процессов резко повышает вашу ценность для компании, а CI/CD - сердце DevOps
-C фокусом на JS. Не только фронт, но и бэк
-CI/CD - универсальная штука, не привязанная к языку. Тем не менее, везде есть определенная специфика и нюансы, связанные с инструментами и стеком
-(   Читать дальше...   )Производство: javascript.ninjaЖанр: АдминистрированиеПродолжительность: 25:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BFF1A7DD54E8BC6C0525738C0B41F8EE620E8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512110   (787755) от 23.11.2021
 
 Udemy, Илья Фофанов, Dmitri Nesteruk | Шаблоны проектирования на Python (2021) WEB-DL [AD]
@@ -35,7 +6,7 @@ Udemy, Илья Фофанов, Dmitri Nesteruk | Шаблоны проекти�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787755.jpg" />
 </div>
 
 
@@ -63,7 +34,7 @@ Stepik, Никита Пестров и др. | Создание Web-сервис
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787750.jpg" />
 </div>
 
 
@@ -89,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787475.jpg" />
 </div>
 
 
@@ -115,7 +86,7 @@ LoftSchool | Основы вёрстки (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787421.jpg" />
 </div>
 
 
@@ -141,7 +112,7 @@ Udemy, Виталий Черненко | Формы списков в 1С (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787313.jpg" />
 </div>
 
 
@@ -169,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787309.jpg" />
 </div>
 
 
@@ -197,7 +168,7 @@ ITVDN | Создание адаптивного сайта с  Bootstrap 3 (2016
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786946.jpg" />
 </div>
 
 
@@ -223,7 +194,7 @@ ITVDN | Ruby Essential (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786931.jpg" />
 </div>
 
 
@@ -249,7 +220,7 @@ Udemy | Bootstrap 4 From Scratch With 5 Projects (2018/06) PCRec [H.264] [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786822.jpg" />
 </div>
 
 
@@ -275,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785699.jpg" />
 </div>
 
 
@@ -301,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785694.jpg" />
 </div>
 
 
@@ -330,7 +301,7 @@ ITVDN | Онлайн курс Bootstrap 4 (2018) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785247.jpg" />
 </div>
 
 
@@ -356,7 +327,7 @@ MonsterLessons, Александр Кочергин | Docker и Docker Compose -
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785044.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784708.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784696.jpg" />
 </div>
 
 
@@ -435,7 +406,7 @@ Udemy | git. Контроль версий для разработчиков (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784138.jpg" />
 </div>
 
 
@@ -463,7 +434,7 @@ Jose Salvatierra | The Complete Python Course - Learn Python by Doing (2020) [H.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783618.jpg" />
 </div>
 
 
@@ -490,7 +461,7 @@ Udemy | Базовый Python (2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783291.jpg" />
 </div>
 
 
@@ -517,7 +488,7 @@ Udemy | Продвинутые навыки Python: станьте лучшим 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783290.jpg" />
 </div>
 
 
@@ -546,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783289.jpg" />
 </div>
 
 
@@ -573,7 +544,7 @@ Udemy | Азбука JavaScript (курс для начинающих) (2020) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783285.jpg" />
 </div>
 
 
@@ -599,7 +570,7 @@ Udemy | Telegram. Пишем ботов на Node JS и Telegraf (2020) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783280.jpg" />
 </div>
 
 
@@ -626,7 +597,7 @@ Foxminded | Инструментарий Java для новичка (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783272.jpg" />
 </div>
 
 
@@ -654,7 +625,7 @@ Nztcoder | ZennoPoster-Master #1: Становление - с нуля до ко
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782187.jpg" />
 </div>
 
 
@@ -683,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781541.jpg" />
 </div>
 
 
@@ -697,6 +668,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB194DA27484814A9619122E3B8E1756CE295CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391393   (780931) от 20.06.2020
+
+Udemy | HTML + CSS с Нуля до Результата (2020) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из этого курса ты узнаешь, как использовать HTML5 и CSS3 для разработки web-сайта. Также ты изучишь основы написания кода на JavaScript для оживления проекта.
+Для кого этот курс:
+Этот курс предназначен для всех, кто хочет узнать о веб-разработке, независимо от уровня осведомлённости
+Это также отлично подходит для тех, кто имеет некоторый опыт в некоторых технологиях (   Читать дальше...   )Производство: Максим СукманюкЖанр: HTML, CSSПродолжительность: 12:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C91F60A3D687DA5F3AB9DA6FEC430E61241376B
 ```
 
 https://mybot314.ru/tekegram_catalog/

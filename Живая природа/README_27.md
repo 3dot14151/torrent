@@ -1,3 +1,29 @@
+###  Публикация: 1069993   (371157) от 05.11.2016
+
+Горбатые киты / Humpback Whales (2015) BDRip3D [H.264/1080p][вертикальная анаморфная стереопара][ENG]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прокомментированное дважды лауреатом премии "Золотой Глобус" Эваном МакГрегором, это - экстраординарное путешествие в сказочный мир одного из самых впечатляющих животных планеты. Съемки велись в красивейших местах Аляски, Гавайев и отдаленных берегов Тонги; во время этого приключения вы узнаете, как общаются киты между собой, как они поют, питаются, играют (   Читать дальше...   )Телекомпания: Pacific LifeЖанр: Документальный, ВидовойРежиссер: Грег МакГилвриПеревод: ОтсутствуетЯзык субтитров: английскийПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECD85527C4D44F396998C3FE7E91CED26F4B76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069838   (371015) от 05.11.2016
 
 Чудесный лес / Metsan tarina (2012) BDRip3D [H.264/1080p] [вертикальная анаморфная стереопара] [ENG]
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371015.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370622.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ BBC: Тайная жизнь птиц / Secret Life of Birds (2010) BDRip [H.264
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370431.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368454.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ BBC: Тайная жизнь птиц / Secret Life of Birds (2010) BDRip (Се�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368070.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367056.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367047.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364793.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361780.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361123.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360767.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360381.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360320.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359616.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359444.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359101.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358243.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354319.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354273.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354069.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353873.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353528.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353260.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352247.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352120.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA8FC1940199C371B4BA845E8CE3C02D08BF0A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329602   (352117) от 05.10.2019
-
-Джунгли 3D: Волшебство другого мира / The Jungle 3d: Magic Of Another World (2012) BDRemux [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джунгли Коста-Рики по праву считаются самыми зелеными в Центральной Америке. Эта страна буквально погружена в эти тропические леса, которые поражают своей богатой флорой и фауной. Этот документальный фильм поможет вам оказаться в этом раю, не выходя из дома.Производство: Германия, KSMЖанр: Документальный, природа, флора, фаунаРежиссер: Аттила ТенкиПеревод: Одноголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD771C6554641F2B7C06642E63C9F2938D55534
 ```
 
 https://mybot314.ru/tekegram_catalog/

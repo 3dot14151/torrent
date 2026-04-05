@@ -1,3 +1,32 @@
+###  Публикация: 1652633   (217063) от 12.08.2023
+
+David Byrne & Fatboy Slim - Here Lies Love (2010) 2CD, Remaster, 2023, Nonesuch [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Lies Love (feat. Florence Welch) (2023 Remaster) [00:05:50]
+02. Every Drop of Rain (feat. Candie Payne & St. Vincent) (2023 Remaster) [00:05:33]
+03. You'll Be Taken Care Of (feat. Tori Amos) (2023 Remaster) [00:03:25]
+04. The Rose of Tacloban (feat. Martha Wainwright) (2023 Remaster) [00:02:34](   Читать дальше...   )Жанр: Glam Rock, Hard Rock, Art RockПродолжительность: 2 CD, 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3226040866E16E32E3F106F841D799C5F55547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652502   (217057) от 12.08.2023
 
 George Lynch & Jeff Pilson - Heavy Hitters II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +35,7 @@ George Lynch & Jeff Pilson - Heavy Hitters II (2023) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217057.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Michael Damian - Love Is A Mystery (1989) [FLAC|Lossless|image + .cue] <Pop Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217050.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sleeping Romance - Alba (2017) [FLAC|Lossless|image + .cue] <Symphonic Metal, Fe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217049.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Kiara - Archangel (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217045.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217029.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Communic - Whеrе Есhоеs Gаthеr (2017) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217008.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Blindstone - Scars To Remember (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217001.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ King Kobra - We Are Warriors (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216982.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Waterloo - First Battle (1970) Reissue, 1999, Musea ‎[FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216980.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Ekseption - Ekseption (2023) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216953.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Stick Men - Prog Noir (2016) [FLAC|Lossless|tracks + .cue] <Eclectic Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216938.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Dead Days - Start Over Again (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216920.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Stotan Falls - The Passage (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216919.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Through Fire - Breathe (2016) [MP3|320 Kbps] <Alternative Metal, Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216914.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Black Top - Cherry Picking (2016) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216877.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Golden Earring - 3 Albums (2021-2022) [MP3|320 Kbps] <Hard Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216865.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Tobias Sammet's Avantasia - A Paranormal Evening With The Moonflower Society (20
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216840.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Megaherz - In Teufels Namen (2023) [FLAC|24/44.1|tracks|WEB-DL] <Neue Deutsche H
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216830.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Summer Rock - The Greatest Hits for Your Festival Adventures (2023) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216818.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Plini - Handmade Cities (2016) [MP3|320 Kbps] <Prog Rock, Progressive Metal, Ins
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216779.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Fantasy - 2 albums, 3CD (1973-1999) [FLAC|Lossless|image + .cue] <Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216778.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Tarja Turunen - Rocking Heels (Live at Metal Church) (2023) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216763.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ The Silence Broken - The Pendulum Effect (2016) [MP3|320 Kbps] <Alternative Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216761.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Styx - Edge Of The Century (1990) Japan Mini LP SHM-CD, 2016 [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216721.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Rotten Toten - Ужин у вдовы (2019) [MP3|320 Kbps] <Rock, Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216717.jpg" />
 </div>
 
 
@@ -718,34 +747,6 @@ Rotten Toten - Ужин у вдовы (2019) [MP3|320 Kbps] <Rock, Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5429EB6EB4A1032BBD2FE9A273C1C36A594D12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652079   (216713) от 12.08.2023
-
-Hanoi Rocks - Up Around the Bend: The Definitive Collection (2004) 2CD, Compilation [MP3|320 Kbps] <Hard-Rock, Glam-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD-01 - Up Around the Bend: The Definitive Collection
-CD-02 - Up Around the Bend: The Definitive CollectionЖанр: Hard-Rock, Glam-RockПродолжительность: 2 CD, 02:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E85E39653AC432AA0A7819DF4FA046B41129D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

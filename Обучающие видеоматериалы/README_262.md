@@ -1,3 +1,31 @@
+###  Публикация: 1194603   (152597) от 26.12.2017
+
+Специалист | Linux (CentOS/Debian)/FreeBSD. Уровень 3. Взаимодействие с сетевым оборудованием Cisco Systems (2015) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152597.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отличии от сертифицированных курсов компании Cisco, предназначенных для качественной подготовки к сертификации, наш курс ориентирован на решение практических жизненных задач, и демонстрирует уникальные возможности интеграции систем Linux/FreeBSD и Cisco.
+
+Данный курс предназначен для системных администраторов,  работающих с системами Linux или FreeBSD, и, использующих, (   Читать дальше...   )Производство: Лохтуров Вячеслав АлександровичЖанр: Linux, Системное администрированиеПродолжительность: 14:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB7F48F50CDE0276A3FF0CFEADF381B016425DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433839   (152545) от 23.12.2020
 
 Станислав Пучковский | Sean Archer Tutorials (2014) PCRec [En]
@@ -6,7 +34,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152545.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Tania_govorit, Татьяна Шаврова | Полное собрание м�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152470.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152461.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ Compositing Academy, Alex Hanneman | VFX Color Grading and Re-Lighting in Nuke �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152450.jpg" />
 </div>
 
 
@@ -119,7 +147,7 @@ Contrse, Дарья Калугина | Левитация: еда в движе�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152430.jpg" />
 </div>
 
 
@@ -148,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152294.jpg" />
 </div>
 
 
@@ -174,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152292.jpg" />
 </div>
 
 
@@ -202,7 +230,7 @@ SOA Academy | Photorealism with Corona Renderer Online (2021) WEB-DL [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152285.jpg" />
 </div>
 
 
@@ -228,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152260.jpg" />
 </div>
 
 
@@ -257,7 +285,7 @@ Learn Squared, Milan Nikolic | Creature Design (2018) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152247.jpg" />
 </div>
 
 
@@ -285,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152172.jpg" />
 </div>
 
 
@@ -313,7 +341,7 @@ Kaplan School, Гунефа Матюшенкова | Техники скетчи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152068.jpg" />
 </div>
 
 
@@ -341,7 +369,7 @@ Alpina Digital, Артемий Анцупов | Канбан-метод. Как 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152022.jpg" />
 </div>
 
 
@@ -368,7 +396,7 @@ ProArt School, Майк Вазовский | Game Art иллюстрация (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151982.jpg" />
 </div>
 
 
@@ -397,7 +425,7 @@ Revuer, Евгений Дюжакин | МК «Ретушь и работа с �
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151965.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ Udemy, Joe "tripplejaz" Zavaletta | How to Design Comic Book Characters Course (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151796.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151788.jpg" />
 </div>
 
 
@@ -480,7 +508,7 @@ kobezzza.channel, Андрей Кобец | Интенсив «Рефлекси�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151638.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151498.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151493.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151436.jpg" />
 </div>
 
 
@@ -590,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151429.jpg" />
 </div>
 
 
@@ -616,7 +644,7 @@ kobezzza.channel, Андрей Кобец | Устройство компиля�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151391.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ Udemy, Илья Фофанов, Валерий Павлов | Бэкенд ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151264.jpg" />
 </div>
 
 
@@ -670,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150926.jpg" />
 </div>
 
 
@@ -684,32 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34593261DE1599507CB3E6142AEEB357F97E301F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195001   (150893) от 27.12.2017
-
-HighLights | Веб-дизайн. Продвинутый уровень (2016) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс для практикующих дизайнеров, которые хотят повысить качество своих работ и открыть для себя новые приемы в веб-дизайне.Жанр: ДизайнПродолжительность: 19:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E53F551C752731590598E3C563E71BD7B071F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

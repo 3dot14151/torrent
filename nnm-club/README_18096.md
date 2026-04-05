@@ -1,22 +1,22 @@
-###  Публикация: 962867   (289435) от 07.12.2015
+###  Публикация: 963043   (290427) от 06.12.2015
 
-Ханс Георг Гадамер | Диалектическая этика Платона (2000) [DJVU]
+CSoft Project StudioCS R6.0.028 [Ru]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>След.
+>>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемая работа известного философа Г. Г. Гадамера посвящена разбору одного из интереснейших диалогов Платона, диалогу «Филеб». Представляет интерес, с одной стороны, как серьезное историко-философское исследование, а с другой - как важный этап становления философской герменевтики как оригинального и влиятельного философского направления. Работа написана в 1931 (   Читать дальше...   )Жанр: Философия, История философииПеревод: О. А. КовальФормат: DJVU
+Project StudioCS — специализированное приложение к 32 и 64 битным графическим системам AutoCAD, Autodesk Architectural Desktop, AutoCAD Architecture, Autodesk Building Systems, AutoCAD MEP, предназначенное для выполнения комплектов рабочих чертежей марок АС, АР, КЖ и КЖИ в соответствии с требованиями отечественных норм и стандартов. Все модули комплекса разработаны (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A0F3117ACAE933DCD46B89DEDC56B455779FF70
+magnet:?xt=urn:btih:DA16429D1F6310B5E2C5A6620F0A0FE33576C4BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 963255   (289434) от 07.12.2015
+###  Публикация: 962908   (290426) от 06.12.2015
 
-VA - Techno Club Vol. 48 (Mixed By Talla 2XLC & Menno De Jong) (2015) [MP3|320 кб/с]<Trance>
+Любовь / Love  (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
 
->>Electronic
->>Trance
+>>След.
+>>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290426.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Menno De Jong - Sunleaf (Intro) (1:25)
-02. Neelix - People (Original Mix) (6:46)
-03. Transwave - Land Of Freedom (Liquid Soul Remix) (6:35)
-04. Menno De Jong - Abhyasa (Alex Di Stefano Remix) (4:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:49
+Любовь вне добра и зла. Любовь - это генетическая потребность. Это дар и проклятие. Любовь - это болезнь, наркотик. Это потеря и обретение себя. Любовь - это самое прекрасное и самое ужасное в нашей жизни. Любовь - это переплетение душ и соединение тел. «Любовь» - это возбуждающая сексуальная мелодрама о парне, девушке и еще одной девушке.Производство: Франция, Бельгия, Wild Bunch, Les Cinémas de la Zone, Rectangle Productions, Scope Pictures, RT FeaturesЖанр: Драма, МелодрамаРежиссер: Гаспар НоэАктеры: Аоми Муйок, Карл Глусман, Клара Кристин,  Хуан Сааведра, Бенуа Деби, Венсан Мараваль, Дебора Реви,  Стелла РочаПеревод: Многоголосый закадровый, проффессиональныйСубтитры: ОтсутствуютПродолжительность: 02:15:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E55677CC85B035867CE70A9C2FC3C1122144D313
+magnet:?xt=urn:btih:32B7542A9CAD258B65B2FBA92D0A08495D38B709
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 962910   (289433) от 07.12.2015
+###  Публикация: 962884   (290425) от 06.12.2015
 
-Эдмунд Бёрк | Правление, политика и общество [сборник] (2001) [DJVU]
+Microsoft Visual Studio 2015  14.0.24720.00 Update 1 [Ru/En]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В это издание (малая серия «Сtvitas Terrena») вошли избранные политико-правовые труды Эдмунда Бёрка — мыслителя, писателя и политика, придавшего британскому XVIII в. всю его специфическую неповторимость. Например, уникальные бёрковские суждения об американской и французской революциях получили в консервативных интеллектуальных и политических кругах статус всеобщности (   Читать дальше...   )Жанр: ПолитологияПеревод: Л. В. ПоляковФормат: DJVU
+Visual Studio – это среда разработки программного обеспечения от компании Microsoft. С помощью Visual Studio можно создавать приложения для Windows, iOS, Android и других платформ. В Visual Studio включены инструменты не только для создания desktop приложений, но и web, мобильные и облачные инструменты разработки. Имеется возможность написания кода на  языках программирования: (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1501B0926F9E3401EA823C2D55B16B8456103AAC
+magnet:?xt=urn:btih:47577BA159CE16BAB43386EF9FB1370454076A4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,110 +76,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 963367   (289432) от 07.12.2015
+###  Публикация: 962944   (290424) от 06.12.2015
 
-Snooks Eaglin - The Complete Imperial Recordings (1995) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Yours Truly (2:09)
-02.  Nobody Knows (The Trouble I've Seen) (2:13)
-03.  That Certain Door (3:16)
-04.  By the Water (2:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77CF040830873B6F9121AB53B1BDBB314D463CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962841   (289431) от 07.12.2015
-
-Винсент Декомб | Современная французская философия [сборник] (2000) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289431.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу включены два произведения известного французского философа В. Декомба «Тождественное и иное» и «Философия грозовых времен». Автор исследует происхождение и развитие философских взглядов как классиков мировой философии (Э. Гуссерль, А. Бергсон, Г. Башляр, Ж. П. Сартр, М. Мерло-Понти, М. Фуко, Ж. Деррида), так и философов современной Франции, представляющих (   Читать дальше...   )Жанр: Философия, История философииПеревод: М. М. ФедороваФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193DCCCBF4F2FAABA648CF1E1459A8EBC940D100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962909   (289430) от 07.12.2015
-
-Генрих Риккерт | Философия жизни (1998) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генрих Риккерт (1863—1936) — виднейший представитель неокантиантства — одного из влиятельнейших философских направлений конца XIX — начала XX века.
-Вслед за Кантом Риккерт рассматривал философию как науку о должном и стремился через анализ исторических методов и понятий перейти "от исторического к сверхисторическому’', к учению об общезначимых ценностях. Отстаивая (   Читать дальше...   )Жанр: ФилософияПеревод: Г. Г. Шпет, С. И. Гессен, Е. С. Берлович, И. Я. КолубовскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4888A56B1B4B6EADCF434D3379E15B1A8404BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335271   (289429) от 01.11.2019
-
-VA - Новинки С Разных Популярных MP3 Сайтов ver.89 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+VA - In the Club 2016.1 (2015) [MP3|256 кб/с]<Dance, Club, House>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dance:
-1.B.o.B Ft. Hayley Williams - Airplanes (Arefiev Remix) (3:00)
-2.Cacciola - My Body (Milk Bar Remix) (4:56)
-3.Curbi - Too Much (Extended Mix) (3:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:00:41
+01. Robin Schulz - Sugar (feat. Francesco Yates) 03:40
+02. Deorro & Chris Brown - Five More Hours (Radio Edit) 03:33
+03. Tiesto & KSHMR - Secrets (feat. Vassy)Жанр: Dance, Club, HouseПродолжительность: 05:36:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E59521A82F6B0B55D3E01C81390E373A5071D320
+magnet:?xt=urn:btih:E942FBDD50BE00AA22F9F7EDF5F4E4839704538B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,25 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334959   (289428) от 01.11.2019
+###  Публикация: 922820   (290423) от 06.12.2015
 
-Rob Reger | Артбук по миру Странной Эмили / The Art of Emily the Strange (2009) [CBR] [EN]
+Grim Dawn (2013) [Ru/En] (0.3.6.5 b28) Repack R.G. Games [Early Access]
 
->>Комиксы и Артбуки
->>Артбуки
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290423.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артбук содержит рисунки по миру Странной ЭмилиЖанр: АртбукФормат: CBR
+Grim Dawn - мрачный рассвет нового века, где железо заменило золото в качестве валюты и обыкновенная соль приобрела такую цену, что ее перестали использовать в еде. Небольшие разрозненные анклавы оставшихся в живых существуют по всему миру, скрываясь в убежищах.Тип издания: RepackРазработчик: Crate EntertainmentЖанр: RPG (Rogue/Action), 3D, 3rd PersonЯзык озвучки: Музыкальное сопровождениеЯзык субтитров: Английский, РусскийЯзык интерфейса: Английский, Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5901144C24F4C4B3EF4F1F238917B7EA7DF85E9D
+magnet:?xt=urn:btih:FF18048E6330D99188280785CFF0D81F3C12B50C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -216,28 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335180   (289427) от 01.11.2019
+###  Публикация: 963021   (290422) от 06.12.2015
 
-Zdob si Zdub - Bestiarium (2019) [MP3|320 Kbps] <Folk Rock>
+Ужастики / Goosebumps (2015) WEBRip [H.264/720p-LQ] [VO]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290422.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Statu-Palmă-Barbă-Cot
-2. Muma Pădurii
-3. Lupul Solitar
-4. Horea Despre Horea(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:00:25
+Зак переезжает с родителями в провинциальный городок, где знакомится с очаровательной соседкой Ханной. Он узнает, что ее отец — Роберт Стайн, знаменитый писатель, автор популярной серии триллеров для подростков «Ужастики», у которого есть мрачная тайна. Стайн — пленник собственных историй: монстры из его произведений вполне реальны, и он пишет свои книги для того, (   Читать дальше...   )Производство: США, Австралия,  Columbia Pictures, LStar Capital, Original Film, Scholastic Entertainment, Sony Pictures Animation, Sony Pictures Entertainment (SPE), Village Roadshow PicturesЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Роб ЛеттерманАктеры: Дилан Миннетт, Одейя Раш, Эми Райан, Райан Ли, Джиллиан Белл, Джек Блэк, Кен Марино, Холстон Сейдж, Стивен Крюгер, Кит А. Болден, Аманда Ланд, Тимоти С. Саймонс, Каран Сони, Р.Л. Стайн, Калеб Эмери, Габриэла Фрайле, Нэйт Андраде, Шелдон Браун, Мелисса Брюэр, Маршалл ЧокаПеревод: Одноголосый закадровый, любительский (VANO)Язык субтитров: Английский (Full)Продолжительность: 01:43:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E0EA40A19FB4A552B06EFCE5B76E3249A3D3CB4
+magnet:?xt=urn:btih:20DC559424C62948521417DECA0820FB9C640644
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,28 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335158   (289426) от 01.11.2019
+###  Публикация: 963092   (290421) от 06.12.2015
 
-Quiet Riot - Hollywood Cowboys (2019) [MP3|320 Kbps] <Rock>
+Adobe Premiere Pro CC 2015.1 (9.1.0 (174)) RePack by D!akov [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290421.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don’t Call It Love
-02. In The Blood
-03. Heartbreak City
-04. The Devil That You Know(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:02
+Adobe Premiere Pro CC 2015 - это мощный, настраиваемый редактор для нелинейного монтажа, с помощью которого можно монтировать видео именно так, как вам этого хочется. Импорт и свободное объединение любых видеозаписей, от клипа, снятого на телефон, до необработанного 5K, с последующим монтажом, для которого не требуется выполнять перекодирование.Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CFC25CB0DEBF6EA67175A5BFB2BAA88BEE2BBA0
+magnet:?xt=urn:btih:1D95D52647EFF801AC596F27BC9747C4F4BFC85A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,25 +182,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335147   (289425) от 01.11.2019
+###  Публикация: 963158   (290420) от 06.12.2015
 
-Александр Шакилов | S.T.A.L.K.E.R. Каратели (2019) [MP3]
+CSoft GeoniCS 2015 15.0.0.14 [Ru]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мародеры, наемные убийцы и бандиты - дно Зоны. Их ненавидят сталкеры, на них охотятся военные, и сами они убивают друг друга. Но все же некоторые выживают даже в этом жестоком мире и становятся лишь сильнее. Макс Краевой по прозвищу Край - удачливый главарь небольшой банды. Чтобы претворить в жизнь свои планы, он решает ограбить скупщика Сидоровича, у которого недавно (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 09:19:08
+GeoniCS - отечественная технологическая линия на платформах AutoCAD и nanoCAD для обработки данных геодезических и инженерно-геологических изысканий, создания и ведения геоинформационного ресурса территории и промобъектов, геоинженерного проектирования в области гражданского, промышленного и транспортного строительства. На основе модели объекта GeoniCS ТОПОПЛАН-ГЕНПЛАН-СЕТИ-ТРАССЫ-СЕЧЕНИЯ-ГЕОМОДЕЛЬ (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A876ECE4E6D79DABD6B2EE6A35FAE0CE81EE782B
+magnet:?xt=urn:btih:23CF6A0551AC3C5BEF3B3A9072E9F5E1C955C250
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,81 +208,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335153   (289424) от 01.11.2019
+###  Публикация: 1080345   (290419) от 06.12.2016
 
-Haunted Hotel 18: Room 18 (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной мистической серии игр Haunted Hotel. Джон и Джеймс Блэкторн получили приглашение на семейную встречу в отель Sweet 18. Они ожидали приятно провести время со своими родными, но отель оказался пуст, и кроме портье в нём никого не было. Однако вскоре становится понятно, что в этом жутком отеле они не совсем одни: тёмный туман бродит по его (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F046A1D2470524F41891475F50FC94927C21E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334126   (289423) от 01.11.2019
-
-Эйзенштейн в Гуанахуато / Eisenstein in Guanajuato (2015) HDRip [H.264] [MVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289423.jpg" />
-</div>
-
-
-###  Подробнее
-
-В октябре 1931 года 33-летний Сергей Эйзенштейн, знаменитый кинорежиссёр, но всё ещё девственник, путешествует по Мексике, работая над фильмом «Да здравствует Мексика!» (Que viva México), финансируемый американскими сторонниками коммунистов во главе с писателем Эптоном Синклером.
-Эйзенштейн намерен провести несколько дней в Гуанахуато, прекрасном городе серебряных (   Читать дальше...   )Производство: Нидерланды, Бельгия, Финляндия, Мексика, Франция / Edith Film Oy, Fu Works, Mollywood, Paloma Negra Films, Potemkino, Submarine, Vrijzinnig Protestantse Radio Omroep (VPRO), Yleisradio (YLE), ZDF/ArteЖанр: драма, мелодрама, комедия, биографияРежиссер: Питер ГринуэйАктеры: Элмер Бэк, Луис Алберти, Хосе Монтини, Cristina Velasco Lozano, Rasmus Slätis, Якоб Ёрман, Сара Хуарес, Alaín Vargas, Майя Сапата, Gustavo GalvánПеревод: Двуголосый (Колобок)Субтитры: Русские, английскиеПродолжительность: 01:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A33CDBC6F95F690F3E627D834C8DF36AE82F8DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263130   (289422) от 18.11.2018
-
-Jean-Michel Jarre - Equinoxe Infinity (2018) Columbia [FLAC|Lossless|tracks+.cue] <Ambient, New-Age, Experimental>
+VA - Chillout December 2016 Top 10 December Relaxing Chill Out and Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Watchers (Movement 1) (02:58)
- 02. Flying Totems (Movement 2) (03:54)
- 03. Robots Don't Cry (Movement 3) (05:44)
- 04. All That You Leave Behind (Movement 4) (04:01)(   Читать дальше...   )Жанр: Ambient, New-Age, ExperimentalПродолжительность: 00:39:55
+01. Alexander Gorshkov - Good Morning
+02. Leonid Bannikov - Black Princess
+03. Doors In The Sand - True Story
+04. Seven24 - Vision(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:52:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F65EC407DA217DBA89BEF748EED9477BFA40ACB7
+magnet:?xt=urn:btih:B244991DC3AA92E64AE9AE4FBEA014573EBA9AC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -382,28 +237,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335223   (289421) от 01.11.2019
+###  Публикация: 1080107   (290418) от 06.12.2016
 
-Манюня и Ураган (Марина Анисимова и Сергей Гоппен) - И всё сбылось... и не сбылось? (2003) [FLAC|Lossless|image + .cue] <Retro>
+VA - Ultimate Songs Pop Essentials (2016) [MP3|195-320 Kbps] <Hip-Hop, Ethnic, Soul, R&B, Folk, Indie>
 
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Я тебя подожду [0:03:18.57]
-02. Я мечтала о морях и кораллах... [0:02:31.36]
-03. Обнимая небо [0:02:48.41]
-04. Старый клен [0:03:28.70](   Читать дальше...   )Жанр: RetroПродолжительность: 00:40:53
+01. Robert Carl Blank - Fate 03:46
+02. Oj Da Juiceman - Kyle Kover 03:52
+03. Sync Diversity - Let's Dance 03:22
+04. Paper Route - Pretend 03:40(   Читать дальше...   )Жанр: Hip-Hop, Ethnic, Soul, R&B, Folk, IndieПродолжительность: 03:29:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24330FA0974BA8766261433FF9E481E152FF9B92
+magnet:?xt=urn:btih:14C597F283E7E4AF27C01E675A6839003952395A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -411,79 +266,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263207   (289420) от 18.11.2018
+###  Публикация: 1080019   (290417) от 06.12.2016
 
-Xara Web Designer Premium 16.0.0.55162 [En]
+John Coltrane - A Love Supreme. In Concert (1961, 1965) 1991, Suisa[APE|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Part I: Acknowledgement [06:07]
+ 02.Part II: Resolution [11:54]
+ 03.Part III: Pursuance [13:05]
+ 04.Part IV: Psalm [08:15](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE362EE8F92728EE1DA6935B4291CD5335C1B673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080402   (290416) от 06.12.2016
+
+Thelonious Monk - Criss-Cross (1963) 1993, Columbia[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hackensack [04:18]
+ 02.Tea For Two [03:53]
+ 03.Criss-Cross [04:46]
+ 04.Eronel [04:37](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0A535F11B9ED5B4E8A7A71D0C96C9B9636C177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080331   (290415) от 06.12.2016
+
+Letter Templates for Pages 4.1 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программное обеспечение Xara Web Designer Premium – уникальный в своей отрасли инструмент для web-дизайна. Xara Web Designer Premium работает по принципу WYSIWYG и позволяет дизайнерам создавать сайты, соответствующие стандарту HTML и корректно отображаемые в любом стандартном браузере на любой платформе. Разработчикам не придется тратить время на освоение языков (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A706EB80672B7E1DDF5429E58369087659058E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335238   (289419) от 01.11.2019
-
-MediaHuman YouTube Downloader 3.9.9.26 (3110) RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289419.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaHuman YouTube Downloader - удобное приложение с помощью которого можно быстро и легко загрузить понравившийся видеоклип или трейлер с YouTube, и сохранить его на ПК в любом доступном формате. Достаточно добавить ссылку на ролик, выбрать качество скачиваемого видео, указать необходимый формат и начать загрузку. Кроме того программа может отслеживать буфер обмена, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69775C9FDC7AC89F2561233679E3F7EDDB0A7A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263200   (289418) от 18.11.2018
-
-Николас Имс | Короли Жути (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман из цикла «Сага».
+Letter Templates – это новый вид ваших документов, созданных в Pages.
+Новый взгляд ваших писем! Современный Letter Templates включает в себя 213 узнаваемых проектов, которые были адаптированы из различных шаблонов Jumsoft для Apple Mail.
 
-Двадцать лет назад «Сага» гремела на весь обитаемый мир, от Крайнии на западе до Великой Зеленой пучины на востоке. Клэй Пузочес (со щитом Черное Сердце из древесины ходячего дерева), Золотой Гэбриель (с друинским мечом Веленкор, по преданию некогда прорубившим проход между мирами), Матрик Черепобой (с любимыми кинжалами Рокси и Грейси), (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтезиПеревод: Александра ПитчерФормат: FB2
+Как и его эквиваленты Mail, Letter Templates for Pages представляет исключительную коллекцию писем для бизнеса и личного пользования, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 декабря 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:347E200D01AB235B6FF85D497CF22AE86ED76646
+magnet:?xt=urn:btih:0749BC69BC08ABE91A3CAEDB7C5205AA6A2C8B3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +353,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335267   (289417) от 01.11.2019
+###  Публикация: 1080226   (290414) от 06.12.2016
 
-Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Человек-паук - Высокое напряжение (Complete Motion Picture Soundtrack) (2014(2018) [FLAC|Lossless|tracks]<Soundtrack>
+VA - I Know Your Love Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Other Styles
->>OST (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 1m1 Logos (00:41)
-02. 1m1a The Opening (03:18)
-03. 1m1a The Opening (Alternate) (03:24)
-04. 1m1b Parents On Plane (03:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:21:54
+01. Aguas Pura - Massage Sleep 3:40
+02. Jay Jay & The Snakes - Walking In The Sunshine 6:08
+03. Thesan Project - Tears From Heaven 7:57
+04. Aqua Mundi - Balletic 5:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:09:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E90DBE56D2D7B5442BE5963DA12CEF635B7BE0D9
+magnet:?xt=urn:btih:03882B6E21FD661DEE98446BB295C405E3046858
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +382,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263047   (289416) от 18.11.2018
+###  Публикация: 1080246   (290413) от 06.12.2016
 
-Бегущий в лабиринте / The Maze Runner (2014) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+VA - Absolute Uplifter (Euphoric Trance) Vol. 2 (2016) [MP3|320 Kbps] <Uplifting Trance>
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главный герой — подросток Томас, который просыпается в лифте, но ничего не помнит, кроме своего имени. Он оказывается среди 60 подростков, научившихся выживать в замкнутом пространстве. Раз в 30 дней прибывает новый мальчик. Группа ребят проживает в «Приюте» уже три года. Они кормятся тем, что удается вырастить на земле, и пытаются найти выход из лабиринта, окружающего (   Читать дальше...   )Производство: США, 20th Century Fox, Gotham Group, Temple Hill EntertainmentЖанр: Фантастика, Боевик, ТриллерРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Томас Сэнгстер, Кая Скоделарио, Уилл Поултер, Ки Хонг Ли, Блейк Купер, Амл Амин, Алекс Дж. Флорес, Джейкоб Латимор, Патришия КларксонПеревод: Дублированный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:53:27
+01. Christian Peter Stier - Last Summer (Original Mix) 08:35
+02. Yakoff - Suspense (Advent's Rising Remix) 07:29
+03. Carpathian Paths - Burkut (Original Mix) 08:00
+04. Mark Found - Cutting The Clouds (One Million Toys Remix) 07:32(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:01:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2186AF832237C0D2BFF3418DE87A57F879B4A93D
+magnet:?xt=urn:btih:96323873DC3EADAF120E3C03D0D1395BE39E20CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +411,224 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327114   (289415) от 01.11.2019
+###  Публикация: 1080255   (290412) от 06.12.2016
 
-Александр Афанасьев | Оккупация (2019) [FB2]
+VA - Panorama Progressive Trance (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Двадцать пять лет Украина жила в кланово-мафиозной системе координат. Подавленный путч добровольческих батальонов стал финалом.
+001. Thruggar - Silent Oneirographer (Original Mix) 6:44
+002. Spencer Tarring - Come On Now (Original Mix) 5:44
+003. Timewave - Against The Wall (Original Mix) 8:58
+004. TSE - Freedom Wings 5:52(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 13:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E442495C121AC7E7ED2B0C3104CA07967ACF82DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080216   (290411) от 06.12.2016
+
+VA - Flight Times Worlds Music (2016) [MP3|218~320 Kbps] <House, Electro, Hands Up, Bigroom, Funky, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Richard Durand & Fisher - In Your Hands (Bastian Salbart Remix) 6:24
+002. Andrew Lias & Crew 7 feat. Paloma - Club Bizarre (feat. Paloma) (Crew 7 Mix) 4:42
+003. Orjan Nilsen - Dirty Philthy Beautiful (Original Mix) 5:50
+004. Tiesto & Matthew Koma - Wasted (Extended Mix) 4:23(   Читать дальше...   )Жанр: House, Electro, Hands Up, Bigroom, Funky, Club, DanceПродолжительность: 09:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA4BB24708463AE7C3BE07047821CF6932A1F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080405   (290410) от 06.12.2016
+
+Dave Hole - The Live One (2003) Live [APE|Lossless|image + .cue] <Blues Rock, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Intro  (00:08) 
+02|  Jenny Lee  (04:25) 
+03|  Demolition Man  (05:13) 
+04|  Short Fuse Blues  (06:33) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC23FD1060472A71B03BD410BD3553422E74A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080221   (290409) от 06.12.2016
+
+Виктор Баныкин | Лешкина любовь (1982) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290409.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этот сборник включены произведения известного русского советского писателя, получившие признание читателей. Эти произведения объединяют раздумья о подростках, о трудностях, встречающихся на их пути, о дружбе и любви.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C64D3B9141788222590E5F9BA8ABC5A1490B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080399   (290408) от 06.12.2016
+
+Место встречи. Вооружены и очень опасны?! (06.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.В этом выпуске: Что задумали украинские генералы в Донбассе? Почему Запад вынуждает Украину договариваться с Москвой? Какие секретные документы подписал Порошенко в Минске? Какие провокации готовит Киев для жителей независимых республик и как пытается устроить в Донбассе «майдан»?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CFE24DC625A3CA19027EBED0A1AFD5AA9304DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080042   (290407) от 06.12.2016
+
+VA - LUXEmusic: Dance Super Chart Vol.97 (2016) [MP3|256~320 Kbps] <House, Mash Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren vs. ak9 - Ping Pong (Night & Toni Aries Mashup) 3:56
+02. Denis Rublev feat. Alex Kafer & Lera - Я у твоих ног (DJ Prezzplay Cover Mix) 4:16
+03. Eminem vs Tujamo - Without Bounce Me (Fabien Jora Mashup) 3:45
+04. 50 Cent x Anton Liss - Holy Technology (Alex Milano & Yastreb Mashup) 3:39(   Читать дальше...   )Жанр: House, Mash Up, Club, DanceПродолжительность: 03:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAE66F3530F89132A5F25EE55D3D74013FEE0B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080252   (290405) от 06.12.2016
+
+VA - Laid-Back Lounge Vibes Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twentyeight - Monday Night (Original Version) 7:02
+02. Myah - Indigo Child (Original Mix) 3:45
+03. Lemongrass - Farewell (Original Mix) 4:03
+04. Jens Buchert - Vibes Deluxe (Original Mix) 5:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CEF168F4007A87E77757B31C3370DED0C6B343E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080396   (290403) от 06.12.2016
+
+Время покажет (06.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Платная бесплатная медицина. В студии программы «Время покажет» пытаются разобраться, как устроена российская система здравоохранения. По официальным данным Росстата, 13% россиян жалуются на то, что им приходилось доплачивать за лечение в государственных медицинских учреждениях. При этом люди не всегда понимают, оправданы ли эти траты.
 
-Десятки, сотни тысяч людей, которые не умели ничего, кроме как убивать, породила та война. Людей, которые дербанили, отжимали, пытали, крышевали, занимались контрабандой. Почти все они ушли в криминал.
-(   Читать дальше...   )Жанр: Боевая фантастика, Социально-психологическая фантастикаФормат: FB2
+Эксперты международной аналитической (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:49:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCC739E79A95561D76FA0ECEEB8F0E1921C73BE4
+magnet:?xt=urn:btih:0847CC4A860ABE668B73398A3B5A308413729817
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,25 +636,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335207   (289414) от 01.11.2019
+###  Публикация: 1080379   (290398) от 06.12.2016
 
-Cursed / Проклятая (2016) [Ru] (1.0) Unofficial
+Право голоса. Европа: бремя перемен. (06.12.2016) SATRip
 
->>Win Игры
->>Adventure/Quest (Casual)
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Договоры с демонами никогда не приводят ни к чему хорошему! Помогите девушке спасти своего жениха, которого обманом и силой заставили восстанавливать Врата Ада, через которые в наш мир хлынут полчища чудовищ, способных превратить Землю в Преисподнюю! Столетия назад Джастин Оулдридж заключил сделку с дьяволом, чтобы вернуть из царства мертвых свою возлюбленную Велари. (   Читать дальше...   )Тип издания: UnofficialРазработчик: Jet Dogs StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: В Италии состоялся референдум по конституционной реформе, инициированной правительством Ренци. Большинство итальянцев высказались против, и премьер уже объявил об отставке. А в Австрии прошли повторные выборы президента. Норберт Хофер, обещавший в случае своей победы инициировать референдум о выходе из ЕС, проиграл. В ЕС знают, что делать, чтобы сохранить единство?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AAA6B8410A03B6FC339071645AA18D359D9FD35
+magnet:?xt=urn:btih:EFB98D1A184D6AEFE871C49482739FD7F7CB229B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,110 +662,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263193   (289413) от 18.11.2018
+###  Публикация: 1080237   (290395) от 06.12.2016
 
-Xara Photo & Graphic Designer 16.0.0.55306 [En]
+Машины-монстры: Amazon Snowmobile - самый большой в мире "жесткий диск на колесах"
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_290395.jpg" />
+</div>
+
+
+###  Подробнее
+
+На прошедшей неделе известная компания Amazon объявила о своем новом сервисе по ускоренной доставке больших объемов информации клиентов в собственное облачное хранилище Amazon Web Services (AWS). Новый сервис получи название Snowmobile, а на самом деле все это является грузовым 18-колесным автомобилем, контейнер которого заполнен жесткими дисками и сопутствующим (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080336   (290393) от 06.12.2016
+
+Shredo 1.1 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290393.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программное обеспечение Xara Photo & Graphic Designer – мощное решение для профессионального графического дизайна с использованием растровых и обычных изображений. Xara Photo & Graphic Designer позволяет редактировать изображения и фотографии, осуществлять разработку полиграфической продукции и веб-графики, векторной графики, фото-композиций, Flash-анимации (   Читать дальше...   )Язык интерфейса: Английский
+Shredo - красивая и функциональная утилита удаления файлов.
+Уничтожение данных — последовательность операций, предназначенных для осуществления программными или аппаратными средствами необратимого удаления данных, в том числе остаточной информации.
+Shredo поддерживает внешние диски и флэш-накопители.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 ноября 2016Разработчик: mymixapps.comПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EC3C13EF70E6C3BAD868520CF66A562A760D10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335175   (289412) от 01.11.2019
-
-Burito - Samskara (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289412.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Samskara
-3. Дети закатов
-4. Стих 1(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA8E1B7FEBFDDD36B855D0A3354A5DED5164C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335171   (289411) от 01.11.2019
-
-Emurasoft EmEditor Professional 19.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289411.jpg" />
-</div>
-
-
-###  Подробнее
-
-EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
-Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF5F181F4AEDF9E51E2E6354A6C5063111830BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225370   (289410) от 18.11.2018
-
-Виктор Петлюра - 13 Альбомов (1999 - 2011) [FLAC|Lossless|image + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дембельская
-02. Самоволка
-03. Фотоснимок
-04. Желтая роза(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A06BA9282496D7E6D38E0B5C385E4BD4272446
+magnet:?xt=urn:btih:8478C7B4D73926E40D4A065A06CD4BB2C72F44B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

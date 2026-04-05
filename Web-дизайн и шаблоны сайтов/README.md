@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1862865   (1063526) от 
+
+Ui Kits - UI8 - FixWheel - Home Service App Ui Kit [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем FixWheel — идеальный набор элементов пользовательского интерфейса для приложений бытового обслуживания, включающий более 86 экранов и комплексную систему дизайна для безупречной согласованности. Его уникальный визуальный стиль сочетает профессионализм и уют, а руководство по стилю пользовательского интерфейса и настраиваемые компоненты — карточки услуг, (   Читать дальше...   )Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8638082F9F668DB631DABB6F276A8352B939894B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861680   (1062911) от 
 
 Ui Kits - UI8 - Visual Alchemi - Videographer Framer Portfolio [FIG]
@@ -7,7 +33,7 @@ Ui Kits - UI8 - Visual Alchemi - Videographer Framer Portfolio [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062911.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Ui Kits - UI8 - Trakr - Affiliate Marketing SaaS UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062703.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Ui Kits - Fitness Management Web App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060379.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Ui Kits - Craftwork - Hero Headers Figma Template [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057960.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Ui Kits - UI8 - StoreWise - Store Management Dashboard UI KIT [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056170.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Ui Kits - UI8 - Trans Shuttle App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055731.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Ui Kits - UI8 - Diva - Women Online Shop App UI Kit [FIG, XD]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055516.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ Ui Kits - UI8 - Osmos Foundation [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055285.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Ui Kits - UI8 - Zync – Chat & Team Communication App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054991.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Ui Kits - UI8 - Sport News App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054209.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Ui Kits - UI8 - Sportly - Fittech Web App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054086.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Ui Kits - UI8 - TravelMate Travel Booking App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052532.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Ui Kits - UI8 - YamYam - Food Delivery App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052124.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Ui Kits - UI8 -  Prompt AI - Premium AI App (MVP) [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051070.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Ui Kits - UI8 - Auth Flow UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049696.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Ui Kits - UI8 - Defyn - Web3 Wallet & DeFi App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049548.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996299.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905542.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901833.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892196.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884160.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806888.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793129.jpg" />
 </div>
 
 
@@ -627,7 +653,7 @@ WordPress plugin - Elementor PRO v2.9.4 [PHP, SVG, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793113.jpg" />
 </div>
 
 
@@ -653,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738842.jpg" />
 </div>
 
 
@@ -664,32 +690,6 @@ ThemeForest - крупнейший магазин веб-дизайна, пре�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328110   (717137) от 25.04.2011
-
-Шаблоны сайта - Шаблоны-заготовки для сайтов
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой сборник шаблонов веб-сайтов самой разнообразной тематики - варез, софт, медиа, музыкальные, сайты для себя, о компьютерах, интернет, про политику, безопасность и др. Все шаблоны полностью рабочие и представлены всеми форматами. Имеют все необходимые файлы и картинки, от вас остается только залить их на сайт.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F3C101AC9857F57BD2E3FCC16459132CDCA1F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

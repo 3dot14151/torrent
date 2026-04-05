@@ -1,3 +1,133 @@
+###  Публикация: 1818634   (2183) от 18.09.2025
+
+Легендарная пятерка / Les Legendaires / The Legendary (2017-2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-26 из 26) Кириллица
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения бесстрашной команды: благородного рыцаря Данаэля, отзывчивой принцессы Джедины, могущественного эльфа Шайми, ловкого человека-зверя Грифа и находчивого знатока монстров Рацио. Однажды храбрые герои вступили в схватку с коварным колдуном Ворожеем и во время битвы случайно разбили волшебный камень Джовения, который дарует вечную молодость. Из-за этого происшествия (   Читать дальше...   )Производство: Франция / OuiDO! ProductionsЖанр: мультфильм, фэнтезиРежиссер: Пракаш ТопсиАктеры: Тейлор Гасман, Мэттью Геци, Валентина Гечи, Тиффани Хофстеттер, Том Хадсон, Кейси Чейз, Руди Джеймс Джефкотт, Фрэнк Дорсин, Молли Силсьё, Валери Токка и др.Перевод: Дублированный (Кириллица по заказу «СТС Kids»)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40714BA5A562C426DE375AD8CB79AA59F9A93CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818679   (2158) от 18.09.2025
+
+Лис, который ничего не умел (1976) 35mm Film Scan [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лис ничего не умеет и мешает заниматься любимыми делами окружающим. Особенно сильно ему не нравится Кролик. В один прекрасный день Лис обнаруживает у себя способность к ваянию и перестает преследовать Кролика...Производство: СССР / АрменфильмЖанр: мультфильм, короткометражкаРежиссер: Роберт СаакянцСубтитры: отсутствуютПродолжительность: 00:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3E78F60E733C587E8048AAFA0FD20013A68733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819274   (1596) от 21.09.2025
+
+Кунг-фу Панда 2 / Kung Fu Panda 2 (2011) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Панда По наконец-то исполнит свою мечту, станет Воином Дракона и со своими друзьями и мастерами кунг-фу — Неистовой Пятеркой — защитит Великую Долину от страшного злодея и его легиона...Производство: США, Канада / DreamWorks AnimationЖанр: мультфильм, фэнтези, боевик, драма, комедия, приключения, семейныйРежиссер: Дженнифер Ю НельсонАктеры: Джек Блэк, Анджелина Джоли, Дастин Хоффман, Гари Олдман, Джеки Чан, Сет Роген, Люси Лью, Дэвид Кросс, Джеймс Хун, Мишель ЙеоПеревод: дублированный,Субтитры: русские,  английскиеПродолжительность: 01:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9AC30F890E9C3B570B9857AD1E34698A3C6926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819432   (1453) от 22.09.2025
+
+Достать до неба (1975) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дети с помощью Космонавта возвращают на небо упавшую звездочку.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Гарри БардинАктеры: Анна Рыбникова, Петр Дегтярев, Кирилл ХаритоновСубтитры: отсутствуютПродолжительность: 00:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5269BD88E3C7649F1E71895ADD21558292797BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819688   (1332) от 23.09.2025
+
+Орион и Тьма / Orion and the Dark (2024) WEB-DLRip [AV1/1080p-LQ] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик с активным воображением сталкивается со своими страхами в незабываемом ночном путешествии со своим новым другом: гигантским улыбающимся существом по имени Дарк.Производство: Франция, США / DreamWorks Animation, Mikros AnimationЖанр: мультфильм, фэнтези, комедия, приключенияРежиссер: Шон ЧэрмэтцПеревод: Дублированный (Videofilm Ltd.)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8B0794CBC2009F1374D2D66600F17B2C2AB0D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819553   (1274) от 23.09.2025
 
 Золотые колосья. Сборник мультфильмов (1954-1969) DVDRip
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1274.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1026.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1015.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_851.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_799.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_745.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_553.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_545.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_350.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_348.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_258.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33.jpg" />
 </div>
 
 

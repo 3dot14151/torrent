@@ -1,3 +1,55 @@
+###  Публикация: 1850153   (1054312) от 26.01.2026
+
+Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.006/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Fantasy VII Remake Intergrade – улучшенная и расширенная версия высоко оцененной критиками и удостоившейся нескольких наград Final Fantasy VII Remake. Используя мако, живую кровь планеты, в своих мако-реакторах, Shinra Electric Power Company захватила контроль над целым миром. Разнородная группа идеалистов, известная, как Avalanche, осталась одним из последних (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F939BDB5C31941EA63874D26FB019D7640931C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849521   (1053830) от 23.01.2026
+
+DuneCrawl (2026) [Ru/Multi] (1.02) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053830.jpg" />
+</div>
+
+
+###  Подробнее
+
+DuneCrawl - это игра в жанре экшен-приключение с открытым миром, где вы и до трех друзей исследуете песчаные моря на гигантском Крабовом Краулере. Сражайтесь с вассалами с баночными головами, выживайте среди орд диких насекомых, исследуйте острова-оазисы и погружайтесь в коварные подземелья, чтобы помочь своим соплеменникам Поллой одержать победу в войне против вторжения (   Читать дальше...   )Тип издания: RepackРазработчик: AlientrapЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33BC4B9431544500C019B65F018548B590F1BFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849658   (1053689) от 24.01.2026
 
 King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru/Multi] (1.5.1048.1751/dlc) License GOG [Premium Edition]
@@ -6,7 +58,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053689.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/dlc) Repack seleZe
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053449.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/3.0.226.993/dlc) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053448.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053415.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Night Swarm (2025) [Ru/Multi] (1.1.0.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053406.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Stone of Madness (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay [Special Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052999.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Dreamscaper (2020) [Ru/Multi] (1.1.7.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052958.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Swordhaven: Iron Conspiracy (2024) [Multi] (1.0.4/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052943.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sacred 2 Remaster (2025) [Ru/Multi] (CL16601) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052917.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Persona 5 Royal (2022) [Ru/Multi] (1.03B) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052915.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Chronicon (2020) [Multi] (1.54.1/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052843.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Len's Island (2021) [Ru/Multi] (1.1.43/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052782.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ CENTUM (2025) [Ru/Multi] (2.4445.1138) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052747.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052344.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ UnderRail (2015) [Ru/En] (1.3.0.17/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052240.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.5.1/dlc) License GOG [Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052052.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Ys IX: Monstrum Nox (2021) [Multi] (1.1.3/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052046.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Dragon Ruins (2024) [Multi] (251206) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051978.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Salt and Sanctuary (2016) [Ru/Multi] (1.0.2.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051958.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Salt and Sacrifice (2023) [Ru/Multi] (2.0.0.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051957.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Dreamed Away (2025) [Ru/Multi] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051759.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051683.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Paranoia: Happiness is Mandatory (2023) [Ru/Multi] (Build 12698814) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051593.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ The Ascent (2021) [Ru/Multi] (72946/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051586.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ The Ascent - экшн-RPG в духе киберпанка с режимами �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E64F82030E4FFCF6FA2BF3ADBA4CC1A90EEB7011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846683   (1051374) от 08.01.2026
-
-Drakensang: The Dark Eye (2008) [En] (1.03) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мирный и спокойный город Фердок охвачен ужасом. Жестокие и на первый взгляд бессмысленные убийства заставили людей прятаться за крепкими стенами. Разрастается заговор, в окрестностях появился таинственный архимаг, и неизвестно, что замышляют жрецы могущественного культа Хесинде. Четверке отважных персонажей предстоит сразиться с многочисленными врагами, раскрыть (   Читать дальше...   )Тип издания: LicenseРазработчик: Radon LabsЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4567D9B453FF8C82CBE1F6BFAF4F4EBFD53D5109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846692   (1051372) от 08.01.2026
-
-The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры предельно прост: игрок ведёт группу из четырёх персонажей (воина, паладина, мага и священника – состав группы предопределён) по километрам коридоров, залов и пещер подгорного королевства Eriosthe, уничтожая монстров, собирая артефакты, решая головоломки и пытаясь спасти королевство от тирании злого Uukrul’а. Вот только на самом деле игра оказывается намного (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital StudiosЖанр: Приключение, Ролевые игрыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD45DCDB86869A51AE63F5A5941473B10FDFF35
 ```
 
 https://mybot314.ru/tekegram_catalog/

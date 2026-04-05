@@ -1,140 +1,3 @@
-###  Публикация: 1164346   (441871) от 09.09.2017
-
-Г.К. Орджоникидзе | Статьи и речи [В двух томах] (1956) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441871.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник статей и сочинений Г.К. Орджоникидзе входят его произведения с 1910 г. по февраль 1937 г.
-Сборник состоит из двух томов. Первый том охватывает период с 1910 по 1926 гг., второй том - период с 1926 по февраль 1937 гг.
-В томах представлен обширный документальный материал, посвященный временам Гражданской войны, работы Орджоникидзе в Кавказском бюро ЦК РКП(б). (   Читать дальше...   )Жанр: история, политика, экономика, собрание сочиненийФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D999FC101BC31E782B48EC838C92D133B8282630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164294   (441866) от 09.09.2017
-
-В.М. Молотов | Речи на Генеральной Ассамблее Организации Объединенных наций (1947) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник речей, произнесённых министром иностранных дел СССР Молотовым Вячеславом Михайловичем на Генеральной Ассамблее Организации Объединенных наций.
-Вторая часть Первой сессии в Нью-Йорке. Октябрь - декабрь 1946 года.Жанр: история, дипломатия, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA90648EF464CE8815B8D20C2F54DFD54ED58B57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164337   (441862) от 09.09.2017
-
-С.М. Киров | Избранные статьи и речи (1918-1934) (1944) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441862.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник включены избранные статьи, речи, доклады, письма советского государственного и политического деятеля Сергея Мироновича Кирова, датированные 1918-1934 гг. Художественное оформление книги художника Н.Седельникова.
-Юбилейное издание. К 10-летию со дня смерти Сергея Мироновича Кирова (1934-1944).Жанр: история, политика, собрание сочиненийФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3877E2718E24E09641AA7EF8C19891B5B3D378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164320   (441860) от 09.09.2017
-
-К.Е. Ворошилов | Статьи и речи (1937) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник состоит из основных выступлении Народного Комиссара Обороны СССР маршала Советского Союза Климента Ефремовича Ворошилова за период 1925-1936 гг.
-Прижизненное издание.Жанр: история, политология, военное делоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A923EEB0331637CDFDA7B32E937BBC5A7E037C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164339   (441856) от 09.09.2017
-
-В.В. Куйбышев | Эпизоды из моей жизни (1935) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти воспоминания представляют стенографическую запись рассказов тов. Куйбышева в кругу близких друзей во время отпуска в августе 1931 года.
-Тов. Куйбышев так интересно рассказывал о своем прошлом, что друзья убедили его издать отдельной книжкой эти «эпизоды», как их назвал сам т. Куйбышев.
-Тов. Куйбышев все время собирался отредактировать для печати записанные с (   Читать дальше...   )Жанр: история, мемуарыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7C5460CD8180D8AA04C7F501439BE589CCC40D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164333   (441847) от 09.09.2017
 
 М.И. Калинин | Статьи и речи (1941-1946) (1975) [DJVU]
@@ -143,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441847.jpg" />
 </div>
 
 
@@ -170,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441845.jpg" />
 </div>
 
 
@@ -196,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441829.jpg" />
 </div>
 
 
@@ -224,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441825.jpg" />
 </div>
 
 
@@ -250,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441786.jpg" />
 </div>
 
 
@@ -276,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441705.jpg" />
 </div>
 
 
@@ -305,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441701.jpg" />
 </div>
 
 
@@ -332,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441699.jpg" />
 </div>
 
 
@@ -358,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441698.jpg" />
 </div>
 
 
@@ -384,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441691.jpg" />
 </div>
 
 
@@ -411,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441681.jpg" />
 </div>
 
 
@@ -437,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441667.jpg" />
 </div>
 
 
@@ -463,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441351.jpg" />
 </div>
 
 
@@ -490,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441276.jpg" />
 </div>
 
 
@@ -516,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441255.jpg" />
 </div>
 
 
@@ -542,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440946.jpg" />
 </div>
 
 
@@ -568,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440945.jpg" />
 </div>
 
 
@@ -594,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440944.jpg" />
 </div>
 
 
@@ -620,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440807.jpg" />
 </div>
 
 
@@ -646,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440678.jpg" />
 </div>
 
 
@@ -672,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440676.jpg" />
 </div>
 
 
@@ -683,6 +546,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71B6C4DCB9E55399CDBC18B7E2F79CAB6E703980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944581   (440674) от 07.10.2015
+
+Александр Гуревич | «Свободная стихия». Статьи о творчестве Пушкина (2015) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440674.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге обсуждаются проблемы, вызывающие серьезные разногласия среди специалистов. В первой ее части речь идет о синтетической природе пушкинского романтизма, о соотношении в творчестве Пушкина начал доромантических и собственно романтических, о романтической окрашенности его реалистических произведений. Во втором разделе критически рассматриваются три устойчивых (   Читать дальше...   )Жанр: ЛитературоведениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F0BB69390CFEE7C5DE16F76217EC8CBD35F3E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944306   (440673) от 07.10.2015
+
+В. Ф. Асмус | Жан-Жак Руссо [К 250-летию со дня рождения] (1962) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440673.jpg" />
+</div>
+
+
+###  Подробнее
+
+В короткое время Руссо стал прославленным писателем, могучим пробудителем мысли в Германии и в других странах Европы. Его влияние объяснялось не только действием его философских идей, но и его искусством писателя. Что же представляло собой это учение, завоевавшее такой быстрый и блистательный, победоносный успех? Кто был его автор, какую жизнь вел он в своем обществе?Жанр: История, философия, биографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8E9B1204EDB2D91CA935CA3EEC9A5F5E2A82D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944313   (440667) от 07.10.2015
+
+В. Ф. Асмус | Философия Иммануила Канта (1957) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440667.jpg" />
+</div>
+
+
+###  Подробнее
+
+О естественнонаучных, философских и общественно-политических взглядах Иммануила Канта — родоначальника немецкой классической философии.Жанр: История, философия, биография, эстетика, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513469393BC4E0ED7AAD3B4C55418A9809E21C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944445   (440508) от 07.10.2015
+
+Гельвеций | Сочинения [2 тома] (1973-1974) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Том I
+В первом томе содержатся впервые публикуемые на русском языке "Записные книжки", а также заново сверенный перевод одного из основных произведений — "Об уме".
+
+Том II(   Читать дальше...   )Жанр: История, философия, этика, педагогикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CBE29D27A94B00E464C79793353476A3FA86F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409939   (440435) от 19.09.2020
+
+Труди Скотт | Еда - лекарство от беспокойства (2019) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие люди со временем просто смиряются с постоянно сниженным настроением, ощущением беспомощности и высоким уровнем стресса и тревожности, полагая, что «жизнь трудна» и вот такие они «слабаки». Если это в какой-то мере относится к вам — знайте: вы можете значительно улучшить свое состояние или даже полностью изменить вашу жизнь, всего лишь пересмотрев пищевые привычки… (   Читать дальше...   )Жанр: Здоровье, МедицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970F1CE67D92C5FD1F77D2245EDB832E9A22D59E
 ```
 
 https://mybot314.ru/tekegram_catalog/

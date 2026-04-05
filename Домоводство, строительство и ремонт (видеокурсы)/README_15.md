@@ -6,7 +6,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25302.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25199.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25191.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24900.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24845.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24813.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24495.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24470.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24249.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23994.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23987.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23985.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23651.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23302.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23231.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23127.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22697.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21786.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ George Vondriska | Создайте станцию для беспроводно
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20526.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Dale Barnard | Искусство и Ремесла Стиль Greene & Greene (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18493.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Woodsmith PBS | Woodsmith shop (Season 6) (2012) TVRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18319.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Brenda K.B. Anderson | Вязаные носки (2023) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18283.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ George Vondriska | Создать невозможный стол (2024) WEBRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18262.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Nicki LaFoille | Сумка с разделителем (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18095.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Cynthia Nims | Французская домашняя кухня: Основн�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17877.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Illene Sofranko | Консервирование 101 (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17790.jpg" />
 </div>
 
 

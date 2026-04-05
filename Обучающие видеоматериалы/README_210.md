@@ -1,3 +1,31 @@
+###  Публикация: 1649259   (207866) от 26.07.2023
+
+Marker School, Вера Шерстобитова | Основы маркерного скетчинга. Базовый курс (2019) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спиртовой маркер - это современный, универсальный, профессиональный художественный материал. Скетчинг маркерами позволяет буквально несколькими штрихами рисовать крутейшие скетчи, разрабатывать элементы дизайна или создавать работы, приближенные к художественным полотнам.
+
+Маркеры применяют в различных областях: интерьерный дизайн, fashion, портретная иллюстрация, (   Читать дальше...   )Производство: Marker SchoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 14:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9751FE09C0D1B3E653D0E4A22069F22DAE42F228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610711   (207864) от 08.02.2023
 
 Lectoroom, Елена Базанова | Безумное чаепитие с кроликом (2023) WEB-DL [AD] [RU]
@@ -6,7 +34,7 @@ Lectoroom, Елена Базанова | Безумное чаепитие с к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207864.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Slurm (Слёрм), Марсель Ибраев, Павел Селиванов |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207853.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Slurm (Слёрм), Всеволод Севостьянов | Ansible: Infrastru
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207849.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207790.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207716.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ Hudozhnik Online, Екатерина Бердюгина | Анатомия ко�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207666.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ pro.liga.ws, Штефан Ротарь | Autodesk Revit - Создание Ок�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207642.jpg" />
 </div>
 
 
@@ -199,7 +227,7 @@ SmartUP, Кирилл Дёмин | 30 дней / идей для твоего п
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207637.jpg" />
 </div>
 
 
@@ -228,7 +256,7 @@ Udemy, JSFILMZ | Unreal Engine 5 Introduction to Lighting by JSFILMZ (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207632.jpg" />
 </div>
 
 
@@ -257,7 +285,7 @@ SmartUp, Кирилл Дёмин | Сочный дизайн - 2.0 (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207630.jpg" />
 </div>
 
 
@@ -285,7 +313,7 @@ Udemy, Poly Bot | Unreal Engine 5.1: Advanced Landscape creation (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207622.jpg" />
 </div>
 
 
@@ -313,7 +341,7 @@ Enterclass, Татьяна Анисимова | Pro натюрморт (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207601.jpg" />
 </div>
 
 
@@ -341,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207589.jpg" />
 </div>
 
 
@@ -370,7 +398,7 @@ Udemy, Creativity Unleashed | Unreal Engine 5 Megacourse: Create Games in UE5 & 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207555.jpg" />
 </div>
 
 
@@ -396,7 +424,7 @@ Udemy, Denis Panjuta | The Complete Android 12 & Kotlin Development Masterclass 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207543.jpg" />
 </div>
 
 
@@ -424,7 +452,7 @@ Granich, Елизавета Черникова | Графические мета
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207523.jpg" />
 </div>
 
 
@@ -453,7 +481,7 @@ Profit | Современные фреймворки на PHP (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207471.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ MographPlus, Kamel Khezri | Advanced 3d motion graphics in Cinema 4d and Realflo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207345.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ Udemy, Arrimus 3D | Arrimus Ultimate 3D Modeling Course (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207323.jpg" />
 </div>
 
 
@@ -533,7 +561,7 @@ WebCademy | Интенсив по JavaScript. Калькулятор рассч�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207320.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ Advance, Ягодкин Николай | Как повысить уровень 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207316.jpg" />
 </div>
 
 
@@ -588,7 +616,7 @@ CG Cookie, Jonathan Lampel | PRESS START: Your Simple First Blender Project (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207266.jpg" />
 </div>
 
 
@@ -614,7 +642,7 @@ Udemy, Bogdan Stashchuk | The Complete Apache Kafka Practical Guide (2022) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207156.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ Linguatrip, Веня Пак и др.| LinguaHits. Тариф Newbie (2022) WEB-D
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207142.jpg" />
 </div>
 
 
@@ -668,7 +696,7 @@ Udemy, Awesome Tuts | The Most Comprehensive Guide To Unity Game Development Vol
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207095.jpg" />
 </div>
 
 
@@ -679,34 +707,6 @@ Udemy, Awesome Tuts | The Most Comprehensive Guide To Unity Game Development Vol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:110EFAAD9C7CBDDB003D3077C6A08BCDACD4BFAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579785   (207091) от 28.09.2022
-
-Дмитрий Курилов | Corona Render (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторский курс Дмитрия Курилова по Corona Render:Lighting
-Materials
-ModelingЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:21:35Реклама: Присутствуют наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380FB44A8FBDEE804E22F38F17288D3219300D35
 ```
 
 https://mybot314.ru/tekegram_catalog/

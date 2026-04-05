@@ -1,3 +1,57 @@
+###  Публикация: 1314157   (521199) от 12.07.2019
+
+С. Маршак и др. | Детям. Сказки, стихи и рассказы (1937) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихи. Сказки. Редкая книга. Сказки советских писателей.Жанр: Детская проза, Стихи, Сказки.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB54AF8EFDB88E293401AC416F6C2BC377B4F958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928982   (520638) от 18.08.2015
+
+Гюс Кейер | Книга всех вещей (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девятилетний Томас часто видит то, чего не видят другие – тропических рыбок в городских каналах, необыкновенную красоту Элизы, девушки с кожаной ногой. Доброту старушки-соседки, которую все считают ведьмой. И Иисуса, который частенько приходит к Томасу поболтать. Но кроме этого, он видит, как отец бьет мать, и даже Иисус здесь бессилен.
+
+И только благодаря друзьям (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630F8EF772362DE228D8E78B456664BABC765E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929112   (520631) от 18.08.2015
 
 Джессика Джордж | Вторники в замке (2015) [FB2]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520631.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520629.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520628.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520545.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520148.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519821.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519613.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519599.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519550.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519496.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519448.jpg" />
 </div>
 
 
@@ -293,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519439.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519436.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518971.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518798.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518773.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518767.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518720.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518521.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518461.jpg" />
 </div>
 
 
@@ -532,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518363.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518269.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518263.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517918.jpg" />
 </div>
 
 
@@ -627,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30D19F27B9022D4D6E6F95AF06CE9AD46B51B0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374073   (517847) от 10.08.2011
-
-«Проф-пресс»| Пропись - раскраска (2 книги) (2007) [JPEG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517847.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первые шаги в обучении письму могут быть интерестными! Замечательные картинки - раскраски с цветными образцами порадуют малышей а задания прописи помогут развитию мелкой моторики и заложат основу для формирования письма." Пропись-раскраска для детей до 6 лет.Жанр: Пропись, раскраскаФормат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5A9DF062EECCAECA08F7EE148224AD955A9F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374062   (517836) от 10.08.2011
-
-«Розовый слон » | Раскраска. Весёлые прописи (2000) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие предназначено для самостоятельной работы с детьми 5-7 лет. Игровой характер этих пособий поможет быстро запомнить буквы, цифры, сформирует уверенные графические навыки, необходимые Вашему малышу для письма.Жанр: РаскраскаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB5BFCDFD5F5F4E692F9D31F40BE75774E43952
 ```
 
 https://mybot314.ru/tekegram_catalog/

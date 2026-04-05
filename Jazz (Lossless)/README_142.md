@@ -6,7 +6,7 @@ Keith Jarret - The Carnegie Hall Concert (2006) [FLAC|image +.cue]<Jazz, Avant-G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581121.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Shakatak - The Magic Of Shakatak (2015) [FLAC|Lossless]<Smooth jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581051.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Count Basie & Oscar Peterson - The Two Great Albums: The Timekeepers & Night Rid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580707.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ George Howard - Personal (1997) MCA Records[FLAC|Lossless|tracks + .cue] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580657.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Art Blakey - Jazz Messengers!!!!! & A Jazz Message (1961/1964) /2011, Universal/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580196.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kenny Davern - And The Rhythm Men (1996) Arbors Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580088.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Joe Sample And The Soul Committee - Did You Feel That? (1994) [FLAC|Lossless]<Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579868.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Alain Caron - Rhythm'n Jazz (1995) [FLAC|Lossless]<Jazz-Rock, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579833.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Richard Cheese & Lounge Against The Machine - 9 дисков (2000-2009) [APE,FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_579739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579739.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Dafnis Prieto - Absolute Quintet (2006) Zoho[FLAC|Lossless|tracks + .cue] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579687.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579682.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Jeff Berlin - Crossroads (1998) [WavPack|Lossless|image + .cue] <Jazz-rock, Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579676.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Nicolai Gromin Trio (Николай Громин) - Blue In Green (1997) [WavPac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579674.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Players (Jeff Berlin, Steve Smith, Scott Henderson, T Lavitz) - Players (1987) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579597.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Jeff Berlin & Vox Humana - Champion (1985) [WavPack|Lossless|image + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579540.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Eliza Lumley - She Talks In Maths: Interpretations Of Radiohead (2007) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579531.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Franco Ambrosetti - Jazz at Prague Castle (2005) Multisonic [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579381.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Joscho Stephan - Guitar Heroes feat. Tommy Emmanuel, Biréli Lagrène, Stochelo 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579369.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Rufus Reid & Akira Tana - Looking Forward (1995) Evidence [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579098.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Fred Hersch - Point in Time (1995) /2005, Landy Star/[FLAC|tracks+.cue]<Jazz, Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579093.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Air - Air Mail (1981) [APE|image+.cue]<Jazz, Avant-Garde Jazz, Free Improvisatio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579092.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Jimmie Lunceford - 1939 - 1940 (1991) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578275.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ V.A. - The Smooth Jazz Cruise: The Greatest Party At Sea (2018) [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578169.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Nat Adderley Sextet - Work Song: Live at Sweet Basil (1990) 1993, Sweet Basil Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578148.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ Bireli Lagrene - Foreign Affairs (1988) [FLAC|Lossless|tracks + .cue] <Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578143.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ John Lamb - Conversations: North of the Border (2010) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578138.jpg" />
 </div>
 
 

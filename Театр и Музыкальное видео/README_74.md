@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526466.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DJ Bobo - The Magic Live Concert (1998) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525603.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Mylene Farmer - Mylenium Tour (2000) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525578.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Madonna: The Confessions Tour Live from London (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525316.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524465.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524200.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Летний марафон № 182 / (Задорный Country Хит) (20
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523972.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Alice Cooper - Live at Montreux (2005)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523941.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Nazareth - Live in Minsk (2007) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523911.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523896.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Motley Crue - Lewd Crued And Tattooed (2000) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523830.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523383.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Rolling Stones - One More Shot Live (2012) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523212.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521782.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521598.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520958.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Frank Degrees & Markus H - Do It Yourself (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520341.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520331.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Deep Purple - Come Hell or High Water (1993) DVDrip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519746.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Летний марафон № 183 / (Зарубежная Дискоте�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519492.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Distemper - 25 лет (2015) WEBRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519428.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519371.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519272.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519253.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519040.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Anathema – Universal (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518342.jpg" />
 </div>
 
 

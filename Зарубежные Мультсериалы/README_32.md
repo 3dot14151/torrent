@@ -1,3 +1,56 @@
+###  Публикация: 563399   (404750) от 21.10.2012
+
+Хаос на ферме (1 сезон, 13 серий из 13) / FarmKids (2007) [H.264] DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пес — супергерой, бык - помешанный на спорте, поросенок — мастер на все руки, козел — шеф-повар, конь — техно-гений, корова - увлекающаяся последними новинками в мире моды и стиля, и утенок, который-то ли не умеет плавать, то ли летать… решают переехать из города в деревню.
+Но герои не учли одного обстоятельства — родившись и выросши в городе, они мало приспособлены (   Читать дальше...   )Жанр: мультфильм, семейныйРежиссер: Сорин Оанси / Sorin OanceaПеревод: Многоголосый закадровыйПродолжительность: 02:27:49 (13 х ~ 00:11:20)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4953831C2C5E482D1AB3C2B557A845ADCD525D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562101   (402667) от 23.10.2012
+
+Робот Робик / ROB (2011) [H.264] WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм расскажет нам о юных роботах, путешествующих по бескрайнему космосу. Юные путешественники всегда найдут себе интересное занятие и планету, где они могли бы осуществить свои планы. К примеру, найдя на просторах галактики бутылку с картой сокровищ, они направятся на планету пиратов, а стоит им загрустить на этой планете в дождливый день - они улетают на планету, где нет такого понятия как скука.Жанр: ДетскийРежиссер: Не известноПерсонажи: Робот Киби и др.Перевод: ДублированныйПродолжительность: 14 x ~00:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84DA17E114A6098C58F16B5B0BAE19626757323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169906   (401079) от 29.09.2017
 
 Даша-путешественница / Dora the Explorer (2000-2014) TVRip, HDTVRip [H.264] (Сезон 1-8, серии 1-176 из 176)
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401079.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398385.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397392.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394907.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394612.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_394474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_394474.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393707.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390950.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389987.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389984.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389178.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389144.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388601.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387010.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386856.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386488.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385387.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385257.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385175.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384839.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384397.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383418.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382508.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382446.jpg" />
 </div>
 
 
@@ -620,60 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A45D3830CB4FB263BEE14DC903FF94F9E9BC7CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573387   (378102) от 11.11.2012
-
-Bugged (48 серий) / Bugged (2009-2010) SATRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский мультик про собачку, которая охотится за редким жуком, но безрезультатно. Чем больше охотится, тем больше злится.Жанр: мультфильм, фантастика, комедияРежиссер: Franck DemolliereПеревод: Без слов / НемойПродолжительность: 05:05:11 (48x~00:06:35)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDEC32CD1BF235F7996B03AA57F00BA22F7660B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833732   (377929) от 25.10.2014
-
-Огги и тараканы / Oggy et les cafards / Oggy and the Cockroaches (1998-2008) 4xDVD5 (Сезон 3, Серии 39 из 39)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Толстый добродушный обыватель, кот Огги хочет только одного: чтобы никто не мешал ему со вкусом наслаждаться спокойной и размеренной жизнью, с ее невинными радостями — вкусной едой, телевизором, мягким пуфом, на котором так уютно спится…
-
-Но бедного кота одолевают несносные соседи: три вредных таракана (Джой, Марки и Ди-Ди) постоянно отравляют ему жизнь жестокими (   Читать дальше...   )Жанр: Рисованная анимация, Комедия, ДетскийРежиссер: Оливье Жан МариПерсонажи: Коты Огги и Джек, тараканы Джои, Ди Ди, МаркиПеревод: Без слов / НемойСубтитры: ОтсутствуютПродолжительность: 78 серий ~ 00:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A80BCDDAAE7060C7C455330E11B8109ABAAD3FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

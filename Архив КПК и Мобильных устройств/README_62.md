@@ -6,7 +6,7 @@ Clipboard Pro / Буфер обмена Pro 2.7.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507121.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SysHard Info v1.0.9.Premium [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507070.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507048.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Worms 2011 Armageddon (2010) <Ru/En>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506962.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ True Phone - Телефон, Контакты 2.0.18 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506880.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506451.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506395.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA-Летние Dubstep рингтоны для мобильного (2012) [MP3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506336.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506267.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Calm - Meditate, Sleep, Relax 6.3 Mod by Balatan [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506210.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Pocket 7.60.0.0 Mod by ZackModz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506206.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506166.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Unit Converter Pro / Конвертер единиц Pro 2.2.30 Mod by Balatan [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506111.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505430.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Always On: Edge Music Lighting 1.5.8.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505372.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Bazaart: Photo Editor & Graphic Design v1.13.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505136.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505054.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Boost for reddit 1.12.5 Mod by Balatan, Tysontl2007 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504564.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Fluid Navigation Gestures 2.0-beta11 Mod by Zerаtul [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504475.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Sipnetic 1.0.46 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504468.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Nothing Launcher (Beta) 1.0.1 Mod by Phoenix1985 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504377.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504373.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Always On Edge - Not Only LED! 7.1.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504372.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504285.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Governor of Poker 2 Premium 2.0.8 Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504174.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ DualSim Ringtone v1.4.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504104.jpg" />
 </div>
 
 

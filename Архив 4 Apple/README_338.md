@@ -6,7 +6,7 @@ BitPerfect 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540364.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ iMazing 2.6.4 (9261) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540357.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ MAMP Pro 2.0.1 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540298.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ The Long Dark 1.35 (License GOG) [Moded] [macOS WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540194.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ WiFi Explorer 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540010.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ NetWorker - Advanced Network Information App 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539279.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Canary Mail 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539089.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Clearview 1.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538860.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Path Finder 8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538845.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ This Is the Police 2 v.1.0.4 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538711.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Life Is Strange (Episode 1-2-3-4) v.1.0.0 (2015) [Ru/En] [OS X WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538636.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ IP Scanner Pro 3.50 (3.50.5) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538426.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ AnyTrans 5.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538267.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Watermark Plus 1.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538164.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537777.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537769.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Serial 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537198.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ ProPresenter 6.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537122.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Trim Enabler Pro 4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537072.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ NoteBurner M4V Converter Plus 4.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536998.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Serial Box 08-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536884.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ iSoftPhone Pro 4.1202 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536745.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ DMG Canvas 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536588.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ LensFlare Studio 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536581.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Super PhotoCut 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536573.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ VueScan Pro 9.5.56 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536449.jpg" />
 </div>
 
 

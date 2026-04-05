@@ -6,7 +6,7 @@ My Best Fiend - In Ghostlike Fading (2012) [MP3|320 кб/с]<Alternative, Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94263.jpg" />
 </div>
 
 
@@ -40,7 +40,7 @@ Bap Kennedy - The Sailor's Revenge (2012) [MP3|320 kbps]<Rock / Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93650.jpg" />
 </div>
 
 
@@ -75,7 +75,7 @@ Dollar Co. - Country Beatles (1981) [MP3|320 kbps]<Сountry, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93646.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Buckingham Nicks - Buckingham Nicks (1973) Remastered, 2025, Rhino [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91189.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Richie Sambora(Bon Jovi) - Acoustic Set At Spain (1998) [MP3|320 кб/с]<Acoust
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90802.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - 100 Hits: Rock Anthems (2011) [MP3|320 кб/с]<Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90448.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Greatest Ever! Prog Rock (2012) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90399.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - A Time To Remember Collection  30CD 1960 - 1990 (1996 - 2001) [MP3|320 кб
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88260.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88121.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - The Golden Age Of American Rock 'n' Roll (1991-2009) [MP3|320 кб/с]<Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87213.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Vienna Symphonic Orchestra Project - Symphonic Rock (1987) [MP3|320 кб/с]<Sym
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87108.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ The Shadows - Platinum Collection 2CD (2006) [MP3|320 кб/с]<Instrumental Guit
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85722.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Kula Shaker - [5 альбомов] Дискография (1996-2010) [MP3|320 �
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85697.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ian Anderson - Thick As A Brick 2 - Whatever Happened to Gerald Bostock? (2012) 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85679.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Christina Sturmer - [24 альбома] Дискография (2003-2010) [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85509.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ The Allman Brothers Band - [40 альбомов] Дискография (1969-20
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85165.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Accept - Stalingrad (2012) [MP3|320 кб/с]<Heavy Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84969.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Beauty And The Beast Compilation (2012) [MP3|320 кб/с]<Symphonic, Black,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84431.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Elvis Presley - ELVIS 30 #1 HITS (2003) [MP3|320 кб/с]<Rock'n Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84282.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ The Byrds - [31 альбом] Дискография (1965-2008) [MP3|320 кб/�
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84134.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Time Life - Hard and Heavy Box Set 9CD (2008) [MP3|320 кб/с]<Rock, Hard 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83639.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Esperanto - 3 альбома [Дискография] (1973-1975) [MP3|320 кб/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83619.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ Bruce Springsteen - Wrecking Ball (2012) [MP3|320 кб/с]<Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83406.jpg" />
 </div>
 
 
@@ -757,7 +757,7 @@ Led Zeppelin - The Best Ballads (2002) [MP3|320 кб/с]<Classic Rock | Blues Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82921.jpg" />
 </div>
 
 
@@ -792,7 +792,7 @@ George Strait - [41 альбом] Дискография (1981 - 2009) [MP3|~192
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82796.jpg" />
 </div>
 
 
@@ -827,7 +827,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82040.jpg" />
 </div>
 
 

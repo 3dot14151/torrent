@@ -1,3 +1,67 @@
+###  Публикация: 232779   (507101) от 02.09.2010
+
+The Alan Parsons Project (Alan Parsons, Eric Woolfson) - 17 Albums + 11 Compilation (1976-2007) [MP3|320 kbps] <Art / Progressive / Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The King Of Swords (01:09)
+02. Excalibur (03:16)
+03. Magic (04:20)
+04. A Long, Long Time Ago (04:08)
+05. Back Again (03:48)
+06. Stop (04:09)
+07. On The Run (04:10)
+08. Dreams Can Come True (04:19)
+09. Goodbye (03:53)
+10. People Shall Be Free (03:57)(   Читать дальше...   )Жанр: Art / Progressive / Soft Rock |Продолжительность: 00:49:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562612   (507046) от 11.07.2022
+
+Halo Of Catastrophe - Symphony From Ruin (2022) [MP3|320 Kbps] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Barbaric Conquest [00:04:46]
+02 - Madam Eight [00:04:02]
+03 - Blood Road [00:03:49]
+04 - Evil Like Me [00:04:52](   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C3731FB4429B8BA2FFDEED5810FF108D891A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562908   (507044) от 11.07.2022
 
 Гражданская Оборона - Легенды Русского Рока (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
@@ -6,7 +70,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507044.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ Megadeth - Greatest Hits: Back To The Start (2005) [FLAC|Lossless|tracks + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506953.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ Raz Ohara And The Odd Orchestra - Raz Ohara And The Odd Orchestra (2007) [FLAC|L
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506923.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ Weedsnake - Cannabinoide (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506921.jpg" />
 </div>
 
 
@@ -122,7 +186,7 @@ VA - Good Rockin' Tonight: The Legacy of Sun Records (2001) [MP3|320 кб/с]<ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506742.jpg" />
 </div>
 
 
@@ -157,7 +221,7 @@ Warhorse - 2 albums (1970-1972) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506693.jpg" />
 </div>
 
 
@@ -192,7 +256,7 @@ KMFDM - Amnesia (2012) EP [FLAC|Lossless]<Industrial Metal, Industrial Dance>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506671.jpg" />
 </div>
 
 
@@ -221,7 +285,7 @@ Queen - A Night At The Opera (Japan SHM-CD - Limited Edition) (1975 /2011/) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506513.jpg" />
 </div>
 
 
@@ -256,7 +320,7 @@ The Beatles - Abbey Road [Toshiba Black Triangle] (1969) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506402.jpg" />
 </div>
 
 
@@ -291,7 +355,7 @@ Andro Coulton - Dragonhead (2006) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506328.jpg" />
 </div>
 
 
@@ -320,7 +384,7 @@ Utopia Lights (ex-DIAGENS) - Vote, Repost, Consume! (2022) [MP3|320 Kbps] <Punk,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506324.jpg" />
 </div>
 
 
@@ -349,7 +413,7 @@ Besatt - Supreme And True At Night (2021) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506323.jpg" />
 </div>
 
 
@@ -378,7 +442,7 @@ Loud - The Black Pill (Compilation) (2022) [MP3|320 Kbps] <Psych, Stoner Rock, D
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506322.jpg" />
 </div>
 
 
@@ -407,7 +471,7 @@ Amongst Liars - Amongst Liars (2022) [MP3|320 Kbps] <Alternative Metal, Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506321.jpg" />
 </div>
 
 
@@ -436,7 +500,7 @@ Aether - Aether (2022) [MP3|320 Kbps] <Psych, Stoner, Sludge>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506320.jpg" />
 </div>
 
 
@@ -465,7 +529,7 @@ Brutality - Sempiternity (2022) Compilation, Emanzipation Productions [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506318.jpg" />
 </div>
 
 
@@ -494,7 +558,7 @@ Graveyard of Shadows - Abyssal (2022) [MP3|320 Kbps] <Melodic Doom, Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506317.jpg" />
 </div>
 
 
@@ -523,7 +587,7 @@ Idol Throne - The Sibylline Age (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506316.jpg" />
 </div>
 
 
@@ -552,7 +616,7 @@ High On Fire - De Vermis Mysteriis (2012) Special Edition [MP3|320 Kbps] <Stoner
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506315.jpg" />
 </div>
 
 
@@ -581,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506314.jpg" />
 </div>
 
 
@@ -610,7 +674,7 @@ Mothercow - Death Before Defeat (2022) [MP3|320 Kbps] <Southern, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506312.jpg" />
 </div>
 
 
@@ -639,7 +703,7 @@ Vanquisher - An Age Undreamed Of (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506311.jpg" />
 </div>
 
 
@@ -668,7 +732,7 @@ Forest Fire - Осколки (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506310.jpg" />
 </div>
 
 
@@ -697,7 +761,7 @@ Meei - The Aftermath (2022) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506309.jpg" />
 </div>
 
 
@@ -711,64 +775,6 @@ Meei - The Aftermath (2022) [MP3|320 Kbps] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A527C0C18DFBFD435030D8445D25E9B215348BF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933132   (506259) от 01.09.2015
-
-Carousel - 2113 (2015) [OGG| 438-478 кб/с]<70's Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble
-02. Photograph
-03. Buried Alive in Your Arms
-04. Jim’s Song(   Читать дальше...   )Жанр: 70's Hard RockПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280CBC9C5C2C7BE2241D8405791147A549DDAF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933217   (506255) от 01.09.2015
-
-The Rubens - Hoops (2015) [OGG| 477-516 кб/с]<Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallelujah
-02. The Night Is On My Side
-03. Hoops
-04. Switchblade(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460A34FAD2F517ABD3E1CB49C1F4D7531690B913
 ```
 
 https://mybot314.ru/tekegram_catalog/

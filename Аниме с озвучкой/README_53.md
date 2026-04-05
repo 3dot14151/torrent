@@ -1,3 +1,133 @@
+###  Публикация: 1698555   (118353) от 10.02.2024
+
+Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судзуме — 17-летняя девушка, живущая в тихом городке на Кюсю, — встречает молодого путешественника, который говорит ей, что ищет дверь. Судзуме следует за путешественником в горы, где находит старую дверь, стоящую в одиночестве на развалинах. Словно притянутая чем-то, Судзуме приближается к двери, но... Вскоре двери начинают открываться одна за другой по всей Японии. (   Читать дальше...   )Производство: Япония, CoMix Wave FilmsЖанр: драма, фэнтези, приключения, мелодрамаРежиссер: Синкай МакотоПеревод: 1) Crunchyroll, 2) yanruiЯзык озвучки: Японский и русскийСубтитры: Русские, английские, китайские, японскиеПродолжительность: 02:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B351FD469EA84D8E08578A4402A66D2735770B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699350   (117824) от 13.02.2024
+
+Go-Toubun no Hanayome~ | The Quintessential Quintuplets | Пять невест: Спецвыпуск [2023, Special, 2 из 2] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дополнительные эпизоды аниме-сериала «Пять невест», в которых экранизированы не вошедшие в оригинальную историю главы манги.Производство: Япония, ShaftЖанр: комедия, романтикаРежиссер: Юкихиро МиямотоПеревод: 1) Dream_minseok 2) AitakattaЯзык озвучки: Японский и русскийСубтитры: 1) Русские 2) АнглийскиеПродолжительность: 2 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76DB60F1BA5F3EC613751CB8E73D0417AA1FB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699787   (117726) от 14.02.2024
+
+Shuumatsu no Walkure II | Shuumatsu no Walkure II | Повесть о конце света 2 [ТВ-2][2023, Web, 15 из 15] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Величайшее противостояние богов и людей в турнире «Рагнарёк» продолжается. Человечеству был дан шанс отвоевать своё право на счастливое тысячелетнее существование при условии победы над командой бойцов со стороны богов. Ставки высоки, отступать уже некуда, а поражение не вариант!Производство: Япония, Graphinica, Yumeta CompanyЖанр: сэйнэн, экшен, драма, сверхъестественное, суперсилаРежиссер: Окубо МасаоПеревод: Татьяна ПрищеповаЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 15 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2EC37B486CF47FF8750E833B5254D2DD11DFDE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700178   (117222) от 16.02.2024
+
+Idol Densetsu Eriko | Легендарный айдол Эрико [1989-1990, TV, 51] BDRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тамура Ерика - единственная дочь Тамуры Юуусуке, председателя "Tamura Productions" (очень известная музыкальная компания) и певицы Тамуры Минако, бывшей известной попзвезды. Имея талант к пению ещё с рождения, она всегда любила мир медиа-индустрии, в котором работали её родители. Она вела беззаботную жизнь школьницы и ни в чём не нуждалась, но удар судьбы (   Читать дальше...   )Производство: Япония, студия Ashi ProductionsЖанр: музыка, повседневностьРежиссер: Амино ТэцуроЯзык озвучки: Русский, озвучилСубтитры: ОтсутствуютПродолжительность: ТВ, 51 серии по 22 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81070605896E69B1A91D0E90F7953944658CEC6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701500   (116057) от 23.02.2024
+
+Hyoujin: Blades of the Guardians | Biao Ren: Blades of the Guardians | Клинки Хранителей [2023, ONA, 15 из 15] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Империя Суй, 607 год. Страной правит жестокий император, народ находится отчаянном положении. Опытный наёмник путешествует вместе с сыном. Он погряз в долгах и берется за самые разные заказы - от эскорта до заказных убийств. Выполняя, на первый взгляд, обычное задание по сопровождению, мужчина оказывается в эпицентре дворцовых интриг, кровавых разборок между воинскими (   Читать дальше...   )Производство: Китай, Colored Pencil AnimationЖанр: боевые искусства, исторический, дунхуа, экшнРежиссер: Ши Цзюаньшэн, Дэн ЧживэйПеревод: Light FamilyЯзык озвучки: Китайский и русскийСубтитры: Русские (полные, отключаемые), надписи (неотключаемые)Продолжительность: 15 эпизодов по 16~34 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E6917AB9401C193A1FE1CCAA71E08DC2F2290C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701889   (116040) от 23.02.2024
 
 Metal Skin Panic Madox-01 | Мадокс-01 [1987, OVA, 1 из 1] BDRip 1080p HEVC 10-bit raw+rus+eng
@@ -6,7 +136,7 @@ Metal Skin Panic Madox-01 | Мадокс-01 [1987, OVA, 1 из 1] BDRip 1080p HE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116040.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Street Fighter II: The Animated Movie | Уличный боец II [1994, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115564.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Liar Liar | Лжец Лжец [2023, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115547.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115208.jpg" />
 </div>
 
 
@@ -113,7 +243,7 @@ Kakutou Bijin Wulong | Fighting Beauty Wulong | Боевая красавица 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115206.jpg" />
 </div>
 
 
@@ -139,7 +269,7 @@ Kakutou Bijin Wulong Rebirth | Fighting Beauty Wulong Rebirth | Боевая к�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115203.jpg" />
 </div>
 
 
@@ -167,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115090.jpg" />
 </div>
 
 
@@ -193,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114866.jpg" />
 </div>
 
 
@@ -220,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114853.jpg" />
 </div>
 
 
@@ -248,7 +378,7 @@ Akiba Meido Sensou | Akiba Maid War | Война горничных Акибы [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114714.jpg" />
 </div>
 
 
@@ -274,7 +404,7 @@ Rakudai Kishi no Cavalry | Chivalry of a Failed Knight | Доблесть рыц
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114688.jpg" />
 </div>
 
 
@@ -300,7 +430,7 @@ Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожало
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114374.jpg" />
 </div>
 
 
@@ -326,7 +456,7 @@ Takt Op. Destiny | Такт. Опус Дестини | Такт. Опус Суд
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114246.jpg" />
 </div>
 
 
@@ -352,7 +482,7 @@ Fate/Grand Order: First Order | Fate/Grand Order -First Order- | Судьба: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114170.jpg" />
 </div>
 
 
@@ -378,7 +508,7 @@ Misutenaide Daisy | Don't Leave Me Alone, Daisy | Не покидай меня, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114044.jpg" />
 </div>
 
 
@@ -405,7 +535,7 @@ Tekkamen o Oe "d'Artagnan Monogatari" yori | After the Man in the Iron Mask! (fr
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112759.jpg" />
 </div>
 
 
@@ -431,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109859.jpg" />
 </div>
 
 
@@ -457,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107356.jpg" />
 </div>
 
 
@@ -485,7 +615,7 @@ Buddy Daddies | Напарники-папаши | Папаши-дружбаны 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107132.jpg" />
 </div>
 
 
@@ -511,7 +641,7 @@ Jaku Chara Tomozaki-kun 2nd Stage | Bottom-tier Character Tomozaki 2nd Stage | �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105470.jpg" />
 </div>
 
 
@@ -537,7 +667,7 @@ Zhandou Wang: Jufeng Zhan Hun | Infinity Nado | Инфинити Надо [2012,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105116.jpg" />
 </div>
 
 
@@ -548,140 +678,6 @@ Zhandou Wang: Jufeng Zhan Hun | Infinity Nado | Инфинити Надо [2012,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAE36631CF3E062B43F63E5129B04C7EA1317004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745158   (105089) от 25.08.2024
-
-Zhandou Wang: Jufeng Zhan Hun 2 | Infinity Nado 2 | Инфинити Надо 2 [2013, TV, 40 эп.] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сезон Аниме Инфинити Надо.
-История о приключениях суперкоманды из четырех мастеров фантастической игры Надо. С помощью волшебных волчков игроки получают необыкновенную силу, которую используют для борьбы со злом. Надо – это больше, чем игра. Это самое популярное соревнование в мире, во время которого бойцы устанавливают связь с магическими волчками, таящими (   Читать дальше...   )Производство: Alpha Animation (Китай)Жанр: ПриключенияЯзык озвучки: Русский (Дубляж)Субтитры: ОтсутствуютПродолжительность: 40 серий по 23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529C6DCAE1AEFF52654BDDF0DA9CBD49D474DE18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745405   (105061) от 26.08.2024
-
-Zhandou Wang: Jufeng Zhan Hun 3 | Infinity Nado 3 | Инфинити Надо 3 [2015, TV, 40 эп.] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий и последний сезон Аниме Инфинити Надо.
-История о приключениях суперкоманды из четырех мастеров фантастической игры Надо. С помощью волшебных волчков игроки получают необыкновенную силу, которую используют для борьбы со злом. Надо – это больше, чем игра. Это самое популярное соревнование в мире, во время которого бойцы устанавливают связь с магическими волчками, (   Читать дальше...   )Производство: Alpha Animation (Китай)Жанр: ПриключенияЯзык озвучки: Русский (Дубляж)Субтитры: ОтсутствуютПродолжительность: 40 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BFB2678D6BA8FB67070739360B4C0B517BFF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745806   (105008) от 28.08.2024
-
-Ji Jia Shou Shen: Baolie Feiche 3 | Screechers Wild 3! | Дикие Скричеры 3! [2018, TV, 52 эп.] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перевод с Китайского от Яндекса:
-После решающей битвы во вселенной Тяньюаня Ло Ша, который умирал в критический момент, был спасен императором древней сверхцивилизованной эпохи, Духом охоты, и прибыл на землю. Чтобы отомстить, Ло Ша попытался собрать 6 взрывных фишек, спрятанных в руинах, возродить охотничий дух и использовать их для завоевания мира. Фейлун и Цинфэн (   Читать дальше...   )Производство: Alpha Animation (Китай)Жанр: ПриключенияРежиссер: Хуан ЦзяньфэнЯзык озвучки: Русский (Дубляж)Субтитры: ОтсутствуютПродолжительность: 52 эп. по 23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6732CFDE61D702C82CDFA949735E938CBD3B69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745791   (104978) от 28.08.2024
-
-Ji Jia Shou Shen: Baolie Feiche 2 | Screechers Wild 2! | Дикие Скричеры 2! [2017, TV, 26 эп.] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перевод с Китайского от Яндекса:
-«Взрывная скорость 2» - вторая работа в серии «Взрывная скорость бога-зверя Меха». Это научно-фантастический приключенческий анимационный сериал, полный драматизма, научно-популярных знаний о Вселенной и пропагандирующий дух защиты окружающей среды.Производство: Alpha Animation (Китай)Жанр: ПриключенияРежиссер: Хуан ЦзяньфэнЯзык озвучки: Русский (Дубляж)Субтитры: ОтсутствуютПродолжительность: 26 эп. по 23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD3BEE517DA5D433E4A6C1E207D09A95C93AAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745784   (104977) от 28.08.2024
-
-Ji Jia Shou Shen: Baolie Feiche | Screechers Wild! | Дикие Cкричеры! [2016, TV, 40 эп.] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104977.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем все сходят с ума по скричерам - машинкам-трансформерам. В Зэфер-Сити проходит Скричер-чемпионат, победители которого становятся настоящими звёздами. В этом городе живут братья Ксандер и Ринго, которые мечтают когда-нибудь одержать победу в соревновании, но у них пока нет скричеров... Однажды в тренировочную машинку Ксандера попадает Джейхок, и (   Читать дальше...   )Производство: Alpha Animation (Китай)Жанр: ПриключенияЯзык озвучки: Русский (Дубляж)Субтитры: ОтсутствуютПродолжительность: 40 эп. по 22 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614F5345B897DF8C82A19057815CE3650DBE8ABE
 ```
 
 https://mybot314.ru/tekegram_catalog/

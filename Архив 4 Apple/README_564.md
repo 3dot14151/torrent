@@ -6,7 +6,7 @@ Adobe Premiere Pro 2022 22.4.0 (build 57) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213243.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Gigapixel AI 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213232.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Animate 2022 v22.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213035.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Capture One 22 Pro v15.3.1.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212967.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Maxon Cinema 4D Studio R26.107 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212952.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adobe After Effects 2022 22.5.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212695.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ macOS 12 Monterey 12.5 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212321.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ ABBYY FineReader PDF for Mac 15.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212317.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Planner 5D Premium 4.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212274.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Vidmore Player 1.0.56 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212050.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ WiFi Explorer 3 Pro 3.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212024.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ DxO PhotoLab 6 ELITE Edition 6.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212022.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ DxO FilmPack 6 ELITE Edition 6.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212013.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ DxO PureRAW 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_211992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_211992.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ App Cleaner & Uninstaller Pro 8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211983.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ MacCleaner 3 PRO 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211928.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Davinci Resolve Studio 18.0.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211910.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Nik Complete 5 Collection by DxO v5.1.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211863.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ ON1 Photo RAW 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211836.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ calibre 6.20.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211834.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ HitPaw Video Enhancer for Mac 1.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211582.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Capture One 23 Pro 16.2.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211518.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VideoProc Converter 4K 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211428.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ PDF Reader Pro Edition 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211339.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Wondershare Filmora for Mac  12.4.0  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211227.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ RAR Extractor Max-Unzip Winrar 9.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211222.jpg" />
 </div>
 
 

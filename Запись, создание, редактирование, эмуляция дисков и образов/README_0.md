@@ -1,3 +1,81 @@
+###  Публикация: 1211630   (777074) от 08.03.2018
+
+DVD Audio Extractor 7.6.0 RePack by вовава [En]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777074.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD Audio Extractor - небольшая программа, призванная помочь в извлечении саундтреков с дисков DVD и сохранения их в форматах OGG, MP3 или Wav. DVD Audio Extractor справляется с извлечением аудио из большинства форматов DVD-Video: Dobly Digital, MPEG-1 и MPEG-2, Liner PCM. Программа поддерживает пакетное выполнение заданий, благодаря этому Вы можете указать все аудиотреки, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF8E29039A365A446F8C64EDC92A9A261905FDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 669106   (720965) от 16.06.2013
+
+ImgBurn 2.5.8.0 [Английский+Русский]
+
+>>След.
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_720965.jpg" />
+</div>
+
+
+###  Подробнее
+
+ImgBurn - утилита для записи образов дисков. Эта небольшая программа обладает всеми необходимыми функциями для прожига практически любых образов CD/DVD дисков. В ImgBurn имеются еще ряд других функций, которые позволяют открывать/закрывать лоток привода, осуществлять поиск в Интернет новых версий прошивки для данного устройства записи, изменять метку ISO-образа, (   Читать дальше...   )Язык интерфейса: Английский+Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401443   (708837) от 10.08.2020
+
+Virtual CloneDrive 5.5.2.0 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Virtual CloneDrive - бесплатная утилита от Elaborate Bytes AG, предназначенная для создания виртуальных дисков из образов, снятых программами CloneCD и CloneDVD. После инсталляции Virtual CloneDrive и перезагрузки компьютера, в системе создаётся виртуальный CD/DVD-ROM, в который и вставляются снятые образы. При этом, вы имеете возможность пользоваться "клонами" (   Читать дальше...   )Язык интерфейса: Русский, Украинский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E93280C2D2B88349D9DFD0C0A2DCA4EF287C28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401454   (708833) от 10.08.2020
 
 CloneDVD 2.9.3.6 [Multi/Ru]
@@ -6,7 +84,7 @@ CloneDVD 2.9.3.6 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708833.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ LightScribe Template Labeler 1.18.15.1 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661903.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Aiseesoft Burnova 1.3.86 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609368.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Windows 10 Media Creation Tool 10.0.14393.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594099.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ AutoRun Pro Enterprise 14.4.0.373 Portable by Sitego [Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581750.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ CloneBD 1.0.5.1 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560507.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ Simple VHD Manager 1.3 Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499311.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491326.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ DVDRemake Pro Portable By Amboioz 3.6.3 + DVDRemake Инструкция (help-P
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482154.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ AnyReader 3.18 (Сборка 1140) RePack (& Portable) by ZVSRus [Ru/En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479545.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ Nero 2017 Platinum 18.0.06100 Retail + ContentPack [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447742.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ Tipard DVD Cloner 6.2.52 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371583.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ AnyMP4 DVD Copy 3.1.56 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371578.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ Alcohol 120% 2.0.3 Build 11012 Retail [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369761.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ DVDFab Passkey 9.2.1.7 Final [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362683.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ CDmage 1.02.5 Beta Portable [Ru/En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356323.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ WinX DVD Copy Pro 3.9.2 Repack (& Portable) by elchupacabra [Ru/En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333529.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ WinX DVD Copy Pro 3.9.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332031.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ AnyToISO Pro 3.9.5 Build 660 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320467.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ BurnAware Professional 11.8 RePack by tolyan76 [Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267614.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ CDBurnerXP 4.5.8.7128 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264536.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ DVDFab 13.0.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257674.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ DVDFab 13.0.5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252566.jpg" />
 </div>
 
 
@@ -599,85 +677,6 @@ DVDFab – мощный, многофункциональный программ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:990B4B04C6CB3BFC712F33655977F9D4DB23AECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835527   (250729) от 07.11.2025
-
-Flyoobe 1.51 Portable [En]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flyoobe (Ранее назывался Flyby11) — это простой патчер, который снимает надоедливые ограничения, мешающие установить Windows 11 (24H2/25H2) на неподдерживаемое оборудование. У вас старый компьютер? Нет TPM, Secure Boot или ваш процессор не поддерживается? Flyoobe в любом случае позволяет установить Windows 11 (24H2/25H2).
-После того как Flyby11 помог тысячам пользователей (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17288FB1BE93ECD84F2252DC381D7CB67BE7B64C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645223   (247103) от 08.07.2023
-
-UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247103.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EBC3B0ADC45015F5357067D21E704F36E6AB4DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645631   (247068) от 10.07.2023
-
-UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247068.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604599E25F63D20E00FAA484E347BB936108313F
 ```
 
 https://mybot314.ru/tekegram_catalog/

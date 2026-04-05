@@ -6,7 +6,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801624.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hi Score Girl | High Score Girl | Девчонка не промах [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801601.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bernard Jou Iwaku. / Miss Bernard Said. / Мисс Бернард сказала
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801537.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Onigiri | Онигири [2016, TV, 13 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801234.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Koukaku no Pandora: Ghost Urn | Pandora in the Crimson Shell: Ghost Urn | Дух
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801168.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Monster Strike / Монстр Страйк [2015, TV, 51 + 2 SP] WEBRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801132.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Yatogame-chan Kansatsu Nikki Sansatsume | Заметки Ятогамэ [ТВ-3]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801048.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Fragtime | Осколки времени [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800919.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Yuyushiki: Komarasetari, Komarasaretari / Формула жизни OVA [2017, O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800507.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Hitoribocchi no Marumaru Seikatsu | Жизнь не в одиночку [2019, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800336.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ ACCA 13-ku Kansatsu-ka / ACCA: 13-Territory Inspection Dept. / АККА: Деп�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800151.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BNA: Brand New Animal | Совершенно новый зверь [2020, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799858.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Kiitarou Shounen no Youkai Enikki | Kiitaro's Yokai Picture Diary | Дневни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798809.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 эп.] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797752.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Bosco Daibouken | Bosco Adventure | Приключения Боско [1986, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797150.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Harmony | Гармония [2015, MV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795893.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Eromanga Sensei | Эроманга-сэнсэй [2017, TV, 12 эп.] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795531.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Tsugumomo | Цугумомо [ТВ-1] [2017, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795465.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Owarimonogatari (2017) | Owarimonogatari Second Season | Финальные ис
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795414.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Made in Abyss | Созданный в Бездне [2017, TV, 13 эп.] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795330.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Granblue Fantasy The Animation | Голубая мечта Грана [2017, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793806.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Nekopara | Кошачий рай [2017, OVA] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793805.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не люби�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792887.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Ichigo Marshmallow | Strawberry Marshmallow | Клубничный зефир [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792633.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Uchuu Senkan Tiramisu Zwei | Space Battleship Tiramisu Zwei | Космическ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792572.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Uchuu Senkan Tiramisu | Space Battleship Tiramisu | Космический ли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792570.jpg" />
 </div>
 
 

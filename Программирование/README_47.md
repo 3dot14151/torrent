@@ -1,83 +1,3 @@
-###  Публикация: 1589331   (190139) от 09.11.2022
-
-Alex Martelli и др. | Python в двух словах:/ Python in a Nutshell, 4-е издание (2022) [EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно Python был признан самым популярным языком программирования на сегодняшний день в индексе TIOBE благодаря его широкой применимости для проектирования и создания прототипов, тестирования, развертывания и обслуживания. С помощью этого обновленного четвертого издания вы узнаете, как извлечь максимальную пользу из Python, независимо от того, являетесь ли вы профессиональным (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2392AD076B3706026C52AC6B18230F22C10F6901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659148   (190037) от 11.09.2023
-
-Hem Dutt | Full Stack iOS Development with Swift and Vapor (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для того чтобы приступить к разработке iOS с полным стеком, в начале книги необходимо установить инструментарий Vapor Toolbox и Xcode. Благодаря практическому подходу книга поможет вам разобраться в тонкостях маршрутизации, реализации мер безопасности, бесшовной интеграции данных, эффективного управления данными и генерации JSON-ответов на стороне сервера. По мере (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: BPB OnlineФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C56A80EB78EB113DB8B26C1A0BBCF5ED5C42AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659158   (189923) от 11.09.2023
-
-Ted Hagos | Beginning Kotlin (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга знакомит с навыками и приемами программирования на языке Kotlin, необходимыми для создания приложений. Вы узнаете, как перенести свои навыки программирования на Java в Kotlin.
-
-Книга начинается с краткого обзора языка Kotlin и постепенно переходит к более подробному изучению языка в последующих главах. Вы изучите такие основы Kotlin, как дженерики, функциональное (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Apress BerkeleyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72AF315FDFD85FB5350AC3F56777E2275B6B8BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659842   (189911) от 11.09.2023
 
 Макс Пумперла и др.| Изучаем Ray. Гибкие распределенные вычисления на Python в машинном обучении (2023) [PDF]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189911.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189243.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189068.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ Derek Fisher | Справочник по программе безопаснос
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188689.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188655.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188639.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188601.jpg" />
 </div>
 
 
@@ -268,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188582.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188361.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ Peter Royal | Building Modern Business Applications (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188231.jpg" />
 </div>
 
 
@@ -348,7 +268,7 @@ Patrick Hall, James Curtis | Machine Learning for High-Risk Applications (2023) 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188225.jpg" />
 </div>
 
 
@@ -374,7 +294,7 @@ Joshua M Willman | Beginning PyQt, 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188221.jpg" />
 </div>
 
 
@@ -400,7 +320,7 @@ Sufyan bin Uzayr | Mastering SQL: A Beginner’s Guide (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188213.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ John M. Stewart, Michael Mommert | Python for Scientists, 3rd Edition (2023) [PD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188209.jpg" />
 </div>
 
 
@@ -454,7 +374,7 @@ Shing Lyu, Andrew Rzeznik | Practical Rust Projects, 2nd Edition (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188195.jpg" />
 </div>
 
 
@@ -480,7 +400,7 @@ Sufyan bin Uzayr | Conquering JavaScript: Node.js (2024) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188169.jpg" />
 </div>
 
 
@@ -508,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187844.jpg" />
 </div>
 
 
@@ -535,7 +455,7 @@ I. Cosmina, R. Harrop, Ch. Schaefer, C. Ho | Pro Spring 6: An In-Depth Guide to 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187268.jpg" />
 </div>
 
 
@@ -561,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186960.jpg" />
 </div>
 
 
@@ -587,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186917.jpg" />
 </div>
 
 
@@ -613,7 +533,7 @@ Musa Arda | Hands-On Python / Практический Python (2022) [EPUB] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186693.jpg" />
 </div>
 
 
@@ -641,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186673.jpg" />
 </div>
 
 
@@ -667,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186314.jpg" />
 </div>
 
 
@@ -678,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3C7A9DF0E25B2FDD928A0668C70D28E4F2CB5E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664013   (186160) от 24.09.2023
+
+Джейсон Сандерс , Эдвард Кэндрот | Технология CUDA в примерах: введение в программирование графических процессоров (2011) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186160.jpg" />
+</div>
+
+
+###  Подробнее
+
+CUDA - вычислительная архитектура, разработанная компанией NVIDIA и предназначенная для разработки параллельных программ. В сочетании с развитой программной платформой архитектура CUDA позволяет программисту задействовать невероятную мощь графических процессоров для создания высокопроизводительных приложений, включая научные, инженерные и финансовые приложения. Книга (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.А. СлинкинИздательство: ДМК-ПрессФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4739A041949B60DA23C2EFD961261C5636F12A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426591   (185797) от 25.11.2020
+
+М.А. Федотенко | Разработка мобильных приложений. Первые шаги (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – практическое руководство для тех, кто уже делает первые шаги в разработке мобильных приложений под Android или пока только мечтает об этом. С ней вы легко освоите основы разработки, познакомитесь со средой разработки Android Studio, создадите собственные приложения, которыми можно поделиться с друзьями и со всем миром.Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B0488870385DEDF2874FD73E6CEC7175A0B3E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664198   (185660) от 25.09.2023
+
+Кевлин Хенни, Триша Джи | 97 вещей, о которых должен знать каждый Java-программист. Советы лучших экспертов (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что должен знать каждый Java-программист? Ответов на этот вопрос может быть очень много. Авторы этой книги собрали мнения нескольких десятков опытных разработчиков на Java, чтобы создать единое руководство для тех, кто только начинает свой путь в программировании. Когда так много нужно знать, так много нужно сделать и есть так много способов сделать это, ни один (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B8E236922F0F5FB90CF7B72DF492DC6FC6A16A
 ```
 
 https://mybot314.ru/tekegram_catalog/

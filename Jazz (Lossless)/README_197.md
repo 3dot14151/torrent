@@ -6,7 +6,7 @@ Eddie Heywood - 1944 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392100.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Howard Roberts - Jaunty-Jolly! & Guilty!! (1967) 2001, EMI-Capitol [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391380.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jonathan Poretz - A Lot Of Livin' To Do (2006) ArtFlo Productions [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390653.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kuh Ledesma - Unforgettable (1986) Universal [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390650.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Quincy Jones - Complete Recordings 1960-1962 (2014) 4CD, Enlightenment Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390621.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Paul Brown - The City (2005) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_390544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_390544.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Eddie Heywood - 1944-1946 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389783.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ James Carter - Gardenias for Lady Day (2003) Columbia [WavPack|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389781.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Toshiko Akiyoshi Trio - Four Seasons (1990) 1999, Nippon Crown [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389056.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ New York Unit - Tribute To George Adams (1993) King Record [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389054.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Willie Lewis - 1941 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Ba
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388034.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_388019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_388019.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Fred Hersch - Plays Rodgers & Hammerstein (1996) Nonesuch[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387928.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Slide Hampton - Explosion! The Sound Of Slide Hampton (1962) Remaster, 2013, War
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387924.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Nat King Cole - Crazy Rhythm! Live 1947-1948 (1947-1948) 1991, Vintage Jazz Clas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387923.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Allen Farnham - Meets The RIAS Big Band (1996) 1998, Concord Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387890.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Louis Armstrong - Big Bands, Vol.2 (1931 - 1932) 1988, JSP Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387889.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Peter Bernstein - Brain Dance (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387884.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Nat King Cole - Tenderly (1951) 1996, The Entertainers[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387828.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Stan Getz & Albert Dailey - Poetry (1983) 2001, Blue Note[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387827.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Mal Waldron - Meditations: Live at Dug (1972) 2016, Somethin' Cool [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387643.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Jessica Williams - Higher Standards (1997) Candid [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387642.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Rob Barron - From This Moment On (2020) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387592.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Jessica Williams - In The Key Of Monk (1997) 1999, Jazz Focus [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387540.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Herbie Mann - Windows Opened & The Inspiration I Feel (1968) 2001, Collectables 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387433.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Randy Waldman - Superheroes (2018) BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387431.jpg" />
 </div>
 
 

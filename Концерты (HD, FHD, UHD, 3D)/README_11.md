@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794091.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Marilyn Manson: Guns, God and Government (2002) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793852.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793489.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793406.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792781.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Rick Wakeman - The Six Wives Of Henry VIII, Live At Hampton Court Palace (2009) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792657.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Hymn - Sarah Brightman in Concert (2018) HDTV [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792118.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790298.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Bruno Mars: 24K Magic Live at the Apollo (2017) WEB-DL [H.264/1080p-LQ] [EN / EN
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789466.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789379.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789378.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788838.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ The Witcher 3: Wild Hunt concert (Film Music Festival 2016) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787918.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787287.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Labyrinth - Return to Live (2016/(2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785301.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785271.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784913.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784276.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ David Gilmour: Remember That Night (2007) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784175.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783335.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782900.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782853.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780556.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Nana Mizuki - Live Zipangu x Izumo Taisha Dedicated Performance (2017) [H.264/10
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779924.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Whitesnake - The Purple Tour Live (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779483.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779479.jpg" />
 </div>
 
 

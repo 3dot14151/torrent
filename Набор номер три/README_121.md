@@ -1,3 +1,162 @@
+###  Публикация: 970328   (889693) от 31.03.2020
+
+AIMP for Android 3.01 (build 972) [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкая мобильная версия аудиоплеера для платформы Android.Тип издания: FreeРелиз состоялся: 22.03.20Разработчик: Artem IzmaylovПоддерживаемая ОС: Android 4.4 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70ADEE93FBE5F3048724FCAED68295090F6F4D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371310   (889668) от 31.03.2020
+
+Названы суммы штрафов за нарушение карантина
+
+>>3
+>>25
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правительство одобрило ужесточение наказания за нарушение карантина
+Российское правительство одобрило поправки об ужесточении ответственности за нарушение карантина, заявил премьер-министр Михаил Мишустин."Сейчас наша основная задача — это работать на опережение, минимизировать распространение вируса", — сказал он на совещании с вице-премьерами.Так, согласно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371439   (889666) от 31.03.2020
+
+Плохие парни навсегда / Bad Boys for Life (2020) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детективы Майк Лоури и Маркус Бёрнетт снова в деле! Правда, их отстраняют от всех операций, но разве отчаянных друзей когда-нибудь что-либо останавливало? Ведь на этот раз на Майка открывает охоту некто из его прошлой жизни. Так что парням придется отжечь по полной!Производство: США, Мексика, Columbia Pictures, 2.0 Entertainment, Columbia Pictures Mexico, Don Simpson/Jerry Bruckheimer Films, Overbrook EntertainmentЖанр: Боевик, Триллер, Комедия, КриминалРежиссер: Адиль Эль Арби, Билал ФаллаАктеры: Уилл Смит, Мартин Лоуренс, Ванесса Энн Хадженс, Александр Людвиг, Чарльз Мелтон, Паола Нуньес, Кейт дель Кастильо, Ники Джем, Джо Пантольяно, Джейкоб СкипПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 02:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4D6BA7E5ACCDC226905622DDEC3FAB6C75F82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371474   (889657) от 31.03.2020
+
+Джентльмены / The Gentlemen (2019) WEBRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гай Ричи представляет необычную криминальную комедию «Джентльмены» со звёздным актёрским составом. Сюжет рассказывает об американском экспате Микки Пирсоне (Мэттью МакКонахи), который создал невероятно прибыльную наркотическую империю в Лондоне. Появляются слухи, что Пирсон готов отойти от дел, продав свой бизнес. Тут же появляется множество желающих заполучить бизнес (   Читать дальше...   )Производство: США, MiramaxЖанр: Боевик, комедия, криминалРежиссер: Гай РичиАктеры: Мэттью МакКонахи, Чарли Ханнэм, Мишель Докери, Джереми Стронг, Лайн Рени, Колин Фаррелл, Генри Голдинг, Том Ву, Чиди Аджуфо, Хью ГрантПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full)Продолжительность: 01:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D37FF85362427D17F749FFD09F47D37FE07AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184745   (889152) от 20.03.2010
+
+Конфуций / Kong Zi / Confucius (2009/2010) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889152.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни знаменитого китайского мыслителя и философа Конфуция.
+Китай еще не был единым в «Период Весен и Осеней». Страна представляла собой лоскутное одеяло из феодальных княжеств и государств, постоянно соперничающих друг с другом за превосходство и территории.
+В Княжестве Лу все было как везде: условный правитель не имел реального авторитета, а настоящая власть (   Читать дальше...   )Производство: Китай / Beijing Dadi Century Limited, Dadi Entertainment, China Film GroupЖанр: драма, биография, историяРежиссер: Ху МэйАктеры: Чоу Юнь-Фат, Цзяньбинь Чэнь, Чжоу Сюнь, Яо Лу, Жэнь Цюань, Ван Бань, Чжан Кайли, Цзяо Хуан, Ран Чен, Лу ИПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 01:58:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184912   (889150) от 20.03.2010
+
+Концерт / Le concert (2009) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший дирижер, а ныне уборщик Андрей Филипов собирает свой старый оркестр, участники которого по просшествию 30 лет стали продавцами, бродягами или алкоголиками, и отправляется в Париж на концерт. Это путешествие сопровождает масса комических ситуаций.Производство: Франция, Италия, Бельгия, РумынияЖанр: Комедия, МузыкаРежиссер: Раду МихайлеануАктеры: Алексей Гуськов, Мелани Лорен, Дмитрий Назаров, Валерий Баринов, Франсуа Берлеан, Миу-Миу, Лионель Абелански, Василь Альбинет, Лорен Батье, Рамзи Бедиа, Жаклин Биссет, Мария Динулеску, Роже Дюма, Гийом Жалльен, Анна Каменкова, Александр Комиссаров, Ион Сапдару, Валентин Теодосю, Влад ИвановПеревод: Русский оригинал (французский без перевода)Продолжительность: 01:57:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 184772   (889149) от 20.03.2010
 
 Fallout Антология [Ru] (L) 2008
@@ -6,7 +165,7 @@ Fallout Антология [Ru] (L) 2008
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889149.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889027.jpg" />
 </div>
 
 
@@ -60,7 +219,7 @@ NewBlue Titler Pro Utlimate 4.0 build 160210 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888965.jpg" />
 </div>
 
 
@@ -86,7 +245,7 @@ Fallout 4 (2015) [Ru/Multi] (1.4.132) License PROPHET
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888897.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888870.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888867.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ Pillars of Eternity + The White March: Part I + Part II (2015) [Ru/Multi] (3.00.
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888865.jpg" />
 </div>
 
 
@@ -191,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888770.jpg" />
 </div>
 
 
@@ -218,7 +377,7 @@ Greyscale - Label-Pack 76 Releases (2012-2021) [FLAC|Lossless|tracks+.cue, track
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888716.jpg" />
 </div>
 
 
@@ -244,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888689.jpg" />
 </div>
 
 
@@ -270,7 +429,7 @@ AT&T готовится запустить интернет по линиям э
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888664.jpg" />
 </div>
 
 
@@ -296,7 +455,7 @@ Total Commander 9.0a (x86) Freemen 17.2 slim RePack (& Portable) by notn [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888629.jpg" />
 </div>
 
 
@@ -322,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888615.jpg" />
 </div>
 
 
@@ -348,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888611.jpg" />
 </div>
 
 
@@ -374,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888602.jpg" />
 </div>
 
 
@@ -401,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_888600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_888600.jpg" />
 </div>
 
 
@@ -427,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888598.jpg" />
 </div>
 
 
@@ -453,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888596.jpg" />
 </div>
 
 
@@ -482,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888593.jpg" />
 </div>
 
 
@@ -508,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888591.jpg" />
 </div>
 
 
@@ -519,165 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:986D1F0EB3411D61C07011636E56DAF2637EE947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102767   (888569) от 10.02.2017
-
-CLCL 2.0.3 Portable [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888569.jpg" />
-</div>
-
-
-###  Подробнее
-
-CLCL - утилита кеширования буфера обмена. Программа CLCL понравится тем, кто часто работает с текстом, из этого вытекает, что буфер обмена вам просто необходим. Эта разработка способна расширить его возможности путем ведения истории, после чего вы можете легко управлять записями там. CLCL может работать с разными типами информации, не важно копируете вы просто текст (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE965A9E42E83698B0C6377EA58DE362F1A11E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903578   (888500) от 10.02.2017
-
-Nintendo Wii America (2015) [Wii] [NTSC-U] (#-L)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть подборки (588 из 1247) образов американского (NTSC-U) региона для приставки Nintendo Wii. Все игры сконвертированы в формат WBFS для простого хранения и запуска.
-
-Nintendo Wii имела огромный успех. В одной только америке было продано 48 миллионов консолей. И 101 миллион по всему миру.
-(   Читать дальше...   )Тип издания: LicenseЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: АнглийскийФормат: WBFS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF9642C00E8569466B0B7E33FD602AAE7D3423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099953   (888492) от 10.02.2017
-
-Watch Dogs 2 (2016) [Ru/Multi] (1.07.141/dlc) SteamRip R.G. Origins
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888492.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2016 году ctOS 2.0, современная операционная сетевая система, была задействована в нескольких городах США, чтобы создать наиболее безопасный для жизни мегаполис и вывести на новый уровень всю городскую инфраструктуру.Тип издания: SteamRipРазработчик: Ubisoft MontréalЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47BD1F2816E7F5B81B7BC64A341AD7F58897EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102431   (888489) от 10.02.2017
-
-Преисподняя / Brimstone (2016) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888489.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о девушке по имени Лиз, которая пытается сбежать от своего темного прошлого и скрывается от преследования «дьявольского» проповедника.Производство: Нидерланды, Франция, Германия, Бельгия, Швеция, ВеликобританияЖанр: Детектив, Вестерн, ТриллерРежиссер: Мартин КулховенАктеры: Дакота Фэннинг, Кит Харингтон, Кэрис ван Хаутен, Гай Пирс, Пол Андерсон, Эмилия Джонс, Карла Юри, Джек Рот, Тиго Гернандт, Наоми БаттрикПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: отсутствуютПродолжительность: 02:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CD59C7037F4A8FA4120DDECAF94544C4663211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762872   (888250) от 04.03.2014
-
-Август / August: Osage County (2013) BDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888250.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городе Талса, штат Оклахома, в отчий дом съезжаются члены большой семьи Уэстонов. Случилось несчастье и три дочери Барбара, Карен и Иви, их мать Виолетта, тетя Метти Фей, а также их мужья, дети и ухажеры собираются под одной крышей, пьют виски и выясняют отношения, обвиняя друг друга в предательствах, подавленных чувствах и изломанных судьбах. У каждого есть свой (   Читать дальше...   )Производство: СШАЖанр: ДрамаРежиссер: Джон Уэллс / John WellsАктеры: Мэрил Стрип, Джулия Робертс, Юэн МакГрегор, Эбигейл Бреслин, Крис Купер, Марго Мартиндейл, Джулианна Николсон, Бенедикт Камбербэтч, Дермот Малруни, Джульетт ЛьюисПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15AB7637EA38FC5FE2100460343036381126A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371701   (888096) от 01.04.2020
-
-Дума отсрочила до 1 января 2021 года обязательную предустановку российского ПО
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Срок вступления в силу требования о предустановке на смартфоны, компьютеры и телевизоры с функцией Smart TV приложений, ориентированных на российского потребителя, сдвигается с 1 июля 2020 года на 1 января 2021 года. Соответствующие поправки (текст есть в распоряжении ТАСС) Госдума приняла во вторник при рассмотрении законопроекта, наделяющего правительство РФ правом (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

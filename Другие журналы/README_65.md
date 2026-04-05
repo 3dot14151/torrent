@@ -1,3 +1,55 @@
+###  Публикация: 961175   (303486) от 30.11.2015
+
+Газета | Морфей №23 (321) (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303486.jpg" />
+</div>
+
+
+###  Подробнее
+
+В номере: магия зимнего солнцеворота, защита дома от пожара, вспоминаем забытые сны, детское воровство, как уберечь себя от порчи на деньги и, конечно же, сонник!Жанр: Сны, гадания, приметыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F045F6381E5861715D291EC3EC1C6552A6AC5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961111   (303420) от 30.11.2015
+
+Журнал | Вопросы национализма №1-20 (2010-2014) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303420.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Вопросы национализма" - журнал научной и общественно-политической мысли. Это первое в России периодическое издание, специально посвященное проблемам нации и национализма. Специфика нового журнала еще и в том, что это печатный орган русских националистов, в котором они стремятся критически проанализировать свои убеждения и их основания. "Вопросы национализма" (   Читать дальше...   )Жанр: История, ПублицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:508409A9B00E9792EFFE3B915D1A77F70677FD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 730646   (302853) от 05.12.2013
 
 Журнал | Esquire [Россия] №94 (декабрь 2013) [PDF]
@@ -6,7 +58,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302853.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302831.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301394.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301390.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301387.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301338.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301306.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301207.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300029.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300008.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298830.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297226.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297103.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296812.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296385.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295771.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294875.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294514.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293853.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293486.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293041.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292901.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292674.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292333.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4C8436E7592D31EE2499C0331BE5288C598FE10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080056   (292061) от 05.12.2016
-
-Журнал | Военная история №13 (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тематическое издание для всех интересующихся развитием военного дела от древних времен до наших дней. Масса интересного и познавательного не только для тех, кто любит историю. Знаменитые крепости, великие полководцы, ручное оружие, женщина на войне. И многие другие смежные темы - в статьях нового номера издания.
-Собственный скан.Жанр: Военное дело, историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA284A3BB2FDB6E417EB2BD1CBE41E53A030AA30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335035   (291662) от 31.10.2019
-
-Журнал | Тайны СССР №21 (2019) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный журнал для широкого круга читателей.Жанр: популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99B4375AB47D287B7E0BF9447BFD9DFDCECB7DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

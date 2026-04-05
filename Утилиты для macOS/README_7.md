@@ -1,3 +1,30 @@
+###  Публикация: 1489780   (924016) от 17.08.2021
+
+Cleanup My System 1.13 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановите скорость системы, повысьте производительность, освободите место для хранения и получите максимальную производительность на вашем Mac.
+Боретесь с медленной и вялой производительностью Mac? Очистить свою систему - лучший способ ускорить работу Mac. Используя этот профессиональный инструмент настройки, вы можете легко найти и удалить ненужные файлы, нежелательные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2021Разработчик: Systweak SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504CD4A8F0542F5D061CE7F22F09EBC4F0F1D382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095933   (922751) от 22.01.2017
 
 Temps 1.13.5 [Multi/Ru]
@@ -6,7 +33,7 @@ Temps 1.13.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922751.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Ring Menu 1.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922690.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ Wise Menu 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922441.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ Cisdem Unarchiver 3.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920864.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Mach Desktop 2.8.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920767.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ VMware Fusion Pro 11 v11.5.2 (build 15794494) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918765.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ A Better Finder Anttributes 6.04 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914494.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ Folder Color - Design Custom Folder Icons 3.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913912.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ StuffIt Deluxe 16.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912503.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ Disk Diet - Clean your drive 5.4.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912135.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ Disk Keeper Pro v1.4.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910491.jpg" />
 </div>
 
 
@@ -307,7 +334,7 @@ Disk Drill Media Recovery 4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908608.jpg" />
 </div>
 
 
@@ -334,7 +361,7 @@ iStatistica 3.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908516.jpg" />
 </div>
 
 
@@ -363,7 +390,7 @@ Decloner — a fast and reliable duplicate file finder 1.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907059.jpg" />
 </div>
 
 
@@ -390,7 +417,7 @@ Viscosity 1.9.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906911.jpg" />
 </div>
 
 
@@ -417,7 +444,7 @@ vSSH 1.11.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905846.jpg" />
 </div>
 
 
@@ -446,7 +473,7 @@ Beamer 3.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903100.jpg" />
 </div>
 
 
@@ -474,7 +501,7 @@ Fireplace Live HD + Screensave‪r‬ 4.3.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902320.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ BetterZip 3.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901354.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ VMware Fusion Professional Version 11.5.3 (build 15870345) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899707.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ SuperTab 2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899175.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ MacCleaner PRO 1.8.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898415.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ Duplicate Windows 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897502.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ Duplicate Finder 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897366.jpg" />
 </div>
 
 
@@ -666,7 +693,7 @@ List My Apps 1.9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892557.jpg" />
 </div>
 
 
@@ -677,33 +704,6 @@ List My Apps 1.9.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36B3030AAED65C5893263D347EA8B65741FDC60C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869306   (892135) от 14.02.2015
-
-Toast Titanium Pro 12.1 (3580) [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Roxio Toast  Titanium Pro 12 - cамый мощный пакет для записи дисков.
-Roxio Toast Titanum Pro предоставляет множество вариантов для обработки цифровой музыки, видео и изображений на кинофильмов и фотографий на CD и DVD-дисках. Теперь нет необходимости хранить большие файлы на дисках. К звуковому DVD добавились более полусотни часов музыки и система Dolby Digital.Файлы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 июля 2014Разработчик: RoxioПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Английский, Немецкий, Французский, испанский и Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8EF07CE88E8EE4F896E811B8924441683C694A
 ```
 
 https://mybot314.ru/tekegram_catalog/

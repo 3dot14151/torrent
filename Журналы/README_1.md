@@ -1,3 +1,107 @@
+###  Публикация: 1858912   (1060747) от 13.03.2026
+
+Журнал | Кухонька Михалыча №3 (247) (март 2026) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105D97A9E6CAD118ED9866905DBF35EE4754D12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858672   (1060551) от 12.03.2026
+
+Журнал | Мир фантастики №1 (266) (январь 2026) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Мир фантастики» посвящён фантастике в самом широком смысле. В фокусе внимания — книги, фильмы, сериалы, игры и комиксы, статьи о вымышленных вселенных, мифологии и футурологии и всё самое интересное в этой области. О классике и новинках. Под обложкой каждого номера вас ждёт целый мир!Жанр: Журнал фантастикиИздательство: ООО «Мир Хобби»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B965E1054E07FBFE8F8969CE254429602BA244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858744   (1060541) от 12.03.2026
+
+Журнал | Кухонька Михалыча №2 (246) (февраль 2026) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB60326BA15E1E385C2F1F0D86061B32B8938237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858378   (1060471) от 10.03.2026
+
+Журнал | Вопросы кибербезопасности №1 (71) (2026) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060471.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вопросы кибербезопасности» - это научный, периодический, информационно-методический журнал с базовой специализацией в области информационной безопасности. На страницах журнала печатаются статьи российских и иностранных ученых в области информационной безопасности и информационного противоборства, в первую очередь материал по кибербезопасности, безопасности приложений, (   Читать дальше...   )Жанр: КибербезопасностьИздательство: АО «НПО «Эшелон»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43DB9F4AF49FF894842B1B141239F92D9E33848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858517   (1060401) от 11.03.2026
 
 Журнал | Живу с диабетом №3 (88) (март 2026) [PDF]
@@ -6,7 +110,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060401.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060361.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060355.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060352.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060313.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060209.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060208.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060204.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060197.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060195.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060194.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060111.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060110.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060077.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060075.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060042.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059895.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059798.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059683.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059657.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059654.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059635.jpg" />
 </div>
 
 
@@ -570,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C63D57C858B743C85F04D9321CBAB3DF17BB804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857317   (1059478) от 05.03.2026
-
-Журнал | Овочi та фрукти / Овощи и фрукты №2 (176) (февраль 2026) [PDF] [UKR]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для фермерів, дачників і городників, які хочуть не тільки отримати прекрасний урожай, але використовувати вирощування овочів і фруктів для отримання доходу. У журналі - інформація про сортовому розмаїтті овочевих і плодово-ягідних культур, світові тенденції розвитку, сучасні технології вирощування, зберігання і переробки овочів і фруктів, рекомендації по вибору (   Читать дальше...   )Жанр: Сад, огородЯзык: УкраинскийИздательство: ТОВ "КВП Дельта-Агро"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C162D26023857E860533C32E0970D5F8C1338E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857316   (1059477) от 05.03.2026
-
-Журнал | Овочi та фрукти / Овощи и фрукты №1 (175) (январь 2026) [PDF] [UKR]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для фермерів, дачників і городників, які хочуть не тільки отримати прекрасний урожай, але використовувати вирощування овочів і фруктів для отримання доходу. У журналі - інформація про сортовому розмаїтті овочевих і плодово-ягідних культур, світові тенденції розвитку, сучасні технології вирощування, зберігання і переробки овочів і фруктів, рекомендації по вибору (   Читать дальше...   )Жанр: Сад, огородЯзык: УкраинскийИздательство: ТОВ "КВП Дельта-Агро"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CB0EEC27CE91E8A01264C541780C5A4A4CB8F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857311   (1059476) от 05.03.2026
-
-Газета | Загадки истории №10 (2026) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059476.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F814C4F35075BFAAF6893AC63D715106AA0FC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856993   (1059440) от 03.03.2026
-
-Журнал | Военно-исторический журнал №3 (791) (март 2026) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059440.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D1C3AAF1AF61EA0700E7FFDE49D4C0B4D33FFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

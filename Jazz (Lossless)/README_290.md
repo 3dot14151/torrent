@@ -6,7 +6,7 @@ Valery Ponomarev - Means Of Identification (1993) Reservoir[FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150830.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Caravan Palace - <I°_°I> (2015) 2025, 10th Anniversary Edition [FLAC 24/44.1|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150709.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Papik, Laura Lanzillo & Claudio Fiori - Yes I Know My Way (A Tribute To Pino Dan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150697.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Horace Silver Quintet - Further Explorations (1958) 2005, Toshiba-EMI [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150571.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Willis Jackson - Soul Night Live! (1964) 2002, Prestige [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150569.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Arnvid Meyer - Right Out Of Kansas City (1959 - 1973) 5CD, 2008, Stunt Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150568.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Acid Jazz Today 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150546.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Acid Jazz & Funky Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150545.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Aperitivo Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150534.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ George Benson - Invitation (1990) ORO [FLAC|Lossless|image + .cue] <Hard Bop, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150527.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Acid Jazz Classics, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150516.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Casiopea - Made in Melbourne (1994) Pioneer[FLAC|Lossless|image + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150452.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Billy Harper Quintet - Live on Tour in the Far East Vol. 3 (1995) SteepleChase [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150434.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Billy Harper Quintet - Live On Tour In The Far East, Vol. 1 (1992) SteepleChase 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150430.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Eiji Kadota - The Flow (2014) Innsbruck Records [FLAC|Lossless|WEB-DL|tracks] <F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150410.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Christmas Lights - Smooth Jazz Instrumental Music (2018) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150249.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ V.A. - Electro Swing Elite Compilation (2016) [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150079.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Etienne Charles - Creole Christmas (2015) [FLAC|Lossless|tracks + .cue] <Afro-Ca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149945.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Erroll Garner - 1953-1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149940.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Courtney Pine - Black Notes From The Deep (2017) Freestyle Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149906.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ The United Jazz+Rock Ensemble - Highlights (1985) [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149844.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Stanley Turrentine With Milt Jackson - Cherry (1972) 1988, CBS [APE|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149777.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Papik - Sounds For The Open Road Vol.2 (2020) 2CD [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149730.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Gil Evans Orchestra - Blues In Orbit (1969, 1971) 2009, Enja Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149477.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Papik - Cocktail Italy Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149196.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Christophe Wallemme - Om Project (2017) Bonsai Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148843.jpg" />
 </div>
 
 

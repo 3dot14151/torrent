@@ -1,3 +1,61 @@
+###  Публикация: 1597612   (164875) от 16.12.2022
+
+VA - Country Rock Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Country Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Church -- Record Year (2:59)
+02. Maddie & Tae -- Die From A Broken Heart (3:08)
+03. Shane Nicholson -- Little Mascara (3:40)
+04. Florida Georgia Line -- H.O.L.Y. (3:17)(   Читать дальше...   )Жанр: Country RockПродолжительность: 37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:762807CFB0F83C5A43C8E3ADF77C509D97154F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 262009   (164710) от 17.12.2019
+
+Oliver Shanti and Friends - Discography (1987-2006) [FLAC|Lossless]<New Age / Ethnic / Meditative>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Joy
+02. To Her
+03. Naf Dhun
+04. Hazarat Inayat Love(   Читать дальше...   )Жанр: New Age / Ethnic / MeditativeПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EB9BA4626D1E2AAEBBD75163C7B83D7E16ADB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673601   (164194) от 02.11.2023
 
 VA - Die 50 Grobten Saxophon Hits Aller Zeiten (2015) [MP3|320 Kbps] <Pop, Instrumental, Saxophone>
@@ -6,7 +64,7 @@ VA - Die 50 Grobten Saxophon Hits Aller Zeiten (2015) [MP3|320 Kbps] <Pop, Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164194.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Yoga Music Session 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164103.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Yoga Music Session 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164085.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Ernesto Cortazar - The Best of Ernesto Cortazar, Vol. 1 (2022) [FLAC|Lossless|WE
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164080.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163946.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163888.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ John Towner Williams - Звёздные войны: Скайуокер. Восх
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163563.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163021.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Bee Celtic - Star Of The County Down (2022) [FLAC|Lossless|image + .cue] <Folk R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162541.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162279.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161940.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Иисус Христос - Суперзвезда (Театр им. Мос
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161883.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Pasărea Colibri - Ciripituri (1996) [APE|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160639.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Pasarea Colibri - Cantece de bivuac (1999) [APE|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160636.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Lindsey Stirling - Snow Waltz (2022) [FLAC|Lossless|image + .cue] <Instrumental,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160026.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Country Rock Delights (2022) [FLAC|Lossless|WEB-DL|tracks] <Country Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159825.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Mountain Silence - Harmonia Coeli (Sri Chinmoy, Шри Чинмой) (2008) [FLA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159619.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Paul Mauriat - Dans Les Yeux D'Emilie (1978) Remastered, 2019, Vocalion [OGG Vor
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159593.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Rainbow Suzy - Nature's Treasures (2015) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158717.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Bernward Koch - Silent Star (2011) [APE|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158487.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ The Mystic Sound Orchestra - Pharaoh: Sound of Mystery (1998) 2CD [MP3|320 kbps]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158335.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Ennio Morricone - The Man And His Music (2002) 2CD, 2005, Warner Classics [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158234.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ David Arkenstone - Native Dreams (2015) [MP3|320 кб/с] <Native american, Ethn
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158223.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Jon Richards - Midwinter (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157901.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Jon Richards - Midwinter (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D7FD1F2AD336D65BCB7CBFF6B03E09EB4F64AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193477   (157892) от 24.12.2017
-
-Maury Laws & Jules Bass - Сумасшедшая вечеринка чудовищ / Mad Monster Party (1967) 1998 [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maury Laws - The Baron
-02. Ethel Ennis - Mad Monster Party
-03. Maury Laws - Waltz for a Witch
-04. Maury Laws - Cocktails(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A997603CF2DC3A4C615C9D16356B69B0DE25094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518159   (157689) от 18.12.2021
-
-Gregorian - Pure Chants (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,  Ambient, Choir>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Little Welsh Home
-02. Kyrie Victoria
-03. Waiting for Life
-04. Pie Jesu (Ft. Narcis)(   Читать дальше...   )Жанр: New Age,  Ambient, ChoirПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B91E72C693393FD644C7BEE0E1FF0380518F4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

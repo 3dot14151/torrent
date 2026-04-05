@@ -6,7 +6,7 @@ Hunting Unlimited 2 (2003) [En] (1.0) License Fairlight
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137791.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Project Hunt (2024) [Ru/Multi] (2025-9-25/dlc) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136867.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Waifu Fighter - Family Friendly (2023) [Multi] (20231116) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131666.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131272.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Fritz 19 SE (2023) [Multi] (1.0) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124316.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Pro Cycling Manager 2023 (2023) [Multi] (1.9.0.443) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123374.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ RIDE 5 (2023) [Multi] (20240124/dlc) Scene Rune [Special Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120755.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Punch Club 2: Fast Forward (2023) [Ru/Multi] (1.101/dlc) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106069.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NBA 2K11 Fans Edition {1.0.1} (RePack) [Ru] 2010 | Naitro
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88883.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Major League Baseball 2K12 (Lossless Repack) [En] 2012 | R.G. Origami
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81073.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Billiards Pyramid (L) [En] (2011)
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80031.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Out of the Park Baseball 25 (2024) [Multi] (25.1) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62047.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ We Are Football 2024 (2024) [Multi] (3.00hf) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61982.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Out of the Park Baseball 25 (2024) [Multi] (25.1) Scene SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61276.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Tactic Boxing (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60981.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Project Hunt (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60579.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Handball 17 (2016) [Multi] (1464816) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60445.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ FIFA 16 (2015) [Ru/Multi] (16.0.2904053) Repack dixen18
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59835.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ FIFA 16 (2015) [Ru/Multi] (16.0.2904053/dlc) Repack Decepticon
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59668.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BMX Streets (2024) [En] (1.0.0.109.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59561.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Golf With Your Friends (2020) [Ru/Multi] (258/dlc) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57358.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Battle vs Chess (2011) [Ru/Multi] (1.2/dlc) License GOG [Grandmaster Premium Edi
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56904.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ AEW: Fight Forever (2023) [Multi] (1.10/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56097.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Tennis Manager 2024 (2024) [Multi] (4.0.1135) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55325.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Tennis Manager 2024 (2024) [Multi] (4.0.1135) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54669.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Tour de France 2024 (2024) [Multi] (01.04.03.846/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53561.jpg" />
 </div>
 
 

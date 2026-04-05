@@ -1,134 +1,3 @@
-###  Публикация: 1379462   (836111) от 01.05.2020
-
-Вся Украина на 1926/27 год [в 5 частях] (1926) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся Украина на 1926/27 год Адресно-справочная книга в пяти частях.
-Справочник охватывает все стороны административной, хозяйственной и общественной жизни Украины. Содержет небольшое количество рекламных страниц.Жанр: Отечественная история, экономическая историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79D63802471F39A299FF8A9469F62FFAB18DDE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379461   (836091) от 01.05.2020
-
-Ф.И. Полярный (общ. ред.) | Вся Украина и Крым (1924) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся Украина и Крым - справочное издание о государственном устройстве Украины и Крыма, их территории и населении, экономике, адресам жителей и другим вопросам согласно состоянию на 1924 год.Жанр: История ОтечестваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87FF3852488297EC23940109A2D24C293CAC9AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379463   (835904) от 01.05.2020
-
-Подборка книг | Вся Москва, Адресные, справочные, памятные книги, Адрес-календари, Указатели, Табели, Справочники, Алфавиты [179 книг] (1793-1939) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка справочников о городе Москва, из которых можно почерпнуть сведения об административном устройстве, транспорте, коммерции, образовании, здравоохранению, правоохранительных органах, алфавитный указатель жителей города Москвы и прочая, и прочая, и прочая.Жанр: История Отечества, история МосквыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C192B8D2519581E73DEAC3360CE5F7F1C7EF367E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 308896   (835515) от 19.03.2011
-
-Подборка | Серия книг издательства Вече [2000-2011] [PDF, DJVU, DOC] Обновлено 17.03.2011
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835515.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этих сериях авторы попытались раскрыть занавес тайн мировой историиЖанр: Военно-техническая, историческя литератураФормат: PDF, DJVU, DOC
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113911   (835301) от 13.03.2017
-
-Г. М. Дрязгов | Молодежь в революции (1926) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий очерк есть продолжение моей первой работы «На пути к комсомолу». В нем я кратко пытался осветить движение молодежи во время февральской и октябрьской революции, останавливая свое внимание, главным образом, на происходивших политических событиях и на участии в них рабочей молодежи. Об участии учащейся молодежи я касался постольку, поскольку наблюдались попытки (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019BAB4F1663664D829755766FE8EBF2C184B6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380182   (834641) от 02.05.2020
 
 Я. Ф. Чекмарев | Методика устных вычислений [С набором упражнений по устному счету] (1970) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834641.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834565.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834357.jpg" />
 </div>
 
 
@@ -218,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834256.jpg" />
 </div>
 
 
@@ -247,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834151.jpg" />
 </div>
 
 
@@ -274,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834150.jpg" />
 </div>
 
 
@@ -300,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833923.jpg" />
 </div>
 
 
@@ -326,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833609.jpg" />
 </div>
 
 
@@ -352,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833548.jpg" />
 </div>
 
 
@@ -378,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833429.jpg" />
 </div>
 
 
@@ -405,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833173.jpg" />
 </div>
 
 
@@ -432,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833040.jpg" />
 </div>
 
 
@@ -459,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833039.jpg" />
 </div>
 
 
@@ -485,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832721.jpg" />
 </div>
 
 
@@ -511,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832704.jpg" />
 </div>
 
 
@@ -537,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832623.jpg" />
 </div>
 
 
@@ -564,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832610.jpg" />
 </div>
 
 
@@ -590,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832404.jpg" />
 </div>
 
 
@@ -616,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832398.jpg" />
 </div>
 
 
@@ -644,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832395.jpg" />
 </div>
 
 
@@ -673,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832326.jpg" />
 </div>
 
 
@@ -684,6 +553,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64CC77193702A2F2B211229262ECB2B6087E8E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113805   (832084) от 15.03.2017
+
+К. Каутский | Экономическое учение Карла Маркса (1956) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателей книга написана одним из лидеров и теоретиков германской социал-демократии и II Интернационала, идеологом центризма Карлом Каутским. Впервые опубликованная в 1886 году, она стала одним из самых известных трудов по экономике капитализма. Автор не только дает популярное изложение "Капитала" Маркса (главным образом в пределах (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58DC8B9D2B079E4E7F1CD4514B433C1689B4C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114415   (832083) от 15.03.2017
+
+Н. К. Крупская | Воспитание молодежи в ленинском духе (1925) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предисловие:
+
+Когда, после долгих лет эмиграции, в апреле 1917 г. я вернулась в Россию и приехала в Ленинград, движение рабочей молодежи носило уже широкий размах. Я стала внимательно присматриваться к нему, ходить на собрания молодежи. Революционная волна захватила рабочую молодежь с необычайной силой. Она кипела, рвалась к борьбе, к новой жизни. Рабочая молодежь (   Читать дальше...   )Жанр: История, политология, педагогика, искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCDC7FA34A345B89F5DCE171791CB7E86470FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114138   (831967) от 15.03.2017
+
+А.С. Козерук | Технология оптического приборостроения (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный учебно-методический комплекс, предназначен для самостоятельного изучения дисциплины «Технология оптического приборостроения» студентами приборостроительных специальностей. Может быть использован преподавателями сходных дисциплин для подготовки к лекциям и организации лабораторных и практических занятий.
+В состав комплекса входят следующие разделы: теоретический (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A662116D8A3FE7F67823415B5AC1B019C0E9CCD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113639   (831847) от 15.03.2017
+
+С.Л. Калачев | Теоретические основы товароведения и экспертизы (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий учебник подготовлен в соответствии с требованиями Федерального государственного образовательного стандарта высшего профессионального образования третьего поколения и предназначен для освоения учебной дисциплины «Теоретические основы товароведения и экспертизы».
+Для студентов высших и средних специальных образовательных учреждений, обучающихся по специальностям (   Читать дальше...   )Жанр: Товароведение, маркетинг, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C35E11ACB76C81EEA01E0BEB7E87D274030006A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113652   (831834) от 15.03.2017
+
+Ю.П. Петров | Как получать надежные решения систем уравнений (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необходимость вычислять решения систем алгебраических уравнений встречается во многих задачах техники и физики, и без точных оценок возможной погрешности решения не надежны. В книге изложены методы и алгоритмы, впервые позволяющие дать точную оценку погрешности каждой из составляющей вектора решений системы линейных алгебраических уравнений, тогда как ранее были (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9165C125662EBAF929B690F66D03B22490AA00A
 ```
 
 https://mybot314.ru/tekegram_catalog/

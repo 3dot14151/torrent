@@ -1,3 +1,55 @@
+###  Публикация: 1020252   (744506) от 26.05.2016
+
+Цветок и змея: Ноль / Hana to hebi: Zero (2014) WEBRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мисаки Амемия, женщина-детектив, вступает в борьбу с подпольным сообществом. Банда похищает женщин и выкладывает их истязания на закрытом сайте в прямом эфире. В расследовании она продвигается слишком далеко и сама попадает в ловушку...Производство: ЯпонияЖанр: Триллер, ЭротикаРежиссер: Хадзимэ ХасимотоАктеры: Норико Хамада, Рина Сакураги, Наоки Кавано, Ючи Кимура, Хидэо Сакаки, Дайкити Сугавара, Кандзи Цуда, Юки ЦудзимотоПеревод: Одноголосый закадровый, любительский (Хихикающий доктор)Продолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0E95CF039E679E46649F0397A9C6896A464233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020632   (744497) от 26.05.2016
+
+Русалка / Mei ren yu (2016) HDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русалочка по имени Шан отправляется на миссию по соблазнению и убийству Лина Кхуана - промышленника, который загрязняет океаны, убивая в них жизнь.Производство: КитайЖанр: Фантастика, фэнтези, драма, мелодрамаРежиссер: Стивен ЧоуАктеры: Чао Ден, Юнь Линь, Шоу Луо, Юки Чжан, Пьер Бурдо, Кэ Бай, Иван Котик, Ляншун Конг, Кай Ман Тинь, Харк Цуй, Чжан Вэнь, Ифань У, Сялон БоПеревод: Любительский одноголосый (Вячеслав Замез)Субтитры: ОтсутствуютПродолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D650606F1E28C6C8578201D2A5B2493D0BC8F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 888548   (744476) от 20.04.2015
 
 Битва за Мён Рян / Myeong-ryang (2014) HDRip
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744476.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743564.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742689.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739821.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738737.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738626.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738432.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738119.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737764.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737528.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737362.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737340.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736649.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736394.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736363.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735856.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735695.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735369.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734965.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734951.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734686.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734430.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734405.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_734070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734070.jpg" />
 </div>
 
 
@@ -616,59 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399264   (733804) от 30.07.2020
-
-Твоя девушка (Моя командирша) / Neoui yeojachingu / My Bossy Girl (2019) WEBRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды, Хви Су вместе с друзьями из клуба по робототехники участвует в университетском фестивале. Он чудаковатый ботаник, поэтому девушки у него никогда не было. И вот во время фестиваля на парня, в прямом смысле этого слова, неизвестно откуда сваливается красавица по имени Хе Джин. Она невероятно и классная. Хви Су влюбляется в нее, но есть одна проблема - она (   Читать дальше...   )Производство: Южная Корея, Storm Pictures KoreaЖанр: Мелодрама, комедия, спортРежиссер: Ли Джан-хиАктеры: Ли Элия, Чи Иль-джу, Ким Ги-ду, Ко Гон-хан, Хо Джон-мин, Ли Джини, Рю Хе-рин, Со Джон-ён, Ли Хан-виПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43064A310A7BC4DAC0FD0CE8E401567FEC6FC893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406365   (733153) от 24.05.2014
-
-Райский поцелуй / Paradise Kiss / Paradaisu kisu (2011) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733153.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Есть такое место… Туда ведёт небольшая лестница; там витает запах китайских конфет. За дверью пронзительно-розового цвета слышны звуки сумасшедшей музыки. Это место похоже на подвал. Они называют его своим ателье.»
-Всю свою жизнь — от раннего младенчества до нынешних 18-ти — Юкари была «хорошей девочкой». Она прекрасно учится. Она готовится поступить в престижный (   Читать дальше...   )Производство: Япония / C&I Entertainment, Dimension Blue, Fox International Productions (FIP)Жанр: Драма, Мелодрама, КомедияРежиссер: Такехико СиндзоАктеры: Кейко Китагава, Осаму Мукаи, Сюндзи Игараси, Кэнто Каку, Аими Икэмацу, Нацуки Като, Фумино Кимура, Омаса Ая, Хезер Пенс, Тони ВиллеккоПеревод: Двухголосый закадровый, любительскийПродолжительность: 01:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D210FDBBFF2BBF5FBC6BE1BDF02A3DD7543ECE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Styx - Live At the Orleans Arena Las Vegas (2015) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466742.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Aerosmith - Rocks Donington (2014/2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466567.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Eminem - Live From New York City (2005) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466563.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Blind Guardian (2016) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465880.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Beat Club - Progressive Times - Vol 6. 1971-72 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465825.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465360.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465127.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Diana Krall in Jazzfestival Montreux 2010 (2010) HDTV   H.264
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464816.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Krokus - Live At Baloise Session (2014) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464602.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Осенний марафон № 193 / Видеоклипы (Презен�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464299.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464295.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Supertramp - Live In Paris '79 (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464290.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464215.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464179.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Smokie - Greatest Hits 1975-1979 (2003) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464011.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463239.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462962.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Metallica: Orgullo, pasion y gloria. Tres noches en la ciudad de Mexico (2009) D
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462944.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462205.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Осенний марафон № 194 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462055.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Rammstein - In Amerika (Disc 1) (2015) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462045.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Madonna - MDNA World Tour (2012) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462042.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462008.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Rammstein - In Amerika + Documentary (2015) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461911.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461888.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461869.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691775.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ DarkSoftware | Универсальная Мультитематическая �
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_638213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638213.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ BornToKill | 700 секретов производственных технол�
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632149.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611145.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593483.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570315.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568630.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564325.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ SoftBeep | Современные пистолеты. Познавательна
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516158.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496695.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457408.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450186.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438272.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433331.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413454.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407000.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380579.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Schneider Electric | Документация к частотным привод
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285706.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273918.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271641.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233597.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211231.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211138.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211122.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210994.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210953.jpg" />
 </div>
 
 

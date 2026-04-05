@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446630.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446425.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446233.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445854.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445035.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444863.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444649.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443726.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443597.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442663.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442654.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442010.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441642.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_441252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_441252.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441251.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_441246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_441246.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_441167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_441167.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440461.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440405.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437462.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437081.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436950.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436945.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436662.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436536.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436245.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1227072   (650144) от 24.05.2018
+
+Дэвид Брукс | Путь к характеру (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юмор, мудрость, любопытство и способность открывать интересные идеи сделали Дэвида Брукса популярным автором - его колонки в New York Times читают миллионы.
+В своей новой книге он рассматривает истории людей, каждый из которых прошел свой путь к сильному характеру. Августин и Сэмюэл Джонсон, Филип Рэндольф и Джордж Элиот, Фрэнсис Перкинс и Дороти Дэй... Черные и (   Читать дальше...   )Жанр: Биографии, МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931B1F101A99233FEB17673217050379D8B0C871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290341   (648630) от 28.03.2019
 
 Владимир Фурзиков | Иван... Грозный? Трагедия великой личности (2016) [DOC]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648630.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648356.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647767.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647693.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647437.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647433.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ lee | Книга вибраций (2016) [PDF, EPUB]
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647384.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ lee | Как материализовать мысли (2016) [PDF, EPUB]
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647380.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ lee | Инструкция к реальности (2015) [PDF, EPUB]
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647261.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645422.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645315.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645135.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645078.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644990.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644988.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644851.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644594.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643376.jpg" />
 </div>
 
 
@@ -488,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643180.jpg" />
 </div>
 
 
@@ -514,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643079.jpg" />
 </div>
 
 
@@ -540,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641613.jpg" />
 </div>
 
 
@@ -566,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641521.jpg" />
 </div>
 
 
@@ -593,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641481.jpg" />
 </div>
 
 
@@ -621,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641299.jpg" />
 </div>
 
 
@@ -649,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641276.jpg" />
 </div>
 
 
@@ -660,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24AF66B68BDB0899E56A5EDB56D2B5D2C81AC66A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292929   (641171) от 01.04.2019
-
-Питер Сингер | О вещах действительно важных. Моральные вызовы двадцать первого века (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питера Сингера часто называют самым влиятельным философом в мире. И он же является одним из самых противоречивых. Будучи автором таких важных книг, как "Освобождение животных" и "Практическая этика", он защищает права животных, поддерживает альтруистические движения и способствует развитию биоэтики. В своей новой книге "О вещах действительно (   Читать дальше...   )Жанр: Общество, ЭтикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E16ACC889DCDC565FAD91C84D5C8CE0626CCF4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

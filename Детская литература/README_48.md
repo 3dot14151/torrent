@@ -1,29 +1,3 @@
-###  Публикация: 1120789   (801244) от 01.04.2017
-
-Е. Тараховская | Метро (1938) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник стихов для детей о чуде Москвы 1930 годов - МетрополитенеЖанр: Детская проза, СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63F67ED68D52946779FC1FB396A67416E51B64D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120884   (801239) от 01.04.2017
 
 К. Новикова | Эвенские сказки, предания и легенды (1987) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801239.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801164.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801153.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801114.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801112.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801053.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800862.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800727.jpg" />
 </div>
 
 
@@ -248,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800504.jpg" />
 </div>
 
 
@@ -276,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800390.jpg" />
 </div>
 
 
@@ -302,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800359.jpg" />
 </div>
 
 
@@ -328,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800346.jpg" />
 </div>
 
 
@@ -354,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800344.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800340.jpg" />
 </div>
 
 
@@ -408,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800279.jpg" />
 </div>
 
 
@@ -435,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800185.jpg" />
 </div>
 
 
@@ -461,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799924.jpg" />
 </div>
 
 
@@ -487,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799765.jpg" />
 </div>
 
 
@@ -513,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799403.jpg" />
 </div>
 
 
@@ -539,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799023.jpg" />
 </div>
 
 
@@ -565,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798600.jpg" />
 </div>
 
 
@@ -591,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798229.jpg" />
 </div>
 
 
@@ -617,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798088.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798000.jpg" />
 </div>
 
 
@@ -670,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797994.jpg" />
 </div>
 
 
@@ -681,6 +655,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E185E0F666BBF3FFC7411381E0AF2E3FEEE2C332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508192   (797992) от 07.11.2021
+
+Алекс Астер | Остров эмблем. Проклятие Ночной Ведьмы. Книга 1 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797992.jpg" />
+</div>
+
+
+###  Подробнее
+
+На острове Эмблем все люди с рождения знают свою судьбу. Линии жизни на ладонях людей показывают ход их жизни, а разноцветные символы, проступающие на запястьях, указывают будущую судьбу и профессию.
+12-летний Тор Луна, сын правительницы города, родился с эмблемой лидера. Это означает, что в будущем он унаследует власть над городом. Но Тор ненавидит свою судьбу. (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: А.В. ЗахаровФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505BF6EAEA278732FD1F67E48EDEC3C3B850BA34
 ```
 
 https://mybot314.ru/tekegram_catalog/

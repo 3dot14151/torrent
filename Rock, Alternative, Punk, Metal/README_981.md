@@ -1,3 +1,32 @@
+###  Публикация: 1658556   (190982) от 09.09.2023
+
+Ravanna - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Уходя уходи [00:03:31]
+02. Всё ок [00:03:11]
+03. Лес [00:03:52]
+04. Отпусти меня [00:03:01](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D844A8714331DF99123B99F2E23E7ED7F227ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658552   (190974) от 09.09.2023
 
 The Starkillers - Пираты Японского Моря (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
@@ -6,7 +35,7 @@ The Starkillers - Пираты Японского Моря (2023) [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190974.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190935.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Godbelow - Noogena (2022) [FLAC|Lossless|WEB-DL|tracks] <Pos, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190918.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Wags Metal Inc. (Wagsmetalinc.) - No Man's Land (2022) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190916.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Monument of A Memory - Harmony In Absolution (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190914.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Burning Sister - Mile High Downer Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190912.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Limite Acque Sicure - Limite Acque Sicure (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190910.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Lacrimas Profundere - How to Shroud Yourself with Night (2022) [FLAC|Lossless|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190908.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Clutch - Sunrise on Slaughter Beach (2022) [FLAC|Lossless|tracks + .cue] <Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190904.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Hinayana - Order Divine (2018) [FLAC|Lossless|image + .cue] <Melodic Death, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190902.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Stryper - The Final Battle (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190901.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Derek Sherinian - Vortex (2022) [FLAC|Lossless|image + .cue] <Prog Rock, Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190896.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ The Arc Light Sessions - The Hours (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190887.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Antena White Opera - 3 Albums (2018-2022) [MP3|320 Kbps] <Progressive Metal, Roc
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190886.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Flamborough Head - Jumping The Milestone (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190883.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ebb - Mad & Killing Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190878.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ The Pretty Reckless - Other Worlds (2022) [FLAC|Lossless|WEB-DL|tracks] <Country
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190870.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Catapult - The Single Collection (1996) CD [MP3|320 Kbps] <Pop Rock, Glam>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190861.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Vandenberg - 11 albums, 1 Box-set, 16 CD (1982-2023) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190852.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Twelfth Night - Smiling At Grief.... Revisited (1982) 40th Anniversary Edition, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190814.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ The Beatles - Revolver (1966) Box Set, 5 x CD, Remastered, 2022, Super Deluxe Ed
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190755.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Spillage - Phase Four (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard, Heavy, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190702.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Egokills - Egokills (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190697.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ GraveRipper - Seasons Dreaming Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190694.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Fire Down Below - 3 Albums (2017-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190691.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Fire Down Below - 3 Albums (2017-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEEAFE00A8C4512287464B6714C2D09E9BB8D419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659143   (190689) от 10.09.2023
-
-Sodomisery - Mazzaroth (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming Home [00:05:01]
-02. Psychogenic [00:03:25]
-03. Delusion [00:04:15]
-04. A Storm Without a Wind [00:04:12](   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9340287F4DBB59A94121AA964F47B19317611811
 ```
 
 https://mybot314.ru/tekegram_catalog/

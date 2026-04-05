@@ -1,3 +1,29 @@
+###  Публикация: 1570980   (438054) от 19.08.2022
+
+АСТ | Хочу все знать! [8 книг] (2017-2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "Хочу все знать!" уже получила признание читателей. Книги серии с удовольствием предлагают своим зрителям и слушателям книжные и сувенирные магазины московского Дома музыки, театров и музеев. Интересный текст книги, подробно проиллюстрированный современными художниками, впечатляет. 96 страниц каждой книги не просто дадут качественно систематизированную (   Читать дальше...   )Жанр: Энциклопедия, Детская познавательная и развивающая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266D212F61455A6735369AA2ADC2D8E33FCB4ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410762   (433860) от 22.09.2020
 
 Дмитрий Кошевар | Большая детская энциклопедия знаний. Большая энциклопедия знаний обо всём на свете (2018) [PDF]
@@ -6,7 +32,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433860.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433751.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433732.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431428.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427547.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425715.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425577.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425471.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425377.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422962.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420450.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419138.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415960.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415891.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415711.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410217.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409673.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408346.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408343.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407182.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398394.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397535.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396484.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393834.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390356.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37CC653CE09653AD598AA2535269762A05199148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173514   (390289) от 11.10.2017
-
-Эксмо | Тело человека (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам интересно узнать, как работает весь сложный механизм человеческого тела? Природа создала людей потрясающе выносливыми, сильными, разумными, наши тела способны сращивать кости, иммунитет - сопротивляться самым изощренными вирусам и инфекциям, язык - чувствовать вкус, а мозг - выдумывать потрясающие фантазии и проявлять яркие эмоции. Загляните внутрь книги и узнайте, (   Читать дальше...   )Жанр: ЭнциклопедииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55CC39FBE25A0C408C6FBEA672346422699613F
 ```
 
 https://mybot314.ru/tekegram_catalog/

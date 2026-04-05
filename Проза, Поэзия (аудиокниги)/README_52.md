@@ -1,56 +1,3 @@
-###  Публикация: 1041835   (580536) от 11.08.2016
-
-Леонид Леонов | Барсуки (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580536.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Барсуки» – первый большой роман Леонова, знаменовавший значительный рост художественного дарования автора и выдвинувший его уже тогда, в 1925 году, в первые ряды советских писателей.
-Роман «Барсуки» – крупное эпическое полотно, в котором изображено предреволюционное московское мещанство и драматические эпизоды революционной борьбы в деревне. Глубокое знание старорусского (   Читать дальше...   )Жанр: Советская классическая прозаПродолжительность: 13:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29029BDF603C775538EAD6E05FDD142582225E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042098   (580529) от 11.08.2016
-
-Сара Эдисон Аллен | Сахарная королева (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джози Сиррини живет в небольшом курортном городке вместе с деспотичной матерью и мечтает о путешествиях и приключениях. Она мучительно застенчива, у нее нет друзей, и единственное, что как-то скрашивает ее серую жизнь, — это сласти и любовные романы, которые она тайком от матери поглощает в неимоверных количествах, спрятавшись у себя в гардеробной. В один прекрасный (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 08:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B90CC3E042ED94CAD411FC59F7F5AAE4D668BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553986   (580020) от 28.05.2022
 
 Константин Симонов | Живые и мёртвые (Книга 3). Последнее лето (2015) [MP3, Александр Бордуков]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580020.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579470.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579082.jpg" />
 </div>
 
 
@@ -140,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575768.jpg" />
 </div>
 
 
@@ -167,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575699.jpg" />
 </div>
 
 
@@ -194,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575577.jpg" />
 </div>
 
 
@@ -221,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574702.jpg" />
 </div>
 
 
@@ -247,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574690.jpg" />
 </div>
 
 
@@ -273,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574618.jpg" />
 </div>
 
 
@@ -300,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574538.jpg" />
 </div>
 
 
@@ -327,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574393.jpg" />
 </div>
 
 
@@ -353,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572501.jpg" />
 </div>
 
 
@@ -381,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572352.jpg" />
 </div>
 
 
@@ -407,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571179.jpg" />
 </div>
 
 
@@ -433,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_571064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_571064.jpg" />
 </div>
 
 
@@ -461,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571058.jpg" />
 </div>
 
 
@@ -488,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570951.jpg" />
 </div>
 
 
@@ -514,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569330.jpg" />
 </div>
 
 
@@ -540,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569105.jpg" />
 </div>
 
 
@@ -569,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569103.jpg" />
 </div>
 
 
@@ -595,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569092.jpg" />
 </div>
 
 
@@ -621,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568190.jpg" />
 </div>
 
 
@@ -648,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567498.jpg" />
 </div>
 
 
@@ -674,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567492.jpg" />
 </div>
 
 
@@ -686,6 +633,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:560DF690CC3B8E6F4AF68C33837224389691938E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152026   (567482) от 22.07.2017
+
+Александр Нилин | Зимняя дача (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Персонажи этой книги – Анна Ахматова, Иосиф Бродский, Алексей Баталов, с которыми автор встречался на ставшей легендарной Ордынке, в квартире Виктора Ардова. Юрий Олеша и другие обитатели писательского дома в Лаврушинском переулке. Олег Ефремов, с которым автор был близко знаком с тех давних пор, когда учился в Школе-студии МХАТ. Действие происходит и в знаменитом (   Читать дальше...   )Жанр: ПрозаПродолжительность: 05:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C8A67F41D903B0D76B5EB67E278E9A9E99D959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043872   (567297) от 19.08.2016
+
+Кнут Гамсун | Мистерии (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Бестселлер". Один из знаковых романов для творчества Гамсуна, в котором основные принципы и темы его ранних произведений - темы провинции и "человека извне", общества и сильной личности, противостоящей ему уже самим фактом своего существования, - выступают с небывалой прежде обнаженной силой. В маленький провинциальный городок - удушливо-тихий, (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 18:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4FCFCE5A18E8593103788681FE54C944746664
 ```
 
 https://mybot314.ru/tekegram_catalog/

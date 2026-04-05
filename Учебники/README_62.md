@@ -1,3 +1,56 @@
+###  Публикация: 708347   (431327) от 08.10.2013
+
+В.Е. Кононов | Справочник машиниста тепловозов (1993) [DjVu]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приведены технические характеристики основных и опытных серий тепловозов с электрической передачей, их дизелей, электрического и вспомогательного оборудования: даны схемы топливных, масляных, водяных и пневматических систем. Изложены основные сведения по обслуживанию, эксплуатации и ремонту тепловозов.
+Рассчитан на машинистов тепловозов и их помощников, может быть полезен работникам локомотивного хозяйства, связанным с эксплуатацией и ремонтом тепловозов.Формат: DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B979ABA0B41F1AA79B3A3EAE6781DBF8870D7158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 708178   (431075) от 08.10.2013
+
+В.А. Раков | Локомотивы отечественных железных дорог 1845-1955 (1995) [DjVu]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Локомотивы отечественных железных дорог 1845-1955" представляет собой коренным образом переработанное и существенно дополненное второе издание книги "Локомотивы железных дорого Советского Союза"Формат: DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1EBD72875BF6DABD9029531879C61C55981D1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324109   (429595) от 07.09.2019
 
 В.В. Тропин и др. | Надежность электроснабжения: практикум (2017) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429595.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429555.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427165.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427155.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426449.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425179.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425164.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424548.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424535.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424355.jpg" />
 </div>
 
 
@@ -280,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423944.jpg" />
 </div>
 
 
@@ -307,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423760.jpg" />
 </div>
 
 
@@ -333,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423756.jpg" />
 </div>
 
 
@@ -359,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421598.jpg" />
 </div>
 
 
@@ -386,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421434.jpg" />
 </div>
 
 
@@ -412,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421268.jpg" />
 </div>
 
 
@@ -439,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420490.jpg" />
 </div>
 
 
@@ -466,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419451.jpg" />
 </div>
 
 
@@ -492,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417309.jpg" />
 </div>
 
 
@@ -520,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417305.jpg" />
 </div>
 
 
@@ -546,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416873.jpg" />
 </div>
 
 
@@ -573,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416684.jpg" />
 </div>
 
 
@@ -599,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416567.jpg" />
 </div>
 
 
@@ -625,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416358.jpg" />
 </div>
 
 
@@ -636,58 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:332A865C76861E3D08D92BF2E62A2106052BA3E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065187   (416348) от 24.10.2016
-
-Н.П. Никитин и др. | Телевизионные цифровые системы (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит теоретический материал по следующим основным системам цифрового телевидения: многопозиционные модуляторы, многочастотная система передачи данных OFDM, канальное кодирование, тракт цифрового наземного телевидения, тракт цифрового спутникового телевидения, тракт цифрового кабельного телевидения. По этим разделам также приведены примеры схем (   Читать дальше...   )Жанр: ТелевидениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CE1BE87E0B8ACBEE6C4F546FB55B9241359F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065559   (416340) от 24.10.2016
-
-Б. Яне | Цифровая обработка изображений (2007) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416340.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента выхода первого издания, опубликованного в 1991 году, "Цифровая обработка изображений" получила широкое применение в качестве учебного пособия. В книге дается полный обзор процесса обработки от получения изображения до выделения интересующих данных. Каждая глава включает упражнения, которые помогут оценить понимание материала, развить полученные (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD75A3084D8821B134BB5D885000B43C22EA3A35
 ```
 
 https://mybot314.ru/tekegram_catalog/

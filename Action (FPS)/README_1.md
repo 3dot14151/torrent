@@ -1,3 +1,55 @@
+###  Публикация: 1839398   (1046575) от 28.11.2025
+
+Sniper Ghost Warrior Contracts (2019) [Ru/Multi] (16167732/dlc) Repack Necros
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попробуйте себя в роли настоящего снайпера на суровых просторах Сибири благодаря новейшей игровой системе на базе контрактов, подстегивающей стратегическое мышление.   Выполняйте интересные задания, имеющие множество вариантов прохождения. Выполняйте контракты с точными задачами, чтобы получить фиксированное денежное вознаграждение и возможность пройти дополнительно (   Читать дальше...   )Тип издания: RepackРазработчик: CI GamesЖанр: Шутер от первого лица, СтелсЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80224402D8A8EFE34A8BFA2F220D1E963F6E9DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512015   (1044783) от 18.01.2023
+
+Ziggurat 2 (2021) [Ru/Multi] (09012023/dlc) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ziggurat возвращается и теперь он ещё лучше! Используйте мощные орудия и заклинания, чтобы пробиться через орды врагов, и изучить лабиринтоподобные подземелья в этом лихорадочном roguelite шутере от первого лица, пока вы прокачиваете свои навыки и открываете новое снаряжение. Сможете ли вы выполнить это задание?Тип издания: LicenseРазработчик: Milkstone StudiosЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Нидерландский и другиеЯзык интерфейса: Русский, Английский, Испанский, Нидерландский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98C70458F8EF53AC5D7512A0EEAAD0B07132A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 450767   (1044459) от 21.01.2023
 
 Area 51 / Зона 51 [Ru/En] (Lossless RePack) 2005 | R.G.Packers
@@ -6,7 +58,7 @@ Area 51 / Зона 51 [Ru/En] (Lossless RePack) 2005 | R.G.Packers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044459.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Age of Chivalry / Эпоха рыцарей (2007) [Ru/En] (1.0) Unofficial
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044458.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ System Shock (1994) [Multi] (1.2.16) License GOG [Enhanced Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044342.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.0.1) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043668.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Tom Clancy's Rainbow Six (2001-2008) [Ru] License [Антология. Част�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043572.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ XIII - Remake (2020) [Multi] (1.7.8247/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043381.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ PERISH (2023) [Ru/Multi] (6312) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040662.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Duke Nukem Forever (2011) [Ru/En] (1.0.244/dlc) Repack Seraph1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040013.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) License GOG [Deluxe Definitive E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039461.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Superliminal (2019) [Ru/Multi] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038967.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Ghostrunner (2020) [Ru/Multi] (32091.417/dlc) Repack xatab (обновляема
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038619.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ BPM: Bullets Per Minute (2020) [Ru/Multi] (1.59082) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036912.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Doom 3 (2004) [Multi] (1.3.1/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035801.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Doom 3: BFG Edition (2012) [Multi] (1.14) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035791.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Generation Zero (2019) [Ru/Multi] (1966450/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029823.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ BioShock Infinite (2013) [Ru/En] (1.0.1643565/dlc) Repack dixen18 [Complete Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029360.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ BPM: BULLETS PER MINUTE (2020) [En] (1.0) Steam-Rip Goldberg
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028399.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.4/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027427.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026489.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое Небо (2008) [Ru] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026454.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025862.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Doom 3 + Doom 3: Resurrection of Evil (2004-2005) [Ru] (1.3/1.3.1302) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024658.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.0.1.1) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023915.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ An Evil Existence (2020) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023232.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ An Evil Existence (2020) [En] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DCA886C73FF093A6840EBE4C4ACE3CDAD1D9895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463360   (1020361) от 18.04.2021
-
-Relicta (2020) [Ru/En] (1.10) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Relicta — основанная на законах физики головоломка с видом от первого лица. Раскройте тайны базы «Чандра», меняя магнетизм и гравитацию. Вы одни на Луне. Чтобы спасти дочь, вам придется полагаться на свой ум...Тип издания: LicenseРазработчик: Mighty PolygonЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D1BE61BD2A3D32D8CC37E0961C4E54F6C9B58D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465851   (1018841) от 27.04.2021
-
-S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [Ru] (1.6.02) Repack West4it
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие проекта "S.T.A.L.K.E.R.: Зов Припяти" разворачивается после событий оригинальной игры - то есть после того, как Стрелок уничтожил проект "О-Сознание". Получив сведения об открытии дороги к центру Зоны, правительство решает развернуть масштабную военную операцию под кодовым названием "Фарватер" для получения контроля над ЧАЭС. (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C06670619D2895AE7F845547F32DF9BD71A015B
 ```
 
 https://mybot314.ru/tekegram_catalog/

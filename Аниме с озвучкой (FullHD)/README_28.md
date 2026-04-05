@@ -1,3 +1,111 @@
+###  Публикация: 1667692   (175694) от 09.10.2023
+
+О моём перерождении в слизь (фильм) | О моём перерождении в слизь: Алые узы | Gekijouban Tensei Shitara Slime Datta Ken: Guren no Kizuna Hen | That Time I Got Reincarnated as a Slime the Movie: Sca ...
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Римуру, Бенимару и ребятам предстоит распутать целую цепочку таинственных событий, которые опутали королевство Раджа и правящую там королеву Тову.Производство: Япония / Студия 8bitЖанр: приключения, комедия, фэнтезиРежиссер: Кикути ЯсухитоЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Ados, Hekomi, Sharon, Silv (AniLibria.TV)
+- не указано (TVShows)
+- Daelit, Dancel, Droed, Wozwald, Abe, Absentia (AniBaza)Субтитры: Русские (софтсаб на надписи и полные) (AniLibria.TV); (Crunchyroll)Продолжительность: 110 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA557934D36F8BC22876DC82EB8513480FB05D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669548   (172777) от 16.10.2023
+
+Kaminaki Sekai no Kamisama Katsudou | KamiKatsu: Working for God in a Godless World | Как быть богу в мире без богов? [2023, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юкито - наследник лидера секты, и вся его жизнь вращается вокруг богини Митамы. Однажды юноша погибает во время «неудачного» ритуала и, к своему удивлению, оказывается в мире, где не слышали не то что о Митаме - даже о самих понятиях «религия» и «бог»! Правда, мир этот всё равно не безоблачный: вопросами жизни и смерти тут заведуют имперские власти. Юкито пытается (   Читать дальше...   )Производство: студия Studio Palette / studioぱれっとЖанр: приключения, комедия, фэнтезиРежиссер: Инаба ЮкиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские и английские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66EF0ED9178EE9754499D7782030EFA94424758F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669712   (172580) от 17.10.2023
+
+Good Night World | Спокойной ночи, мир [2023, Web, 12] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейство Акабане известно как сплоченная команда, состоящая из четырех геймеров в онлайновой игре под названием "Планета". Сюжет игры преподносит неожиданные сюрпризы и заставляет героев сражаться против монстров, что только укрепляет их связь между собой. Между тем, никто из них не подозревает, что в реальном мире они являются членами одной расколотой (   Читать дальше...   )Производство: Япония, студия NAZЖанр: драма, фэнтезиРежиссер: Кикути КацуяПеревод: Middle Age (перевод с украинского)Язык озвучки: Японский и русский (Animaunt (без рекламы))Субтитры: РусскиеПродолжительность: ONA, 12 серии по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3DEE8C49462ADF4D63AE363F9DA85AD120D3D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670791   (171685) от 22.10.2023
+
+Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My One-Hit Kill Sister | Другой мир и сестра [2023, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Асахи Икусаба неожиданно для самого себя спас ребёнка от автомобильной аварии, но в итоге пострадал сам. Таинственный свет затянул мальчика в незнакомый иной мир. Так он оказался совсем один посреди магии и драконов. К счастью, в момент смертельной опасности появилась его сестра! Причём в новом мире она получила невероятную силу.
+© crunchyrollПроизводство: студия Gekkou / 月虹Жанр: комедия, фэнтезиРежиссер: Такаги ХироакиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8460D02AB575B036BB08890D572DB6BD1FD8C649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670807   (171680) от 22.10.2023
 
 Семь главенствующих мечей | Nanatsu no Maken ga Shihai Suru | Reign of the Seven Spellblades [2023, TV, 15 из 15] WEBRip 1080p Raw+Rus
@@ -6,7 +114,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171680.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич: Тыся
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168721.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168652.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167061.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | Я стала злодей�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167032.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ Dr. Stone / Доктор Стоун [2019, TV, 24 ep] WEB-DL 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165344.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163693.jpg" />
 </div>
 
 
@@ -190,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162898.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ Fate/Stay Night | Судьба: Ночь схватки [2006, TV, 24 из 24] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161597.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ Fate/Stay Night Unlimited Blade Works | Судьба: Ночь схватки. �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161594.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ Fate/Zero | Судьба: Начало [2011, TV, 25 из 25] BDRip 1080p HEVC 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161585.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ Iria Zeiram The Animation | Iria: Zeiram The Animation | Ирия: Зейрам 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161112.jpg" />
 </div>
 
 
@@ -322,7 +430,7 @@ Dallos | Даллас [1983, OVA, 4 из 4] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161104.jpg" />
 </div>
 
 
@@ -350,7 +458,7 @@ Shihaisha no Tasogare | Twilight of the Dark Master | Сумерки Повел�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160826.jpg" />
 </div>
 
 
@@ -377,7 +485,7 @@ Psycho Diver: Mashou Bosatsu | Psycho Diver: Soul Siren | Психо-нырял�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160822.jpg" />
 </div>
 
 
@@ -403,7 +511,7 @@ Shingeki no Kyojin: The Final Season (2023) | Attack on Titan The Final Season (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160736.jpg" />
 </div>
 
 
@@ -429,7 +537,7 @@ Meitantei Holmes | Sherlock Hound | Великий детектив Холмс [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160576.jpg" />
 </div>
 
 
@@ -455,7 +563,7 @@ Meitantei Holmes: Aoi Ruby no Maki / Kaitei no Zaihou no Maki | Sherlock Hound: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160568.jpg" />
 </div>
 
 
@@ -482,7 +590,7 @@ Midnight Eye Gokuu II | Goku II: Midnight Eye | Гоку II: Полуночны�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160112.jpg" />
 </div>
 
 
@@ -509,7 +617,7 @@ Midnight Eye Gokuu | Goku: Midnight Eye | Гоку: Полуночный гла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160098.jpg" />
 </div>
 
 
@@ -535,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159678.jpg" />
 </div>
 
 
@@ -562,7 +670,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel | Судьба: Ночь схватк�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159513.jpg" />
 </div>
 
 
@@ -573,114 +681,6 @@ Gekijouban Fate/Stay Night: Heaven's Feel | Судьба: Ночь схватк�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D072BE8E2A666B3FAAD1294F40BD69F12D55C26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584042   (159119) от 25.12.2022
-
-Все мы немного врём | Четыре человека и ложь каждого | 4-nin wa Sorezore Uso o Tsuku | The Little Lies We All Tell [2022, TV, 11 из 11] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159119.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о четырёх школьницах, которые с виду кажутся обычными. Молодые девушки действительно ещё подростки, которым нужно постоянно посещать школу, и знакомиться с другими сверстниками. Главные герои так и поступают, однако не всё так просто. На самом деле молодые девушки обладают секретами. Именно поэтому, они не выглядят как обычные красавицы, и стараются мало (   Читать дальше...   )Производство: Япония / Студия Studio Flad, Studio PierrotЖанр: Комедия, повседневность, школа, мультсериалРежиссер: Хосино МакотоЯзык озвучки: Русский многоголосый, закадровый (AniDub)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 11 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB6841F95C561A81BBAC7C811FDAF4EB6C51D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444226   (159046) от 11.11.2023
-
-Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титанов [ТВ-2] [2017, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди и гиганты. Кто из них охотник, а кто жертва? Для того, чтобы понять это, был создан корпус разведки под командованием Эрвина Смита. Но последние загадочные события, во многих из которых были замешаны кадеты 104 корпуса, поставили командира разведки в трудное положение.
-
-Кто же такие эти гиганты? Откуда они явились? Есть ли еще люди, которые могут превращаться (   Читать дальше...   )Производство: Wit StudioЖанр: приключения, фэнтези, драмаРежиссер: Араки ТэцуроЯзык озвучки: Японский, русский (AniDub, AniLibria, KANSAI, NewComers, Wakanim)Субтитры: Русские (Crunchyroll, Nesitach & Stan WarHammer, Firegorn Team)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E4E062C1D689FA32D60BD6E4F0453A0F21D98C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582532   (158783) от 26.12.2022
-
-Принцесса-библиофил | Mushikaburi Hime | Bibliophile Princess [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Больше всего на свете Элиана Бернштайн любит книги. Всю свою жизнь она предпочитала общество книг балам, турнирам, кулуарным интригам и всему тому, чем обычно любят заниматься аристократы её возраста. В то же время статус аристократки пусть и позволял ей наслаждаться чтением без всяких ограничений, однако и обязывал Элиану обзавестись женихом. К счастью, нашёлся (   Читать дальше...   )Производство: Япония / Студия MadhouseЖанр: Драма, исторический, романтикаРежиссер: Ивасаки ТароЯзык озвучки: Русский двухголосый, закадровый, Японский
-- Kroxxa, WhiteCrow (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DF0300C529644645B8409FC93414226A2076CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583595   (156386) от 27.12.2022
-
-Легенда о мане: Кристалл слёз | Легенда святого меча: Легенда маны - Кристал слёз | Seiken Densetsu: Legend of Mana - The Teardrop Crystal [2022, TV, 12 из 12] WEBRip 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древняя легенда гласит, что существует магические святой меч, он надежно спрятан от посторонних глаз, и обнаружить его слишком сложно, а может и невозможно. Охотники за артефактами и сокровищами знают эту древнюю легенду и уже на протяжении многих веков целые поколения пытаются найти их. Главный герой уже долгое время ищет бесценный артефакт в этом ему помогает верный (   Читать дальше...   )Производство: Япония / Студия Graphinica, Yokohama Animation LabЖанр: Приключения, фэнтезиРежиссер: Дзимбо МасатоЯзык озвучки: Русский многоголосый, закадровый
-- Viki, Abe, Monashka, Sedrix, DiWilliam (SHIZA Project)Субтитры: Русские (хардсаб на надписи)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EBE6E9EDB56A8E4A64641D7E15390D57B482DE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

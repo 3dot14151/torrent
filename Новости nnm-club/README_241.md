@@ -1,3 +1,55 @@
+###  Публикация: 1653597   (194076) от 18.08.2023
+
+SKIDROW ответили EMPRESS: прошлись по личности хакера, а так же пообещали скорый взлом Denuvo-игры
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько дней назад хакеры из SKIDROW взломали защиту Denuvo в игре Fe, которая оставалась невзломанной более пяти лет. В одном из DLL файлов они написали скрытое обращение ко всем P2P-группам, мягко говоря послав их все на три буквы, в том числе пользователей Reddit.В NFO к Judgment EMPRESS ответила Skidrow, заявив, что Fe была взломана благодаря эксплойту в движке (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654065   (194002) от 20.08.2023
+
+Ночью тысячи 3D-принтеров Bambu самостоятельно включились и начали печатать
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194002.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 августа владельцы 3D-принтеров Bambu X1C и P1P столкнулись с неожиданной проблемой: их устройства внезапно включились и начали печатать без ведома пользователей.Некоторые из принтеров повторили последнее задание, в то время как другие начали печатать новую модель прямо поверх уже готовой, что привело к их поломке.Отметим, что Bambu уже приступила к расследованию (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654268   (193965) от 21.08.2023
 
 Apple и Intel нажаловались на Индию в правительство США: страна не должна ограничивать импорт
@@ -6,7 +58,7 @@ Apple и Intel нажаловались на Индию в правительс�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_193965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193965.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_193951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193951.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193942.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_193791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193791.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_193779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193779.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_193716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193716.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_193608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193608.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_193524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193524.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_193316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193316.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193195.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ A.L. Weber / T. Rice - Jesus Christ Superstar. Различные вариант
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193046.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193034.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Gotham Knights (2022) [Multi] (9794860/dlc) Repack DjDI [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193032.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ NASA профинансировало создание гигантского н
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192907.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ YouTube Vanced (Extended) 17.33.42 Mod by Number one' [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192737.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192512.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Windows 10 Enterprise LTSB (x64) Elgujakviso Edition (v.28.10.22) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192426.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192422.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Saints Row: The Third Remastered (2021) [Ru/Multi] (1.0.6.1/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192419.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Intel грозит судебный иск из-за уязвимости Downfa
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192327.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ Zorin OS 16.2 Pro/Pro Lite [64-bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192177.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192171.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Windows 10 Pro 22H2 Build 19045.3324 x64 ReviOS (23.08.2023) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191959.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_191937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_191937.jpg" />
 </div>
 
 
@@ -625,60 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587528   (191866) от 02.11.2022
-
-На Западном фронте без перемен / Im Westen nichts Neues / All Quiet on the Western Front (2022) WEB-DLRip [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного антивоенного романа Эриха Марии Ремарка.
-Их вырвали из привычной жизни и швырнули в кровавую грязь войны. Когда-то они были юношами, учившимися жить и мыслить, а теперь они — пушечное мясо, которое учится выживать и не думать.Производство: Германия, США, Великобритания, Amusement Park Films, Rocket Science, Sliding Down Rainbows EntertainmentЖанр: военный, боевик, драма, история, экранизацияРежиссер: Эдвард БергерАктеры: Феликс Каммерер, Альбрехт Шух, Аарон Хилмер, Мориц Клаус, Адриан Грюневальд, Эдин Хасанович, Даниэль Брюль, Тибо де Монталембер, Девид Штрисов, Андреас ДёлерПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: русский, украинский, английский, немецкийСубтитры: Русские (Full), английские (SDH), немецкие (SDH), украинские, французские, итальянские, испанские, голландские, португальскиеПродолжительность: 02:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA55CA8BAC7B5C0284EF61F9710EF31180FCF128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205775   (191645) от 06.09.2023
-
-Владимир Семёнович Высоцкий: Коллекция фильмов (1959-1976) DVDRip, HDTVRip, SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Семёнович Высоцкий — советский поэт, актёр и автор-исполнитель песен, автор прозаических произведений. Лауреат Государственной премии СССР (1987, посмертно).
-Актёр Театра драмы и комедии на Таганке в Москве (1964—1980). Владимир Высоцкий сыграл более 20 ролей в театре. Многие его работы в кинематографе также полюбились зрителям. Владимир Высоцкий вошёл в (   Читать дальше...   )Производство: СССРЖанр: драма, комедия, приключенияРежиссер: различные в разных фильмахАктеры: Владимир Высоцкий и другиеСубтитры: отсутствуютПродолжительность: 38:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B3CF56E77D7E79F218B9DEE52915B025E623F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

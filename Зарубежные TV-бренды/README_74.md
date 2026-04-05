@@ -6,7 +6,7 @@ Discovery. Византия: Утраченная Империя / Byzantium: Th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520840.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Discovery: Путешествие в Малайзию / Passage To Malaysia: Int
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520671.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BBC: Постигая звёздное небо / BBC: Stargazing Live (2013) SA
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520492.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Nat Geo Wild: Жизнь на Большом Барьерном рифе / Life 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520490.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ BBC: Мир природы: Королева снежных обезьян / Nat
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520299.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Discovery: Хроники Эйфелевой башни / La Legende Vraie de la
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520226.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Discovery: Человеческое Тело: Грани Возможного / 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519872.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Discovery: 100 величайших гаджетов со Стивеном Фр�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519801.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519269.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519166.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BBC: Мир природы. Сокровища Анд / Natural World. Treasure 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518247.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ NG. Осушить океан: глубокое погружение. Подво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518077.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Discovery. Возвращение суперзмеи-людоеда / Devoured: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518075.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ NG. Осушить океан: глубокое погружение / Drain the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517785.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Discovery: Пираты / Pirates (1998) DVDRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517686.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517629.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ BBC:  Машина Большого Взрыва / The Big Bang Machine (2008) S
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_517192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_517192.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ BBC: Ноев Ковчег - реальная история / BBC: Noah`s Ark-T
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517123.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Discovery. Челюсти наносят ответный удар / Jaws Strike
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516841.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ BBC. Планеты / The Planets (2019) BDRemux [H.264/1080i] (сезон 1, с
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516763.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Discovery: Секреты и Заговоры / Codes and Conspiracies (2014) SA
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516204.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Discovery: Секреты и Заговоры / Discovery: Codes and Conspiracie
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516151.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Discovery. Вот это странно Корабль-призрак / Weird or
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516141.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Discovery. Вот это странно. Кокаиновые мумии / Weird
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516135.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ NGW: Змеи-монстры / Monster Snakes (2019) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515878.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Discovery. Гигантские мечи / Big Giant Swords (2015) HDTVRip (1 с
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514839.jpg" />
 </div>
 
 

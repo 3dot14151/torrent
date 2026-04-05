@@ -1,3 +1,83 @@
+###  Публикация: 1717421   (59078) от 20.04.2024
+
+Эмили Уиллингем | Парадокс пениса (2024) [MP3, Анна Киршина]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59078.jpg" />
+</div>
+
+
+###  Подробнее
+
+В человеческом обществе фаллос считается символом могущества и власти, и мы привыкли думать, что у этого представления есть крепкая биологическая основа. Научный журналист Эмили Уиллингем, рассказывая о ритуалах спаривания и пенисах животных, показывает, что у природы на этот орган были совсем другие планы, и создавался он не для того, чтобы его обладатели были наделены (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Альпина нон-фикшнПродолжительность: 08:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8061216C0AE55ACFE2A0FC93AF068039ECDD736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717853   (58863) от 22.04.2024
+
+Сергей Соловьёв | История России с древнейших времен (Том 7, 8) (2014) [MP3, Евгений Терновский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый труд великого русского историка Сергея Михайловича Соловьева (1820-1879) является крупнейшим достижением русской исторической науки XIX в. Соловьев - "первый среди равных" в плеяде блестящих русских историков, в которую входят Н. Карамзин, В. Ключевский, Н. Костомаров, А. Пресняков, Т. Грановский, С. Платонов и многие другие.
+Седьмой том обширного (   Читать дальше...   )Жанр: ИсторияИздательство: Нигде не купишьПродолжительность: 47:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13D7E76DE0BD4668EF5425D99FC85DEE4791BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718242   (58644) от 24.04.2024
+
+Сергей Соловьёв | История России с древнейших времен (Том 9, 10) (2014) [MP3, Евгений Терновский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый труд великого русского историка Сергея Михайловича Соловьева (1820-1879) является крупнейшим достижением русской исторической науки XIX в. Соловьев - "первый среди равных" в плеяде блестящих русских историков, в которую входят Н. Карамзин, В. Ключевский, Н. Костомаров, А. Пресняков, Т. Грановский, С. Платонов и многие другие.
+Девятый том обширного (   Читать дальше...   )Жанр: ИсторияИздательство: Нигде не купишьПродолжительность: 45:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55E25EBBC8FA7169A13689D645AC3989F297004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719846   (57917) от 01.05.2024
 
 Сергей Соловьёв | История России с древнейших времен (Том 15, 16) (2014) [MP3, Илья Прудовский]
@@ -6,7 +86,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57917.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57093.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56673.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56148.jpg" />
 </div>
 
 
@@ -115,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55187.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54993.jpg" />
 </div>
 
 
@@ -168,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53638.jpg" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53088.jpg" />
 </div>
 
 
@@ -220,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53017.jpg" />
 </div>
 
 
@@ -247,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52989.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52892.jpg" />
 </div>
 
 
@@ -300,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52771.jpg" />
 </div>
 
 
@@ -326,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52223.jpg" />
 </div>
 
 
@@ -352,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51287.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51176.jpg" />
 </div>
 
 
@@ -406,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51075.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50965.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50760.jpg" />
 </div>
 
 
@@ -485,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50659.jpg" />
 </div>
 
 
@@ -511,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50336.jpg" />
 </div>
 
 
@@ -537,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49709.jpg" />
 </div>
 
 
@@ -563,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49698.jpg" />
 </div>
 
 
@@ -590,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49497.jpg" />
 </div>
 
 
@@ -602,86 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2426C62F83555019A7C47A89EAA29C33AF4730F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738155   (49295) от 21.07.2024
-
-Рене Декарт, Бенедикт Спиноза | Я мыслю. Интеллект - это страсть (2021) [MP3, Илья Суровый]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рене Декарт и Бенедикт Спиноза – два величайших мыслителя Нового времени; про них говорили, что они освободили философию от оков средневековья и поставили вопросы, которые навсегда останутся главными. Декарт напрямую связывал существование человека со способностью к мышлению («я мыслю, следовательно, существую»), он же утверждал, что «интеллект – это страсть».
-
-Границы (   Читать дальше...   )Жанр: зарубежная образовательная литература, философские концепцииПеревод: В. И. Пиков, В. И. Модестов, Н. А. Иванцов, Михаил Гарнцев, Г. Полинковский, Варвара Половцева, Яков БоровскойИздательство: РодинаПродолжительность: 07:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D6E2330C46C4DCF5C86349057DFE53EA97874B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617590   (48932) от 25.07.2024
-
-Иосиф Виссарионович Сталин | Собрание сочинений (Тома 1-7 из 18) (2012) [MP3, Андрей Бунин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее собрание Сочинений И.В. Сталина издается по постановлению Центрального Комитета вкп(Б) - Всесоюзной коммунистической партии (большевиков).Жанр: История, Философия, Общественные наукиИздательство: Аудиокниги своими руками // Проект "Аудиокниги товарища Сталина"Продолжительность: 77:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C213C96B18B8A2E18E00F2E26E5B635AA010421F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739267   (48665) от 27.07.2024
-
-Кейт Листер | Удивительная история секса (2022) [MP3, Любовь Конева]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48665.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Удивительная история секса» – любопытная и порой шокирующая книга о том, что мы делаем с собой и друг с другом в поиске (или отрицании) всемогущего оргазма. Доктор Кейт Листер без стеснения копается в штанах истории и знакомит читателей с фактами, которые замалчивали на протяжении столетий.Жанр: Научно-популярная литератураИздательство: CorpusПродолжительность: 09:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFF5F5E74D6318D2785610CD784B6172514F023
 ```
 
 https://mybot314.ru/tekegram_catalog/

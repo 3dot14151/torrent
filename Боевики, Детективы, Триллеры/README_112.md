@@ -1,3 +1,107 @@
+###  Публикация: 1272747   (140964) от 29.12.2018
+
+Наталья Александрова | Священный крест тамплиеров (2018) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140964.jpg" />
+</div>
+
+
+###  Подробнее
+
+По преданию, святой Иосиф собственноручно выточил священное распятие из частицы Животворящего Креста – того самого, на котором претерпел муки Спаситель. С помощью этой реликвии можно найти бесценные сокровища ордена тамплиеров, которые они спрятали, опасаясь гонений Церкви и французского короля… Эве Стрижевой по счастливой случайности удалось избежать смерти – взорвался (   Читать дальше...   )Жанр: Мистика, Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D50654E7AF5332B11872CD7C2FE57E2EE656DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591082   (140691) от 18.12.2012
+
+Алекс Константайн | Виртуальное правительство [2008] [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Контроль над сознанием ведет к лабиринту тайных троп виртуального правительства, которым заправляют вивисекторы психики из ЦРУ. Контроль над сознанием ведет в сумеречную зону так называемых «инопланетных вторжений», убийц-зомби, массовых самоубийств и преступлений различных культов, «управления на расстоянии» и «программируемых психозов». Контроль над сознанием существует в мире засекреченных научных лабораторий, обязанных своим рождением некоторым из наиболее зловещих фигур Нацистской Германии.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168A4BC684D2A96B355603D3C88332387ABA844D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799733   (140632) от 29.12.2018
+
+Владимир Колычев | Я сломалась и падаю вниз (2014) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преуспевающая бизнесвумен Елена Сумарокова любила жить стремительно, отчаянно и рискованно. Криминальный мир был ее стихией, а "стрелки", "разборки" и отмывание грязных денег - повседневной рутиной. Но в один прекрасный момент все изменилось. Когда от рук киллера погиб очередной муж Елены, она сломалась. Бесстрашная акула теневого бизнеса начала (   Читать дальше...   )Жанр: ДетективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6716388893D030BB5044EB9F76935554F99E6B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195895   (139994) от 30.12.2017
+
+Питер Джеймс | Умри сегодня (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принимая дело о смерти Лорны Беллинг, суперинтендант Рой Грейс поначалу был уверен: дело простое и вот-вот будет закрыто. В самом деле, что ж тут неясного? Женщина уже давно стремилась вырваться из семейного ада, из лап нелюбимого и жестокого мужа; завела любовника и стала встречаться с ним на съемной квартире. А тиран-муж прознал об этом – и жестоко отомстил: бросил (   Читать дальше...   )Жанр: Зарубежные детективы, Крутой детектив, Полицейские детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5264E185FCE5DFCE2F9FFA350D3E90696D277D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679259   (139646) от 24.11.2023
 
 Владимир Колычев | Девочка без тормозов (2023) [FB2]
@@ -6,7 +110,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139646.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139395.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139376.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138790.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138757.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138594.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138512.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138089.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137639.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137616.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136638.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135655.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134793.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132609.jpg" />
 </div>
 
 
@@ -381,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132554.jpg" />
 </div>
 
 
@@ -409,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132487.jpg" />
 </div>
 
 
@@ -435,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131874.jpg" />
 </div>
 
 
@@ -462,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131806.jpg" />
 </div>
 
 
@@ -488,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131454.jpg" />
 </div>
 
 
@@ -514,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131377.jpg" />
 </div>
 
 
@@ -540,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130959.jpg" />
 </div>
 
 
@@ -566,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130948.jpg" />
 </div>
 
 
@@ -577,115 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1499383925623536A7CDEAFC0A36B23AD8A19B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682970   (130668) от 09.12.2023
-
-Р. Гараев  | Слово пацана. Криминальный Татарстан 1970–2010-х (2021) [PDF (A4), PDF (А6), EPUB, FB2, RTF]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы выросли в России в конце XX века, то в вашей жизни были уличные драки. Эта книга о тех, кто сделал насилие своим кредо: бил и попадал под раздачу – профессионально, ежедневно, беспощадно. Это пацаны, участники бесчисленных молодежных группировок, наводнивших поздний Советский Союз. Первым городом, в котором явление стало по-настоящему массовым, была Казань. (   Читать дальше...   )Жанр: Криминальные хроникиИздательство: IndividuumФормат: PDF (A4), PDF (А6), EPUB, FB2, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A31FCB4251E29530AA8AE90665F4624A5410CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340203   (130655) от 09.12.2023
-
-Кара Хантер | Цикл "Инспектор Адам Фаули" [6 книг] (2018-2023) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кара Хантер (Cara Hunter) - псевдоним британской писательницы.
-Кара получила докторскую степень по английской литературе в Оксфордском университете. Писательница живет и работает в Оксфорде, на улице, совсем не похожей на те, которые описаны в ее книгах.
-Ее дебют - роман "Close to Home" (2017), написанный в жанре психологического триллера сразу же стал (   Читать дальше...   )Жанр: Детектив, триллерИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C505AF35B3D48CB079250EA94F3DA4BE324E17D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683587   (128440) от 11.12.2023
-
-Шарлотта Фрост | Призрак замка Гримуар. Рождественский детектив (2023) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ходят слухи, что в австрийском горнолыжном отеле «Гримуар» обитает настоящее привидение. В духе классических герметичных детективов журналистка Мари Легран, ее друг Евгений и 13 эксцентричных гостей оказываются отрезаны снежным завалом от цивилизации. В отеле начинают происходить странные вещи, и Мари понимает, что «Гримуар» скрывает тайны, которые могут стоить ей (   Читать дальше...   )Жанр: Детектив, ТриллерИздательство: Издательские решенияФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE8D0A4CB26BFADADEC8B5DF07E8CF585799C5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683953   (128142) от 13.12.2023
-
-Лора Шепард-Робинсон | Кровь и сахар (2024) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надежда может быть смертельной…
-Англия, конец XVIII-го века. Где-то балы, атласные платья и расшитые жилеты, а где-то – грязь, нищета и смерть.
-Лондон, 1781. Жаркий июньский день. На причале в Дептфорде подвешен за крюк труп мужчины, со следами ужасных пыток и с клеймом раба.
-Несколько дней спустя к капитану Гарри Коршэму приходит сестра Тэда Арчера, его старого (   Читать дальше...   )Жанр: Современные зарубежные детективы, Английские детективыПеревод: Мария ЖуковаИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96129596EE4555F658D18FCDD2A79D70443716D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

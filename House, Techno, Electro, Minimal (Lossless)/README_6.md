@@ -1,3 +1,32 @@
+###  Публикация: 1217877   (1009624) от 23.06.2021
+
+Daniel Avery | Stopmakingme - Discography 47 Releases (2011-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Acid, Electro, Minimal, Tech House, Ambient>
+
+>>След.
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1
+01. Think About What You Love (04:56)
+ 02. Glass (04:08)
+ 03. Under The Tallest Arch (04:04)(   Читать дальше...   )Тип издания: CD, WEB, VinylЖанр: Techno, Acid, Electro, Minimal, Tech House, Ambient •Продолжительность: 27:28:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB221BEB45B7FD936A502F32BB261D3F67E99617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479601   (1009591) от 24.06.2021
 
 DVS NME - The Electro Manifesto (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid>
@@ -6,7 +35,7 @@ DVS NME - The Electro Manifesto (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, I
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009591.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Morphology - Discography 29 Releases (2010-2021) Zyntax Motorcity, Abstract Form
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009474.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Eli & Fur - Found In The Wild (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009413.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Microlith | Rhys Celeste - Discography 13 Releases (2014-2021) CPU Records, mind
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009387.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Oliver Schories - Paradigm (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009185.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Monday Dreamin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008856.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008833.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Barker & Baumecker - Transsektoral (2012) Ostgut Ton [FLAC|Lossless|tracks+.cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008494.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Porter Ricks - Biokinetics (2012) (Reissue 1996) Type [FLAC|Lossless|tracks+.cue
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008492.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - SUMMER HITS 2021 [FLAC|Lossless|WEB-DL|tracks] <Deep House, Future House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007888.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Sound Quelle - Trait (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007621.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Robert Hood - The Blueprint EP (2021) Rekids [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007459.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Vocal Bliss Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007444.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Richie Hawtin (Plastikman, F.U.S.E., Concept 1, Circuit Breaker, Forcept 1, Robo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006806.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ BLNDR - Callopsis (2021) Kizen Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006785.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Conforce - Wavetable (2021) Sungate [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006532.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Merv - Cordial EP (2021) Release Sustain [FLAC|Lossless|WEB-DL|tracks] <Tech Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006525.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Wet Basement - Electromagnetic (2021) Drift Deeper Recordings [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006522.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Faserklang - Focus On Distraction (2021) Drift Deeper Recordings [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006518.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Lars Leonhard - Discography 42 Releases (2011-2021) BineMusic, Ultimae Records [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006186.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Electrypnose - Crooked House (2021) [FLAC|Lossless|WEB-DL|tracks] <PsyTech House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005464.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Pobedia & Nebyla - Good Morning EP (2012) DDR006 [FLAC|Lossless|tracks] <Dub Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005349.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ Oxia - Speicher 34 (2006) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005223.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ Anton Kubikov (A. Kubikoff) - Discography 26 Releases (1999-2021) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004928.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ VA - Beach Grooves Maretimo Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Organic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004749.jpg" />
 </div>
 
 
@@ -709,35 +738,6 @@ VA - Beach Grooves Maretimo Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Organic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34A3603F46DB1719EC194CB62E2BE6218AC1177F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349468   (1004492) от 01.01.2020
-
-VA - Best of Winter 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wavekiki – Loosing Gravity | Hraach Remix (07:03)
-02. GESPONA – Dandarah | Silar Remix (07:03)
-03. Greenage – Esperanza (07:02)
-04. Wassu – Devi | Erdi Irmak Remix (06:28)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F9E03CE419349831A2D1B5524BE48CA0862259
 ```
 
 https://mybot314.ru/tekegram_catalog/

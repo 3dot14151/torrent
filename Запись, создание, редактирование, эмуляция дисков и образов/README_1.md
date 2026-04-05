@@ -1,3 +1,82 @@
+###  Публикация: 1835527   (250729) от 07.11.2025
+
+Flyoobe 1.51 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flyoobe (Ранее назывался Flyby11) — это простой патчер, который снимает надоедливые ограничения, мешающие установить Windows 11 (24H2/25H2) на неподдерживаемое оборудование. У вас старый компьютер? Нет TPM, Secure Boot или ваш процессор не поддерживается? Flyoobe в любом случае позволяет установить Windows 11 (24H2/25H2).
+После того как Flyby11 помог тысячам пользователей (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17288FB1BE93ECD84F2252DC381D7CB67BE7B64C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645223   (247103) от 08.07.2023
+
+UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247103.jpg" />
+</div>
+
+
+###  Подробнее
+
+UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EBC3B0ADC45015F5357067D21E704F36E6AB4DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645631   (247068) от 10.07.2023
+
+UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Запись, создание, редактирование, эмуляция дисков и образов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247068.jpg" />
+</div>
+
+
+###  Подробнее
+
+UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604599E25F63D20E00FAA484E347BB936108313F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645649   (247067) от 10.07.2023
 
 UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +85,7 @@ UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247067.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ UltraISO Premium Edition 9.7.6.3860 Retail [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247051.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ UltraISO Premium Edition 9.7.6.3860 Portable by 7997 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246918.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ PowerISO 9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246267.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ Flyoobe 1.42 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246199.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ Nero Burning ROM 2021 23.0.1.14 [Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226476.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ Virtual CD 10.6.0.0 Retail [En/De]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224624.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ Flyoobe 1.41 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212246.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ BurnAware Professional 16.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209396.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ Ashampoo Burning Studio 24.0.3.27 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200747.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ PowerISO 9.2 RePack by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199968.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ PowerISO 9.2 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199815.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ Ashampoo Burning Studio 2023 1.24.0.13 (6310) [Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196885.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ UltraISO Premium Edition 9.7.6.3860 Portable by JooSeng [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195687.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ Ashampoo Burning Studio FREE 1.24.13 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195588.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ Flyoobe 1.40 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186104.jpg" />
 </div>
 
 
@@ -427,7 +506,7 @@ True Burner 9.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170913.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ Alcohol 120% 2.1.1 Build 2201 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160972.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ Alcohol 120% 2.1.1 Build 2201 RePack by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160957.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ Windows 11 Media Creation Tool 10.0.22621.2714 [Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150594.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ Nero Burning ROM & Nero Express 2021 23.0.1.20 RePack by rjkzy [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129429.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ Universal Media Creation Tool 08.12.2023 Portable [Ru/En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128797.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ Flyoobe 1.31 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128577.jpg" />
 </div>
 
 
@@ -596,84 +675,6 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67232C11024BF5A5709D5BEAF96F5047B0515570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685665   (127166) от 19.12.2023
-
-Universal Media Creation Tool 19.12.2023 Portable [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Universal Media Creation Tool – мощный, но простой инструмент автоматизации развертывания Windows 10/11 минуя проверку TPM 2.0, Secure Boot, UEFI и поколения процессора.Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2F7CFFB19574A2D1637AD565039D55FADB6CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693414   (121930) от 20.01.2024
-
-AnyDVD HD 8.1.3.0 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121930.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyDVD HD - это программа для дешифрования CSS и снятия региональной защиты с любого DVD и Blu-ray диска в любом ROM устройстве. Как насчет немедленного просмотра DVD и Blu-ray видео на компьютере c ROM, региональный код которого не соответствует этому DVD и Blu-ray диску, не переписывая его на жесткий диск целый час, используя специальные дешифрующие утилиты? AnyDVD (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A0A6D8E64C5DA85D3F800759C0CA214FBCA61C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701794   (116310) от 22.02.2024
-
-Alcohol 120% Free Edition 2.1.1 Build 2201 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alcohol 120% Free Edition - специальная бесплатная версия популярной программы для эмуляции и создания образов дисков, а также их записи на оптические диски. Эта версия выпущена по случаю 11-летия компании Alcohol Softs и полностью бесплатна для личного некоммерческого использования. В отличии от полной версии Alcohol 120%, бесплатная версия имеет ограничения функций. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B21A6E46FD35723A79554069084E28F604FB9D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

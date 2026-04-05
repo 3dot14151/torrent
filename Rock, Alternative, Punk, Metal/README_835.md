@@ -1,3 +1,32 @@
+###  Публикация: 1548036   (241016) от 02.05.2022
+
+Crashdiet - Automaton (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Automaton [00:00:39]
+02 - Together Whatever [00:03:50]
+03 - Shine On [00:03:39]
+04 - No Man's Land [00:03:54](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0E7C0F98471A80A9EDE2A1116A7CFFEC721FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619948   (241011) от 18.03.2023
 
 ЭльТруски - Эфир Первобытных Рукописей (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241011.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Perfect Nme - Remains to Be Seen (2020) [MP3|320 Kbps] <Thrash Metal, Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241009.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Riviere - Passage (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240985.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Marina - Nuclear (2023) [MP3|320 Kbps] <Metalcore, Deathcore, Post-Hardcore, Ele
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_240974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_240974.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Temtris - Khaos Divine (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240970.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Paul Wardingham - Day Zero I: Rise Of The Horde (2020) [MP3|320 Kbps] <Progressi
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240963.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Nовая Zямля - Вечно живой (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240951.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Celestial Season - The Secret Teachings (2020) [FLAC|Lossless|image + .cue] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240934.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Neverlove - Добро пожаловать на бал (2023) [MP3|320 Kbps] <A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240924.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Shadowspawn - The Biology Of Disbelief (2021) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240915.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Soho Riot - Square One (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240896.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Endseeker - Mount Carcass (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240893.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Alexey Amusin - The Rocker (2020) [MP3|320 Kbps] <Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240891.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Invisible - Heavy Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240883.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Samarithan - Tales Of Doom (2022) [MP3|320 Kbps] <Heavy Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240879.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Julius Project - Cut The Tongue (2020) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240878.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Crystal Tears - Generation X (2010) [WavPack|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240874.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ The Gathering - Interference (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Atmospheri
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240873.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Invent Animate - Heavener (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240868.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Dark Princess - Phoenix (2023) [FLAC|Lossless|image + .cue] <Goth Rock, Gothic M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240858.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Elephant Rose - 2 Albums, 1 Single (2019-2022) [MP3|320 Kbps] <Progressive Stone
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240855.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Khanate - To Be Cruel (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240851.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Anthems Of Gomorrah - Aelvica (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Death Det
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240846.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ PensiOi!ners - Капсаицин (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240842.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Deathstars - Everything Destroys You (2023) [MP3|320 Kbps] <Industrial Gothic Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240840.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Deathstars - Everything Destroys You (2023) [MP3|320 Kbps] <Industrial Gothic Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A73A79DCAE19225ECAFFE5B2381D2BA69E4E4D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548463   (240834) от 03.05.2022
-
-Gary Schutt - The Beautiful Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Beautiful Darkness (00:04:07)
-02 - Fly Interstellar (00:01:18)
-03 - U F O (00:05:22)
-04 - Fading Light (00:06:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6E3E64E903B95F9A8606FCEBA9A1E19007B0AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

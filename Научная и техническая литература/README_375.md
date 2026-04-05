@@ -1,134 +1,3 @@
-###  Публикация: 1321142   (463276) от 22.08.2019
-
-О.С. Кобринец | Настольный французский справочник (2015) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник поможет тем, кто изучает французский язык, легко освоить базовую лексику по 16 основным темам, систематизировать знания по курсу грамматики, изучить правила произношения. Справочник построен по тематическому принципу. В рамках каждой темы, кроме сведений о французском языке, предлагаются ещё иллюстрированные словарики и диалоги, показывающие, как изученные (   Читать дальше...   )Жанр: Учебное пособие, СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3C858F05CB6FC3AFBFC487B24730B9C1BD3E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321042   (463267) от 22.08.2019
-
-Беатрис Ровер-Фенати | Итальянский язык. 250 грамматических упражнений (2017) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это издание содержит грамматические упражнения по итальянскому языку. Книга предназначена для всех изучающих итальянский язык. Материал сопровождается множеством иллюстраций.Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D0EFE5909BBE83F8F12CF41A56E2159FD64742A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321045   (463263) от 22.08.2019
-
-И. Лангенбах | Французский язык. 250 грамматических упражнений (2017) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это издание содержит грамматические упражнения французского языка. Книга предназначена для всех изучающих французский язык. Материал сопровождается множеством иллюстраций. В конце книги - ключи, словарь.Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F811DD513D023F56790CF30846D9C34BD0F4882F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246326   (463201) от 10.09.2018
-
-Рудольф Ташнер | Число, пришедшее с холода. Когда математика становится приключением (2018) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знание математики приобретает особое значение в нашу цифровую эпоху. Рассказывая о прошлом, настоящем и будущем математической мысли и о первооткрывателях важнейших математических законов, известный австрийский ученый и популяризатор науки Рудольф Ташнер посвящает нас не только в тайны цифр и чисел, но и шире — в тайны познания.
-«Из великого множества историй о якобы (   Читать дальше...   )Жанр: Физико-математические наукиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836A9C6FBEC7E976464915C060DACF8443B2A38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246323   (463198) от 10.09.2018
-
-А.Г. Гофман | Клиническая наркология. 2-е изд. (2017) [FB2]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга состоит из трех разделов, посвященных хроническому алкоголизму, алкогольным психозам и наркоманиям. Каждый из разделов включает в себя сведения об эпидемиологии, этиологии, патогенезе заболевания. Особое внимание автор уделяет клинической картине и дифференциальной диагностике описываемых заболеваний и расстройств. Рекомендации по лечению основаны на данных (   Читать дальше...   )Жанр: Медицинские дисциплины; Учебники и пособия ВУЗовФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021AA69EE8650B364230B09CB355E23E449AECA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321041   (463139) от 22.08.2019
 
 М. Гёриссен | Испанский язык. 250 грамматических упражнений (2017) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463139.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463132.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463049.jpg" />
 </div>
 
 
@@ -219,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463042.jpg" />
 </div>
 
 
@@ -245,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463030.jpg" />
 </div>
 
 
@@ -271,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463013.jpg" />
 </div>
 
 
@@ -299,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463010.jpg" />
 </div>
 
 
@@ -325,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463008.jpg" />
 </div>
 
 
@@ -351,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463006.jpg" />
 </div>
 
 
@@ -377,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462975.jpg" />
 </div>
 
 
@@ -404,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462850.jpg" />
 </div>
 
 
@@ -430,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462849.jpg" />
 </div>
 
 
@@ -456,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462723.jpg" />
 </div>
 
 
@@ -484,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462710.jpg" />
 </div>
 
 
@@ -510,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462542.jpg" />
 </div>
 
 
@@ -536,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462526.jpg" />
 </div>
 
 
@@ -562,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462509.jpg" />
 </div>
 
 
@@ -590,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462419.jpg" />
 </div>
 
 
@@ -617,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462407.jpg" />
 </div>
 
 
@@ -643,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462400.jpg" />
 </div>
 
 
@@ -671,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462389.jpg" />
 </div>
 
 
@@ -685,6 +554,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A3911F03BF73D79E184A2F35E6790A0B52247F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941408   (462239) от 27.09.2015
+
+Владимир Кучин | Популярная история – от электричества до телевидения (2015) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462239.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Популярная история – от электричества до телевидения» охватывает период от древних времен до 1965 года и посвящена хронологическому изложению этапов развития нашей цивилизации в направлении: Электричество – Магнетизм – Телеграф – Телефон – Радио – Телевидение. Автор напоминает читателю имена ученых-первопроходцев и изобретателей, представляет интересные иллюстрации (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371D4E67D90F8C9A03039393E4DEAA46976B9614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407704   (462173) от 09.09.2020
+
+Линда Сегер | Скрытый смысл: Создание подтекста в кино (2017) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462173.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В 2011 году, когда я писала „Скрытый смысл: Создание подтекста в кино“, другой литературы на эту тему не было. Да, в некоторых книгах вопросам подтекста посвящалась страница-другая, но не более. Мне предстояло разобраться, что подразумевается под понятием „подтекст“, как его обсуждать и развеять туман вокруг этой темы. Я начала с того, что стала вспоминать фильмы, (   Читать дальше...   )Жанр: Зарубежная литература о культуре и искусстве, Кинематограф / театрПеревод: Мария Н. ДесятоваФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298101D3E29B2AE6D0D1EFC070CEB96175FB498E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483378   (462136) от 24.09.2013
+
+Подборка | Книги по хирургии-Часть 2 (1939-2013) [CHM, DOC(X), DJVU, FB2, PDF, TIF, ТХТ, JPG, ISO, HTML]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя подборка книг по хирургии. Собиралась из разных источников в течении нескольких лет, присутствуют собственные сканы книг. Все книги разделены по тематическим разделам для удобства пользования. Вы можете не качать всю раздачу, а выбрать только нужную вам книгу.Жанр: ХирургияЯзык: Русский, английский, украинский, немецкийФормат: CHM, DOC(X), DJVU, FB2, PDF, TIFF, ТХТ, JPG, ISO, HTMLКачество: отсканированные страницы,  OCR
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058985   (462101) от 04.10.2016
+
+К. Баллод | Государство будущего (1906) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462101.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге профессор К. Баллод (Баллодис) сделал попытку показать трансформацию капиталистической Германии из ее тогдашнего состояния в социалистическое общество мирным путем и описать суть социализма. При этом социализм явился бы более экономной системой, чем капитализм. Работа стала одним из оснований для разработки плана ГОЭЛРО.Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F5AC1011BA886BE44F862516EFCBCEEB912C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940665   (462046) от 27.09.2015
+
+Г. П. Шалаева (гл. ред.) | Кто есть кто в мире (2006) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой биографический справочник «Кто есть кто в мире» содержит более 1500
+биографий известных людей всего мира в области науки, политики, культуры, экономики, медицины и военного дела.Жанр: СправочникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC35C4328EF1DFEDE08BE37055968D3291BBF2DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

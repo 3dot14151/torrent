@@ -1,3 +1,61 @@
+###  Публикация: 1218710   (721275) от 10.04.2018
+
+Balazs Ferenc - Register (1985) LP [MP3|320 Kbps] <Electronic, Experimental, Ambient>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giulietta (4:44)
+02. Claire (4:43)
+03. Electra A Lany, Akire Szerelemmel Nezhetek (3:53)
+04. Szonja (3:15)(   Читать дальше...   )Жанр: Electronic, Experimental, AmbientПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B6940663DAE5D51A84E820BDCF61093EFCFD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285408   (720863) от 26.02.2019
+
+VA - A State Of Trance 900 (The Official Album) - Extended Versions (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Lifting You Higher (ASOT 900 Anthem) (Extended Mix)
+02. Above & Beyond - Rocket Science (Original Mix)
+03. Cosmic Gate & Jason Ross - Awaken (Extended Mix)
+04. Marlo feat Emma Chatt - Here We Are (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BB9E97406DBC6AD94CE5D5C3F6B45493FD088F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531563   (720758) от 16.02.2022
 
 W&W - Rave Culture Live 003 (2022-02-12) [MP3|320 Kbps] <Big Room, Hard Dance>
@@ -6,7 +64,7 @@ W&W - Rave Culture Live 003 (2022-02-12) [MP3|320 Kbps] <Big Room, Hard Dance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720758.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Von Grall - Stemplot (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720690.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Elle - Yemaja (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720687.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Progressive Summer Vol.1 (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720678.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ BLNDR - Hypermental (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimenta
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720660.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Hydrangea - Dawn Lights (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambie
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720657.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Fedde Le Grand - Something Real (2016) [MP3|320 кб/с] <Electro House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720653.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Gai Barone - Towards (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720578.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Live In Montreal - Finale (Mixed By John Digweed) (2016) [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720558.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Monochrome - Unforgettable Call Of The Octopus (2015) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720552.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Ben Frost - A U R O R A (2014) [FLAC|Lossless|WEB-DL]<Experimental, Industrial, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720465.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Ethereal Techno #002 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720460.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Dinka - Sundry: The Chillout Collection (2016) [MP3|320 кб/с] <Chillout, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720453.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Above & Beyond - Acoustic II (2016) [MP3|320 кб/с] <Downtempo, Chillout, Acou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720433.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Bobina - Speed Breaker (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720310.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Hypnotix - Star Gates (2006) 2CD, mCITY Edition 2016 [MP3|320 кб/с] <Electron
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720308.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Woman Trance Voices Vol. 13 (2015) [FLAC|Lossless|tracks+.cue] <Trance, Pro
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720177.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Armin van Buuren - A State Of Trance Festival (Warm Up Sets) (2016) [FLAC|L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720174.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Dark Club Vol.4 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719642.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - The Ultimate Euphoric Trance Vol. 9 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719640.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - ROHS! - Netlabel Collection (2008-2017) (2018) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719637.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719247.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719154.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Beach Grooves Maretimo Vol.2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Beach Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719147.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Beach Grooves Maretimo Vol.2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Beach Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:948285166DF911172EFCE9B590C2A9B997797E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400208   (719146) от 05.08.2020
-
-VA - Nothing But... Funky Groove, Vol. 10 (2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WeAreTwo - Could Have Been Us (Dreamell Remix) [05:09]
-02. Bruce Sheroy - Bai Fen Bai (DJ Tecklogix Remix) [05:00]
-03. Walter Gardini - In The Deep [04:51]
-04. JoioDJ - Sensuality (H@K Club Mix) [07:52](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2BD710A9F700313E981BDA65E6287D24B20B88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400427   (719145) от 05.08.2020
-
-The Violent Youth - Там, где нас нет (2020) [MP3|320 Kbps] <New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хорошо одному [00:03:27]
-02. Танцуй [00:02:55]
-03. Свободно [00:03:36]
-04. Там, где нас нет [00:03:19](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F8F7971BF5F6644943D66472AA699C0C6A2E4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

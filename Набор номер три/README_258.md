@@ -1,3 +1,161 @@
+###  Публикация: 1132144   (702276) от 08.05.2017
+
+Последствия / Aftermath (2017) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ожидающий прилета своей семьи Роман узнает, что случилось непоправимое. Произошла авиакатастрофа и его любимые — жена и беременная дочь — погибли.
+Потеряв тех, ради кого жил, он преследует единственную цель: посмотреть в глаза невольного убийцы и услышать слова сожаления. Более года поиска приводит Романа к авиадиспетчеру Джейку, управлявшему курсом самолета в момент (   Читать дальше...   )Производство: США, Emmett/Furla Films, Hat and Cat ProductionsЖанр: Триллер, ДрамаРежиссер: Эллиотт ЛестерАктеры: Арнольд Шварценеггер, Мэгги Грэйс, Кевин Зегерс, Скут МакНэри, Ханна Уэр, Мариана Клавено, Гленн Моршауэр, Ларри Салливан, Мартин Донован, МоПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B630A77234A5C2E91FC13C8652FF8D91D2CCA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132102   (702275) от 08.05.2017
+
+Adobe Photoshop CC 2017.1.1 (20170425.r.252) Portable by XpucT [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC — многофункциональный графический редактор, разработанный и распространяемый фирмой Adobe Systems. В основном работает с растровыми изображениями, однако имеет некоторые векторные инструменты. Продукт является лидером рынка в области коммерческих средств редактирования растровых изображений и наиболее известным продуктом фирмы Adobe.Язык интерфейса: Русский и английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A534A690CE1CC029C729D826EEFD8A8D675B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220281   (702197) от 20.04.2018
+
+В России начинают внедрять системы распознавания граждан
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Власти приступили к активному развертыванию системы распознавания лиц, позволяющей задерживать граждан, находящихся в федеральном розыске. Пилотный проект запущен в московском метро, на ряде железнодорожных вокзалов и на многих стадионах. Эксперты говорят про потенциальные неудобства для рядовых граждан.В марте этого года в столичной подземке запущена система распознавания (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220573   (702107) от 20.04.2018
+
+Клименко извинился за действия Роскомнадзора при блокировке Telegram, из-за которых пострадал ряд компаний
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ситуацию вокруг блокировки Telegram прокомментировал в эфире НТВ советник президента по вопросам развития Интернета Герман Клименко. Он посоветовал Роскомнадзору действовать аккуратнее, а также извинился за действия ведомства, из-за которых пострадал ряд компаний.Специалисты Роскомнадзора выгрузили четыре принадлежащих Telegram подсети, но мессенджер стал менять (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220408   (702105) от 20.04.2018
+
+Опубликованы подробности заражения утилиты CCleaner вредоносным ПО
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Avast опубликовала краткую хронику инцидента со взломом Piriform.
+В прошлом году популярное программное обеспечение для очистки систем CCleaner подверглось масштабной атаке, в ходе которой хакеры скомпрометировали серверы компании Piriform и заменили легитимную версию утилиты на вредоносную. Вредоносное ПО инфицировало более 2,3 млн пользователей, загрузивших (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220570   (702019) от 20.04.2018
+
+Роскомнадзор добрался до серверов Microsoft (Четвертый день блокады)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскомнадзор добавил в реестр запрещенных сайтов десятки тысяч IP-адресов облачных серверов Microsoft. Об этом свидетельствуют данные из неофициальной копии выгрузки реестра.Под блокировку попала подсеть из 131 тысячи IP-адресов, 32 тысячи из которых принадлежат облачной платформе Microsoft Azure.Роскомнадзор 17 апреля заблокировал более 2,5 миллиона IP-адресов. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220587   (702007) от 20.04.2018
 
 Специалист | Web - мастеринг. Настройка web - серверов (2018) PCRec
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702007.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Adobe Premiere Pro CC 2018 12.1.1.10 RePack by KpoJIuK  [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702001.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Far Cry 5 (2018) [Ru/En] (1.4.0) Repack R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701997.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Autodesk 3ds Max 2019 [Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701996.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_701710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701710.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_701598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701598.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ Diablo 2 / Median XL [En/Ru] (Mod) 2010 | СЕНА
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_701518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701518.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ Windows 7 professional lite X86&64 black edition Activated  v.06.15.10
 >>23
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_701517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701517.jpg" />
 </div>
 
 
@@ -216,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701498.jpg" />
 </div>
 
 
@@ -242,7 +400,7 @@ Arcsoft TotalMedia Theatre 6.7.1.199 Final [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701494.jpg" />
 </div>
 
 
@@ -268,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701492.jpg" />
 </div>
 
 
@@ -294,7 +452,7 @@ Rebel Galaxy (2015) [Ru/Multi] (1.08 Hotfix) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701417.jpg" />
 </div>
 
 
@@ -320,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_701104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701104.jpg" />
 </div>
 
 
@@ -347,7 +505,7 @@ Kaspersky Internet Security 2020 21.1.15.500 (без KSeC) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701031.jpg" />
 </div>
 
 
@@ -374,7 +532,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.08.13
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701028.jpg" />
 </div>
 
 
@@ -400,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700863.jpg" />
 </div>
 
 
@@ -426,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700784.jpg" />
 </div>
 
 
@@ -452,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700573.jpg" />
 </div>
 
 
@@ -478,7 +636,7 @@ Microsoft Office 2016 Professional Preview 16.0.3930.1008 [Ru/En] (онлайн-
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700571.jpg" />
 </div>
 
 
@@ -504,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>53
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700570.jpg" />
 </div>
 
 
@@ -515,169 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C451A31EB71F1B47D1D085EBC2CCCF1D74213F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220664   (700303) от 21.04.2018
-
-Команда МГУ впервые победила на студенческом чемпионате мира по программированию
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_700303.jpg" />
-</div>
-
-
-###  Подробнее
-
-В международном соревновании по программированию победила российская команда из МГУ.
-Призовые места также заняли еще три команды из России: МФТИ, Университет ИТМО и УрФУ
-Команда Московского государственного университета (МГУ) заняла первое место на чемпионате мира по спортивному программированию ACM ICPC (International Collegiate Programming Contest) в Пекине. Команде (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132610   (700232) от 09.05.2017
-
-BELite (x86/x64) v.08.05.17 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с Windows 10 Version 1703 (x86/x64) в Offline-Режиме.
-Вашему вниманию представлена версия программы BELite v.08.05.17.
-Программа предназначена для обработки файла install.wim. Вам нужен оригинальный образ операционной системы Microsoft Windows 10 Version 1703 (x86/x64), из образа нужно скопировать файл install.wim в папку с установленной программой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFADAE7AF6D6CF917C5E054151A11CFC82711E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132429   (700212) от 09.05.2017
-
-CorelDRAW Graphics Suite 2017 19.0.0.328 HF1 Special Edition RePack by -{A.L.E.X.}- [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непревзойденные возможности CorelDRAW Graphics Suite 2017 в сочетании с вашими творческими способностями — прекрасная основа для проектов по созданию макетов, разработке веб-сайтов и редактированию фотографий. Пакет оснащен расширенной поддержкой Windows 10, мультидисплейным режимом просмотра и поддержкой мониторов 4K. Продукт позволяет дизайнерам самых разных уровней (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1637DFC64A516A1F811EFC674BB94A149F84C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132153   (700200) от 09.05.2017
-
-Семейное ограбление / Mes tresors (2017) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анжела и Анжелика — две абсолютно разные девушки, которые не имеют ничего общего. Кроме, разве что, отца, которого они никогда не видели. И вот однажды он появился в их жизни. Вор международного масштаба решил наверстать упущенное, создав с дочерьми безумную команду, чтобы совершить ограбление века. И все бы ничего, только гениальный план Патрика дает сбой, и все (   Читать дальше...   )Производство: Франция, Canal+, Forecast Pictures, Orange Cinema SeriesЖанр: КомедияРежиссер: Паскаль БурдьоАктеры: Жан Рено, Рем Кериси, Камиль Шаму, Бруно Санчес, Паскаль Демолон, Жан Ренес, Марион Брие, Юже Тьерри, Зина ЕсепчукПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D174A6C1A6C3B4861EB2B53C31EB38716C4C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220515   (700177) от 21.04.2018
-
-РАДИВА 2018.04.20 S18.8 Portable [Ru] (Авторская обновляемая раздача)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет радиоприёмник с аскетичным дизайном.
-Поддержка персональных станций 101.ru.
-Удобное редактирование списка. Поддержка до 7 адресов на одну радиостанцию.
-Три звуковых движка Bass, Winamp, Flash. DSP эффекты Winamp (Поддержка в Bass движке)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046F0F1089C622765E12A5F1BAF9638BA888B2ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220652   (700044) от 21.04.2018
-
-Утверждён объём хранения трафика по закону Яровой
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_700044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правительство РФ приняло постановление № 445 «Об утверждении Правил хранения операторами связи текстовых сообщений пользователей услугами связи, голосовой информации, изображений, звуков, видео- и иных сообщений пользователей услугами связи», в котором наконец-то разъяснило технические детали, как именно операторы связаны выполнять пресловутый пакет законов Яровой-Озерова, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1714388   (111720) от 09.04.2024
-
-Still Corners - Dream Talk (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Today is the Day
-02 – The Dream
-03 – Faded Love
-04 – What is Real(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0778E039DB39E4082CE6DE61A79F4F4D84275D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714392   (111718) от 09.04.2024
 
 Five Finger Death Punch - AfterLife (2022) Deluxe, 2024, Better Noise Music [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
@@ -35,7 +6,7 @@ Five Finger Death Punch - AfterLife (2022) Deluxe, 2024, Better Noise Music [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111718.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Mahmut Orhan - Pangea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111715.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Kenya Grace - The After Taste (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111712.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ The Fiery Lights - 1982 (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111676.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Rick Vito - Cadillac Man (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111675.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Blue Lavinia - Don't Take It (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111674.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111668.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Sam Morrow - On The Ride Here (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roots 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111666.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Storm - Nordavind (1995) [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking, Folk M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111663.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ The Mind Sweepers - All This Too Shall Pass (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111653.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ The Dirty Nil - Free Rein To Passions (2023) Deluxe, 2024, Dine Alone Records [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111652.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Hubert Dorigatti - The Nashville Sessions (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111650.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Charlie Parr - Little Sun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Fol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111649.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Nienke Dingemans - Ain't No Hollywood Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111612.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111605.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111601.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Chris Brown - 11:11 (Deluxe) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&b, So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111598.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Storm Seeker - Live in Stuttgart (2023) (Live) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111593.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC 16/24|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111574.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Jay Heye - Smooth & Easy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111537.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Linkin Park - Papercuts (2024) Singles Collection 2000-2023 [FLAC 24/44.1, 48.0,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111511.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Armin van Buuren - Breathe In (2024) Extended Edition [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111472.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ S-Tool (Severing Tool) - Studio Albums (2 releases) (2017-2020) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111466.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ Black Country Communion - Red Sun; Stay Free (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111450.jpg" />
 </div>
 
 
@@ -727,7 +698,7 @@ Armin van Buuren - Feel Again, Pt. 2 (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111440.jpg" />
 </div>
 
 
@@ -738,6 +709,35 @@ Armin van Buuren - Feel Again, Pt. 2 (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D1065ADB6E692A5666DB3857FFCD3EA6CB51DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716009   (111430) от 13.04.2024
+
+Too Close To Touch - For Keeps (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Novocaine [4:56]
+02 - Disappear [4:03]
+03 - Hurt Reynolds [3:31]
+04 - Hopeless [3:58](   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2FA93EF3FF6579809B26F2E17DD952451FC5981
 ```
 
 https://mybot314.ru/tekegram_catalog/

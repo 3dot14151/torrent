@@ -6,7 +6,7 @@ Harold Lopez-Nussa - El Viaje (2016) Mack Avenue [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448809.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Don Elliott - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448808.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Felix Slovacek - A Jeho Beatles (1996) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448738.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Randy Brecker & Eliane Elias - Amanda (1985) Passport Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448583.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Artie Shaw - The Essential Artie Shaw (1938 - 1953) 2CD, 2005, RVG [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448571.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Eliane Elias, Bob Brookmeyer & The Danish Radio Jazz Orchestra - Play The Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448423.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Matthieu Bore - Sometimes On My Own (2010) Bonsai Music [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448414.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Marcus Miller - A Night In Monte-Carlo (2010) [FLAC|Lossless]<Jazz, Funk, Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_447854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447854.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Sidney Bechet - Petite Fleur (1932-1957) 3CD /2014, Le Chant Du Monde/[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447343.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Lillian Boutte - The Jazz Book (1994) Blues Beacon Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447307.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ The Charlie Byrd Quintet - Du Hot Club De Concord (1995) Concord Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447301.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Harold Lopez-Nussa - Un Dia Cualquiera (2018) Mack Avenue [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446744.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Oscar Peterson, Stephane Grappelli - Skol (1979) 1990, Original Jazz Classics [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446739.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Pharoah Sanders - Spiritual Blessings (2013) Jazzclub [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446615.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Jazz For Weddings (2007) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446614.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Sweet Jazz Soul (1997) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446592.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Barbara Morrison - Live at the 9:20 Special (2002) Springboard Production [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446583.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Newropean Jazz Quartet (Danilo Memoli Trio,Ralph Reichert) & Ruth Young - Early 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446576.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Midnight Serenaders - A Little Keyhole Business (2013) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446451.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Chris Connor - Sings Ballads of the Sad Cafe (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446417.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Joachim Kuhn - Springfever (1976) 2008, Wounded Bird [APE|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446355.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Mel Torme - The Mel Torme Collection 1944-1985 (1996) BoxSet 4CD[FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446234.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Charlie Parker - Chasin' The Bird (1940-e - 1950-e) 4CD, 2005, Proper Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446213.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Norah Jones - Little Broken Hearts [SHM-CD] [Limited Pressing] [Japan Bonus Trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446146.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Stanley Clarke, Lenny White and Hiromi Uehara - Jazz In The Garden (2009) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445966.jpg" />
 </div>
 
 
@@ -762,7 +762,7 @@ VA - Jazz vocal - Favorites Collection (1994) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445848.jpg" />
 </div>
 
 

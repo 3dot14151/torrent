@@ -1,3 +1,55 @@
+###  Публикация: 1432709   (162562) от 18.12.2020
+
+PotPlayer 1.7.21397 (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162562.jpg" />
+</div>
+
+
+###  Подробнее
+
+PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACD05F4619AD08F2B394ABEE5DDDDB73DBD0989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471154   (162478) от 15.12.2021
+
+Call Recorder - SKVALEX v3.4.9 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call Recorder - SKVALEX предназначен для автоматической записи звонков. Программа предоставляет функцию записи двух сторон на устройствах с такой поддержкой. Но некоторые устройства не поддерживают двустороннюю запись разговоров или имеют проблемы с записью через Bluetooth-гарнитуру.Тип издания: Пиратка (Full)Релиз состоялся: 28 августа 2021 г.Разработчик: SKVALEX AppsПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF1829A31EF0D4670474633248B0C2401FB6443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420020   (162472) от 18.12.2020
 
 Мандалорец / The Mandalorian (2020) WEBRip [H.264/1080p] (сезон 2, серии 1-8 из 8) [En/Ru Sub]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162472.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Tropico 6 (2019) [Ru/En] (1.11/dlc) Repack xatab [El Prez Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162456.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_162454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_162454.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_162265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_162265.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162219.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161858.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161627.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161225.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160875.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160502.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160486.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159911.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ The Bat! Professional 10.3.3 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159707.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Akiba Maid Sensou / Akiba Maid War / Война горничных Акибы [2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159492.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159475.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Spy x Family | Семья шпиона [2022, TV, 25 эп.] WEBRip 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159473.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_159409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_159409.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Samsung на 10 % подняла цены на свою флеш-памяти 3D
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_159172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_159172.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159163.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159109.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ YouTube в войне с блокировщиками рекламы наруш�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_159106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_159106.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ CleanMyMac X 4.12.3 U2B [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159101.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ Microsoft® Windows® 11 x64 Ru 23H2 4in1 Upd 11.2023 by OVGorskiy
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159048.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_158870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_158870.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569089   (158769) от 26.12.2022
-
-Doma TV Net Pro v4.3 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите то, что интересно, 24 часа в сутки без выходных и праздников. ТВ доступно в хорошем качестве для людей с различными предпочтениями. Дома ТВ Нет обязательно понравится всем без исключения. Настало время ощутить преимущества настоящего телевидения, каким оно должно быть в интересах зрителя!Тип издания: AdfreeРелиз состоялся: 17 декабря 2022Разработчик: domanetvПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D261DA2403D81DCC5598DB4638A27B7EF6823D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663697   (158719) от 12.11.2023
-
-Кибердеревня (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158719.jpg" />
-</div>
-
-
-###  Подробнее
-
-2100 год. Николай счастливо живет с семьей в кибердеревне на Марсе. Он спокойно ведет роботизированное хозяйство, пока на планету не прилетает руководитель огромной корпорации — Барагозин, который хочет построить на месте деревни новый завод. Николай отправляется в полное опасностей и приключений путешествие до Земли, чтобы спасти свой дом.Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Григорий Скряпкин, Сергей Бурунов, Артем Семакин, Елена Махова, Влада Лукина, Маргарита Силаева, Сергей Фёдоров, Григорий Столбов, Зоя МансуроваСубтитры: Русские (Full, SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5FA46EE8C86EA411B2C95CBD50902BFB758C70
 ```
 
 https://mybot314.ru/tekegram_catalog/

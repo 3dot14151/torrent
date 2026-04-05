@@ -6,7 +6,7 @@ VA - Осенний марафон № 194 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462055.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Robbie Williams - Party Like A Russian (2016) WEB-DL [MPEG-4/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461385.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Beat Club - Progressive Times - Vol7. 1971-72 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461351.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Beat Club - Progressive Times - Vol8. 1972 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461254.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Shanell - Touch Me Daddy (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460735.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Sika - Love Kills (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460733.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Antonia - Jameia (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460729.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460572.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ INNA feat Play & Win - INNdiA (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460330.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Callejon - Gottficker, Metropolis (2 Клипа) (2020) WEBRip [H.264/VP9/1080p/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460097.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460086.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Little Big - Tacos (2020) WEBRip [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459951.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ BIFFGUYZ feat Bovie & Rox - Я тебя Бум Бум Бум (2012) [H.264/1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459652.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459477.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Havana Brown - You`ll Be Mine (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458367.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Shockolady feat. Mr. Smith - I Like It Like That (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458365.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Legends Disco Star-80 (2009) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458069.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456447.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ LeAnn Rimes - Can't Fight The Moonlight (2007) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456154.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ ATB - Could You Believe (2010) [1080p / 1080i] HDTVRip (Trance)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456112.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455017.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453773.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453750.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Galena ft Costi - Chik Chik (Mnogo mi otivash) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453457.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Diplo & Datsik feat. Kay - Pick Your Poison (2011) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453324.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Chelsea Bishop - Bad Things (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453319.jpg" />
 </div>
 
 

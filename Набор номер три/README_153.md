@@ -1,3 +1,159 @@
+###  Публикация: 946328   (839156) от 05.04.2016
+
+Ходячие мертвецы / The Walking Dead  (2015) WEB-DL [H.264/1080p-LQ] (сезон 6, серии 1-16 из 16) Fox Crime
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839156.jpg" />
+</div>
+
+
+###  Подробнее
+
+После страшной болезни, превратившей жителей Земли в зомби, небольшая группа пока еще живых людей изо дня в день борется за выживание в новом, враждебном мире. Под предводительством бывшего полицейского Рика они ищут безопасное для жизни место, но зомби — это не самое страшное, что их ждет, основная опасность — это жестокое внутреннее соперничество среди выживших.Производство: США / American Movie Classics (AMC), Circle of Confusion, Valhalla Motion PicturesЖанр: ужасы, драмаРежиссер: Грег Никотеро, Эрнест Р. Дикерсон, Гай ФерлендАктеры: Эндрю Линкольн, Стивен Ян, Чендлер Риггз, Норман Ридус, Мелисса Сюзанн МакБрайд, Лорен Кохэн, Данай Джекесай Гурира, Сонекуа Мартин-Грин, Эмили Кинни, Аланна Мастерсон и др.Перевод: Многоголосый закадровый, профессиональный - Fox CrimeПродолжительность: ~00:43:00 серия (01:04:00 первая серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D21B29D392F2E7206A96AD39E19E536FB14CCE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112718   (839147) от 10.03.2017
+
+NetDrive 2.6.13 Build 938 [Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839147.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetDrive позволяет подключить удаленные облачные хранилища данных, в том числе FTP, WebDAV и NAS, в виде локального или сетевого диска, для осуществления доступа через обычный проводник. Утилита будет полезна пользователям, которые очень часто работают с данными удаленно. Интуитивно понятный интерфейс и хороший набор функций делают ее понятной и простой в использовании. (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63D0622715C5CE9EBCA0782DEFE0F84045DF1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112856   (839144) от 10.03.2017
+
+Maxon CINEMA 4D Studio R18.041 Portable by soyv4 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinema 4D является профессиональным редактором 3D графики, как раз для ваших потребностей. Если вы профессионально работаете с 3D графикой и хотите быстро и с легкостью достичь потрясающего результата, то это - ваш выбор. Легко изучаемая и чрезвычайно мощная: Cinema 4D является идеальным пакетом для всех художников трёхмерной графики, которые хотят добиваться захватывающих (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5156A29163D8EEBC71838B0DF2A8B959C586B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112980   (839140) от 10.03.2017
+
+Adobe Master Collection CC 2017 RUS/ENG Update 1
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как, надеюсь, вам известно, пакета Adobe Master Collection CC 2017 в природе не существует, компания Adobe его никогда не выпускала. Но, тем не менее, он перед вами! Я очень постарался, чтобы этот пакет появился на свет. Он представляет из себя сборник программ линейки Creative Cloud 2017, объединенных старым добрым инсталлером с возможностью выбора компонентов и (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28EA786BBE21325B4A18C1B93099A23AD7D0E174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113040   (839138) от 10.03.2017
+
+The Witcher 3: Wild Hunt / Ведьмак 3: Дикая охота (2015) [Ru/En/Pol] (1.31/dlc) Repack R.G. Механики [Game of the Year Edition]
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839138.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ведьмак 3: Дикая Охота» – ролевая игра нового поколения, действие которой разворачивается в удивительном фэнтезийном мире, где необходимо принимать сложные решения и отвечать за их последствия. Мир охвачен войной. Армия империи Нильфгаард стирает все на своем пути, стремясь добраться до самого сердца Северных королевств.Тип издания: RepackРазработчик: CD Projekt REDЖанр: RPG, 3D, 3rd PersonЯзык озвучки: Русский, Английский, ПольскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB437A1459446B674BAF8250D601E02582C0330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379228   (838870) от 29.04.2020
+
+Регистрация устройств по заводскому номеру может стать обязательной в 2021 году
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_838870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Власти могут ввести обязательную регистрацию мобильных телефонов по заводскому номеру (IMEI) в середине 2021 года. По новой версии законопроекта, которая проходит согласование в администрации президента, платной процедура будет только для новых устройств, требование распространится в том числе на граждан, ввозящих смартфоны из-за границы самостоятельно. Это должно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379511   (838863) от 29.04.2020
 
 Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4993.1002 VL (x86) RePack by SPecialiST v20.4 [Ru/En]
@@ -6,7 +162,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4993.1002 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838863.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838862.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>15
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_838859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_838859.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838853.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое Небо / Lost World R
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838790.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838474.jpg" />
 </div>
 
 
@@ -165,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837959.jpg" />
 </div>
 
 
@@ -193,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837955.jpg" />
 </div>
 
 
@@ -219,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_837836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_837836.jpg" />
 </div>
 
 
@@ -247,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_837762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_837762.jpg" />
 </div>
 
 
@@ -275,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_837639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_837639.jpg" />
 </div>
 
 
@@ -301,7 +457,7 @@ Vivaldi 1.0.435.40 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837609.jpg" />
 </div>
 
 
@@ -327,7 +483,7 @@ Opera 12.17 & 11.64 Final RePack by Mellomann [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837520.jpg" />
 </div>
 
 
@@ -353,7 +509,7 @@ DiRT Rally (2015) [Ru/Multi] (1.1) License RELOADED
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837516.jpg" />
 </div>
 
 
@@ -379,7 +535,7 @@ Kaspersky Endpoint Security 10.2.4.674 sp1 (mr2) RePack by alex zed (06.04.2016)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837513.jpg" />
 </div>
 
 
@@ -405,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837509.jpg" />
 </div>
 
 
@@ -431,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837508.jpg" />
 </div>
 
 
@@ -457,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837506.jpg" />
 </div>
 
 
@@ -483,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837505.jpg" />
 </div>
 
 
@@ -510,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837504.jpg" />
 </div>
 
 
@@ -521,162 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8656C1B891D71DEB355E124FE98F13405CB2455B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938176   (837503) от 06.04.2016
-
-PES 2016 / Pro Evolution Soccer 2016 (2015) [Ru/En] (1.04.00/dlc) Repack =nemos=
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837503.jpg" />
-</div>
-
-
-###  Подробнее
-
-PES 2016 / Pro Evolution Soccer 2016 - Удостоенная многих наград игровая серия возвращается в свою 20-ю годовщину с новыми функциями. В игре PES 2016 представлено множество новых и улучшенных функций, которые непременно снова поднимут планку среди всех футбольных игр и позволят сохранить звание «Лучший спортивный симулятор». PES 2016 — официальная видеоигра Лиги (   Читать дальше...   )Тип издания: RepackРазработчик: Konami Computer Entertainment TokyoЖанр: Sport (Soccer), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86905A11EED0EF2266556A4E39B4F050B1738035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946648   (837502) от 06.04.2016
-
-Ходячие мертвецы / The Walking Dead (2015) WEB-DL [H.264/720p-LQ] (сезон 6, серии 1-16 из 16) LostFilm
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалиптических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Производство: США / American Movie Classics (AMC), Circle of Confusion, Valhalla Motion PicturesЖанр: ужасы, драмаРежиссер: Грег Никотеро, Эрнест Р. Дикерсон, Гай ФерлендАктеры: Эндрю Линкольн, Стивен Ян, Чендлер Риггз, Норман Ридус, Мелисса Сюзанн МакБрайд, Лорен Кохэн, Данай Джекесай Гурира, Сонекуа Мартин-Грин, Эмили Кинни, Аланна Мастерсон и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:43:00 серия (01:04:53 первая серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800A5C18A4F5180140D71556477DCD203DA53B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113569   (837493) от 11.03.2017
-
-Homefront: The Revolution (2016) [Ru/En] (1.078.1055/dlc) Repack R.G. Механики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Homefront: The Revolution – это шутер от первого лица, в котором вы должны возглавить силы Сопротивления в партизанской войне против превосходящих сил противника. Все ваши действия будут влиять на живой, дышащий открытый мир – ваша ячейка Сопротивления и вы сможете вдохновить угнетённых гражданских на восстание и превратить оккупацию в революцию.Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D59B46CA79400F8A561A6E5CB9AA46A59C871E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113416   (837492) от 11.03.2017
-
-Дьявол во тьме / Devil in the Dark (2017) WEB-DLRip [MVO] [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два брата отправляются в лес прогуляться и поохотиться. Но вскоре получается так, что кто-то или что-то начинает охотиться на нихПроизводство: Канада, Co-Pilot Film ServicesЖанр: Ужасы, ТриллерРежиссер: Тим БраунАктеры: Дэн Пэйн, Робин Данн, Бриана Бакмастер, Дэниэл КадморПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:22:21Реклама: Присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D04F27313027FED6F36F2758472163C3F7DEE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113292   (837490) от 11.03.2017
-
-Adobe After Effects CC 2017.1 14.1.0.57 RePack by KpoJIuK (09.03.2017) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837490.jpg" />
-</div>
-
-
-###  Подробнее
-
-After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAD2793737C76D29761D4AB69A1A6065E25D81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113266   (837487) от 11.03.2017
-
-Кредо убийцы / Assassin's Creed (2016) WEB-DL [H.264/1080p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря революционным технологиям, позволяющим вызвать в памяти воспоминания прежних поколений, Каллум Линч проживает приключения своего предка Агилара в Испании 15-го века. Каллум узнает, что является потомком членов загадочного тайного общества ассасинов. Накопив невероятные знания и навыки, он вступает в противостояние с могущественной и жестокой организацией (   Читать дальше...   )Производство: Великобритания, Франция, Гонконг, США, Тайвань, Мальта, Канада / Regency Enterprises, Ubisoft, New Regency Pictures, Ubisoft Motion Pictures DMC Film Kennedy/Marshall Company, The RatPac Entertainment, Alpha Pictures, CatchPlay, Monarchy Enterprises S.a.r.l., Helicopter Film, Services Latina PicturesЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Джастин КурзельАктеры: Майкл Фассбендер, Марион Котийяр, Джереми Айронс, Брендан Глисон, Шарлотта Рэмплинг, Майкл Кеннет Уильямс, Дени Меноше, Ариана Лабед, Халид Абдалла, Эсси Дэвис ...Перевод: Дублированный (Line)Субтитры: Русские (Full), Английские (Forced, Full)Продолжительность: 01:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F38B8ADB87DDF65D77DCED9CCA557F2A3B9677C
 ```
 
 https://mybot314.ru/tekegram_catalog/

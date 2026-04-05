@@ -1,3 +1,159 @@
+###  Публикация: 1754832   (40571) от 12.10.2024
+
+Моя девушка - спецагент / Chilgeup gongmuwon (2009) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет агент по туризму Ан Су Джи является правительственным шпионом. Она не может раскрыть правду своему парню Ли Джэ Джуну. После её очередной лжи, парень уходит от неё, оставляя страдать в одиночестве. Через три года они сталкиваются, когда Ан Су Джи выслеживает промышленного шпиона, скрываясь в должности уборщицы. Он не ожидал встретить её уборщицей в отеле, (   Читать дальше...   )Производство: Южная Корея / DCG Plus, Harimao PicturesЖанр: комедия, мелодрама, боевикРежиссер: Щин Тхэ-раАктеры: Ха Ныль Ким, Чжи Хван Кан, Сын Рён Рю, Ён Нам Чан, Хён Бом Ким, Син Иль Кан, Сон Мин Пак, Коди Хантер, Элизабет Суджин Форд, Гутсу ИлианаПеревод: любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: 01:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF6AFB1A58DCB758FE80A3C43A165E0B5B325F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754917   (40511) от 13.10.2024
+
+Чародей и Белая Змея / Bai she chuan shuo / The Sorcerer and the White Snake (2011) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на старейшей легенде о Белой Змее. Действие происходит в древнем Китае, во времена обостренного конфликта между людьми и демонами. Противостоять демонам могут только буддийские монахи: они борются с бесами и защищают людей. Могущественный демон Белая Змея неожиданно для себя спасает молодого ученика монаха, врача-травника Сюй Сяня и влюбляется в него. (   Читать дальше...   )Производство: Китай, Гонконг / Juli Entertainment MediaЖанр: фэнтези, боевик, мелодрамаРежиссер: Тони ЧинАктеры: Джет Ли, Ева Хуан, Рэймонд Лам, Чарлин Чой, Вэнь Чжан, Вивиан Сюй, Мириам Юн, Лау Ка-Ин, Лам Сует, Чэпман ТоПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, китайский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A4FBCD393EB925953B00108AE178BA1AC6559E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755504   (40208) от 16.10.2024
+
+Криминальный город. Возмездие / Beomjoe dosi 4 / Beomjoidosi 4 / The Roundup: Punishment (2024) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40208.jpg" />
+</div>
+
+
+###  Подробнее
+
+2018 год. Расследуя убийство соотечественника на Филиппинах, детектив Ма Сок-то выясняет, что парень работал на бандитов, содержащих нелегальное онлайн-казино. Поскольку заслуженный следователь ничего не понимает в цифровых технологиях, в команду берут двух новичков из отдела расследований киберпреступлений, а консультантом — старого знакомого Чан И-су.Производство: Корея Южная / ABO Entertainment, B.A. Entertainment, Big Punch Pictures, Hong Film, Megabox Plus MЖанр: криминал, боевик, детективРежиссер: Хо Мён-хэнАктеры: Ма Дон-сок, Ким Му-ёль, Пак Чи-хван, Ли Дон-хви, Ли Бом-су, Ким Мин-джэ, Ли Джи-хун, Ким До-гон, Ким Джи-хун, Хён Бон-щикПеревод: Дублированный (Позитив), авторский (Ю. Сербин)Язык озвучки: Русский, корейскийСубтитры: русские (Forced, Full - Kyle@AsiaOne), английскиеПродолжительность: 01:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D54D2AF8A079867018FB395F6667A0F87875225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755564   (40187) от 16.10.2024
+
+Безжалостный / Bulhandang: nappeun nomdeului sesang / The Merciless (2017) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40187.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о верности и предательстве между лидером заключенных и полицейским под прикрытием / заключенным, которые объединяются, чтобы захватить банду. В центре сюжета главный герой Хен су, полицейский под прикрытием, и Хан Чжэхо, лидер заключенных.Производство: Корея Южная /	Barunson, CJ Entertainment, Pollux BarunsonЖанр: драма, криминал, боевик, триллерРежиссер: Пён Сон-хёнАктеры: Соль Гён-гу, Им Щи-ван, Ким Хи-вон, Чон Хе-джин, Ли Гён-ён, Мун Джи-юн, Чан Ин-соп, Хо Джун-хо, Ким Сон-о, Пак Су-ёнПеревод: дублированныйЯзык озвучки: русский, корейскийСубтитры: русские (надписи и полные), английскиеПродолжительность: 02:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76B9E66D1CE8DC53D263DA6D5F7277491C7CAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755409   (40144) от 17.10.2024
+
+Пилотка / Pilot (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чжон Ву превращается из успешного и популярного пилота в безработного в одно прекрасное утро. Однако ему удается найти новую работу после того, как он случайно принял на себя только что отмытую личину, переодевшись женщиной и используя имя своей сестры.Производство: Корея Южная / Lotte Entertainment, Movie RockЖанр: комедияРежиссер: Ким Хан-гёльАктеры: Чо Джон-сок, Ли Джу-мён, Хан Сон-хва, Щин Сын-хо, Хён Бон-щикПеревод: Многоголосый любительский (LE-Production)Язык озвучки: Русский, КорейскийСубтитры: АнглийскиеПродолжительность: 01:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E791CEC4A8C77C4A728AFFC8C68EFE35709CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755744   (40053) от 17.10.2024
+
+Друг 2. Наследие / Chingu 2 (2013) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чун-сок и Тон-су были друзьями с детства. Но судьба распорядилась так, что они стали членами двух враждующих бандитских группировок. Тон-су жестоко убивают и обставляют дело так, будто заказчиком убийства был Чун-сок, который берёт на себя вину за смерть друга, потому что считает, что мог предотвратить убийство. Его приговаривают к 18 годам тюрьмы. У Тон-су остается (   Читать дальше...   )Производство: США, Южная Корея / Trinity EntertainmentЖанр: драма, криминал,боевикРежиссер: Кён Тхэк КвакАктеры: У Бин Ким, О Сон Ю, Чжин Мо Чу (I), Ён Нам Чан, Хо Бин Чон, Сын Хён Чжи, А Ин Пак, Чжи Хёк Мин, Чжу Бон Ки, Хан На Кан, Чжун Хёк Ли (II), Чхоль Мин Ли (I)Перевод: профессиональный двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские (ФСГ Мания), английскиеПродолжительность: 02:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33687C5AD00DC522738FE9E9311D773014BB56F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755894   (40024) от 18.10.2024
 
 Экзорцизм. Изгоняющий духов / The Spirit Hunter (2024) WEBRip [H.264/1080p]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40024.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39992.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39958.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39955.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39937.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39935.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39897.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39823.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39775.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39744.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39692.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39678.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39563.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39504.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39429.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39289.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39234.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39130.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39084.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38643.jpg" />
 </div>
 
 
@@ -512,163 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE9E61856B2467DB986F56ED744CA962BA7423BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758419   (38505) от 02.11.2024
-
-Городские легенды. Возвращение / Seoul goedam / Seoulgoedam / Urban Myths (2022) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жители Сеула сталкиваются со всякими ужасами: злобными мстительными призраками, маньяками, колдовством и заразными зубными червями.Производство: Корея Южная / Megabox Plus M, ZanybrosЖанр: ужасыРежиссер: Хон Вон-гиАктеры: Ким До-юн, Ли Ёр-ым, Ли Хо-вон, Арин, Ли Су-мин, Чон Вон-чхан, Экси, Сора, Ли Мин-хёк, Ли Ён-джинПеревод: Дублированный (Moygolos)Язык озвучки: Русский, корейскийСубтитры: ОтсутствуютПродолжительность: 02:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE18707971EEFB44876C29FE8DB905CF9322D7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737771   (38462) от 03.11.2024
-
-Пришельцы / Oegye+in 1bu / Alienoid (2022) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38462.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении многих веков инопланетная раса содержит своих преступников в человеческих телах, а люди об этом даже не догадываются. Способные перемещаться во времени с помощью энергетического кинжала Охранник с роботом-помощником поставлены следить, чтобы заключённые не пришли в себя и не сбежали. В 1380 году они ловят очередного проснувшегося преступника, но у его (   Читать дальше...   )Производство: Корея Южная / Caper FilmЖанр: фантастика, боевик, приключения, фэнтезиРежиссер: Чхве Дон-хунАктеры: Рю Джун-ёль, Ким У-бин, Ким Тхэ-ри, Со Джи-соп, Ём Джон-а, Чо У-джин, Щин Джон-гын, Ли Щи-хун, Чхве Ю-ри, Чи Гон-уПеревод: Дублированный (Кипарис)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF7F7F7D22163B39DCB5B98DECF93522D17A03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758810   (38313) от 04.11.2024
-
-Покарать зло / E dao bi chu / Punish Evil (2022) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чжуан Чжицян и его банда совершают ограбление банка. Тщательно спланированная операция, занявшая всего несколько минут, принесла группировке большой куш. Уходя от преследования, грабители вступили в перестрелку с полицией и добили раненых подельников. Однако детектив Сун Хай находит достаточно улик, чтобы выйти на банду преступников.Производство: КитайЖанр: боевик, криминал, триллерРежиссер: Цзян СяотунАктеры: Чжао Да, Колин Чоу, Сяо ХаньПеревод: Дублированный (Akimbo Production)Язык озвучки: РусскийСубтитры: Английские, китайскиеПродолжительность: 01:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D3F9E16F33D9A6A17926EFD044CD4B7568F013D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759225   (37981) от 07.11.2024
-
-Я киборг, но это нормально / Ssaibogeujiman gwaenchanha (2006) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история пациентки психиатрической больницы, которая внезапно решила, что она не человек, а киборг, а рис ей есть не нужно, так как питается она от батареек. Но пациент из соседней палаты влюблён в неё и знает, что должен спасти её, убедив в том, что она человек, а никакой не киборг...Производство: Южная Корея / Joy Fund, Moho FilmsЖанр: фантастика, драма, мелодрама, комедияРежиссер: Чхан Ук ПакАктеры: Су Чжон Им, Би Рейн, Даль Су О, Чон Мён Пак, Хэ Чжин Чхве, Бён Ок Ким, Ён Нё Ли, Хо Чон Ю, Бён Ын Пак, Сын Хун Чён, До Ён Ким (I), Юн Сун Сон, Чжо Хэ Ын, Чон Юн ЛиПеревод: профессиональный многоголосый, любительский двухголосыйЯзык озвучки: русский, корейскийСубтитры: русские (два варианта), английскиеПродолжительность: 01:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940A1EFF2AB03691DD08235A34562BADCCFD4881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759603   (37751) от 09.11.2024
-
-Ночь воспоминаний / Gieokui bam / Forgotten (2017) BDRip [AV1/1080p] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с родителями и обожаемым старшим братом Ю-соком 21-летний Чин-сок переезжает в новый дом. Прежний хозяин оставил свои вещи в одной комнате, и отец говорит сыновьям в неё не заходить, но Чин-сок постоянно слышит оттуда странные звуки. Парень готовится к экзаменам и принимает таблетки, поэтому семья считает, что это ему слышится. Однажды на глазах младшего брата (   Читать дальше...   )Производство: Корея Южная / B.A. Entertainment, Megabox Plus MЖанр: детектив, триллер, криминалРежиссер: Чан Хан-джунАктеры: Кан Ха-ныль, Ким Му-ёль, Мун Сон-гын, На Ён-хи, Нам Мён-нёль, Ли На-ра, Ан Мин-ён, Ён Джэ-хён, Пак Чхэ-ик, Квон Хён-джунПеревод: Многоголосый любительский (Колобок), Двуголосый любительский (Храм Дорам, SoftBox)Язык озвучки: русский, корейскийСубтитры: английский, корейскийПродолжительность: 01:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313A543165BD95B29C215FB23F1639F23C630ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759765   (37715) от 10.11.2024
-
-Одержимая / Possession: Kerasukan (2024) WEB-DL [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремейк французского фильма Одержимая / Possession (1981).
-Фарис только что вернулся из армии. Он ждал теплой встречи, но возвращение внезапно было омрачено, просьбой жены Ратны о разводе. Фарис решив узнать правду, начинает следить за ней. Сначала он подозревает, что в этом замешан мужчина, но постепенно замечает, всё больше и больше странного поведения и причудливых (   Читать дальше...   )Производство: Индонезия / Falcon Black Pictures, Falcon PicturesЖанр: ужасы, триллер, драмаРежиссер: Робби ЭртантоАктеры: Дариус Синархръя, Карисса Перуссет, Сара Фаджира, Арсвенди Бенин Свара, Нугие, Султан Хамонанган, Ферри Салим, Ранга НаттраПеревод: Одноголосый любительский (datynet)Язык озвучки: русский, индонезийскийСубтитры: английские, индонезийскиеПродолжительность: 01:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF0039F1FDA54D060D1C44F4C56DDE1BE3066CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

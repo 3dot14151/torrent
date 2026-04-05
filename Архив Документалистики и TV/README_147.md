@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654827.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654823.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654789.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654787.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654748.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654468.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654467.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654408.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654344.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ PBS Nature: Тайная жизнь леопарда / Revealing the Leopard (20
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654343.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ PBS Nature: Собаки, которые изменили мир. Создани
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654308.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654022.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654014.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Discovery: В погоне за классикой / Chasing Classic Cars (2011)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653939.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653866.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Discovery: Анатомия тигриного укуса / Anatomy Of A Tiger B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653796.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653729.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653456.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653426.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653330.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Discovery: Выжить любой ценой / Ultimate Survival (2011) HDTVRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653230.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653135.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653097.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Discovery: Выжить любой ценой [сезон 7] / Ultimate Survival
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653037.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652649.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652567.jpg" />
 </div>
 
 

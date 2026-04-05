@@ -1,29 +1,3 @@
-###  Публикация: 1541654   (234672) от 03.04.2022
-
-Алексей Толстой, Константин Ушинский | Добрые сказки. Царевна-лягушка [Сборник] (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234672.jpg" />
-</div>
-
-
-###  Подробнее
-
-За волшебными сюжетами русской сказки всегда скрывается житейская и народная мудрость: обыкновенная лягушка оказывается заколдованной невестой, которая с помощью своего ума и волшебства смогла перехитрить жителей целого государства, а Ивану-царевичу приходит на помощь серый волк, чья смекалка не раз выручала главного героя из беды. «Царевна-лягушка», «Иван-царевич (   Читать дальше...   )Жанр: Детская литература, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD88657A09C19FD8370B661D5FC5983160864C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541645   (234612) от 03.04.2022
 
 Эдуард Шим | Читаем сами без мамы. Сказки о животных [Сборник]  (2020) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234612.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234570.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234405.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234378.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234322.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234306.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233905.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233899.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233864.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233431.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233326.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232975.jpg" />
 </div>
 
 
@@ -352,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232921.jpg" />
 </div>
 
 
@@ -379,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232841.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232830.jpg" />
 </div>
 
 
@@ -433,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232179.jpg" />
 </div>
 
 
@@ -459,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231835.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231072.jpg" />
 </div>
 
 
@@ -511,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230945.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230428.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229823.jpg" />
 </div>
 
 
@@ -593,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229770.jpg" />
 </div>
 
 
@@ -621,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229728.jpg" />
 </div>
 
 
@@ -647,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229693.jpg" />
 </div>
 
 
@@ -674,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229653.jpg" />
 </div>
 
 
@@ -686,6 +660,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C989E1E7C5C450543437EA2204D16D270448E120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267897   (229643) от 09.12.2018
+
+Иван Падерин | Сквозь огонь (1967) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Горит земля, горят камни, железо… Огонь выкатывается на воду, и пламя пляшет на стремнинах реки… Так бывает в момент вулканических извержений. Об этом ребята знают из книг или кино. А Косте Пургину, главному герою этой повести, довелось не только видеть, но и быть в круговороте такого огня, где в самом деле горели камни, железо и воспламенялась река: он очевидец (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35897E356C01FCF07BDE24A32B9E2C482D7BD0A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

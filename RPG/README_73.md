@@ -1,3 +1,55 @@
+###  Публикация: 1791563   (21480) от 14.04.2025
+
+Tower of Time (2018) [Ru/Multi] (1.4.5.11880) Repack Let'sРlay [Final Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tower of Time — удивительная игра со множеством приключений, в которую входит около 50 часов игрового времени. Все уровни в игре созданы вручную, а увлекательный сюжет раскрывается через видеовставки. Tower of Time выводит классические РПГ на совершенно новый уровень, ведь в ней гибкая система развития персонажей, тысячи предметов для сбора и снаряжения, а также (   Читать дальше...   )Тип издания: RepackРазработчик: Event HorizonЖанр: Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D4B998F129B5CDB5EC6956C89C5CC902DECD3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786080   (21406) от 15.04.2025
+
+Reignbreaker (2025) [Ru/Multi] (1.0.1 HotFix) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reignbreaker - динамичный roguelike, действие которого разворачивается в мрачном средневековом мире. Помогите отважной бунтарке Клеф одолеть элиту и прорваться в бастион самой Королевы, чтобы избавить мир от тирании. Хватайте копьё и свергайте власть! Проявите своё мастерство в бою, чтобы сокрушить армию хитроумных боевых машин и прорваться в сердце вражеской цитадели.Тип издания: RepackРазработчик: Studio FizbinЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27EE9A85DF7C21C2AB6D2C38FA1C898C38821DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788768   (21170) от 17.04.2025
 
 AI Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack Wanterlude [Deluxe Edition]
@@ -6,7 +58,7 @@ AI Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21170.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21155.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Sweep (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21153.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack seleZen [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21152.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21088.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.0.0.1/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21078.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21074.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Coridden (2025) [Ru/Multi] (1.2.3/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21069.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Slime Heroes (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21064.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21048.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21018.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20990.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16,270) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20966.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.0.5) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20908.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack FitGirl [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20858.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20729.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20721.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 17120566) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20666.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) License GOG [Soundtrack Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20664.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16.269) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20630.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Multi] (0.411.140.0/dlc) S
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20570.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (0.411.140.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20450.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.3/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20416.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56180/dlc) Repack FitGirl [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20349.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56180/dlc) Repack FitGirl [Deluxe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBF2058B52A2FAA9CC6BA774DE07F134E96A8ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793654   (20293) от 25.04.2025
-
-The Last Spell (2023) [Ru/Multi] (1.2.18.3.s.de/dlc) Repack FitGirl [Complete The Set Bundle]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под названием The Last Spell скрывается гибрид рогалика и тактической RPG с изометрическим видом. Действие разворачивается в мрачном фэнтезийном средневековье. В мире случился катаклизм из-за последней войны и участия в ней колдунов. Появился туман, превращающий людей в адских тварей.Тип издания: LicenseРазработчик: Ishtar GamesЖанр: Ролевая игра, Пошаговая, ФэнтeзиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF314FF18C1B6E6C1FA97E9DEF4CC85D7103EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793642   (20255) от 26.04.2025
-
-Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56190/dlc) Repack Other s [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возглавьте Экспедицию 33 и уничтожьте Художницу, чтобы она никогда больше не смогла нарисовать смерть. Исследуйте мир чудес, созданный на основе Прекрасной эпохи Франции, и побеждайте уникальных врагов в пошаговой ролевой игре с механикой реального времени.Тип издания: RepackРазработчик: Sandfall InteractiveЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF710840FFB2BBB1183077EF961D513E2DFE080E
 ```
 
 https://mybot314.ru/tekegram_catalog/

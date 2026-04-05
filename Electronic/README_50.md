@@ -1,3 +1,58 @@
+###  Публикация: 1156829   (1006562) от 15.07.2021
+
+Glacial Movements Records - Label-Pack 49 Releases (2006-2021) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Drone, Dark Ambient, Dub Techno, Experimental, Minimal>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Aerial View (01:05:07)Жанр: Ambient, Drone, Dark Ambient, Dub Techno, Experimental, Minimal •Продолжительность: 45:05:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D841A64E5959D59FB43C5A9AAACFBCE010B41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483854   (1006532) от 16.07.2021
+
+Conforce - Wavetable (2021) Sungate [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kawai (06:17)
+ 02. Wave Trip (07:00)
+ 03. Blofeld (06:53)
+ 04. Richocet (05:57)Жанр: Techno, Deep TechnoПродолжительность: 00:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D6FA052638630F775A483255290F88482D5569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483865   (1006525) от 16.07.2021
 
 Merv - Cordial EP (2021) Release Sustain [FLAC|Lossless|WEB-DL|tracks] <Tech House, Acid House>
@@ -6,7 +61,7 @@ Merv - Cordial EP (2021) Release Sustain [FLAC|Lossless|WEB-DL|tracks] <Tech Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006525.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Wet Basement - Electromagnetic (2021) Drift Deeper Recordings [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006522.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Faserklang - Focus On Distraction (2021) Drift Deeper Recordings [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006518.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ VA - Coffee & Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006509.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ Future Synth - Exoplanet (2021) [MP3|320 Kbps] <Synthpop, Spacesynth, Space-Disc
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006500.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ The Chikara Project - Label-Pack 19 Releases (2017-2021) [FLAC|Lossless|tracks] 
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006470.jpg" />
 </div>
 
 
@@ -178,7 +233,7 @@ laaps - Label-Pack 13 Releases (2020-2021) [FLAC|Lossless|tracks+.cue, tracks] <
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006462.jpg" />
 </div>
 
 
@@ -207,7 +262,7 @@ Stillhead - Iceberg (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006415.jpg" />
 </div>
 
 
@@ -236,7 +291,7 @@ Emancipator - Discography 37 Releases (2006-2021) Loci Records [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006356.jpg" />
 </div>
 
 
@@ -265,7 +320,7 @@ Inhmost - The Meaning Of...... (2021) re:st [FLAC 2.0|44.1/24|tracks|WEB-DL] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006286.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ Blutengel - Erlosung - The Victory of Light (2021) 2CD, Deluxe Edition [MP3|320 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006285.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ Jon Hassell - Seeing Through Sound (Pentimento Volume Two) (2020) Ndeya [FLAC|Lo
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006284.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ Dr. Atmo - Discography 18 Releases (1992-2021) Fax +49-69/450464, Logic Records,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006260.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ VA - Dream Dance Vol. 91 (2021) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006254.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ Inhmost - Discography 7 Releases (2015-2021) La Luna, Huinali, re:st [FLAC|Lossl
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006249.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ Tomoroh Hidari - The Reinterpretation of Dreams (小さな夢達 remixed) (2021)
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006159.jpg" />
 </div>
 
 
@@ -468,7 +523,7 @@ Profondita - Eternal (2021) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006109.jpg" />
 </div>
 
 
@@ -497,7 +552,7 @@ Motionfield - Discography 16 Releases (2006-2021) Autoload [FLAC|Lossless|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005980.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ Fief - I-IV (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005933.jpg" />
 </div>
 
 
@@ -555,7 +610,7 @@ Eric "The" Taylor (Resilience, Architects Of Existence) - Discography 7 Releases
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005815.jpg" />
 </div>
 
 
@@ -584,7 +639,7 @@ Frank Bretschneider | Komet - Discography 32 Releases (1996-2021) [FLAC|Lossless
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005671.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ Man With No Name - Interstate Highway (2003) [FLAC|Lossless]<Psy-Trance, Goa Tra
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005666.jpg" />
 </div>
 
 
@@ -642,7 +697,7 @@ Pole - Discography 29 Releases (1998-2021) Mute, Kiff SM, ~scape [FLAC|Lossless|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005592.jpg" />
 </div>
 
 
@@ -671,7 +726,7 @@ Access to Arasaka - Discography 16 Releases (2006-2021) Tympanik Audio, illphabe
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005566.jpg" />
 </div>
 
 
@@ -685,64 +740,6 @@ Access to Arasaka - Discography 16 Releases (2006-2021) Tympanik Audio, illphabe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EEAB70A3997CA8E8AAE73222F42233DCC05B73F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109800   (1005550) от 24.07.2021
-
-Ambidextrous - Discography 20 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Leftfield, Ambient, Downtempo, Electro>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pros and Contras (07:20)
- 02. Detour De Force (07:53)
- 03. Fozamo (05:15)
- 04. Bipolar Lights (08:52)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Leftfield, Ambient, Downtempo, Electro •Продолжительность: 19:54:49 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0B045AA352EA5DFCA138E54FFBB5CFE9E7DD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485485   (1005464) от 25.07.2021
-
-Electrypnose - Crooked House (2021) [FLAC|Lossless|WEB-DL|tracks] <PsyTech House, Techno, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Winter Sunday
-02. More Than I Give Them
-03. The Sun Winking at the Moon
-04. Crooked House(   Читать дальше...   )Жанр: PsyTech House, Techno, ProgressiveПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09490AA9A764F4DB01C317836928B0B7B0DA462D
 ```
 
 https://mybot314.ru/tekegram_catalog/

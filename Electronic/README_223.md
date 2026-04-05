@@ -1,3 +1,119 @@
+###  Публикация: 1032227   (646164) от 07.07.2016
+
+VA - Ibiza 2016 - Hot Tunes Vol.1 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daviddance - Just You (Remastered version)
+02. Mauro Cannone & Daviddance - No More (original mix)
+03. Mauro Cannone & Daviddance - Trumpet Tromba (original mix)
+04. Hakan Dundar - All We All(   Читать дальше...   )Жанр: HouseПродолжительность: 02:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E220743FC54FAFC7C9DC979255E784C3C5BDA2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032473   (646062) от 07.07.2016
+
+VA - Levitated Vol. 1 (Mixed by Manuel Rocca) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen Belg - Hammamet (Original Mix) (6:31)
+02. Alex Wright - Galactica (Original Mix) (7:06)
+03. Cyre & DJ T.H. - Ibiza Calling (Mhammed El Alami & Manuel Rocca Remix) (6:17)
+04. Blue5even - Island Paradise (Original Mix) (6:22)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BCF50F2C22967F266027ECE728EBF29F4577FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032132   (645955) от 07.07.2016
+
+VA - Wake up Tunes (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocketpunk - The Warning Wheel
+02. Dr. Ruth - Piano Sonata (Benny Knox Remix)
+03. Circuito Zeta - En Directo
+04. Mario Sacco DJ - Frenesia(   Читать дальше...   )Жанр: HouseПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271601A87336B820570F192F58C01C90AE16C81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032091   (645950) от 07.07.2016
+
+VA - Progressive Goa Trance Vol. 2 (2016) [MP3|320 Kbps] <Trance, Psy Trance, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolock -  Proggy Froggy 9:02
+02. Flucturion 2.0 -  Paper-layered Panorama 6:46
+03. Inkel -  Pulsating Vibe 7:06
+04. Nature & Norma Project -  Digital Age 7:29(   Читать дальше...   )Жанр: Trance, Psy Trance, Goa TranceПродолжительность: 02:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE7CB681515AE10F3AFB90A9F0929A3462A7CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032041   (645693) от 07.07.2016
 
 Chiptune Radio - 8-bit tribute to The Offspring (2015) [FLAC|Lossless|tracks] <8bit, Punk, Rock>
@@ -6,7 +122,7 @@ Chiptune Radio - 8-bit tribute to The Offspring (2015) [FLAC|Lossless|tracks] <8
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645693.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Ibiza Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645539.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ H1987 - ODYSSEY (2018) [FLAC|Lossless|Web-DL|tracks] <Ambient, Downtempo, Trip H
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645287.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Chris van Buren - Hope and Destiny (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645281.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ GusGus - Arabian Horse (2011) [FLAC|Lossless|tracks + .cue] <House, Downtempo, T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_645204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645204.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Chris van Buren - New Horizons (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645199.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Wolf and Raven - Ace of Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645195.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Wolf and Raven - Renegades (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645194.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Wolf and Raven - Lair of the Dragon (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645193.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Chris van Buren - Tierra Del Fuego (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645185.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Chronos - Inner Darkness (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybien
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645089.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Argus - The Invisible Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychil
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645086.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - My Fitness Week Thursday: Swimming Chillout Playlist (2017) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644964.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Inner Light: Music For Meditation Vol.03 (2018) [MP3|320 Kbps] <Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644888.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Hells Kitchen - The End of Us (2012) Aura Music [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644885.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Terra Nine - Laniakea (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644882.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Atsushi Izumi - Snow (2018) Subtrakt [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644878.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Arbre Noir - Collection 5 Releases (2000-2006) Polymorph Records [FLAC|Lossless|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644866.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - We Are The Night: Best Of The Clubs (2017) [MP3|320 Kbps] <House, Club, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644860.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Trance Hits Top 20: 2017-06 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644859.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Best Of Deep House Vol.04 (2017) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644858.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ M.I.N.E (Marcus Meyn of Camouflage) - Unexpected Truth Within (2018) [FLAC|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644737.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ M.I.N.E (Marcus Meyn of Camouflage) - Unexpected Truth Within (2018) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C03722D32D74F28402E23EA3BCDE2E289E3F3844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142139   (644711) от 13.06.2017
-
-Robin Schulz & David Guetta & Cheat Codes - Shed A Light: The Remixes Part 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Robin Schulz - Shed a Light (Extended Version) [05:05]
-02 Robin Schulz - Shed A Light (MOTi Remix) [04:31]
-03 Robin Schulz - Shed A Light (HUGEL Remix) [04:31]
-04 David Guetta - Shed A Light (Oliver Moldan Remix) [04:55](   Читать дальше...   )Жанр: HouseПродолжительность: 00:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1ECB94EF390C29C740A360AAA8E1857205548A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292669   (644693) от 30.03.2019
-
-Fatboy Slim - The Best Of (2019) [MP3|320 Kbps] <Electronic, Big Beat, Breakbeat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644693.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fatboy Slim - Right Here, Right Now
-2. Fatboy Slim - Praise You
-3. Fatboy Slim - Song For Shelter
-4. Fatboy Slim - Weapon Of Choice (Feat. Bootsy Collins)(   Читать дальше...   )Жанр: Electronic, Big Beat, BreakbeatПродолжительность: 02:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962A259C7DA5BDBB521FABD8DD37113BD0BDCA75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142142   (644603) от 13.06.2017
-
-Robin Schulz & David Guetta & Cheat Codes - Shed A Light (The Remixes Part 2) (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shed A Light (MDZN Remix) [03:27]
-02 - Shed A Light (Mosimann Remix) [06:02]
-03 - Shed A Light (Heyder Remix) [03:39]
-04 - Shed A Light (Aligee Remix) [04:12](   Читать дальше...   )Жанр: HouseПродолжительность: 00:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCF7BDE845A9B7289224BE8898E95EACDE367E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142235   (644469) от 13.06.2017
-
-Igorrr - Savage Sinusoid (2017) [FLAC|Lossless|tracks+.cue] <Breakcore, Black Metal, Baroque, Death Metal, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viande (01:55)
- 02. ieuD (03:55)
- 03. Houmous (03:32)
- 04. Opus Brain (05:26)(   Читать дальше...   )Жанр: Breakcore, Black Metal, Baroque, Death Metal, ExperimentalПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AC30A5A60EE90D26139175C11B931DE1AF033C
 ```
 
 https://mybot314.ru/tekegram_catalog/

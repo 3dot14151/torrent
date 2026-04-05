@@ -1,3 +1,55 @@
+###  Публикация: 1543670   (627728) от 12.04.2022
+
+Висячий сад / Kuchu teien (2005) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычная японская семья: папа работает в офисе; мама работает официанткой т занимается своим садом; сын и дочь учатся, и ещё есть бабушка, которая лежит в больнице (много курит – рак). Главное правило в семье: "Никаких секретов друг от друга!". С виду вроде бы очень счастливая такая семья, но это только с виду...Производство: Япония, Asahi National Broadcasting Company, Asmik Ace Entertainment, Culture Publishers Inc. (CP),...Жанр: драмаРежиссер: Тосиаки ТоёдаАктеры: Кёко Коидзуми, Аннэ Судзуки, Ицудзи Итао, Масахиро Хирота, Дзюн Кунимура, Эйта, Асами Имадзюку, Рё Кацудзи, Соним, Хироми НагасакуПеревод: любительский одноголосый (Олег Воротилин)Субтитры: русские (umilenie), английскиеПродолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F7159EAB3B241A2D1FEA1E773FFDE2555E8D5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144539   (627243) от 22.06.2017
+
+S.P.L. Звезды судьбы 2 / Saat po long 2 (2015) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крутой гонконгский полицейский по имени Кит загоняет в угол крупного гангстера, но тот поворачивает все в свою сторону — главный свидетель Кита исчез. Более того, Кита отправляют в тайскую тюрьму, снабдив фальшивым списком преступлений. Тюремный охранник Чай следит за тем, чтобы Кит не сбежал — дочь Чая страдает от редкой формы лейкемии, и только Кит может стать (   Читать дальше...   )Производство: Китай, Гонконг / 1618 Action Limited, Abba Movies Co. Ltd.Жанр: боевик, драма, криминалРежиссер: Чин Поу-соиАктеры: Тони Джа, Энди Он, Ву Джин, Саймон Ям, Луис Ку, Кики Енг, Кен Ло, Френсис Нг, Эндрю Ын, Чжан ДжинПеревод: Авторский (одноголосый, закадровый) (Ю. Живов); Любительский двухголосый (den904 & DeadSno)Субтитры: АнглийскиеПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B800BDDEC811C2FC077F47B47158D4B6AAB5864E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144494   (627231) от 22.06.2017
 
 S.P.L. Звезды судьбы 2 / Saat po long 2 (2015) BDRip
@@ -6,7 +58,7 @@ S.P.L. Звезды судьбы 2 / Saat po long 2 (2015) BDRip
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627231.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621203.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620656.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617872.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617677.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616628.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_616215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616215.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614466.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611364.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611039.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610227.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610046.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607838.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605932.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605806.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605136.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604430.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604334.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603515.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603389.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602983.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601022.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600946.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598421.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51C41795CAC0BBB1CBB13C5DCCB92D7B113F1DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548585   (597902) от 03.05.2022
-
-Токио! / Tokyo! (2008) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три совершенно разные истории, снятые тремя режиссёрами, общее у которых лишь одно: место действия мегаполис Токио. Первая «Дизайн интерьера» повествует о молодых людях, приехавших покорять столицу Японии. Акира мечтает стать кинематографистом, а его девушка Хироко ищет своё жизненное предназначение и находит его неожиданно фантастическим образом. Вторая «Дерьмо» (   Читать дальше...   )Производство: Франция, Япония, Южная Корея, Германия, Backup Films, Bitters End, Comme des Cinemas, Westdeutscher Rundfunk (WDR)Жанр: фэнтези, драма, комедияРежиссер: Чжун Хо Пон, Леос Каракс, Мишель ГондриАктеры: Дени Лаван, Аяко Фудзитани, Рё Касэ, Аюми Ито, Нао Омори, Сатоси Цумабуки, Кэн Мицуиси, Юно Иригути, Риэ Минэмура, Бэн ХимураПеревод: профессиональный многоголосый (CP Digital)Субтитры: русские, английскиеПродолжительность: 01:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6CF06FF835A5A697A69F740855469CB4206BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913505   (597558) от 02.07.2015
-
-Караульный пост 506 / GP506 (2008) HDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда отряд Караульного поста 506 не вышел на связь раз в полчаса, как обычно, власти заволновались… На этот пост прибывает разведывательный отряд, чтобы разобраться, что там случилось…Производство: Корея Южная | Motis ProductionsЖанр: Ужасы, ТриллерРежиссер: Су-чанг КуенгАктеры: Чхон Хо Чжин, Чо Хуюн-джэй, Йанг-Хунь Лии, Ку Сон-хван, Ли Чжон Хон, Джэ Мун, Вон-санг Парк, Хьонг-Так Шим, Бьюнг-хо СонПеревод: Авторский (одноголосый, закадровый)Язык субтитров: Отсутствуют
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B79C64B1EF71B6FC4F41B0E4F1D14E764C7742
 ```
 
 https://mybot314.ru/tekegram_catalog/

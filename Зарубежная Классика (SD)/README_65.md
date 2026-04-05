@@ -1,3 +1,56 @@
+###  Публикация: 1557678   (539072) от 16.06.2022
+
+Каждый за себя, а Бог против всех / Jeder fur sich und Gott gegen alle (1974) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по роману Я.Вассермана «Каспар Хаузер, или Леность сердца» о судьбе известного в XIX веке найдёныша Каспара Хаузера. До 1828 года в городе N Каспар Хаузер, двадцати лет, жил в пещере, прикованный к полу цепями. Со времени своего рождения он ни с кем не общался, не умел ни говорить, ни читать, ни писать, а видел только одного человека, который время от времени (   Читать дальше...   )Производство: Германия (ФРГ), Filmverlag der Autoren, Werner Herzog Filmproduktion, Zweites Deutsches Fernsehen (ZDF)Жанр: драма, биография, историяРежиссер: Вернер ХерцогАктеры: Бруно Шлейнштайн, Вальтер Ладенгаст, Бригитте Мира, Вилли Земмельрогге, Михаэль Крёхер, Ганс Музэус, Маркус Уэллер, Глория Доэр, Фолькер Прехтель, Херберт АхтернбушПеревод: любительский двухголосый, любительский одноголосыйСубтитры: русские (hrlch), английскиеПродолжительность: 01:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3885B966BE9DEEAC76981F24DB9CD637706728A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557639   (539067) от 16.06.2022
+
+Вива Мария! / Viva Maria! (1965) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539067.jpg" />
+</div>
+
+
+###  Подробнее
+
+У малышки Марии было особое «счастливое детство». Вместе с папочкой-террористом она по всему миру - в Ирландии, в Англии, Гибралтаре, в Центральной Америке - устраивала взрывы английских крепостей, полицейских участков и мостов. Несколько поколений ирландских предков Марии сражались с англичанами, девочка бесстрашно продолжала семейную традицию.
+Однако во время проведения (   Читать дальше...   )Производство: Франция, Италия / Les Productions Artistes Associés. Nouvelles Éditions de Films, Vides CinematograficaЖанр: Мелодрама, Комедия, Приключения, ВестернРежиссер: Луи МальАктеры: Брижит Бардо, Жанна Моро, Джордж Хэмилтон, Полетт Дюбо, Грегор фон Реццори, Польдо Бенданди. Клаудио Брук, Карлос Лопес Моктесума, Джонатан Иден, Франсиско РейгероПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: Русские, французскиеПродолжительность: 01:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BAD582BE539D6363805C4F08010FDECD06FAAEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 366547   (538795) от 22.07.2011
 
 Новый кинотеатр «Парадизо» / Nuovo Cinema Paradiso (1988) BDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538795.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538630.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538162.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537909.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537867.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537319.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537032.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536039.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536035.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535966.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535471.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535456.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535272.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534901.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534831.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534428.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534270.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534012.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533825.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533506.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533345.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533208.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533194.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533021.jpg" />
 </div>
 
 
@@ -626,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:370D89D306E33634E7AFA6B9699FB448877756E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922180   (533020) от 10.08.2015
-
-Индиана Джонс и последний крестовый поход / Indiana Jones and the Last Crusade (1989) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья часть невероятных похождений прославленного археолога и искателя приключений Индианы Джонса. На этот раз бесстрашный Индиана разыскивает самую таинственную реликвию в истории человечества - Святой Грааль. В этом археологу помогает его отец - профессор Джонс старший. Теперь под бдительным оком своего отца и при помощи своих верных талисманов, неизменной шляпы (   Читать дальше...   )Производство: США | Paramount Pictures, Lucasfilm Ltd.Жанр: Боевик, ПриключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Шон Коннери, Денхолм Эллиот, Элисон Дуди, Джон Рис-Дэвис, Джулиан Гловер, Ривер Феникс, Майкл Бирн, Кеворк Маликян, Роберт Эддисон, Ричард Янг, Алексей Сейл, Алекс Хайд-Вайт, Пол Максвелл, Айла Блэр, Вернон ДобчеффПеревод: Многоголосый закадровый, двухголосый закадровый, авторскийЯзык субтитров: Русский, АнглийскийПродолжительность: 02:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B07346BF2B99C9788943BF1045220F472665C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051238   (532259) от 11.09.2016
-
-Горец 3: Последнее измерение / Highlander III: The Sorcerer (1994) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бессмертный воин Коннор Маклауд вновь вызван на поединок, на этот раз своим самым могущественным врагом, Колдуном Кейном, заточенным под мистической горой в Японии 300 лет назад и достигшим невероятной магической силы.
-Ничего не подозревающие археологи освобождают Кейна. Для того, чтобы править миром колдуну нужна магическая энергия, которую он сможет получить только (   Читать дальше...   )Производство: Канада, Франция, Великобритания / Fallingcloud, Initial Groupe, Lumière Pictures, TransfilmЖанр: Фантастика, Фэнтези, Боевик, МелодрамаРежиссер: Эндрю МорахэнАктеры: Кристофер Ламберт, Марио Ван Пиблз, Дебора Кара Ангер, Мако, Рауль Трухильо, Жан-Пьерр Перуссе, Мартин Ньюфелд, Фредерик Й. Окимура, Дэниэл До, Габриэль КаконПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640B6B36AEABD534E615BAC5EDA4A9EE982CFBE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,162 @@
+###  Публикация: 1530530   (727138) от 12.02.2022
+
+Большой баг / BigBug (2022) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727138.jpg" />
+</div>
+
+
+###  Подробнее
+
+2045 год. Почти все обязанности людей выполняет ИИ. Ностальгическое жилище Алис не исключение, поэтому во время восстания роботов ее андроиды заботливо запирают двери.Производство: Франция / Eskwad, GaumontЖанр: фантастика, комедияРежиссер: Жан-Пьер ЖёнеАктеры: Доминик Пинон, Эльза Зильберштейн, Андре Дюссолье, Альбан Ленуар, Изабель Нанти, Клод Перрон, Claire Chust, Стефан Де Гродт, Юсеф Хаджди, Франсуа ЛевантальПеревод: Дублированный (IYUNO-SDI Group)Язык озвучки: Русский, французскийСубтитры: Русские (Forced, Full), французский (forced, SDH)Продолжительность: 01:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72130F872B5FE3446DE3E73F0DD6256DBAA8F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128566   (726981) от 25.04.2017
+
+Adobe Premiere Pro CC 2017 (v11.1.0) Multilingual Update 2
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro 2017 - это мощный, настраиваемый редактор для нелинейного монтажа, с помощью которого можно монтировать видео именно так, как вам этого хочется. Импорт и свободное объединение любых видеозаписей, от клипа, снятого на телефон, до необработанного 5K, с последующим монтажом, для которого не требуется выполнять перекодирование.
+
+Выполняйте монтаж видео (   Читать дальше...   )Язык интерфейса: Английский / Испанский / Итальянский / Китайский (упрощенный) / Корейский / Немецкий / Португальский / Русский / Французский / Японский / Английский с поддержкой арабского письма / Английский с поддержкой иврита / Английский (Великобритания) / Испанский (Мексика) / Французский (Канада) / Французский (Марокко)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45CF94D75A1FDBA2344CEBD8B7EDBBFD0EDA7F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128401   (726976) от 25.04.2017
+
+Microsoft повторно выпустила обновление для Windows 7 для установки Windows 10
+
+>>3
+>>12
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_726976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Microsoft повторно выпустила обновление для операционных систем Windows 7 и 8.1, которое прежде было связано с агрессивным продвижением системы Windows 10. KB3150513 выходило для Windows 7, 8.1 и Windows 10 до версии 1703, его целью является подготовка компьютеров к установке Windows 10.21 апреля Microsoft выпустила 10-ю ревизию этого обновления, его получат (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128166   (726974) от 25.04.2017
+
+Syberia 3 / Сибирь (2017) [Ru/Multi] (1.0) SteamRip R.G. Игроманы [Deluxe Edition]
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безграничное воображение Бенуа Сокаля воплотилось в нечто абсолютно новое — захватывающее приключение «Сибирь 3». Повествование игры стартует там же, где закончилась предыдущая часть: Кейт Уокер, отправившись на поиски таинственной Сибирии, едва не погибает на дрейфующей лодке, но небольшой караван добрых юколов успевает спасти её от верной смерти.Тип издания: SteamRipРазработчик: Anuman Interactive, MicroidsЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21839D44D0AE0D2F05A49DBD9D9D31336131A2C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753794   (726973) от 25.04.2017
+
+Набор обновлений UpdatePack Plus для русской Windows XP SP3 17.4.21 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный набор поможет обновить Windows XP до актуального состояния, а так же установить дополнительные компоненты не тратя время на их загрузку из различных источников.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047F17ACCDA54B43D8F9C44A37F2CFCE9C8B8D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022514   (726890) от 03.06.2016
+
+За троллинг в соцсетях можно будет попасть под суд
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_726890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россияне смогут получить денежную компенсацию за оскорбления в Интернете
+Факт издевательств и оскорблений (троллинга, как это называют пользователи интернета) в социальных сетях теперь можно заверить у нотариуса, что позволит запустить судебный процесс. Об этом «Известиям» рассказали в Федеральной нотариальной палате (ФНП). По словам представителей ФНП, документ (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022722   (726849) от 03.06.2016
 
 Acronis True Image 2016 19.0 Build 6571 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +165,7 @@ Acronis True Image 2016 19.0 Build 6571 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726849.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726791.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ Live CD STEA Edition [v 04.2011 EXT]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_726788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_726788.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ VA - Дискотека Арлекина 6 - 85 (1994 - 2005) Dance Pop
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_726739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_726739.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_726738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_726738.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_726129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_726129.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_726121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_726121.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726061.jpg" />
 </div>
 
 
@@ -214,7 +373,7 @@ Maxon CINEMA 4D Studio R20.057 Portable by soyv4 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725993.jpg" />
 </div>
 
 
@@ -240,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725989.jpg" />
 </div>
 
 
@@ -269,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725977.jpg" />
 </div>
 
 
@@ -295,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725971.jpg" />
 </div>
 
 
@@ -321,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725961.jpg" />
 </div>
 
 
@@ -347,7 +506,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.03/upd5/dlc) Repack R.G. Catalys
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725948.jpg" />
 </div>
 
 
@@ -373,7 +532,7 @@ Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/En] (1.0.0.2
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725945.jpg" />
 </div>
 
 
@@ -399,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_725870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725870.jpg" />
 </div>
 
 
@@ -425,7 +584,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.493]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725846.jpg" />
 </div>
 
 
@@ -454,7 +613,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.813 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725746.jpg" />
 </div>
 
 
@@ -480,7 +639,7 @@ Diluvion (2017) [Ru/Multi] (1.17.62) License GOG [Fleet Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725734.jpg" />
 </div>
 
 
@@ -506,7 +665,7 @@ David J. Malan | Основы программирования CS50 (2015) WEB-D
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725733.jpg" />
 </div>
 
 
@@ -517,162 +676,6 @@ CS50 — суперхит среди академических курсов Com
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CB66F552063B221B6B7DEB009F51F799EBC1130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023173   (725715) от 04.06.2016
-
-Элон Маск объявил о своих планах по отправке людей на Марс в 2025 году
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_725715.jpg" />
-</div>
-
-
-###  Подробнее
-
-На конференции Code Conference, проходившей буквально на днях в Калифорнии Элон Маск (Elon Musk), основатель и руководитель компаний SpaceX и Tesla Motors, объявил о своих планах, касающихся отправки в 2024 году на Марс первой пилотируемой экспедиции. На самом деле эти планы являются менее сумасшедшими и несбыточными, нежели они выглядят с первого взгляда. Пилотируемый (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710896   (725669) от 25.05.2014
-
-Сверхъестественное / Supernatural (2013-2014) WEB-DLRip [720p] (сезон 9, серии 1-23 из 23) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о приключениях братьев Сэма и Дина Винчестеров, которые путешествуют по Соединённым Штатам на чёрном автомобиле Chevrolet Impala 1967 года, расследуют паранормальные явления, многие из которых основаны на американских городских легендах и фольклоре, и сражаются с порождениями зла, такими как демоны и призраки. Как братья Винчестеры в очередной (   Читать дальше...   )Жанр: Ужасы, Фэнтези, ДетективРежиссер: Филип Сгриккиа, Джеймс Л. Конуэй, Питер ЭллисАктеры: Джаред Падалеки, Дженсен Эклс, Джим Бивер, Миша Коллинз, Марк Шеппард, Джеффри Дин Морган, Женевьев Падалеки, Синди Сэмпсон, Саманта Феррис, Митч ПиледжиПеревод: Многоголосый закадровый, профессиональный - LostFilmЯзык субтитров: РусскийПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFA7A293CE5C723367467097C429E7736B520D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710847   (725668) от 25.05.2014
-
-Сверхъестественное / Supernatural (2013-2014) WEB-DLRip (Сезон 9, Серии 1-23 из 23) LostFilm
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о приключениях братьев Сэма и Дина Винчестеров, которые путешествуют по Соединённым Штатам на чёрном автомобиле Chevrolet Impala 1967 года, расследуют паранормальные явления, многие из которых основаны на американских городских легендах и фольклоре, и сражаются с порождениями зла, такими как демоны и призраки.Жанр: ужасы, фэнтези, триллер, драма, детективРежиссер: Роберт Сингер, Филип Сгриккиа, Ким МэннерсАктеры: Джаред Падалеки, Дженсен Эклс, Джим Бивер, Миша Коллинз, Джеффри Дин Морган, Женевьев Падалеки, Саманта Феррис, Курт Фуллер, Кэти Кэссиди, Лорен Коэн и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmФормат: AVIПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D30B8C4F7E759A776D81430360B135234F6845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022939   (725455) от 04.06.2016
-
-Microsoft обвиняют в новом трюке с принудительной установкой Windows 10
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_725455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft пытается убедить пользователей прежних версий свой ОС обновиться до Windows 10 во что бы то ни стало. Ранее обновление шло сразу после закрытия соответствующего окошка, также компания ставила обновление в список планировщика задач Windows, плюс у пользователей Windows 7 с деактивированным пакетом KB3035583 он втихую снова активировался. Сейчас пользователи (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023170   (725443) от 04.06.2016
-
-Мой парень – киллер / Mr. Right (2015) BDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марта застала своего парня за изменой и немного вышла из колеи. И тут она встречает, казалось бы, идеального мужчину. Но её идеал оказывается бывшим киллером, и его прошлое однажды вновь заявляет о себе, причем не самым приятным образом. И едва зародившиеся отношения начинают подвергаться серьёзным испытаниям.Производство: США, Amasia Entertainment, 3311 Productions, Circle of ConfusionЖанр: боевик, мелодрама, комедияРежиссер: Пако КабесасАктеры: Сэм Рокуэлл, Анна Кендрик, Тим Рот, Джеймс Рэнсон, Энсон Маунт, Майкл Эклунд, Кэти Нехра, Джейден Кейн, Дуглас М. Гриффин, Луис Да Силва мл., Елена СанчесПеревод: Любительский (многоголосый, закадровый) RecentFilmsЯзык субтитров: английскийПродолжительность: 01:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC4BF8FC09EB8ED2F7E00532A0BC7AB5DACB984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 114766   (725371) от 21.04.2011
-
-Сборник официальных обновлений Windows Update для Windows Server 2003 "SP2 32-bit" (20.04.11)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_725371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий пак включает в  себя все предлагаемые обновления Windows Update (+ кое-какие необходимые дополнения от Microsoft) до установки Internet Explorer 8 и Windows Media Player 11, обновления обязательныЯзык интерфейса: русский+английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0EBC21E461214D8CF99443F36ADFF3853F35FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

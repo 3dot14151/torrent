@@ -6,7 +6,7 @@ AzizRush - War (2024) [MP3|320 Kbps] <Electronic>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101550.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gesaffelstein - Original (2010 -2011) [MP3|320 кб/с]<Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80453.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Fatboy Slim - Right Here, Right Then (A Big Beach Boutique Celebration) (2022) C
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69629.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Aya - hexed! (2025) [MP3|320 Kbps] <Electronic, Footwork, Grime, Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68428.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ The Black Dog - Further Vexations (2009) [MP3|320 Kbps] <Braindance, Darkwave, E
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68342.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [MP3|320 Kbps] <Electronic, Da
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66599.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Best Melodic Techno Hype SFR (2024) [MP3|320 Kbps] <Melodic-House, Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62685.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Summer Tech House Hits 2024 [MP3|320 Kbps] <Minimal, Tech House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49191.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Lenny Kravitz - Let It Ride Remixes, Pt. 2 (2025) [MP3|320 Kbps] <Electronic, Da
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17258.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ El Michels Affair - 24 Hr Sports (2025) [MP3|320 Kbps] <Progressive House, Downt
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3838.jpg" />
 </div>
 
 

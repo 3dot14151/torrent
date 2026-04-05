@@ -1,3 +1,55 @@
+###  Публикация: 1725374   (55529) от 24.05.2024
+
+ASTLIBRA Revision (2022) [Multi] (1.3.7/dlc) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55529.jpg" />
+</div>
+
+
+###  Подробнее
+
+ASTLIBRA Revision погружает пользователей в фэнтезийный мир, где предстоит сражаться против опасных монстров. Игра сделана в виде двухмерной ролевой адвенчуры, где присутствуют элементы метроидвании. Пользователям придется взять под управление героя, что в детстве расстался со своим другом из-за нападения демона. Адское существо уничтожило жителей деревни, а парень (   Читать дальше...   )Тип издания: SceneРазработчик: KEIZOЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык субтитров: Английский, Японский, Китайский, Корейский и другиеЯзык интерфейса: Английский, Японский, Китайский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC40FE045D48FDA0607DE756BBF70E4D991362B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725441   (55522) от 24.05.2024
+
+CONSORTIUM (2014) [Ru] (1.26.1) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55522.jpg" />
+</div>
+
+
+###  Подробнее
+
+CONSORTIUM – приключенческая игра в научно-фантастическом мире и первая часть в трилогии iDGi-1. В данном путешествии предстоит расследовать таинственное убийство на футуристическом самолете. Все люди способны попасть в альтернативную вселенную в 2042 год при помощи цифрового разрыва. Вы попадете на борт Зенлил, где потребуется начать расследование. Главный герой (   Читать дальше...   )Тип издания: LicenseРазработчик: Interdimensional Games IncЖанр: Приключение, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A770D02E143B950741AEF5430CFCA2505FC051A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725722   (55463) от 25.05.2024
 
 Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0) Scene FairLight
@@ -6,7 +58,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55463.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55334.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ C.A.R.D.S. RPG: The Misty Battlefield (2024) [Multi] (1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55149.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Little-Known Galaxy (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55136.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ CyberHoney (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55121.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ CONSORTIUM Remastered (2024) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55072.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ SpellForce 3 Reforced (2017-2021) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55054.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Withering Rooms (2024) [Multi] (1.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55036.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Ikonei Island: An Earthlock Adventure (2023) [Multi] (20240425/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55034.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54952.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ SpellForce 3: Fallen God (2020) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54951.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.0/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54814.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54726.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54688.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.318.0.8/dlc) Repack FitG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54650.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Granblue Fantasy: Relink (2024) [Multi] (1.3.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54640.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Taboo Trial (2023) [Multi] (5.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54627.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Vendir: Plague of Lies (2024) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54626.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ C.A.R.D.S. RPG: The Misty Battlefield (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54596.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Trinity Fusion (2023) [Multi] (20240412/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54557.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Kingdom of Arcana (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54527.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54495.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54489.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ CONSORTIUM Remastered (2024) [Multi] (1.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54482.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ CONSORTIUM Remastered ставит вас на место Консорциума
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7F12C66F211D9691B43A41B575C7F1C1023476F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727669   (54478) от 03.06.2024
-
-Kingdom of Fallen: The Last Stand / Королевство Павших: Последний Страх (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пламя гаснет в проклятом королевстве. Нет света, чтобы осветить ваш путь, ваши драгоценные воспоминания медленно разрушаются перед вами. По мере того как все подходит к концу, может ли этот новый мир быть спасением, которого вы ищете? Или это еще одно ложное изображение, поданное вам, предвещающее изгнание вашей души?Тип издания: RepackРазработчик: DigitalSoulsЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A0380DB6960D040E2B5F255ABF4415E3530DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727671   (54473) от 03.06.2024
-
-Dark Souls 2: Scholar of the First Sin (2015) [Ru/En] (1.0.2/dlc) Repack xatab
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Souls 2: Scholar of the First Sin - это ролевой экшен, в котором львиная доля времени уделена не прокачке персонажа или заданиям, а сражениям с врагами и боссами. Игроки обмениваются ударами с противниками, стараясь блокировать их удары или уворачиваться от них, чтобы не погибнуть.Тип издания: RepackРазработчик: FromSoftwareЖанр: RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8008561192730C9580760039110442E43B04C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

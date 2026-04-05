@@ -6,7 +6,7 @@ BBC: Полет Земли. (Земля с птичьего полёта). Се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624679.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Суперсооружения: Мегазаводы. MV Agusta / MegaStruct
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624611.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Охотники за ядом / Venom Hunters (2016) HDTV [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624574.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624435.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624382.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Гризли Аляски бросают вызов. Арктические
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624369.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NGW: Акулотрас / Sharkatraz (2016) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624365.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC: Гении из царства животных / Super Smart Animals (2012
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624338.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG: Осушение океана: Вторая мировая война / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624335.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ DV: Невероятное вокруг нас. Биоэнергия [8 из 28]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624300.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery: Дьявольский каньон / Devil's Canyon (2017) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624231.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC: Третья мировая война: взгляд из командно�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624161.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NGW: Дикая природа: Остров Воскресения / Wild Life:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623978.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Discovery. Сокровища из кладовки / Backroad Bounty (2014) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623935.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC: Веллингтон - железный герцог без маски / We
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623774.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NG. Бушующие миры. Космический ветер / Storm Worlds.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623539.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BBC. Самая дикая мечта. Покорение Эвереста / The
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623201.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623163.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622869.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Discovery: Один на один с природой / Alone in the Wild (2009)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622564.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ BBC: Амазонка с Брюсом Перри / Amazon with Bruce Parry (2008
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622535.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Discovery: Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622519.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622434.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622348.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Animal Planet: Живой или вымерший. Гигант Мадагаск
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622181.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NG. Осушить Бермудский треугольник / Drain the Bermu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621561.jpg" />
 </div>
 
 

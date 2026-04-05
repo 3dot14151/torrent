@@ -1,3 +1,32 @@
+###  Публикация: 1836280   (256345) от 10.11.2025
+
+Portugal. The Man - Shish (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denali (4:16)
+02. Pittman Ralliers (2:46)
+03. Angoon (4:37)
+04. Knik (5:38)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35595DD8FCA45D55911CE165BD59A2FC5F452A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498230   (256173) от 20.05.2012
 
 The Rasmus - The Rasmus (2012) [FLAC|Lossless]<Rock, Alternative Rock, Symphonic Rock, Soft Rock>
@@ -6,7 +35,7 @@ The Rasmus - The Rasmus (2012) [FLAC|Lossless]<Rock, Alternative Rock, Symphonic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256173.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ VA - A Tribute To Queen (2012) [MP3|320 кб/с]<Rock, HardRock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256158.jpg" />
 </div>
 
 
@@ -76,7 +105,7 @@ Linkin Park - Burn It Down (Single) (2012) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256152.jpg" />
 </div>
 
 
@@ -105,7 +134,7 @@ Oomph! - Des Wahnsinns Fette Beute (2012) [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256145.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ Six Feet Under - Undead (2012) [MP3|320 кб/с]<Death Metal, Death'n'Roll>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255741.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ VA - Glory Days Of Rock 'n' Roll ( 5 x 2CD) (1999) [FLAC|Lossless]<Rock & Roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255727.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255692.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ Michael Schenker Group - Don't Sell Your Soul (2025) Japanese Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255665.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Various Artists - No Life 'Til Leather - A Tribute To Metallica’s Kill ‘Em A
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255597.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ Megadeth - I Don't Care (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255583.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ The Neighbourhood - (((((ultraSOUND))))) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255581.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ VA - КИНОпробы - tribute Виктор Цой (2000)[APE|lossless]<rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255573.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255554.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255547.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255543.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Kambrium - Dawn of the Five Suns (2018) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255484.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Korova - A Kiss in the Charnel Fields (1995) [FLAC|Lossless|image + .cue] <Avant
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255483.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Tytus - Roaming In Despair (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255482.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Weedzard - Weedzard (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255481.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Vatican Spectrum - Ave Satan (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255480.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Solstafir - Kold (2009) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255479.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Isaak - Hey (2023) [MP3|320 Kbps] <Stoner Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255478.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Viikate - Askel (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255477.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Ghostmeat - Witch's Familiar (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255476.jpg" />
 </div>
 
 
@@ -730,7 +759,7 @@ Dan Wande - Highway 45 (2023) [MP3|320 Kbps] <Hard'n'Heavy>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255474.jpg" />
 </div>
 
 
@@ -744,35 +773,6 @@ Dan Wande - Highway 45 (2023) [MP3|320 Kbps] <Hard'n'Heavy>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C563F5B9983FB19511C4EBA6332A323BFB80104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624441   (255473) от 06.04.2023
-
-Children of Bodom - Hexed (2019) Japanese Ed. [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Road
-02. Under Grass and Clover
-03. Glass Houses
-04. Hecate's Nightmare(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A18FB173B35065D09DFC99FE64BBE744C74DA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

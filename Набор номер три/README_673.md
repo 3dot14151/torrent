@@ -1,3 +1,216 @@
+###  Публикация: 1748893   (40752) от 11.10.2024
+
+Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (3.1.0.1/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обретите сверхчеловеческую мощь космодесантника. Пустите в ход смертоносные навыки и разрушительное оружие, чтобы истребить безжалостных тиранидов. Защитите Империум в ярких одиночных боях или многопользовательских режимах с видом от третьего лица.Тип издания: RepackРазработчик: Saber InteractiveЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5CB3BA7C2F9C47D7B557E859C27A37FBF16DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754252   (40651) от 12.10.2024
+
+Parallels Desktop 20 20.1.0 (55732) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40651.jpg" />
+</div>
+
+
+###  Подробнее
+
+самое удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей. Благодаря высокой производительности вы можете запускать любое Windows-приложение такое, как Microsoft Office, без какого-либо ущерба для быстродействия.
+Parallels Desktop Business Edition позволяет сотрудникам (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2024Разработчик: Parallels International GmbHПоддерживаемая ОС: 12+Язык интерфейса: Английский, Немецкий, Французкий,Русский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54576F67C75E7C39FBB0ED8CB17EAFC2468855C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754805   (40645) от 12.10.2024
+
+Windows 11 Pro VL x64 24H2 26100.2033 by OVGorskiy 10.2024 [RU]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40645.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новой версии операционной системы Windows 11 Pro VL x64 от Microsoft с дополнительным материалом в 1-м установочном образе. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных нам кнопки и меню "Пуск", гаджеты для рабочего (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EC78EE71AC71082150D8737D519961F7C65923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753956   (40644) от 12.10.2024
+
+Microsoft Windows 11 24H2 (26100.1882) Enterprise LTSC by OVGorskiy 10.2024 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40644.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинального образа новой версии операционной системы Windows 11 Enterprise LTSC от Microsoft с дополнительным материалом в 1-м установочном образе. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: накопительные обновления и небольшой набор необходимых приложений. Сборка предназначена для тех, (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D035F30F8F88FBFBA501134DB60B393102F71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598238   (40643) от 12.10.2024
+
+Приключения Шерлока Холмса и доктора Ватсона / Весь Шерлок Холмс (1979-1986) DVDRip [H.265/1080p] (серии 01-11 из 11) [hand made Upscale AI]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классическая экранизация цикла рассказов о гениальном сыщике Шерлоке Холмсе и его друге докторе Ватсоне, которые предотвращают коварные замыслы и разоблачают жестоких преступников.Производство: СССР, ЛенфильмЖанр: Ироничный детективРежиссер: Игорь МасленниковАктеры: Василий Ливанов, Виталий Соломин, Рина Зеленая, Мария Соломина, Геннадий Богачев, Федор Одиноков, Борислав Брондуков, Игорь Дмитриев, Николай Караченцов и другие.Субтитры: отсутствуютПродолжительность: ~01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38BABDE7FC3371EF22DD63D2B9CC73E33CF6AE1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 868393   (40642) от 12.10.2024
+
+Губанов Вячеслав Вилорьевич | Эзотерика. Мега сборник (1990-2015) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40642.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данных курсах пропагандируется подход "Защита знанием", то есть кто знает, тот вооружён.
+Давайте расставим все точки над i.
+
+Мы здесь не заряжаем амулеты на халявную удачу с гарантией в 100%.(   Читать дальше...   )Производство: РоссияЖанр: Эзотерика, Парапсихология, Бизнес, Нумерология, БиоэнергетикаПродолжительность: ~3000 часов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03C6CBCB9EC8FDD9865C512344275A1918D61B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 250808   (40641) от 12.10.2024
+
+Звездные Войны / Star Wars (1977-2005) [H.264] HDTVRip (все части)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мирная и процветающая планета Набу. Торговая федерация, не желая платить налоги, вступает в прямой конфликт с королевой Амидалой, правящей на планете, что приводит к войне. На стороне королевы и республики в ней участвуют два рыцаря-джедая: учитель и ученик, Квай-Гон-Джин и Оби-Ван Кеноби…Жанр: Фантастика, Боевик, Фэнтези, ПриключенияРежиссер: Ричард Маркванд.Актеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Питер Мейхью, Себастьян Шоу, Иэн МакДайармид, Фрэнк Оз, Джеймс Эрл Джонс и др.Язык субтитров: 1. Русские (forced) 2. Русские (полные) 3. Английские (полные)Продолжительность: 02:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AAEE3D074E1EB96BE1A286B8809DDA7CE107B4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754687   (40551) от 13.10.2024
+
+Valve стала дополнительно уведомлять, что в Steam пользователи покупают не игры, а лицензии на их использование
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40551.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Valve стала дополнительно предупреждать клиентов во время оформления заказа, что в Steam пользователи покупают не игры, а лицензии на их использование. Новое уведомление теперь появляется в «Корзине» перед оплатой цифрового продукта.Ранее губернатор Калифорнии подписал закон о недостоверной рекламе при покупке цифровых товаров. Положение AB 2426 заставляет магазины (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754686   (40549) от 13.10.2024
 
 Прототип сверхзвукового авиалайнера Boom Supersonic XB-1 обновил рекорд скорости
@@ -6,7 +219,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40549.jpg" />
 </div>
 
 
@@ -32,7 +245,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.1 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40435.jpg" />
 </div>
 
 
@@ -61,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40434.jpg" />
 </div>
 
 
@@ -87,7 +300,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.18/dlc) Repack dixen18
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40433.jpg" />
 </div>
 
 
@@ -113,7 +326,7 @@ Windows 10 Pro 22H2 19045.4894 x64 by SanLex [Lightweight] [Ru/En] (2024.09.26)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40432.jpg" />
 </div>
 
 
@@ -141,7 +354,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40431.jpg" />
 </div>
 
 
@@ -167,7 +380,7 @@ SpaceX впервые приземлила разгонную ступень Sup
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40413.jpg" />
 </div>
 
 
@@ -193,7 +406,7 @@ Windows 11 PRO 24H2 26100.1742 Update 8 by Ghost Spectre [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40338.jpg" />
 </div>
 
 
@@ -222,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40330.jpg" />
 </div>
 
 
@@ -248,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40242.jpg" />
 </div>
 
 
@@ -274,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40236.jpg" />
 </div>
 
 
@@ -300,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40216.jpg" />
 </div>
 
 
@@ -326,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40153.jpg" />
 </div>
 
 
@@ -352,7 +565,7 @@ Google предупредила о скором отключении uBlock Orig
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40151.jpg" />
 </div>
 
 
@@ -378,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40149.jpg" />
 </div>
 
 
@@ -406,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40137.jpg" />
 </div>
 
 
@@ -435,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40136.jpg" />
 </div>
 
 
@@ -461,222 +674,13 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40041.jpg" />
 </div>
 
 
 ###  Подробнее
 
 В Госдуме и ФСБ поддержали предложение о том, чтобы исключить использование российскими операторами измерителя скорости интернета SpeedTest американской компании Ookla. Об этом говорится в ответах, направленных нижней палатой парламента и силовым ведомством в Международную академию связи (МАС) — ранее она выдвинула такую инициативу.Из писем, с которыми ознакомились (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755944   (40034) от 18.10.2024
-
-Microsoft Windows 11 24H2 (26100.2033) Pro-Home Optim Lite by OVGorskiy 10.2024 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оптимизированная облегчённая (LITE) сборка на основе оригинального образа новой версии операционной системы Windows 11 x64 (64 бит.) 24H2 от Microsoft  Профессиональная и Домашняя. В сборке произведена оптимизация системы для более комфортной работы с ней. Из системы удалены все плиточные приложения, кроме магазина MicrosoftStore и кодеков. Удалена в оптимальном режиме (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68520D2880E4A1BAC45DF6A3358C3E8E15E39C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534193   (40031) от 18.10.2024
-
-ELDEN RING (2022) [Ru/Multi] (1.16/dlc) Repack Decepticon [Deluxe Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elden Ring – фэнтезийное экшен-РПГ приключение, действия которого развиваются в мире, созданном знаменитым Хидэтака Миядзаки, известным по работе над играми Dark Souls. К проекту также приложил руку известный писатель Джордж Р. Р. Мартин (Песнь Льда и Огня).Тип издания: RepackРазработчик: FromSoftware Inc.Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B433538C9DD739D3E4E01DF8596BFDD16CFD3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754605   (40018) от 18.10.2024
-
-Skype вернул себе позиции самого популярного файлообменника в России
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype вернул себе позиции самого популярного файлообменника в России
-Росстат отмечает взрывной рост пользователей некогда популярного файлообменника Skype в России: за первые сутки после блокировки мессенджера Discord его установили 32 млн человек. Таким образом, он впервые с 2012 года стал самым популярным файлообменником в России.«Мы рады, что наши блудные пользователи, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396489   (39930) от 19.10.2024
-
-Wavelet: Headphone specific equalization v24.10 (2173) Mod by Kirlif' [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчик pittvandewitt разработал приложение Wavelet, которое может точно настроить звучание подключенных к смартфону наушников благодаря встроенным инструментам. Главная особенность — наличие звуковых профилей для 2300 моделей наушников, как проводных, так и беспроводных. Эта функция называется AutoEq. Она настраивает звучание на нейтральный стандарт Harman. (   Читать дальше...   )Тип издания: FullРелиз состоялся: 19.10.2024Разработчик: pittvandewittПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9654A0FA823CCD4B24316C82BEC3D0D5092921E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755351   (39929) от 19.10.2024
-
-Adobe Photoshop 2025 26.0.0.26 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop 2025 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BBB4E61619E9F7F26A2130DB2E24C40395ECC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755356   (39928) от 19.10.2024
-
-Чужой: Ромул / Alien: Romulus (2024) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время изучения заброшенной космической станции группа молодых космических колонизаторов сталкивается с самой страшной формой жизни во Вселенной.Производство: Великобритания, США, Венгрия, Австралия, Новая Зеландия, Канада / 20th Century StudiosЖанр: ужасы, фантастика, триллерРежиссер: Феде АльваресАктеры: Кейли Спейни, Изабела Мерсед, Арчи Рено, Дэвид Джонссон Фрэй, Айлин У, Спайк Ферн, Рози Эде, Сома Саймон, Бенсе Океке, Виктор ОризуПеревод: Дублированный, многоголосый, одноголосыйЯзык озвучки: Русский, Грузинский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E74BDA467BF71E7C98A2FC382E0118954BDE5E61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755879   (39908) от 19.10.2024
-
-Роскомнадзор продолжает считать Google виновным в замедлении YouTube
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это следует из ответов и возражений на претензии пользователей, которые те направили в прокуратуру и суд (документы есть в распоряжении «Роскомсвободы»).Продолжаем следить за ходом разбирательства россиян с надзорными органами и операторами связи по факту нарушения работы YouTube в России.Один из пользователей написал жалобу в прокуратуру Санкт-Петербурга, поскольку (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755683   (39886) от 19.10.2024
-
-Россия и Китай снимут ремейк фильма «Невероятные приключения итальянцев в России»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кинематографисты из России и Китая планируют снять ремейк советского фильма «Невероятные приключения итальянцев в России» с участием китайских актеров. Об этом сообщает агентство ТАСС со ссылкой на председателя российской части Российско-китайского комитета дружбы, мира и развития Бориса Титова.Оригинальный фильм «Невероятные приключения итальянцев в России» вышел (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

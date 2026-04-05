@@ -1,3 +1,107 @@
+###  Публикация: 1193402   (262035) от 21.12.2017
+
+Электроника Это просто 2 v2.1 Full [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улучшенная и дополненная версия приложения.Еще более полное и постоянно обновляемое приложение для Электронщиков и Электриков.В приложении еще более подробно рассматриваются все темы касательно электроники и электрики.Физические законы, радиофизика, Закон Джоуля-Ленца, закон Ома, эффект Холла, Диоды и триоды и другие полезные вещи.Справочники Электриков,Вопросы и (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 22 октября 2017 г.Разработчик: Progressiv Digital Inc.Поддерживаемая ОС: Android 3.0 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0564F5DE92984BCA4CB05D70751812124D3538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839055   (261722) от 26.11.2025
+
+ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v3.1.38 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261722.jpg" />
+</div>
+
+
+###  Подробнее
+
+ToonApp карикатура фоторедактор лучшее приложение для превращения вашей картинки в мультфильм. Создатель мультфильмов предлагает удивительные фильтры AI для изображений, чтобы превратить фотографию в мультфильм. Вы даже можете сделать из фотографий карикатуры, чтобы превратить их в персонажей аниме. Чтобы завершить редактирование фотографий, добавьте впечатляющий (   Читать дальше...   )Тип издания: ProРелиз состоялся: 25.11.2025Разработчик: Lyrebird StudiosПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B67FC982B57781CD223FBCE508E1331971F8037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839058   (261721) от 26.11.2025
+
+ProShot v8.32.3 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в ProShot, полное решение для фото- и видеосъемки на Android. Являетесь ли вы опытным профессионалом или только начинаете, в ProShot есть что-то для вас. Его обширный набор функций и уникальный интерфейс открывают неограниченные возможности, гарантируя, что вы никогда не пропустите идеальный снимок.Тип издания: Pro / PatchedРелиз состоялся: 25.11.2025Разработчик: Rise Up GamesПоддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DB622851B136356EA41405D30D8D6A5C593967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839056   (261720) от 26.11.2025
+
+Smart AudioBook Player Pro v11.6.2 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 26.11.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0294A94277BB6BE8D31C7AA46E82AE5720D96A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839060   (261717) от 26.11.2025
 
 AI Photo Editor Pro - Polish v1.693.239 Mod by Mixroot [Ru/Multi]
@@ -6,7 +110,7 @@ AI Photo Editor Pro - Polish v1.693.239 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261717.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ FacePic - AI Face App v3.2.4 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261715.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Grok - ИИ ассистент v1.0.79-release Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261714.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Spyglass v3.9.11 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261609.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Photo Sherlock v1.131 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261607.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261600.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ All-In-One Offline Maps v3.18 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261023.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ Jewel Legend: игра три в ряд v3.18.3 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261021.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ Photo Lab PRO v3.13.76 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261019.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ Shazam v16.19.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260992.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ Talksy: Навык общения v0.2.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260991.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ OsmAnd+  Карты & GPS Офлайн v5.2.11 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260967.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ Smart AudioBook Player Pro v11.6.1 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260966.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Smart AudioBook Player Pro v11.6.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260965.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ AirBrush: ИИ Фоторедактор v7.20.1 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260954.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ FacePic - AI Face App v3.2.3 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260952.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ Taskito v1.1.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260804.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ Wordhane - игра в слова v1.9954 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260775.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260547.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ MobiOffice: Word, Sheets, PDF Premium v16.0.58388 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260544.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ Grok - ИИ ассистент v1.0.78-release.01 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260542.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260076.jpg" />
 </div>
 
 
@@ -570,118 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE208E29D725BCADF0325A9F959631D6CD570C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838358   (260037) от 22.11.2025
-
-CPU-Z v1.54 Mod by Alex.Strannik [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продвинутое приложение для просмотра информации о вашем устройстве. Выдаёт весьма точные и подробные данные.
-Android-версия популярной идентификации процессора инструмент для PC, CPU-Z является бесплатное приложение, которое сообщает информацию о вашем устройстве.Тип издания: PremiumРелиз состоялся: 21.11.2025Разработчик: CPUIDПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AD697A130730E2E883EB638605BD221881E742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838368   (260036) от 22.11.2025
-
-Background Eraser (InShot Inc.) v2.30.91 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это лучшее приложение для удаления фона, которое позволяет с помощью инструментов с ИИ автоматически вырезать картинки, удалять фон и делать прозрачные PNG-фотографии высокого качества.Тип издания: Mod / ProРелиз состоялся: 22.11.2025Разработчик: InShot Inc.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC42CBCFE888EA8DD5B26A6CB2DC9A751954297E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501750   (258628) от 26.05.2012
-
-[Программа] (Android 1.6+) Первая помощь
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение-справочник по оказанию первой медицинской помощи. Включает в себя следующие разделы:
-
-1. Общие принципы и правила оказания первой помощи
-2. Первая медицинская помощь при различных травмах и увечьях
-3. Справочник телефонов экстренных служб субъектов России и зарубежья
-4. Правила оживления и перевязки пострадавших
-5. Правила транспортировки пострадавшихЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837609   (257953) от 17.11.2025
-
-Начни бегать v5.14 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный помощник для желающих начать тренироваться посредством бега и спортивной ходьбы. Подборка готовых планов упражнений. Возможность создания собственного плана занятий. Статистика тренировок.
-Начать бегать? Легко! Не думай о дистанции, темпе, скорости. Все это потом. Слушай инструкции и беги так, как тебе комфортно. Не фокусируйся на технике бега. Самое важное (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 17.11.2025Разработчик: AxiomMobileПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CAA8E4448469E7D66FD6C643FD84D5093CB42C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

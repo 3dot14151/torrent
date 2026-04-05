@@ -6,7 +6,7 @@ Paste 2.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395812.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dropshare 4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395764.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PhoneClean Pro 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395575.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ iStat Menus 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395464.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ PaintCode 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394927.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ iFinance 4.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394893.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Disk Sensei 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394889.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ PopChar X 8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394840.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Archiver 3.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394721.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Rumpus PRO 8.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394157.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Mellel 3.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394106.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ iCompta 6.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394096.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Keyboard Maestro 8.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393984.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Airmail 3 v3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393953.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Battery Health 3 v1.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393043.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ QuarkXPress 2017 13.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392950.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Parallels Desktop for Mac Business Edition 13.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392740.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ MAMP & MAMP PRO 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392668.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ PowerPhotos 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392063.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Coda 2.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392047.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mellel 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392041.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ BookReader 5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391951.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ iRamDisk 3.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391299.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Sublime Text 3 (3148) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391294.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Blocs 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391292.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Hands Off! 3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391231.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1684944   (127517) от 17.12.2023
+
+Udemy, Lucas Bazilio | The Complete Lua Programming Course: From Zero to Expert! (2023) WEB-DL [EN, RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы только что наткнулись на самый полный и углубленный онлайн-курс по программированию на Lua.
+Хотите ли вы:
+- приобретите навыки, необходимые для получения первой работы по программированию на Lua
+- перейти на более старшую должность разработчика программного обеспечения(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 13:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B794290C4643E63E25A59490FF7E23BBAF1B88D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684932   (127491) от 17.12.2023
 
 Liveclasses, Виталий Новиков | Как работать с возражениями (2023) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@ Liveclasses, Виталий Новиков | Как работать с возр
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127491.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127479.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Marker School, Юлия Максимова | Цифровая ботаничес
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127466.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ Bratec Lis School, Элиза Талентино | Эффекты гравюры
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127450.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Enterclass, Софья Романова | Озимое поле (2023) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127435.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Udemy, Konstantin Fink | Нейросети: Chat GPT от Новичка до �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127333.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Udemy, Jones Granatyr | Midjourney in 2 hours: Practical Guide for Beginners Dis
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127316.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127309.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ Udemy, Rajesh Thakar | Foundation of Video Editing with Adobe Premiere (2023) WE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127175.jpg" />
 </div>
 
 
@@ -260,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127155.jpg" />
 </div>
 
 
@@ -287,7 +316,7 @@ Udemy, Ellen Chamilothoris | Master Any Language with ChatGPT: Boost Your Langua
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127143.jpg" />
 </div>
 
 
@@ -315,7 +344,7 @@ Liveclasses, Виталий Новиков | Как мыслят наши кли
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127101.jpg" />
 </div>
 
 
@@ -343,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127029.jpg" />
 </div>
 
 
@@ -372,7 +401,7 @@ Skillbox, Людмила Ганжа | Инструменты бухгалтер�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127027.jpg" />
 </div>
 
 
@@ -399,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126965.jpg" />
 </div>
 
 
@@ -428,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126943.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ KalachevaSchool, Татьяна Головко | Digital сафари. Тари�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126931.jpg" />
 </div>
 
 
@@ -485,7 +514,7 @@ Skillbox, Андрей Митрохин | Excel для рабочих и лич�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126849.jpg" />
 </div>
 
 
@@ -514,7 +543,7 @@ Focus Film International Ltd., Кеннет Кнолл | Камасутра - п
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126570.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126549.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ Skillbox, Алексей Pixelord, Сергей Saburov, Анна A.Fruit и д�
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126391.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ Skillbox, Даниил Пилипенко, Сурен Хоренян | Python-ф
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126383.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ Proprofiling, Алексей Филатов, Илья Анищенко | Как 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126318.jpg" />
 </div>
 
 
@@ -654,7 +683,7 @@ Proprofiling, Алексей Филатов | Ты - детектор лжи. К
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126315.jpg" />
 </div>
 
 
@@ -683,7 +712,7 @@ Skillbox, Илья Феоктистов, Дмитрий Зайцев | Инфр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126169.jpg" />
 </div>
 
 
@@ -695,34 +724,6 @@ DevOps-инженеры используют Kubernetes (k8s) для управ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E03C1F435D83B178EA5B749FAD9AE901005BE29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687054   (126166) от 25.12.2023
-
-Skillbox, Александр Крупин, Евгений Дмитриев | DevOps-инженер. Advanced (2022-2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь администрировать Linux, настраивать веб-серверы и освоите методологию DevOps: будете автоматизировать разработку сложных IT-продуктов. C нуля освоите методологию DevOps: объедините процессы разработки и эксплуатации, ускорите внедрение и доставку новых функций до пользователя.
-
-Этот курс входит в состав "Профессия DevOps-инженер PRO" является (   Читать дальше...   )Производство: SkillboxЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 11:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D10FC7A666D8BFC2CA75155FC7CA1BC1D4FC1337
 ```
 
 https://mybot314.ru/tekegram_catalog/

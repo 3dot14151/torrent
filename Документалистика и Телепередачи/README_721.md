@@ -1,3 +1,161 @@
+###  Публикация: 1683654   (128232) от 12.12.2023
+
+Пир на день Благодарения / Animals of Thanksgiving (2021) HDTVRip
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жареная индейка — главное угощение и главный символ Дня благодарения. Однако индейка — далеко не единственное животное, связанное с этим праздником.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальныйПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AE46A4687DDA7CA360715506E5EECBC2BFDE74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257912   (128149) от 13.12.2023
+
+Земля героев (2014) HDTVRip (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128149.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Земля героев" - проект, в котором сочетаются сразу 2 телевизионных жанра: историческое расследование и путевой дневник. Ведущий проекта отправляется в путешествие, в котором пытается найти места, связанные как с великими историческими деятелями далекого прошлого, так и с героями эпосов и легенд разных народов России. Задача ведущего не только интересно (   Читать дальше...   )Производство: Россия, ВГТРК, Единая Медиа ГруппаЖанр: Документальный, ИсторияУчастники: Анастасия Шулинская, Антон СоболевскийПродолжительность: ~00:28:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529811655E8275BBEEA8F017D31CA4D16B75F65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427405   (128148) от 13.12.2023
+
+Александр Суворов. Последний поход (2017) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Суворов – национальный герой, не потерпевший за всю свою карьеру ни одного поражения. По свидетельствам современников, Суворов не подписал ни одного смертельного приговора. Он старательно избегал неоправданных потерь своих воинов. Если его войска теряли больше одного процента против пяти процентов вражеских, то считал это настоящей трагедией. Суворов выявил (   Читать дальше...   )Производство: РоссияЖанр: Документально-постановочный, биография, историяРежиссер: Константин ГоленчикЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E714D5810FAE63A9F8CAB8CFC14206F201942E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684178   (128051) от 14.12.2023
+
+Тейлор Свифт: The Eras Tour / Taylor Swift: The Eras Tour (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Experience the Eras Tour concert, performed by the one and only Taylor Swift.Производство: США / Taylor Swift ProductionsЖанр: документальный, музыка, концертРежиссер: Сэм РенчУчастники: Тейлор Свифт, Аманда Бален, Taylor Banks, Карен Чуэнг, Одри Дугласс, Tori Evans, Tamiya Lewis, Sam McWilliams, Sydney Moss, Natalie PetersonПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (full, SDH), немецкие, испанские, португальскиеПродолжительность: 03:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F2A38207C44802704E0907E796F4347E293FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684289   (127872) от 15.12.2023
+
+Итоги года с Владимиром Путиным (14.12.2023) WEBRip [H.264/1080p] (полная версия)
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127872.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 декабря В Гостином дворе состоялось главное общественно-политическое событие — «Итоги года с Владимиром Путиным».
+Мероприятие прошло в совмещенном формате — прямой линии и большой пресс-конференции. Президент отвечал на вопросы жителей страны и журналистов больше четырех часов. Всего к прямой линии поступило более двух миллионов вопросов.Жанр: Экономика, политика, пресс-конференцияЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~04:03:56 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4ADF6FEC8304FC4E49AF29208E0BB988DDEFC08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684203   (127847) от 15.12.2023
+
+007: Дорога к миллиону / 007: Road to a Million (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соревновательное реалити – шоу, ведущий Брайан Кокс, в шоу участвует девять команд, по два человека в каждой, соревнуются в гонке за 1 миллион фунтов стерлингов. Участникам предстоит выполнить перечень сложных заданий, вдохновлённых фильмами о Джеймсе Бонде.
+Сериал был разработан компанией 72 Films совместно с Eon Productions и MGM Television для выпуска на Amazon (   Читать дальше...   )Производство: Великобритания, США / 72 Films, EON Productions, MGM TelevisionЖанр: игра, реальное ТВ, приключенияРежиссер: Джулиан Джонс, Tom Dumican, Джэми ГулдАктеры: Брайан Кокс, Josh Ali, Nick Ashton-Jones, Colin Barnes, James Bone, Joey Bone, Keith Curtis, Kamara Davis, Jenny Dorward, Daniel Fenner и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA402809DF4B184BDDEB302E980049856DEF221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684205   (127820) от 15.12.2023
 
 007: Дорога к миллиону / 007: Road to a Million (2023) WEB-DLRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +164,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127820.jpg" />
 </div>
 
 
@@ -33,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127592.jpg" />
 </div>
 
 
@@ -60,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127588.jpg" />
 </div>
 
 
@@ -86,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127587.jpg" />
 </div>
 
 
@@ -114,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127570.jpg" />
 </div>
 
 
@@ -140,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127563.jpg" />
 </div>
 
 
@@ -169,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127549.jpg" />
 </div>
 
 
@@ -195,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127442.jpg" />
 </div>
 
 
@@ -222,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127396.jpg" />
 </div>
 
 
@@ -248,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127385.jpg" />
 </div>
 
 
@@ -275,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127375.jpg" />
 </div>
 
 
@@ -301,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127361.jpg" />
 </div>
 
 
@@ -329,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127303.jpg" />
 </div>
 
 
@@ -355,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127268.jpg" />
 </div>
 
 
@@ -381,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127258.jpg" />
 </div>
 
 
@@ -407,7 +565,7 @@ RTG. Лавинная служба в Красной Поляне (2013) HDTV [H
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127234.jpg" />
 </div>
 
 
@@ -433,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127228.jpg" />
 </div>
 
 
@@ -459,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127171.jpg" />
 </div>
 
 
@@ -485,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127122.jpg" />
 </div>
 
 
@@ -511,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127111.jpg" />
 </div>
 
 
@@ -522,164 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9D2F1E1BBE77BE37D6D41E6E0975A72C27ACC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672974   (127097) от 19.12.2023
-
-Тайные болезни Габсбургов / Krankenakte Habsburg: Die Leiden von Sisi & Co (2019) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Болезни и недуги встречаются в каждой династии правителей. Были они и у бывших властителей Австрии, могущественных Габсбургов. Болезни династии Габсбургов увлекательная тема для исследователей. Так мы получаем представление как об истории, так и культуре быта, об условиях жизни, о настроениях общества того времени. Сами Габсбурги отражают то общество, в котором они (   Читать дальше...   )Производство: ГерманияЖанр: документальный, историяРежиссер: Штефан ВольнерПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFF1E0ABC79CA1C1BF8A657F088B0A956E9F6B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672989   (127096) от 19.12.2023
-
-Дикая природа страны ветряных мельниц / Wildlife in Windmill Country (2021) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альблассервард - это красивое голландское пастбище, расположенное в самом центре Нидерландов. Это место ветряных мельниц, обширных лугов и множества диких животных. Это место обитания чернохвостых божьих коровок, пурпурных цапель, зайцев, косуль, болотных лягушек и бабочек-аргусов.Производство: Голландия, M&N Media,Philips NatuurfilmsЖанр: документальный, путешествия, природа, флора, фаунаРежиссер: Стийн ФилипсПеревод: одноголосый профессиональныйЯзык озвучки: голландский, русскийСубтитры: отсутствуютПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9648B813386968C98A7A54DA37AAFE4BC071F075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672933   (127083) от 19.12.2023
-
-RTG. Один день на борту ледокола «Иван Крузенштерн» (2015) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127083.jpg" />
-</div>
-
-
-###  Подробнее
-
-От конца ноября и до начала апреля Финский залив, на берегу которого расположен город, покрыт льдом, и толщина его достигает 2 метров. Для того чтобы зимой навигация шла без сбоев в порту Санкт-Петербурга работает целая ледокольная флотилия состоящая из 13 судов. В нее входят большие и очень мощные линейные ледоколы, но также имеются и небольшие, но достаточно маневренные (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательныйРежиссер: Ирина ОхлопковаУчастники: Александр УваровЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE06BA22599AFF6502ADDD90931C049D15280D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672053   (127068) от 19.12.2023
-
-Дрю: Человек за плакатом / Drew: The Man Behind the Poster (2013) WEB-DL [H.264/1080p] [DVO] (Pazl Voice)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм освещает карьеру художника и иллюстратора Дрю Струзана, среди наиболее популярных работ которого – плакаты к фильмам об Индиане Джонсе, трилогии «Назад в будущее» и «Звёздным войнам». Картина включает в себя эксклюзивные интервью с Джорджем Лукасом, Стивеном Спилбергом, Харрисоном Фордом, Майклом Дж. Фоксом, Томасом Джейном, Фрэнком Дарабонтом, (   Читать дальше...   )Производство: США, Torino Pictures, Hefty, Sharkey ProductionsЖанр: документальный, история, биографияРежиссер: Эрик ШаркиУчастники: Грег Ароновиц, Тимоти Брэдстрит, Джоанна КэссидиПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские, английскиеПродолжительность: 01:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13540DC20A4CECB9C4DED4B247A6161E2A63AC90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672939   (127065) от 19.12.2023
-
-RTG. Животный мир Командорского архипелага (2013) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Командорский архипелаг в Тихом океане издавна называют еще Потаёнными островами. Это одна из самых удаленных и загадочных территорий России. Благодаря тому, что за много веков цивилизация практически не затронула эти земли, животный и растительный мир Командоров до сих пор пребывает в первозданном виде. На заповедной территории сохранились популяции редких животных (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательныйРежиссер: Игорь СоколовУчастники: Игорь МаксименкоЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E26752D547AE19EC8B338C5ADC42977719FA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683638   (126960) от 20.12.2023
-
-Из хроник Аушвица / Chroniques d'Auschwitz (2007) DVDRip [H.264] (части 1-5 из 5)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лагерь уничтожения, созданный нацистами в Польше, Аушвиц-Биркенау остается символом Холокоста и нацистского террора. В нем были интернированы более миллиона евреев, 150 000 поляков, 23 000 цыган, 15 000 советских военнопленных и миллионы других людей. Подавляющее большинство этих людей были убиты в лагере. Сегодня это самое большое еврейское кладбище в мире.
-
-В фильме (   Читать дальше...   )Производство: ФранцияЖанр: документальный, история, Вторая Мировая ВойнаРежиссер: Михал БукоемскиПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8B41F8D9FE8E705BE91953EF5EF6EC4CDDBBDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

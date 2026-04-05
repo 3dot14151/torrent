@@ -1,3 +1,55 @@
+###  Публикация: 1720789   (57601) от 04.05.2024
+
+Детективы с того света / Dead Boy Detectives (2024) WEB-DLRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарльз Роуленд и Эдвин Пейн — призраки из разных эпох, встретившие друг друга после смерти. Они решают вместе сбежать от сил Ада и самой Смерти, лишь бы не отправляться в загробный мир. Вместо этого парни решают остаться в мире живых, чтобы стать детективами и расследовать необычные преступления, в которых замешаны сверхъестественные существа. В этом им поможет девушка-ясновидящая (   Читать дальше...   )Производство: США / Berlanti Productions, DC Entertainment, Ghost OctopusЖанр: детектив, комедия, фэнтези, криминалРежиссер: Глен Винтер, Энди Армаганян, Пит Чатмон и др.Актеры: Джейден Реври, Джордж Рекстрю, Кассиус Нельсон, Бриана Куоко, Рут Коннелл, Yuyu Kitamura, Дженн Лион, Дэвид Яконо, Лукас Гейдж, Майкл Бич и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48FAC6F19BC0965965B58E603939489B5DAFB5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712717   (57463) от 06.05.2024
+
+Пэриш / Parish (2024) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грей Пэриш когда-то был членом преступной банды, но покинул ее ради семьи и стал владельцем элитного автопарка в Новом Орлеане. Однако, когда его сына жестоко убивают, Грей берется за старое. Он соглашается помочь опасному гангстеру, на которого он когда-то работал водителем, в деле, связанном с нелегальными мигрантами. И с этого момента его размеренная жизнь стремительно (   Читать дальше...   )Производство: США / A+E Studios, AMC Studios, Thruline EntertainmentЖанр: драма, триллер, криминалРежиссер: Суну ГонераАктеры: Джанкарло Эспозито, Закари Момо, Иван Мбакоп, Arica Himmel, Дэкс Рей, Ekow Blade, Patrick Robinson, Калеб Бауманн, Т. Джоэль Смит, Charles R. Edwards и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C9F8DD664324F500A89F003598C2D04403BC64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709132   (57132) от 09.05.2024
 
 Палм-Рояль / Palm Royale (2024) WEB-DLRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57132.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57028.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56993.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56633.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56546.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56463.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56295.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56294.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55879.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55789.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55620.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55609.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54634.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54429.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54319.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54088.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54057.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53857.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53765.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53140.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53110.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53107.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52913.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52880.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72A7BD6EF5D3FB5473F4F330DBBED4EDE7FA280C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426106   (52108) от 02.10.2025
-
-Октоберфест: Пиво и кровь / Oktoberfest: Beer & Blood (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет сериала «Октоберфест: Пиво и кровь» описывает историю, которая разворачивалась в начале 20-го века в Мюнхене. В городе в те времена действовало несколько пивоварен, которые постоянно конкурировали между собой. Две семьи, владевшие крупнейшими производствами алкогольного напитка, делали все возможное, чтобы задавить своих противников, не чураясь использовать (   Читать дальше...   )Производство: Германия, Чехия / Zeitsprung Pictures, Violet Pictures UG, Bayerischer Rundfunk (BR)Жанр: триллер, драма, историяРежиссер: Ханну СалоненАктеры: Мизель Матичевич, Мартина Гедек, Klaus Steinbacher, Николь Мюллер, Бриджит Хобмайер, Максимилиан Брюкнер, Маркус Кроер, Мартин Файфель, Михаэль Кранц, Кристиан Лекс и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:50:00 серииРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8B2C5416B8F9F27F8EFD1E068047CAA8D5281F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732556   (52095) от 25.06.2024
-
-Испорченный / Порочный / Perverso / Heartless (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Извращенный аристократ отбывающий наказание за изнасилования и убийства, решает воспользоваться расследованием по делу похитителя, чтобы выйти на свободу и отомстить судье, посадившей его в тюрьму.Производство: Испания / Onza EntertainmentЖанр: триллер, криминалРежиссер: Густаво Рон, Federico UntermannАктеры: Иван Массаге, Кира Миро, Эсмеральда Пиментел, Хан Корнет, Гильермо Бедуорд, Карлос Понсе, Пепе Осио, Диана Паласон, Далекса, Jorge Kent и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B9D9DFC4461B1B1D5A13D5989EFAAF646630C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

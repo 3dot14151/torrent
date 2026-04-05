@@ -6,7 +6,7 @@ Don Patterson - The Genius Of The B-3 (1972) 1991, Muse Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735459.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Trummy Young - 1944 - 1946 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735404.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Artie Shaw - 1941 - 1942 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734983.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dave Brubeck - The Definitive Dave Brubeck on Fantasy, Concord Jazz, and Telarc 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734806.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Vince Guaraldi - The Complete Warner Bros.-Seven Arts Recordings (1968 - 1969) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734803.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Count Basie - Live At The Savoy (1954) 1989, LaserLight [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734467.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Artie Shaw - 1945 - 1946 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734028.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Count Basie And His Orchestra - Swingin' At The Chatterbox (1937) 2001, Stardust
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733586.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Artie Shaw - 1951 - 1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing, B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733178.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kenny Barron & Mark Sherman - Interplay (2015) Chesky Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732970.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ John Lewis & The American Jazz Orchestra - Ellington Masterpieces (1989) EastWes
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732969.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lizz Wright - Fellowship (2010) [FLAC|Lossless]<Vocal Jazz, Gospel>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732809.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Male Jazz Singers: Milestones Of Jazz Legends (1952 - 1962) 10CD, 2017, The
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732734.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Eric Alexander - Dead Center (2004) HighNote [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732233.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kenny Barron - Sunset To Dawn (1973) 1990 [WavPack|Lossless|image + .cue] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732227.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Charles Mingus - Complete 1945-1949 West Coast Recordings (2001) Jazz Factory [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732221.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Miles Davis - Collectors' Items (1953, 1956) 2004, Prestige [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732219.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jeff Lorber Fusion - Prototype (2017) [FLAC|Lossless|tracks + .cue] <Smooth-Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732162.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chet Baker - The Trumpet Artistry Of Chet Baker (1955) 2018, Universal [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732158.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ambrose Akinmusire - Origami Harvest (2018) [FLAC|Lossless|tracks + .cue] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732157.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tethered Moon - Plays Jimi Hendrix+ (1998) Media Rings [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732152.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Stan Kenton - Artistry In Bossa Nova (1963) Remaster, 2013, Universal[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732102.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Jazz For Lovers Volume 2 (1993) [APE|Lossless|image + .cue] <Jazz, Blues, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732085.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Low Kick Collective - Kafka (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Fut
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731865.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Kenny Barron Quartet - Invitation (1991) [WavPack|Lossless|image + .cue] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731160.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Clark Terry - Clark Terry's Big-B-A-D-Band: Live! At Buddy's Place (1976) Univer
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731157.jpg" />
 </div>
 
 

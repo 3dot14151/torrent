@@ -1,3 +1,134 @@
+###  Публикация: 1299676   (597970) от 02.05.2019
+
+Журнал | Наука из первых рук №2-3 (78) (2018) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный иллюстрированный журнал широкого профиля. Девизом журнала стали слова Леонардо да Винчи: «Естественное желание хороших людей – добывать знания», поэтому читательская аудитория практически не имеет ограничений, и журнал можно рекомендовать для семейного чтения. Авторы журнала – ведущие российские и зарубежные ученые. Тематика журнала охватывает практически (   Читать дальше...   )Жанр: научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E54B1F84AF78AA18C47ED6D0D30A44B2D905CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299635   (597969) от 02.05.2019
+
+Журнал | Наука из первых рук №2 (82) (2019) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный иллюстрированный журнал широкого профиля. Девизом журнала стали слова Леонардо да Винчи: «Естественное желание хороших людей – добывать знания», поэтому читательская аудитория практически не имеет ограничений, и журнал можно рекомендовать для семейного чтения. Авторы журнала – ведущие российские и зарубежные ученые. Тематика журнала охватывает практически (   Читать дальше...   )Жанр: научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3CB4462732E883AFDB30237C4A6302B5DA993F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299667   (597967) от 02.05.2019
+
+Журнал | Наука из первых рук №5-6 (80) (2018) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный иллюстрированный журнал широкого профиля. Девизом журнала стали слова Леонардо да Винчи: «Естественное желание хороших людей – добывать знания», поэтому читательская аудитория практически не имеет ограничений, и журнал можно рекомендовать для семейного чтения. Авторы журнала – ведущие российские и зарубежные ученые. Тематика журнала охватывает практически (   Читать дальше...   )Жанр: научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E93DDA322964B8356B0C84859A961E36BBBB975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299693   (597962) от 02.05.2019
+
+Журнал | Наука из первых рук. Спецвыпуск №2 (2018) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный иллюстрированный журнал широкого профиля. Девизом журнала стали слова Леонардо да Винчи: «Естественное желание хороших людей – добывать знания», поэтому читательская аудитория практически не имеет ограничений, и журнал можно рекомендовать для семейного чтения. Авторы журнала – ведущие российские и зарубежные ученые. Тематика журнала охватывает практически (   Читать дальше...   )Жанр: научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F16028586386DB2E948E6BC6D0192596556C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299664   (597955) от 02.05.2019
+
+Журнал | Ателье №5 (2019) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто создаёт одежду.В журнале вас ждут самые последние новости мира моды, главные тенденции осенне-зимнего сезона, уникальная методика конструирования по универсальной системе.
+Основные материалы журнала посвящены последним новостям моды в России и за рубежом, персоналиям, так или иначе связанным с модой и производством одежды, производственным и техническим (   Читать дальше...   )Жанр: Шитьё и кройФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39CEECF3E89742492A8DF3E878DFBC52EFE50A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299531   (597852) от 02.05.2019
 
 Журнал | National Geographic Traveler (апрель-май 2019) [PDF]
@@ -6,7 +137,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597852.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597669.jpg" />
 </div>
 
 
@@ -60,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597665.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597646.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597023.jpg" />
 </div>
 
 
@@ -138,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596840.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596683.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596609.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596507.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596474.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596364.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596170.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596169.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596166.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596159.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596092.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596091.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596090.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596089.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595979.jpg" />
 </div>
 
 
@@ -528,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595962.jpg" />
 </div>
 
 
@@ -541,137 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AE7E644D9D86EFF2D913A4947C45A0C899FBAC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039611   (595958) от 01.08.2016
-
-Журнал | Библиотека журнала Моя любимая дача №15 (2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал публикует рецепты заготовок из овощей.Жанр: Кулинария, консервирование, домашние заготовкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D2087E7500825C2536E8B92468623D3444C1A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039605   (595952) от 01.08.2016
-
-Журнал | АиФ. Спецвыпуск вопросов и ответов (июль 2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему этот спецвыпуск появился в Челябинске?
-Невелика заслуга засолить и замариновать то, чем щедро одарила земля. Кухня южной хозяйки в период заготовок напоминает мини-консервный завод: только успевай крышки крутить. Другое дело - Челябинск. Долгими зимними, а потом весенними, а потом еще и летними вечерами мы мечтаем об урожае. Прикидываем: что побьёт июньскими (   Читать дальше...   )Жанр: Кулинария, консервирование, домашние заготовкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC7AEB486A08F71B3986FD5A56F582EFE13B686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527272   (595940) от 25.07.2012
-
-Газета | Сад, огород - кормилец и лекарь №14 (172) (июль 2012) [DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595940.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сад, огород – кормилец и лекарь» — журнал, который поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D3066F3759FFB6BDF7E29869CCA1DDF3640F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039680   (595910) от 01.08.2016
-
-Журнал | Знание-сила №8 (август 2016) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB55ED08FA1B52199A34E9ABBDB76C99BE49B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299820   (595909) от 03.05.2019
-
-Журнал | Шитье и крой (ШиК). Спецвыпуск №10. На крупную фигуру [+выкройки] (2018) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595909.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ШиК» — современный журнал по шитью. Десятки оригинальных, изысканных и шикарных моделей pret-a-porter для женщин. Журнал дополнен специальным разделом, где представлены варианты коллекций для полных, маленьких и миниатюрных женщин, а также детские и мужские модели. В каждом номере героини известных отечественных и зарубежных кинофильмов и сериалов представляют вниманию (   Читать дальше...   )Жанр: Шитьё и кройФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E9B074DD0B56B25B1F73A600CB7AD857F79C84
 ```
 
 https://mybot314.ru/tekegram_catalog/

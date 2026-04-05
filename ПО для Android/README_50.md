@@ -1,3 +1,108 @@
+###  Публикация: 1225647   (659622) от 16.05.2018
+
+RSS Reader v1.7.0 [Ru] - чтение RSS-лент
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для чтения RSS-лент. Позволяет читать любимые новостные ленты. Поддержка импорта из OPML, автоматическое обновление лент, уведомления о появлении новостей.Тип издания: Пиратка (разблокирована Pro)Релиз состоялся: 18.01.2018Разработчик: Svyatoslav VasilevПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F71CA305CD4FBD8A90FAB0AF150A5B7C98E3F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903581   (657485) от 31.05.2015
+
+Азбука для детей (Алфавит) 1.1.2 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите, чтобы ваш ребенок научился читать? Давайте начнем с изучения букв русского алфавита!
+Говорящая азбука станет самым надежным помощником в обучении ребенка чтению. Эта интерактивная игра для малышей создана, чтобы они в игровой форме могли изучать алфавит и правильное написание букв. Это веселое приложение для детей, где они вместе с родителями или же самостоятельно (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 20 мая 2015 г.Разработчик: Educational Games for Kids StudioПоддерживаемая ОС: Android 2.3Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277C60E5D8A66EF836F10568B83893FE332AAE0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904155   (655109) от 02.06.2015
+
+Root Browser (File Manager) 2.2.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Root Browser подойдёт владельцам как рутованных, так и нерутованных устройств. Если у вас есть права пользователя root, тогда это приложение даст вам доступ ко ВСЕЙ файловой системе Андроида. Имея красивый интерфейс, массу возможностей и невысокую цену, Root Browser - это то, что надо!Тип издания: ПираткаРелиз состоялся: 30 мая 2015 годаРазработчик: JRummy Apps Inc.Поддерживаемая ОС: Android 1.6Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF0B9294C768F2FA002651D3E915AC6D2AD0FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789499   (655075) от 02.06.2015
+
+CAD Touch Pro v5.09 [Ru/En] - Редактор и просмотрщик файлов формата DWG/DXF
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655075.jpg" />
+</div>
+
+
+###  Подробнее
+
+CAD Touch Pro – отличная расширенная версия программы CAD Touch для проектирования, которое полностью дает возможность заняться черчением на вашем Андроид устройстве, для профессоналов в различных ключевых областях, такие как архитектура, машиностроение, недвижимость, дизайн дома, и многие другое. В ваших руках полноценный инструмент для черчения, рисования эскизов (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 01.06.2015Разработчик: cadTouch SoftwareЯзык интерфейса: Английский (5.09) / Русский (5.07)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379D45A8392988A3D4A2A8673C63FC89B04B2C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497690   (653625) от 29.03.2022
 
 Delta VPN v1.7 [Ru/Multi]
@@ -6,7 +111,7 @@ Delta VPN v1.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653625.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Battery Repair (Doctor Boost) 2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650813.jpg" />
 </div>
 
 
@@ -62,7 +167,7 @@ Akimbo Audiobook Player v1.6.1 (30.06.2014) <Ru>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_648919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648919.jpg" />
 </div>
 
 
@@ -95,7 +200,7 @@ MyPhoneExplorer 1.0.35 - Explorer для Android  [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647005.jpg" />
 </div>
 
 
@@ -121,7 +226,7 @@ Star Walk 2 - Night Sky Guide 1.3.2.138 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647002.jpg" />
 </div>
 
 
@@ -148,7 +253,7 @@ CM (Cleanmaster) Security 2.6.2 - Антивирус [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639048.jpg" />
 </div>
 
 
@@ -174,7 +279,7 @@ Muscle Premium v4.1.13 Unlocked [En] - анатомия мышц человек�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639045.jpg" />
 </div>
 
 
@@ -200,7 +305,7 @@ Maths Formulas 9.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634972.jpg" />
 </div>
 
 
@@ -226,7 +331,7 @@ Runtastic GPS Бег 5.11 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631710.jpg" />
 </div>
 
 
@@ -252,7 +357,7 @@ Power Media Player Pro v6.1.1 Unlocked [Ru/Multi] - Android версия PowerDV
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631500.jpg" />
 </div>
 
 
@@ -278,7 +383,7 @@ Fotoo v2.3.7 Premium [En] - цифровая фоторамка и скринс�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629639.jpg" />
 </div>
 
 
@@ -304,7 +409,7 @@ Tasker 4.7u1m [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627382.jpg" />
 </div>
 
 
@@ -330,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625461.jpg" />
 </div>
 
 
@@ -356,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623061.jpg" />
 </div>
 
 
@@ -382,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620345.jpg" />
 </div>
 
 
@@ -411,7 +516,7 @@ IELTS® Speaking Pro v4.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620044.jpg" />
 </div>
 
 
@@ -437,7 +542,7 @@ Schematic v2.2.1 [Ru/Multi] - составление и редактирован
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619718.jpg" />
 </div>
 
 
@@ -463,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619594.jpg" />
 </div>
 
 
@@ -489,7 +594,7 @@ AirPlay/DLNA Receiver PRO v2.6.9 [En] - мощный приёмник медиа
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619376.jpg" />
 </div>
 
 
@@ -515,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619362.jpg" />
 </div>
 
 
@@ -541,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619307.jpg" />
 </div>
 
 
@@ -567,7 +672,7 @@ KidsTrack 1.0.4 [Ru] - GPS-трекер на телефон ребенку
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619281.jpg" />
 </div>
 
 
@@ -579,110 +684,6 @@ idsTrack позволит Вам всегда быть в курсе где Ва
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:728612164F4AFF553DEB8D0C9A9D1D6418FD5188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295934   (616738) от 14.04.2019
-
-Билеты ПДД 2019 v9.40 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобное приложение-автошкола для подготовки к теоретическому экзамену в ГИБДД.Тип издания: Пиратка (удалена реклама)Релиз состоялся: 29.03.2019Разработчик: Bit-WorldПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422E67D80C8344608292D99E3C3C0A8E78DDE01A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296544   (611748) от 17.04.2019
-
-Стихи зарубежных поэтов v1.0.4.5 AdFree [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихи зарубежных поэтов - содержит более 6000 стихи 122 зарубежных поэтов.Тип издания: AdFree (удалена реклама)Релиз состоялся: 07.04.2019Разработчик: TTdictionaryПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DEDEA09F4DE45CC7456E58CC592F4B95623C2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296638   (609913) от 18.04.2019
-
-TВ - Онлайн v2.3 Mod [Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш телевизор всегда с вами! Смотрите каналы от спорта до музыки, от новостей до мультфильмов, без ограничений! Каждый день мы добавляем страны и новые каналы. Телевизионные каналы обновляются автоматически. Вы можете добавить в избранное, искать среди каналов выбранной страны, просматривать в минимизированном режиме. Многие функции в доработке будут еще лучше!Тип издания: (Mod: удалена реклама и хлам)Релиз состоялся: 13.04.2019Разработчик: Angry developerПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889C5BED43CEF466F3225ECC1581EA5D193D433C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902947   (608451) от 27.06.2015
-
-Scientific Calculator Pro / Научный калькулятор Pro v2.5.4 [Ru/Multi] - калькулятор с построением графиков
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это удобный калькулятор, который может быть использован для ваших математических задач.Тип издания: ПираткаРелиз состоялся: 27.06.2015Разработчик: RealMaxПоддерживаемая ОС: Android 3.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D2A738D22F1942C41632F0D39CBA828CE9E0973
 ```
 
 https://mybot314.ru/tekegram_catalog/

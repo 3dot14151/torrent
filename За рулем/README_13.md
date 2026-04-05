@@ -1,3 +1,29 @@
+###  Публикация: 1285941   (710970) от 03.03.2019
+
+Discovery. Махинаторы / Wheeler Dealers (2018) HDTVRip [H.264/720p-LQ] (сезон 16, серии 1-9 из 9)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опытный автодилер Майк Брюер и талантливый автомеханик Энт Энстед покупают и реставрируют классические автомобили, чтобы выгодно их перепродать. В каждом выпуске шоу «Махинаторы» они сталкиваются с самыми разными вызовами ‒ от ограниченного бюджета до нехватки редких деталей, ‒ но почти всегда им удается найти удачный компромисс.Производство: Великобритания, Attaboy TV LTD for Discovery ChannelЖанр: Документальный, ТелепередачаРежиссер: Ричард Хили, Уоррен Грин, Дэниэл Аллум, Майкл Вуд, Эд ЧайнаПеревод: ДублированныйПродолжительность: ~ 00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270D4814D769694843BFF366E6748FD8084402DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285944   (710829) от 03.03.2019
 
 Discovery. Махинаторы / Wheeler Dealers (2018) HDTVRip (сезон 16, серии 1-9 из 9)
@@ -6,7 +32,7 @@ Discovery. Махинаторы / Wheeler Dealers (2018) HDTVRip (сезон 16,
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710829.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709833.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709328.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709166.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706494.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704597.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701375.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700544.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699626.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699543.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698701.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698227.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696295.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693040.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691166.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688519.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686718.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686570.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686468.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686266.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684542.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684286.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684229.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682125.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2014) 
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681060.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2014) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A036000BAA402651E50117914229BA7E30EDEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113375   (680947) от 19.05.2017
-
-Мастерская «Фантом Уоркс» / FantomWorks (2014) HDTVRip [H.264/1080p] (сезон 2, серии 1-6 из 6) [AD]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн Корот, бывший пилот-испытатель, надеется, что Fantomworks станет самой крупной в США мастерской по восстановлению классических автомобилей, которая работает с военной точностью. Вместо этого он выясняет, что при создании старых автомобилей «лучше, чем новые» - ничего не идет по плану. Очень качественно и довольно подробно рассказывают о том что делают.Производство: США. New Dominion PicturesЖанр: Реалити-шоу, автомобили, реставрация автомобилейПеревод: Одноголосный закадровый, профессиональныйПродолжительность: ~ 00:44:00 каждая серияРеклама: Присутствуют текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0226A81322220D7DC6D2A0F6B83AECDAB992D62
 ```
 
 https://mybot314.ru/tekegram_catalog/

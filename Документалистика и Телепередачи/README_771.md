@@ -1,3 +1,162 @@
+###  Публикация: 1750406   (43102) от 19.09.2024
+
+Гранд тур / The Grand Tour (2024) WEB-DL [H.264/1080p] (сезон 6, серии 1-1 из 1) AlexFilm
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43102.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Великобритания / Amazon StudiosЖанр: ток-шоуРежиссер: Фил Чурчуорд, Кит Линч Робинсон, Гэвин УайтхедУчастники: Джереми Кларксон, Ричард Хаммонд, Джеймс МэйПеревод: Многоголосый профессиональный (AlexFilm)Язык озвучки: Русский, АнглийскийСубтитры: Aнглийские (Forced, Full, SDH)Продолжительность: 02:10:07Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAD50DA5926FF753B6E27F0692F7DC287737AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750342   (43072) от 19.09.2024
+
+Гранд тур / The Grand Tour (2024) WEB-DL [H.265/2160p] (сезон 6, серии 1-1 из 1) AlexFilm
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43072.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Великобритания / Amazon StudiosЖанр: ток-шоуРежиссер: Фил Чурчуорд, Кит Линч Робинсон, Гэвин УайтхедУчастники: Джереми Кларксон, Ричард Хаммонд, Джеймс МэйПеревод: Многоголосый профессиональный (AlexFilm)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 02:10:07Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C42D0384666FD74D7D5AE45C7888B0477CE8CF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750312   (43031) от 19.09.2024
+
+Элвис Пресли. От начала до конца / Elvis Presley. From the beginning to the end (2004) DVDRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм – уважение королю рок-н-ролла и в то же время всеобъемлющая и подробная биография его жизни. Используя редкие кадры и фотографии, фильм рассказывает историю Элвиса Пресли от его рождения в Тупело и до его трагической смерти. Представлены интервью с музыкантами и историками музыки.Производство: США / North Shore Entertainment, Tangiers EntertainmentЖанр: документальный, биография, искусствоРежиссер: Marino AmorusoУчастники: Lee Hanover, Martin Lockman, Sam PhillipsПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F3A0ECF0B5E407E543FA81DDDE2520A205D259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750790   (42828) от 21.09.2024
+
+Королева без королевства / Queen without Land (2018) WEBRip [H.265/2160p] [4K, SDR]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это правдивая история о том, как встретились белая медведица Фрост и Асгейр Хельгестад — норвежский режиссер, снимающий фильмы о дикой природе. Этот фильм — четыре года путешествий по Шпицбергену.
+Когда абсолютная темнота сменяется полярным днем, Шпицберген из холодного и негостеприимного места превращается в радостный и оживленный край, где хорошо себя чувствуют (   Читать дальше...   )Производство: Норвегия / Artic LightЖанр: документальный, природаРежиссер: Асгейр ХельгестадУчастники: Асгейр ХельгестадПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD57786E1BE9FBF8786EBA93D7C6A07831DF3FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750834   (42816) от 21.09.2024
+
+Экстрасенсы. Реванш (21.09.2024) WEBRip [H.264/1080p] (сезон 2, выпуск 3)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое шоу с участием пока экстрасенсов, которые когда-то вылетели из легендарной «Битвы». Настал их черёд реванша: пришло время доказать, что поражение было случайностью. Для того, чтобы заново доказать свою состоятельность, им необходимо будет разгадать истории 10 незнакомцев, которых они увидят в студии.Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5570624D2EF5A2B01E422565BB6802D694468AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750870   (42705) от 22.09.2024
+
+Голос. Дети (2024) WEBRip [H.264/1080p] (сезон 11, выпуск 3)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиннадцатый сезон телевизионного шоу «Голос. Дети».
+«Голос.Дети» — детская версия нашумевшего суперпроекта «Голос». Это шоу принципиально отличается от привычных вокальных конкурсов и шоу по поиску музыкальных талантов. Мы нашли лучшие голоса страны!
+Победитель сезона получит возможность записать и выпустить трек при поддержке музыкального лейбла VK Records.Производство: Россия | «ITV Studios», «Первый канал»Жанр: Тв шоу, музыкальный конкурсСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:18:03Реклама: Контекстная реклама спонсоров выпуска
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE1854C361102C0A7763EF41AB4719684365544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751233   (42676) от 23.09.2024
 
 Гранд тур / The Grand Tour (2024) WEB-DL [H.264/1080p] (сезон 6, серии 1-1 из 1) Jetvis Studio
@@ -6,7 +165,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42676.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42386.jpg" />
 </div>
 
 
@@ -61,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42208.jpg" />
 </div>
 
 
@@ -87,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42103.jpg" />
 </div>
 
 
@@ -113,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41975.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41908.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41897.jpg" />
 </div>
 
 
@@ -191,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41888.jpg" />
 </div>
 
 
@@ -217,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41598.jpg" />
 </div>
 
 
@@ -243,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41438.jpg" />
 </div>
 
 
@@ -269,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41388.jpg" />
 </div>
 
 
@@ -295,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41363.jpg" />
 </div>
 
 
@@ -321,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41245.jpg" />
 </div>
 
 
@@ -347,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41159.jpg" />
 </div>
 
 
@@ -373,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40908.jpg" />
 </div>
 
 
@@ -399,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40652.jpg" />
 </div>
 
 
@@ -425,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40562.jpg" />
 </div>
 
 
@@ -451,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40360.jpg" />
 </div>
 
 
@@ -477,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40296.jpg" />
 </div>
 
 
@@ -503,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40294.jpg" />
 </div>
 
 
@@ -514,164 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77F6186F2E8A22C6837B52E5833B6397F32ED1D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755613   (40186) от 16.10.2024
-
-Беломорско-Балтийский водный путь /  Б.Б.В.П. (1932) WEBRip
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снимался на одной из первых великих строек страны Советов. Беломорканал был возведён в рекордно короткий срок ценой ... Ладно, не будем уточнять про цену. Один из первых звуковых документальных фильмов СССР. Это был период перехода от немого кино к звуковому. И фильм точнее было бы определить не как звуковой, а как озвученный. И одновременно со звуком все еще (   Читать дальше...   )Производство: СССР / ВостокфильмЖанр: документальный, историяРежиссер: Александр ЛембергЯзык озвучки: русскийСубтитры: русские (интертитры)Продолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F50454D6E1B6A70334DE91DC48E2322277FCC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755946   (39953) от 18.10.2024
-
-Комсомол / Песнь о героях (1932) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландский режиссер-коммунист Ивенс находясь в СССР снимает фильм в котором запечатлевает конец первой сталинской пятилетки, - строительство завода в Магнитогорске, а именно возведении больших доменных печей.Производство: СССР / МежрабпомфильмЖанр: документальный, историяРежиссер: Йорис ИвенсПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF21816DF383550A74BCCA075310CB0833864B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756201   (39756) от 20.10.2024
-
-Своя игра (19.10.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39756.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1558CC5B7DD206CA4F3A7D400C4611FF93CC499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756335   (39755) от 20.10.2024
-
-Чудо техники с Сергеем Малозёмовым (20.10.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как в Голливуде! Зубы с бриллиантами, титановые челюсти, накладные брекеты: люди готовы платить за новые тренды сотни тысяч рублей. Команда программы вместе со стоматологами разобралась, обойдется ли без жертв такая красота.
- Какие опасности могут принести в дом наши любимые питомцы.
- «Вечная зажигалка», которой не нужен ни газ, ни бензин, зарядить ее можно с помощью (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547018872ED9A31696709F214BD5FEFE320C6AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386905   (39734) от 21.10.2024
-
-Обитаемая Вселенная / Living Universe / Search For Second Earth (2018) HDTVRip [H.264/720p-LQ] (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное великое путешествие человека уже началось - поиск жизни на планетах, вращающихся вокруг далёких звезд. Благодаря исследованиям выдающихся учёных и впечатляющей компьютерной графике, фильм "Обитаемая Вселенная" покажет не только самые удалённые уголки нашей планеты с их экстремальными условиями, но также развеет и облака над планетами, которые (   Читать дальше...   )Производство: Австралия, Франция / Essential Media & Entertainment, ZedЖанр: Документальный, космосРежиссер: Vincent Amouroux, Alex BarryПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: Английские (на французскую речь, вшитые, неотключаемые)Продолжительность: 4 x ~ 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDD045FFED5173035C7D3B1AE9D11E03FA2F34F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756384   (39649) от 21.10.2024
-
-Своя игра (20.10.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39649.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F796C14C623E42BD58B0CEB1A329F9683C220FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

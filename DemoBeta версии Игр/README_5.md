@@ -6,7 +6,7 @@ Outbreak: Pandemic Evolution (2016) [En] (Patch 8) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527093.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Turmoil (2015) [En] (0.0.0.185) License  [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522284.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mighty No. 9 (2015) [En] (Beta 1.0) Repack Let'sРlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481307.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ATOM RPG: Trudograd (2020) [Ru/En] (0.6.7.1) Repack xatab [Early Access] (обн
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478512.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Void Destroyer 2 (2016) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476788.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dungeon Souls (2015) [En] (2.0 HotFix.1) Repack Let'sРlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475046.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Catacomb Kids (2015) [En] (Early Access 0.0.11b) Repack Let'sРlay
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472788.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DRAG (2020) [Multi] (0.1.7.0) Steam-Rip Goldberg [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465853.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Metel - Horror Escape (2020) [Ru/En] (0.279) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461613.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Breathedge (2018) [Ru/En] (0.9.1.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447942.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Chernobylite (2019) [Ru/Multi] (31663) Repack xatab [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444470.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Dead Age 2 (2020) [Ru/Multi] (1.26) Repack xatab [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439958.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Blockscape (2014) [En] (322714) Repack Hazestalker
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439399.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Wolcen: Lords of Mayhem (2016) [Ru/Multi] (0.3.0 Hotfix) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422808.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BLOCK'HOOD (2016) [En] (0.80.16) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410914.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Man O' War: Corsair (2016) [En] (0.6.3) License GOG
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410902.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 [Ru/Multi4] (Demo/v
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405367.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Mashinky (2017) [Ru/Multi] (05102017) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391645.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ EBOLA 3 (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387041.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_377555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377555.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Wild Eight (2017) [Ru/Multi] (0.7.28) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375719.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Stranded Deep (2015) [Ru/Multi] (0.74.00) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373517.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ hack_me (2016) [Ru/En] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368120.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Spacebase DF-9 (2013) [En] (early access alpha 2 taste oddity) Repack Elektra
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352272.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Vagante (2014) [En] (Alpha 28b) Unofficial CheatBraker
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348426.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Killsquad (2019) [Ru/En] (0.7.3) Repack Mizantrop1337 [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347290.jpg" />
 </div>
 
 

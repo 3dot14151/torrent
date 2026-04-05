@@ -1,3 +1,55 @@
+###  Публикация: 962998   (290551) от 06.12.2015
+
+Нулевая терпимость / Zero Tolerance (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два бывших военизированных сотрудника, Джонни и его полицейский друг детектив Питер, приезжают в Бангкок, чтобы найти убийц красивой дочери Джонни Анджел…Производство: ТаиландЖанр: Боевик, триллер, криминалРежиссер: Вич КаосаянандаАктеры: Дастин Нгуен, Скотт Эдкинс, Сахайак Бунсанакит, Гэри Дэниелс, Принья Интачай, Кейн Косуги, Стивен Кларк, Натали ЛоренсПеревод: Любительский двухголосый (Parovoz Production)Продолжительность: 01:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973E88A36234DFE21FF320F31EE9F92DB52A7885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186082   (289657) от 23.11.2017
+
+Послание / Feng sheng (2009) HDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая мировая война, 1942 год. Китай, город Нанкин. В городе действует хорошо законспирированная группа разведчиков. После ряда покушений на чиновников марионеточного правительства Китая приходит приказ от командования — найти группу любой ценой. Разведка японцев подозревает нескольких людей, их привозят в замок и начинают жестокий допрос.Производство: Китай / Huayi Brothers & Taihe Film Investment, Huayi Brothers International Distribution, Huayi Brothers MediaЖанр: Триллер, Драма, ВоенныйРежиссер: Куо-фу Чен, Гао ЦзюньшуАктеры: Чжоу Сюнь, Чжан Ханьюй, Ли Бинбин, Хуан Сяомин, Алек Су, Ван Чживэнь, Ин Да, Дуань Ихун, Су Чжу, Лю ВэйвэйПеревод: Одноголосый закадровый, авторский (Ю. Сербин)Субтитры: отсутствуютПродолжительность: 01:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C5FFA4B6BE24EADFAAA82D9E735E077F3A5DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 733510   (287179) от 12.12.2013
 
 Восточные кондоры / Eastern condors / Dung fong tuk ying (1987) DVDRip [VO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287179.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286199.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286026.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285850.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285539.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285444.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283852.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283388.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281946.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281791.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280336.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278479.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278278.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277571.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277074.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277071.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276863.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275100.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274360.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274221.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273349.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273342.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273260.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271277.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E124595CCE1EE7D77C334A43F94314395C7AE9D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265381   (270894) от 01.12.2018
-
-Мой питомец /  You're my pet / Neoneun pet (2011) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270894.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Чи Ын-и парни долго не задерживаются. Не каждый способен терпеть рядом девушку, которая и карьеру сделала, и зарабатывает больше, и куда ни глянь — везде умница да красавица. Но тяжело девушке одной, хочется тепла, чтобы дома кто-нибудь ждал, и было, о ком заботиться. И в тот момент, когда Ын-и уже морально готова завести домашнего питомца, её братец притаскивает (   Читать дальше...   )Производство: Корея Южная, Lotte Entertainment,Production RudensЖанр: Комедия, Мелодрама, РомантикаРежиссер: Пён-гон КимАктеры: Ким Ха-ныль, Чан Гын-сок, Рю Тхэ-джун, Чон Ю-миПеревод: Двуголосый закадровый (любительский) Nas, CollapseСубтитры: отсутствуютПродолжительность: 01:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F0B96BE3A761245F08346860BC4CD6A6211E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266584   (269975) от 02.12.2018
-
-Расчлененка / Cheun / Slice (2009) BDRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жертвами серийного убийцы становятся совершенно разные люди, полиция не может понять, по какому принципу убийца их отбирает. Убийство всегда совершается максимально жестоким способом, после чего тело жертвы расчленяется и упаковывается в красный чемодан. После того, как очередной жертвой становится сын министра, лейтенанту полиции Чину поставлен жесткий ультиматум: (   Читать дальше...   )Производство: Таиланд / Five Stars Production CompanyЖанр: Детектив, Триллер, КриминалРежиссер: Конгкиат КхомсириАктеры: Арак Аморнсупасири, Сонтхая Читмани, Джессика Пасапхан, Чатчай Пленгпанич, Сикарин Полюонг, Артхаран ПулсавадПеревод: Многоголосый закадровый (СВ-студия) - ненормативная лексика!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556582C1C8FE251E783F7BF5E67A14CC72DD06D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

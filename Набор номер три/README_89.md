@@ -1,3 +1,161 @@
+###  Публикация: 1093031   (936578) от 13.01.2017
+
+Ubuntu GamePack 16.04 [i386/amd64] 2xDVD
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект UALinux выпустил сборку Ubuntu GamePack 16.04, предоставляющую средства для запуска более 22 381 игр, как оригинальных, разработанных специально для платформы GNU/Linux, так и игр для Windows, запускаемых при помощи PlayOnLinux, CrossOver и Wine, а также старых игр для MS-DOS.
+Дистрибутив собран на базе Ubuntu 16.04 и включает в себя все обновления, по состоянию (   Читать дальше...   )Разработчик: UALinux
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A7F630821B3A66EE75F682865B383D4135E7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092780   (936572) от 13.01.2017
+
+Need for Speed Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack =nemos=
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed: Most Wanted – безумные гонки по огромному открытому городу, полному как уличных гонщиков, так и полицейских. При этом обновленный Autolog позволяет легко отслеживать все действия (заезды, прыжки на трамплинах, проезды на огромных скоростях мимо камер и т.д.) ваших друзей и сравнивать их со своими достижениями.Тип издания: RepackРазработчик: Criterion GamesЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD44BBAAA10DF875801C0AD336E49D323CD4B5FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 261119   (936570) от 13.01.2017
+
+Коллекция фильмов 12 стульев и Золотой телёнок (Ильф и Петров) [1933 - 2006] DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал Золотой теленок это попытка экранизации культового романа Ильи Ильфа и Евгения Петрова с включением фрагментов, ранее не публиковавшихся по цензурным соображениям.Жанр: Русский сериал, комедияРежиссер: Ульяна Шилкина.Перевод: ОригинальныйСубтитры: русские (вшитые)Формат: AVIПродолжительность: 8 серий x 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C6C8F36FF74E4BE856C43C8BA6BA513F78EEEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092781   (936564) от 13.01.2017
+
+Windows 7 SP1 (x86/x64) 13in1 +/- Office 2016 by SmokieBlahBlah 12.01.17 [Ru/En]
+
+>>3
+>>15
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936564.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 редакций Windows 7 (русские и английские) с IE 11, важными и рекомендуемыми обновлениями по январь 2017 (кроме нерекомендуемых) и интегрированными системными библиотеками +13 таких же редакций со встроенным MS Office 2016 Pro Plus VL х86 (можно выбрать, ставить ли Office. Галочка перед началом установки, см. 1-й скриншот). Язык офиса зависит от выбранного языка (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FE81E7EB06B3ABC8E2F8B5B64347904B5230B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984612   (936371) от 10.02.2016
+
+Доступ в интернет может стать бесплатным для отдельных групп населения в ближайшее время, считают в ГД
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет для россиян может стать бесплатным
+Бесплатный доступ в интернет для отдельных слоев населения России может быть введен в ближайшее время. Об этом заявил на международном форуме по кибербезопасности Cyber Security Forum председатель комитета Госдумы по информационной политике, информационным технологиям и связи Леонид Левин."Возможно, бесплатный доступ (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984976   (936369) от 10.02.2016
+
+Adobe Muse CC 2015.1.0 Multilingual Update 3
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Muse CC 2015 – визуальный конструктор сайтов, функционирующий по принципу «отображение внесённых изменений в реальном времени». Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной пользователю (   Читать дальше...   )Язык интерфейса: Английский / Голландский / Датский / Испанский / Итальянский / Китайский (традиционный) / Корейский / Немецкий / Норвежский / Польский / Португальский / Русский / Турецкий /  Финский / Французский / Чешский / Шведский / Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E172735875BE5CDC7C087651649CFBF788A02533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984777   (936357) от 10.02.2016
 
 Stop SMS Uni Boot х86 (3in1) v.6.02.10 [Ru/En]
@@ -6,7 +164,7 @@ Stop SMS Uni Boot х86 (3in1) v.6.02.10 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936357.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ VA - Classic Rock Magazine Collection (1998 - 2015) 116CD [MP3|320 кб/с]<Rock
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936355.jpg" />
 </div>
 
 
@@ -61,7 +219,7 @@ Assassin's Creed Chronicles: Russia / Assassin's Creed Chronicles: Россия 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936354.jpg" />
 </div>
 
 
@@ -87,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936353.jpg" />
 </div>
 
 
@@ -113,7 +271,7 @@ Firewatch (2016) [Ru/En] (1.0) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936352.jpg" />
 </div>
 
 
@@ -139,7 +297,7 @@ Windows 10 Enterprise LTSB (x86/x64) + Office 2016 by SmokieBlahBlah 10.02.16 [R
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936351.jpg" />
 </div>
 
 
@@ -167,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936350.jpg" />
 </div>
 
 
@@ -193,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936349.jpg" />
 </div>
 
 
@@ -219,7 +377,7 @@ Windows 7 SP1 (x86/x64) + Office 2016 26in1 by SmokieBlahBlah 10.02.16 [Ru]
 >>16
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936348.jpg" />
 </div>
 
 
@@ -248,7 +406,7 @@ DmC: Devil May Cry + 6 DLC [PS3] [PAL] [Ru/En] [Repack] 2013 | R.G. Inferno
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936094.jpg" />
 </div>
 
 
@@ -276,7 +434,7 @@ Sword of the Stars II: Enhanced Edition [Ru/En/Multi4] (Steam-Rip/2.0.24917.3) 2
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936089.jpg" />
 </div>
 
 
@@ -306,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936088.jpg" />
 </div>
 
 
@@ -332,7 +490,7 @@ World of Warcraft: The Burning Crusade [Ru/En] (UO Client/2.4.3) 2007 | LetsWoW
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936087.jpg" />
 </div>
 
 
@@ -358,7 +516,7 @@ Windows 7 Ultimate x86 Compact 09.03.2013 [Русский]
 >>16
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936083.jpg" />
 </div>
 
 
@@ -385,7 +543,7 @@ Windows XP SP3 + Soft WIM Edition by SmokieBlahBlah 04.02.2014 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936059.jpg" />
 </div>
 
 
@@ -411,7 +569,7 @@ Sony ACID Pro 7.0e Build 713 [Eng]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935681.jpg" />
 </div>
 
 
@@ -437,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935656.jpg" />
 </div>
 
 
@@ -463,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935655.jpg" />
 </div>
 
 
@@ -489,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935652.jpg" />
 </div>
 
 
@@ -515,7 +673,7 @@ The Sinking City (2019) [Ru/Multi] (3757.2/dlc) Repack Other s [Necronomicon Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935629.jpg" />
 </div>
 
 
@@ -526,164 +684,6 @@ The Sinking City — игра-расследование в мире по мот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B1F52EC2682017622145F0F71373961036FAFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363807   (935628) от 03.03.2020
-
-Пушки Акимбо / Guns Akimbo (2019) WEB-DL [H.264/1080p-LQ] [DVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майлз был обычным разработчиком видеоигр, пока его не втянули в кровавый квест. Незнакомцы вломились в дом, прибили к рукам два пистолета и похитили любимую девушку. Теперь Майлзу придётся сразиться с Никс — безжалостной чемпионкой подпольных игр на выживание.Производство: Великобритания, Германия, Новая Зеландия / Altitude Film EntertainmentЖанр: Боевик, КомедияРежиссер: Джейсон Ли ХауденАктеры: Дэниэл Рэдклифф, Самара Уивинг, Риз Дэрби, Нед Деннехи, Наташа Лю Бордиццо, Марк Роули, Грант Боулер, Ханако Футман, Джош Роберт ТомпсонПеревод: Двуголосый любительскийСубтитры: АнглийскиеПродолжительность: 01:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECA0AC31D8E2FB386B405FA83CDF0604115ECF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861128   (935615) от 19.01.2015
-
-Gilisoft RAMDisk 6.5.0 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа, которая создаст виртуальный жесткий диск в оперативной памяти вашего компьютера. Вы выбираете его размер (в пределах доступной оперативной памяти), букву диска и файловую систему и работаете с ним как с обычным диском - можете копировать, перемещать и удалять на нем файлы. RAM-диск также может быть доступен по сети.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE902D923242B1FCC3E745A0293029C95B3DF6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623654   (935596) от 19.01.2015
-
-Эрих Мария Ремарк | Собрание сочинений [83 книги. Обновляемая] (1936-2015) [FB2, DJVU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935596.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2008-2011 годах издательство АСТ, в рамках серии Книга на все времена, выпустило собрание сочинений Эриха Марии Ремарка, в которое вошли все самые лучшие произведения знаменитого писателя.Жанр: КлассикаФормат: FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E12D98C857EE09EEE0F401E55A88803C4F5DD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859615   (935594) от 19.01.2015
-
-Heavy Rain: Move Edition / Heavy Rain для Move (2010) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO Install ISO] [Repack] [En/Ru] [MOVE]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры Четыре дня, которые предстоит пережить четырем героям, запомнятся им на всю жизнь. У каждого из них - своя судьба, свое прошлое и свои цели, но все они, так или иначе, стараются предотвратить убийства, за которыми стоит некто, получивший прозвище Мастер Оригами. В руки своих жертв хладнокровный, расчетливый и неуловимый маньяк вкладывает бумажные фигурки... (   Читать дальше...   )Тип издания: RePackРазработчик: Quantic DreamЖанр: Adventure / 3D / 3rd Person / Int.MovieЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775BB04228AE69EB6E48265A37974EAC7B2CC34F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441284   (935593) от 19.01.2015
-
-Смешарики. Начало (2011) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такую экстремальную историю про Смешариков вы не могли себе представить: покинув свою уютную страну, Смешарики оказываются в современном мегаполисе в роли супергероев! Зачем? Они приняли очень важное для себя решение — спасти мир от нависшей угрозы. Этот «ответственный» шаг приводит к самому захватывающему приключению в их жизни!Производство: РоссияЖанр: Мультфильм, Комедия, ПриключенияРежиссер: Денис ЧерновАктеры: Вадим Бочанов, Сергей Мардарь, Антон Виноградов, Светлана Письмиченко, Владимир Постников, Михаил Черняк, Ксения Бржезовская, Михаил Хрусталев, Владимир Маслаков, Андрей ЛёвинПеревод: ОригинальныйСубтитры: ОтсутствуютПродолжительность: 01:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F617CD993DD2A5CA339C00E2CD5F0565AFBFABE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861341   (935579) от 19.01.2015
-
-Microsoft Office for Mac 2011 Standard  SP4 (VL) 14.4.2 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office используется более чем на 1 млрд. ПК и компьютеров Mac и является наиболее популярным и надежным набором рабочих приложений на мировом рынке.
-
-Пакет Microsoft™ Office® for Mac 2011 лидирует в области рабочих приложений для платформы Mac. Богатый набор удобных в использовании функций Office for Mac 2011  позволяет клиентам создавать визуально привлекательные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 августа 2014Разработчик: MicrosoftПоддерживаемая ОС: MacOS X / Intel onlyЯзык интерфейса: Русский, Английский, и другие (всего 15 языков)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C61ED9F7AE9A78BAB16A13416CF195D0BD26F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

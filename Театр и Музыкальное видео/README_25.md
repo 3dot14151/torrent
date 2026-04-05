@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913245.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913032.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Vanessa Hudgens vs. YLA - SSSex (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912961.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Katalina Rusu - My Name Is Love (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912944.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Alex Clare - Too Close (2nd Version) (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912782.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Louna - Проснись и Пой! (live) (2012) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912663.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Mz Mikal Blair (Model) - Broke Bitch (Uncensored) (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912642.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Freddie Mercury Tribute Concert for AIDS Awareness (1992) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911782.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911761.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Shania Twain - UP! Close & Personal (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911715.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Shania Twain - LIVE (1999) Come On Over, DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911625.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Shania Twain - The Platinum Collection (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911616.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Shania Twain - UP! Live In Chicago (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911603.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Shania Twain - The Specials (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911599.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Joe Bonamassa - Tour De Force (Hammersmith Apollo) (2013) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911550.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Kreator - London Apocalypticon - Live at the Roundhouse (2020) BDRip [H.264/720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910778.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910682.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910556.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Lindemann - Live at Moscow (VTB Arena) (15.03.2020) WEB-DLRip [VP9/2160p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910520.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ The Rolling Stones: Havana Moon (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_910124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910124.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Brit Floyd - Space & Time - Live in Amsterdam (2016) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909898.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) 30th Anniversary S
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909861.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Stooshe - Slip (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909706.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Dj Sava feat. Misha - Tenerife (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909525.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909505.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909481.jpg" />
 </div>
 
 

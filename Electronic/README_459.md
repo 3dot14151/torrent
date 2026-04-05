@@ -1,3 +1,119 @@
+###  Публикация: 1681070   (133101) от 02.12.2023
+
+VA - Blissful Journey: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Drifting Off (Original Mix) (4:10)
+02. Michael E - Lost in Thought (Original Mix) (5:18)
+03. Matt Sour - Confession (4:09)
+04. Beamy - Angel (4:58)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C543F937D36EDDA2F83F2480505016E401DEE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681237   (133099) от 02.12.2023
+
+VA - The Best Of House 2023 Part 3 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Clarke - Stayin Forever (Original Mix) [02:45]
+02. Floating Brothers - I Remember (Original Mix) [02:38]
+03. David Thompson - Crash Dance (Original Mix) [03:20]
+04. Sean Newman - Emptiness (Original Mix) [03:05](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C567DB424ADF9FAE915B826095CEA1E5BB54D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681274   (133093) от 02.12.2023
+
+Rein - God Is A Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro-Industrial, Synth Punk>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How's It Gonna Be? [00:03:12]
+02. Mutual Satisfaction [00:03:11]
+03. Kiss You Goodbye [00:04:02]
+04. Snakes [00:04:08](   Читать дальше...   )Жанр: EBM, Electro-Industrial, Synth PunkПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27AA38674CD90970CC88D5C73E789C427974C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681263   (133089) от 02.12.2023
+
+GDS Project - Chess (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark-Electro, EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:18]
+02. Chess [00:03:07]
+03. Dirty Pain [00:03:58]
+04. Broken Destiny [00:03:11](   Читать дальше...   )Жанр: Dark-Electro, EBM, IndustrialПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAD702A38DCA1B3AB6F9685FCF915CEA9D5C520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681138   (133080) от 02.12.2023
 
 Chicane - The Greatest Misses (2023) Extended Mixes [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -6,7 +122,7 @@ Chicane - The Greatest Misses (2023) Extended Mixes [MP3|320 Kbps] <Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133080.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Blank & Jones - Chilltronica EP 6 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133060.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Korolova - Tomorrowland Friendship Mix (2023-11-30) [MP3|320 Kbps] <Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133028.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Armada Music - 20 Years (Remixed) (2023) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133018.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Chicane - The Greatest Misses (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Hous
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133012.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Bass Boosted Car Music (2023) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133002.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Housepital's Secret Club Weapons Vol.2 (2012) [MP3|320 кб/с]<Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132837.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ VA - Best Of FSOE 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132711.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ Soft Cell - Non-Stop Erotic Cabaret (1981) Remaster, Deluxe Edition, 2023, UMC [
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132683.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ Toronto Is Broken - TorontoIsBroken (2023) [FLAC|Lossless|WEB-DL|tracks] <drum &
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132651.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ Fonarev - Эфиры радиошоу/подкаста «Znaki / Digital Emotion
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132447.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ VA - Nothing But... Trancetopia Vol. 10 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132109.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ VA - The Best Of Suanda Dark 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132105.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ VA - Top 7 November 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132093.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ VA - In Search Of Sunrise 19 (Mixed by Markus Schulz, Ilan Bluestone & Daniel Wa
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132085.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ VA - Hypnotised  A Journey Through British Trance Music 1993-2002 (2023) [FLAC|L
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132071.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ Dance With The Dead - Driven to Madness (2022) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132061.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ VA - Winter Chillout Lounge 2023 - Smooth Lounge Sounds for the Cold Season [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131452.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ VA - Armada Music - Trance Legacy II (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131430.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ Jean Michel Jarre - Oxygene (1976) [FLAC|Lossless]<Electro, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131346.jpg" />
 </div>
 
 
@@ -594,7 +710,7 @@ VA - The Best Of Suanda Base 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131159.jpg" />
 </div>
 
 
@@ -623,7 +739,7 @@ VA - The Best Of Suanda Voice 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131147.jpg" />
 </div>
 
 
@@ -637,122 +753,6 @@ VA - The Best Of Suanda Voice 2023 [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACAB6A18582463AA51CDA6199FB549724D4476E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682728   (131111) от 08.12.2023
-
-Dance With the Dead - Out of Body (2013) Remastered Edition, 2023 [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Electronic, Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2023 Remastered Version) [00:00:52]
-02. Robeast (2023 Remastered Version) [00:03:55]
-03. Blind (2023 Remastered Version) [00:04:20]
-04. Fracture (2023 Remastered Version) [00:03:32](   Читать дальше...   )Жанр: Synthwave, 	Electronic, RockПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCB57CAB8602DA30D5B2C495CE054D52B6E693B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682746   (131008) от 08.12.2023
-
-VA - A State of Trance Year Mix 2023 - Mixed by Armin van Buuren (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131008.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gareth Emery feat. Maria Lynn - Missing You (Extended Mix) [5:13]
-002. Above & Beyond - 500 (Extended Mix) [6:50]
-003. Armin van Buuren feat. Anne Gudrun - Love Is A Drug (Extended Mix) [5:23]
-004. DIM3NSION - Stronger Now (Extended Mix) [4:40](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 13:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1165080B890556FEC616C2FE8695D2E6349C6F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682809   (129966) от 09.12.2023
-
-Showtek - 360 Yellow (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle, Hard Trance, Dance Pop>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Introde Bob Moog
-02 – Shine (feat. Sonny Wilson)
-03 – Electric Slide (feat. Gracious K)
-04 – Someone Like Me (feat. Lxandra)(   Читать дальше...   )Жанр: Hardstyle, Hard Trance, Dance PopПродолжительность: 01:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65B485FC15A28F5338CEC39A0662005CADA1149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682991   (129899) от 09.12.2023
-
-VA - Dance The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rank 1 - Awakening (MaRLo Remix) [03:13]
-02. Equinøx - From The Inside [03:45]
-03. Lulleaux - High On Love [02:09]
-04. Redondo - The Only One [02:22](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 07:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB25CE998002C7563EC118978DEB4AD5971ED5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

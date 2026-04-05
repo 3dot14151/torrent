@@ -1,3 +1,159 @@
+###  Публикация: 943786   (918519) от 24.01.2017
+
+Crysis (2007) [Ru/En] (1.1.1.6156) Repack =nemos=
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди не раз представляли конец света, приписывая роковую роль палача то наводнению, то страшной болезни, то ядерной войне. На деле все получилось несколько экзотичнее. Рухнувший на один из отдаленных островов астероид оказался огромным космическим кораблем, способным полностью изменить климат Земли. Отправившиеся на изучение аномалии отряды Северной Кореи и США оказались (   Читать дальше...   )Тип издания: RepackРазработчик: CrytekЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5FD20773E6A86E39100DC0B69D1F76917474FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 854425   (918516) от 24.01.2017
+
+Пластинки - 80 (2014-2017) [MP3|320 кб/с]<House, Disco, Rock>
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918516.jpg" />
+</div>
+
+
+###  Подробнее
+
+"ПЛАСТИНКИ - 80" - это дискотека на виниловых пластинках 1980-х годов! Во времена, когда функция диджея зачастую сведена к нажатию кнопок на клавиатуре компьютера, мы крутим настоящие виниловые пластинки, каждая из которых - большая история! Легендарные пластинки обеспечивают великолепное качество звучания. Использование винила для игры также воздает дань (   Читать дальше...   )Жанр: House, Disco, RockПродолжительность: 18:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1177EFD373863DD6E1DED9A33FEBF214EADFC1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367038   (918362) от 14.03.2020
+
+Билл Гейтс покидает совет директоров Microsoft
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918362.jpg" />
+</div>
+
+
+###  Подробнее
+
+В заявлении компании отмечается, что Гейтс по-прежнему будет советником по техническим вопросам генерального директора Microsoft.Американский предприниматель Билл Гейтс, который является одним из основателей корпорации Microsoft, вышел из ее совета директоров. Об этом говорится в заявлении, опубликованном компанией и телеканалом CNBC.Как отмечается в документе, Гейтс (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366956   (918356) от 14.03.2020
+
+В Липецке из-за коронавируса отменили крестный ход против коронавируса
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918356.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Липецке из-за введенного из-за опасности коронавируса запрета на проведение массовых мероприятий отменили запланированный на 15 марта автомобильный крестный ход с молебном против коронавируса, сообщают в четверг "Вести.Липецк".Организатор мероприятия, глава липецкой общины Святых Царственных мучеников Юрий Берников написал во "ВКонтакте", что (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489866   (918340) от 20.08.2021
+
+Microsoft разработала блокчейн-систему для борьбы с пиратством
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Microsoft задействует блокчейн Ethereum для борьбы с пиратами. Информация об этом появилась в исследовании о повышении эффективности борьбы с нелицензионным софтом и контентом. С помощью программы Argus доносить на пиратские ссылки станет легко и прибыльно. Предполагается, что пользователи будут анонимно жаловаться на нелегальный контент и получать за это (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490198   (918334) от 20.08.2021
+
+В Windows 11 стало сложнее сменить браузер по умолчанию
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918334.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Windows 11 ещё больше усложнился процесс изменения браузера по умолчанию. Более того, ОС игнорирует настройки браузера по умолчанию в некоторых областях. Как отмечает издание TheVerge, усложнение смены браузера в Windows 11 обеспокоило конкурентов Microsoft на браузерном рынке, таких как Mozilla, Opera и Vivaldi.В Windows 11, как и в Windows 10, при установке нового (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 746361   (918315) от 20.08.2021
 
 Коломбо / Columbo (1968-2003) BDRip [720p] (сезон 1-13, серии 1-69 из 69)
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918315.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Moon+ Reader Pro v6.9 build 609002  [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918312.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918299.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918217.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ VA - ABC...Euro - Italo - Disco (378 CD) (2006-2015) [MP3|192-320 kbps]<Euro-Ita
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918211.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918208.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918206.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918113.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ BELOFF 2016.2 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918111.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918107.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4312.1000
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918106.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ SOMA (2015) [Ru/Multi] (19.02.2016) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918105.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918104.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918103.jpg" />
 </div>
 
 
@@ -373,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918102.jpg" />
 </div>
 
 
@@ -399,7 +555,7 @@ MInstAll v.20.02.2016 By Andreyonohov & Leha342 [Ru] (авторская раз�
 >>82
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918101.jpg" />
 </div>
 
 
@@ -425,7 +581,7 @@ Google включил цензуру торрентов
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918021.jpg" />
 </div>
 
 
@@ -452,7 +608,7 @@ Sabayon 15.02 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917980.jpg" />
 </div>
 
 
@@ -480,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917968.jpg" />
 </div>
 
 
@@ -507,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917951.jpg" />
 </div>
 
 
@@ -518,169 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A26EE559AD77CE4DA99C0D810A502F151A0062C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 287886   (917943) от 31.01.2011
-
-[OBT] [RePack] [Mode] S.T.A.L.K.E.R.: CryZone Sector 23. CryZone Online / Сектор 23: Батя / Sector 23: Prologue (0.1) [Ru] 2011 |
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открытый бета тест мультиплеера проекта "CryZone: Sector 23". Сам сингл будет готов где то в апреле.
-
-Данный проект представляет собой глобальную модификацию для игры "Crysis" за счет использования сеттинга и ресурсов игры S.T.A.L.K.E.R. от компании GSC.
-Мод отражает концепцию игры S.T.A.L.K.E.R. на движке "Cry engine 2", обладающим куда большими возможностями, нежели X-Ray.
-Именно благодаря использованию в качестве "моторчика" CE 2, Вы сможете наблюдать превосходную графику, качественные модели и анимации персонажей, улучшеный рендер и многое другое.(   Читать дальше...   )Тип издания: Глобальная модификация "Crysis" за счет ресурсов "STALKER"Разработчик: "World of stalker TEAM" (Сокращенно WoS team)Жанр: Action/FPS с элементами RPGЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1505C55DB1A07AC17EB13D01615E40E4EA1B614C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289485   (917940) от 31.01.2011
-
-[Repack] Chessmaster: Grandmaster Edition  [Ru] 2008 | R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная шахматная игра Chessmaster стала еще более совершенной! Обучающая система, созданная при поддержке международного мастера Джошуа Вайцкина, позволяет новичкам быстро освоить игру, а профессионалам изучить новые тактические ходы. В одиннадцатой игре серии собраны самые значимые мировые шахматные партии, благодаря чему любой сможет проанализировать игру (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft EntertainmentЖанр: Logic (Chess) / 3DЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289162   (917938) от 31.01.2011
-
-Microsoft Windows Server 2008 R2 x64 Standart for HP Proliant servers 7600.16385 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Windows Server 2008 — новая версия серверной операционной системы от Microsoft. Эта версия должна стать заменой Windows Server 2003 как представитель операционных систем поколения Vista (NT 6.x). Этот установочный диск выпущен 22 сентября 2009 года и является совместной разработкой компаний Microsoft и Hewlett Packard. Диск включает в себя специализированные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289588   (917937) от 31.01.2011
-
-Неадекватные люди (2010) DVDRip
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тихий и воспитанный Виталик пытается начать жизнь с нуля в новом городе. Но странным образом ему на пути попадаются одни сумасшедшие. Его соседкой по лестничной площадке оказывается взбалмошная Кристина, стремящаяся переделать его из задрота в нормального мужика, на новой работе атакует похотливая начальница и даже психолог, помогающий ему совладать со всем этим — и тот оказывается садо-мазохистом. Виталик кажется единственным адекватным человеком здесь. Но так ли это на самом деле?Жанр: КомедияРежиссер: Роман КаримовАктеры: Ингрид Олеринская, Назар Ас-Самаррай, Артем Душкин, Полина Иосилевич, Илья Любимов, Юлия Такшина, Влад Топалов, Анастасия Федоркова, Евгений Цыганов, Марина ЗайцевПеревод: ОригинальныйФормат: AVIПродолжительность: 01:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A6EC5237522BD4AB45C4F90C374F9539A487F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864646   (917877) от 30.01.2015
-
-Три богатыря: Ход конем (2014) WEB-DL [720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Придворный конь Гай Юлий Цезарь на свою беду подслушивает разговор бояр и узнает о заговоре против князя. Что же делать? Защитить-то князя некому! Богатыри далеко — ловят разбойника Потаню, Горыныч в отпуске, войско на учениях… Но если плохие парни собираются захватить мир, то кому-то же надо его спасти? Кто же он, настоящий герой, который придет на помощь? Конечно, (   Читать дальше...   )Производство: РоссияЖанр: Приключения, КомедияРежиссер: Константин ФеоктистовПерсонажи: Князь Киевский, Илья Муромец, Добрыня Никитич, Алёша Попович, Гай Юлий Цезарь и другиеПеревод: Не требуетсяПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36ADE591669DED768A39C0FF156FC3C12E8B0F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632708   (917614) от 21.03.2013
-
-Depeche Mode - Delta Machine (Deluxe Edition) 2CD (2013) [FLAC|Lossless|tracks + .cue] <Electronic, Synth-Pop>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electronic, Synth-Pop |Продолжительность: 00:17:15
-
-01 | Long Time Lie | 04:23
-02 | Happens All The Time | 04:20(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

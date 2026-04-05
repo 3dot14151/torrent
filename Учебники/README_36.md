@@ -1,3 +1,56 @@
+###  Публикация: 1131598   (704931) от 07.05.2017
+
+Б.Ю. Васильев | Электропривод. Энергетика электропривода (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дается анализ нормативной базы в области энергосбережении. Показана роль электроприводов в энергосбережении. Рассмотрены вопросы практического энергетического обследования электроприводов и обоснования технико-экономической, энергетической и эксплуатационной эффективности регулируемых электроприводов.
+  Рассмотрены энергетические характеристики электроприводов с асинхронными (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477DD3AC41AF14CF7604A9A8B0DC8AFB27F2082D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131941   (704815) от 07.05.2017
+
+А.Д. Григорьев и др. | Микроволновая электроника (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются основные типы и разновидности микроволновых приборов, их принцип действия, теория, характеристики и параметры, конструктивные особенности. Подробно изложены механизмы взаимодействия электромагнитного поля с заряженными частицами, законы их движения в различных средах. Физические основы вакуумной и твердотельной микроволновой электроники рассмотрены (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D72F2ACEB042A148168AA07030FDCF5E8A0E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131605   (704814) от 07.05.2017
 
 В.А. Терехов | Задачник по электронным приборам (2016) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704814.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704810.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704603.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704536.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Kenneth H. Rosen | Discrete mathematics and its applications 7th ed. (+Full Solu
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704121.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702832.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702823.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702816.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702667.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702663.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702071.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701630.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701107.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700657.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ Susanna S. Epp | Discrete Mathematics with Applications 4ed (+ Full Solution Man
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700520.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699166.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698120.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698024.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697935.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697598.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697502.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697488.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695025.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695013.jpg" />
 </div>
 
 
@@ -628,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67A22E9D60A6872DAA59433341C8EE9AD430FA68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288687   (693797) от 12.03.2019
-
-Б.Я. Рябко, А.Н. Фионов | Криптография в информационном мире (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основные подходы и методы современной криптографии и стеганографии для решения задач, возникающих при обработке, хранении и передаче информации. Рассмотрены основные шифры с открытыми ключами, методы цифровой подписи, криптографические протоколы, блоковые и потоковые шифры, хеш-функции, а также редко встречающиеся в литературе вопросы о конструкции доказуемо (   Читать дальше...   )Жанр: КриптографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABA921E30AD960B1E1E72B1313A22824E28EF37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288682   (693637) от 12.03.2019
-
-Л.Г. Гагарина, А.И. Кононова | Архитектура вычислительных систем и Ассемблер (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693637.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии представлен систематизированный курс одной из основной дисциплин специализированной подготовки бакалавров по направлениям 09.03.04 "Программная инженерия" и 01.03.04 "Прикладная математика" с точки зрения прикладного программирования и парадигмы кроссплатформенности. Рассмотрены основы архитектуры вычислительных систем как системной (   Читать дальше...   )Жанр: Вычислительные системыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3C28F0A0DF2B1354B3D0205E6488F903F2759C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1694561   (120955) от 25.01.2024
+
+AnyMP4 iPhone GPS Spoofer for Mac 1.0.18 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120955.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 iPhone GPS Spoofer может легко помочь вам изменить или скрыть местоположение GPS на вашем iPhone и разработать ложный маршрут движения для вашего iPhone. При работе в сети «Интернет» вас может раздражать раскрытие конфиденциальной информации, особенно вашего местоположения. В этом случае AnyMP4 iPhone GPS Spoofer может стать вашим решением.
+Просто подключите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: © 2024 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C29A7589F1E8F3FD01692953FCA1DB0E929F89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694535   (120948) от 25.01.2024
+
+Be Focused Pro - Focus Timer 2.4.1 [En/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Be Focused Pro - создайте задачи, настройте перерывы и отслеживайте свои успехи в течение дня, недели или в произвольный промежуток времени.
+«Помидорная техника» планирования, в основе этой методики лежит принцип 25 минутной работы без прерываний. Но через 25 минут вы обязаны прерваться на 3-5 минут.
+Be Focused Pro - сосредоточитесь на производительности. Be Focused (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: © 2024 XwavesoftПоддерживаемая ОС: macOS X 10.15+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4816E8BE951B1C7ADBD3CE2DDCD6A304606D549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694546   (120939) от 25.01.2024
 
 Author 9.1 [Multi]
@@ -6,7 +61,7 @@ Author 9.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120939.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ OmniFocus Pro 3.15.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120934.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ Tipard FixMP4 for Mac 1.0.8 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120933.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ MacLoggerDX 6.49 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120930.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ SQLPro for SQLite 2024.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120929.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ Topaz Gigapixel AI for Mac 7.0.0 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120805.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ Cheetah3D for Mac 8.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120791.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ Tipard Screen Capture 1.1.26 [Multi/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120773.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ AnyGo 7.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120640.jpg" />
 </div>
 
 
@@ -243,7 +298,7 @@ EverWeb (Standalone) 4.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120638.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ macOS Server 5.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120478.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ Session for Mac 2.9.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120477.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ Total Video Converter Pro for Mac 5.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120435.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ JetBrains Clion 2023.3.3 for Mac Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120368.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ Canvas X Draw 7.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120332.jpg" />
 </div>
 
 
@@ -400,7 +455,7 @@ Typora for Mac 1.8.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120309.jpg" />
 </div>
 
 
@@ -426,7 +481,7 @@ OneCast for Mac 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120299.jpg" />
 </div>
 
 
@@ -452,7 +507,7 @@ eBookBinder 1.12.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120277.jpg" />
 </div>
 
 
@@ -478,7 +533,7 @@ Network Kit 9.1.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120274.jpg" />
 </div>
 
 
@@ -504,7 +559,7 @@ Hazel 5.3.2 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120263.jpg" />
 </div>
 
 
@@ -530,7 +585,7 @@ Amadine 1.5.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120252.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ Keka 1.3.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120198.jpg" />
 </div>
 
 
@@ -583,7 +638,7 @@ DRmare Music Converter for Spotify 2.11.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120158.jpg" />
 </div>
 
 
@@ -609,7 +664,7 @@ Viwizard Spotify Music Converter for Mac 2.13.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120157.jpg" />
 </div>
 
 
@@ -620,59 +675,6 @@ Viwizard Spotify Music Converter for Mac 2.13.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:137F6527D19D399EE1FFA6CA6CD1410593F3C795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695632   (120136) от 30.01.2024
-
-HitPaw Edimakor (Video Editor) for Mac 2.6.0 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120136.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitPaw Video Editor — это простое в освоении программное обеспечение для редактирования видео с необходимыми вам функциями. Помимо некоторых базовых работ по редактированию видео, оно может еще многое сделать. Приложение способно решать множество задач, таких как редактирование видео, объединение видео, обрезка видео и так далее.
-Чтобы ваше видео отличалось от других, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2024 HitPawПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F504F67672A9F97BD8C1C4B95AAADEEF30DEA19E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695841   (120111) от 30.01.2024
-
-AudKit Spotify Music Converter for Mac 2.5.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Без потерь конвертируйте и загружайте треки и плейлисты Spotify для прослушивания в автономном режиме на любом устройстве. AudKit Spotify Converter поддерживает преобразование списка воспроизведения Spotify в MP3, AAC, M4A, M4B, WAV, FLAC и другие распространенные аудиоформаты.Тип издания: macOS SoftwareРазработчик: © 2023 AudKitЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0515DFE639E92CE6D4167DF29D31571B2DFE0EEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

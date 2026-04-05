@@ -1,3 +1,90 @@
+###  Публикация: 1559049   (527192) от 24.06.2022
+
+Cân Bardd (Can Bardd) - Devoured by the Oak (2021) Limited edition [FLAC|Lossless|image + .cue] <Epic Black metal, Folk metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527192.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Echoes of the Moss (05:02)
+2.Une couronne de branches (10:31)
+3.Devoured by the Oak Pt.I  (08:34)
+4.Devoured by the Oak Pt.II (08:50)(   Читать дальше...   )Жанр: Athmospheric/Epic Black metal, Folk metalПродолжительность: 57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07A72B247D1945059CD92D6E8FFC81D56C081B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559028   (527186) от 24.06.2022
+
+Sinsid - In Victory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Northern March (Intro) (2:13)
+02. Iron Heart (5:24)
+03. Metalheads (4:11)
+04. Secret of the Beast (4:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA0C86DEBEAFF3282E3CC5097880F8669F09EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559226   (527185) от 24.06.2022
+
+Black Rose - WTF (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Mental Bad
+02. Devils Candy
+03. WTF
+04. Pain(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771B1C5F40E797C68B012A4D88C605E3A915236F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559205   (527159) от 24.06.2022
 
 Alestorm - Seventh Rum Of A Seventh Rum (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Power Metal, Folk>
@@ -6,7 +93,7 @@ Alestorm - Seventh Rum Of A Seventh Rum (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <P
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527159.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527144.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Traumer - Аvаlоn (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526724.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Dust - Soulburst (2016) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526699.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ The Apple Pie Motherhood Band - Apple Pie (2004) [FLAC|Lossless|image + .cue] <R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526696.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ TraumeR - Avalon (2016) Japanese Edition [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526686.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Almah - Е.V.О. (2016) Jараn Еditiоn [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526656.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Smokie - Uncovered (2001) [FLAC|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526614.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Zlote przeboje radia Pogoda (1997) [MP3|320 Kbps] <Pop-rock, Polish-rock, S
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526407.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ George Tsalikis - The Sacrifice (2016) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526127.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Hammerschmitt - Still On Fire (2016) [FLAC|Lossless|image + .cue] <Hard Rock, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526113.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ An Endless Sporadic - Magic Machine (2016) [FLAC|Lossless|tracks + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526088.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Ally Venable Band - Train Wreck Blues (2015) [FLAC|Lossless|image + .cue] <Blues
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526073.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Alice Cooper - School's Out... Forever... (2015) [MP3|320 Kbps] <Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525969.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Down - NOLA (1995)  [FLAC|Lossless|image + .cue] <Stoner, Sludge, Southern Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525872.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Thy Art Is Murder - Dear Desolation (2017) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525837.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Inspector - Russian Prayer (1993) [WavPack|Lossless|image + .cue] <Art Rock, Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525532.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525504.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Hell Rebel's - Reawaken (2017) [MP3|320 Kbps] <Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525503.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525490.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ Rage - Seasons Of The Black (2017) 2CD, Limited Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525179.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ Kauan - 4 albums (2007-2011) [FLAC|Lossless] <Doom Metal, Post-Rock, Neoclassica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524987.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ Green Day - Green Day - 15 альбомов (1990-2014) [APE, FLAC|Lossless|imag
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524931.jpg" />
 </div>
 
 
@@ -653,93 +740,6 @@ Green Day первоначально был, частью панк-рок сце
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19C258A52F9644F685BA9483AE2958306CA0BCAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927512   (524917) от 13.08.2015
-
-Soulfly - Archangel (2015) [MP3|320 кб/с]<Groove Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Sold Our Souls To Metal
-02. Archangel
-03. Sodomites (Feat. Todd Jones Of Nails)
-04. Ishtar Rising(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE4EFD5291A71489A388FD186517D612C099898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927604   (524845) от 13.08.2015
-
-Би-2 - #16 Плюс (2014) [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дайте огня (feat. Альянс)
-02. Нэпман
-03. Робот (feat. Yuri Usachev)
-04. Хипстер (nu disco mix by Fun2mass Records)(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A24A2C2697A8DCB6D28E0127E6E21D660F054BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157836   (524769) от 13.08.2017
-
-Masterplan - MK II (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Phoenix Rising (1:18)
- 02 - Warrior's Cry (5:21)
- 03 - Lost And Gone (2:59)
- 04 - Keeps Me Burning (4:01)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396A7D77048632A72EB3DE73F1E634F89E9BDA29
 ```
 
 https://mybot314.ru/tekegram_catalog/

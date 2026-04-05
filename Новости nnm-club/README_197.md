@@ -1,3 +1,55 @@
+###  Публикация: 639789   (343709) от 26.10.2020
+
+Самсара / Samsara (2011) BDRip [1080p] [hand made 60fps]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, снятый полностью на 70-миллиметровую пленку, представляет собой полуторачасовое путешествие по самым удивительным местам планеты (всего в фильме покажут 25 стран на 5 континентах). Действие «Самсары» переносит зрителя на священные земли и в зоны стихийных бедствий, в сердце промышленных объектов и природных чудес.Производство: СШАЖанр: Документальный, видовойРежиссер: Рон ФрикеПеревод: Не требуетсяПродолжительность: 01:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E20DCC98620A49DCD93FC2C41C787D9E6EF746C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954037   (343703) от 06.11.2015
+
+Горные акулы / Avalanche Sharks (2013) BDRip [H.264/720p-LQ] [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отпуск в горах: катание на сноуборде, пиво и девочки. Что может быть лучше? Однако неожиданно происходит то, что портит отдых. Сошедшая с гор лавина пробуждает ужасного доисторического хищника — Снежную акулу. Очнувшемуся после многовекового сна чудовищу приходит по вкусу человеческая плоть и хищник превращает горнолыжный курорт в кровавую баню. Местный шериф вместе (   Читать дальше...   )Производство: Канада, Odyssey Media, Pulser Productions, Rogue StateЖанр: Ужасы, Фантастика, БоевикРежиссер: Скотт ВилерАктеры: Александр Менделюк, Кейт Наута, Бенжамин Истадэй, Эрик Скотт Вудс, Келли Кентвелл, Ричард Глисон, Джина Холден, Джек Коллисон, Джеймс Оуме, Николь ХеленПеревод: Одноголосый закадровый (den904)Продолжительность: 01:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21B3F045905334E2B764C89C126EA55C4D5916A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953380   (343693) от 06.11.2015
 
 Великая (2015) WEB-DLRip [H.264/720p-LQ] (серии 1-12 из 12)
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343693.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343692.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Fall of the Dungeon Guardians (2015) [En] (1.0) License HI2U
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343691.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343684.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Log Horizon 2 / Лог Горизонт (ТВ-2) [2014, TV, 25 ep] BDRip Hi10p 7
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343682.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_343083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_343083.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342489.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Discovery. Битвы роботов / BattleBots (2018) HDTVRip [H.264/720p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342470.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342391.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ AAct 4.2.8 Portable by Ratiborus [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342388.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ New Super Mario Bros. Wii Mods [Wii] [NTSC] [ENG] (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342073.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342062.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341974.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ Dark Souls prepare to die edition [Xbox 360] [RUS] [Pal] [XGD3/LT+3.0/15574] (20
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341902.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Asura (2017) [En/Ch] (Build ID 29000/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341606.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_341428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_341428.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Windows 7 Professional SP1 IDimm Edition х86/x64 v.21.15 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341255.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ Intel «похоронила» совместные с AMD процессоры
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_340647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340647.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_340643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340643.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ Apple закрыла полиции доступ к iPhone
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_340394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340394.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340182.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_340084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340084.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_339943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339943.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339661.jpg" />
 </div>
 
 
@@ -628,61 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FE8E1E56DA435523C4F364C36BD89CA1E93E797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074050   (339656) от 18.11.2016
-
-Risen 3: Titan Lords (2015) [Ru/Multi] (3.0.30.0/dlc) License GOG [Enhanced Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Risen 3! Мир, забытый богами и раздираемый войной титанов, мир, где угроза исходит из самой земли. Вы - молодой воин, получивший удар из теней, лишивший вас души. Вам нужно отправиться в путь, чтобы вернуть то, что потеряно во тьме и расползается по миру. Вы не одиноки в своей борьбе: изгнанные маги могут быть мощными союзниками.Тип издания: LicenseРазработчик: Piranha BytesЖанр: RPG, 3D, 3rd PersonЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51000677784CBBEA4779ED95D8D4B39ABAED1360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489839   (339637) от 18.11.2016
-
-Дельфин (Dolphin) - 13 Albums+2 Compilations+2 Live+2 Singles (Различные издания) (1992-2016) [FLAC|Lossless|tracks + .cue] <Alternative, Experimental, Electronic>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся ум, непосредственность и следование своему пути отличает Дельфина от большинства современных музыкантов. Карьера Андрея длится более четверти века. За это время у него было много проектов: удачных и не очень, но они всегда идеально вписывались в концепцию своего времени и были наполнены недоступной для многих музыкантов глубиной.Список альбомов:
-2016 - Она
-2014 - Андрей
-2011 - Существо(   Читать дальше...   )Жанр: Alternative, Experimental, Hip Hop, ElectronicПродолжительность: 39:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:008280A9A63017AF67491AAD88A73EA64E965624
 ```
 
 https://mybot314.ru/tekegram_catalog/

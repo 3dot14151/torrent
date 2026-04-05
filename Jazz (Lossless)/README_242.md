@@ -6,7 +6,7 @@ John Coltrane with Mal Waldron - The Dealers: The Complete Sessions (1957) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244054.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bella Wolf - Bella Wolf (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244038.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jimi Tenor - Saxentric (2016) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Acid Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243943.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Louis Armstrong - The Complete Louis Armstrong Columbia And RCA Victor Studio Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243937.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Kenny Dorham - Una Mas (1963) 1987, Blue Note [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243935.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Luciana Souza - Speaking In Tongues (2015) [FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243907.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Abdullah Ibrahim - Cape Town Songs: The Very Best Of Abdullah Ibrahim (1979- 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243841.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Larry Bartley - Along This Way (2003) [FLAC|Lossless|image + .cue] <Avant-Garde 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243838.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Charles Davis - For The Love Of Lori (2014) Reade Street Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243837.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Eric Reed - Black, Brown, and Blue (2023) Smoke Sessions Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243835.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Chico Hamilton - The Complete Remastered Recordings On Black Saint & Soul Note (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243834.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Stan Getz - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Cool, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243797.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pasadena Roof Orchestra - Roots Of Swing (2008) [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243702.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Patti Austin - Havana Candy (1977) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, R&
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243680.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Grover Washington, Jr. - Next Exit (1992) [FLAC|Lossless|image + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243629.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Harry James - 1939 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243622.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Oscar Brown, Jr. - Between Heaven and Hell 1962 (2010) SuperBird [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243621.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ June Christy - June's Got Rhythm (1958 - 1960) 2005, Capitol Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243604.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Pasadena Roof Orchestra - Lullaby Of Broadway, The Best Of The Pasadena Roof
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243579.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ One For All - Optimism (1998) Sharp Nine Records [FLAC|Lossless|image + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243491.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kjellerbandet - Pa plate (2000) Self-Released [FLAC|Lossless|tracks + .cue] <Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243490.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Debbie Poryes, Hein van de Geyn, Hans Eykenaar - Trio (1982) Remaster, 2015, Sol
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243489.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Oliver Lake - Compilation (1990) Bluemoon Recordings[APE|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243483.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Pat Martino - Strings! (1967) 1991, Original Jazz Classics [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243482.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Billy Drummond & Freedom Of Ideas - Valse Sinistre (2022) Cellar Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243481.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Paris Jazz Big Band - Paris 24H (2004) Cristal Production[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243477.jpg" />
 </div>
 
 

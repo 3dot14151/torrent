@@ -1,3 +1,30 @@
+###  Публикация: 1822847   (104514) от 08.10.2025
+
+Вечность Югурэ | Towa no Yuugure | Dusk Beyond the End of the World [2025, TV, 1 из 13 + 1 SP] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акира Химегами пробуждается после долгого криогенного сна и попадает мир, который за это время изменился до неузнаваемости. От его родного города остались одни руины, общество теперь возглавляет организация OWEL, а традиционные браки полностью заменила странная система под названием "Элси".
+Пока Акира пытается сообразить, как же ему теперь жить в этом новом (   Читать дальше...   )Производство: Япония / Студия P.A. WorksЖанр: Приключения, романтика, фантастикаРежиссер: Цуда НаокацуЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 14 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC1500BBDFE925AECED5114529510495FA8B3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822892   (104488) от 09.10.2025
 
 Кулинарные скитания в параллельном мире 2 | Tondemo Skill de Isekai Hourou Meshi 2 | Campfire Cooking in Another World with My Absurd Skill 2 [2025, TV, 1 из 12] WEBRip 1080p HEVC 10-bit Raw+Rus
@@ -6,7 +33,7 @@
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104488.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102697.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Nodaga | My 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101675.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101016.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100964.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100890.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ Mugen Gacha 9999! | Backstabbed in a Backwater Dungeon! | Бeскoнeчнaя гa
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100862.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100857.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ Nageki no Bourei wa Intai Shitai TV-2 | Let This Grieving Soul Retire! 2 | Пл�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99146.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99145.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шaльнoй пo
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8611.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ Kijin Gentoushou | Sword of the Demon Hunter | Хроники людей и де
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7149.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ Mizu Zokusei no Mahou Tsukai | The Water Magician | Маг воды [2025, TV, 8
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4500.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 | Туал
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4456.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ Grand Blue Season 2 | Grand Blue Dreaming Season 2 | Необъятный оке
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3973.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3668.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ Yofukashi no Uta Season 2 | Call of the Night Season 2 | Песнь Ночных
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3491.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ Bad Girl | Плохая девочка [ТВ-1] [2025, TV, 10 из 12] WEBRip 10
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2232.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Клеватесс: К�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2091.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1917.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Orejihanki |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1911.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1907.jpg" />
 </div>
 
 
@@ -580,7 +607,7 @@ New Panty and Stocking with Garterbelt | Труська, Чулко и прес�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1758.jpg" />
 </div>
 
 
@@ -606,7 +633,7 @@ Tsuihousha Shokudou e Youkoso! | Welcome to the Outcast's Restaurant! | Добр
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1745.jpg" />
 </div>
 
 
@@ -632,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1735.jpg" />
 </div>
 
 
@@ -643,33 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AF9BD5F3594DD012B343E1E3A291269F2ADE228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805394   (1708) от 21.09.2025
-
-Песнь ночных сов [ТВ-2] | Yofukashi no Uta Season 2 | Call of the Night Season 2 [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вампиром стать проще простого! Достаточно одного небольшого укуса… и капельки любви в придачу. И всё бы ничего, но ни Нанакуса Надзуна, ни Ямори Ко не представляют, что же такое любовь.
-В попытках понять это чувство, они проводят ночи за играми и прогулками, пока на их пути не попадается таинственный частныйПроизводство: Япония / Студия Liden FilmsЖанр: комедия, романтикаРежиссер: Итамура ТомоюкиЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61AA11FADE6C7E59E059606CC884151D521B2B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

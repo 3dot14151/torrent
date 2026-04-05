@@ -1,3 +1,61 @@
+###  Публикация: 1099675   (883714) от 10.09.2021
+
+Side Liner - Discography 75 Releases (2005-2021) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Psybient, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Translippers - Shimmer (06:18)
+ 02. Essence Project - Fly In Nature (04:52)
+ 03. Obsqure - Airborn Memories (04:25)
+ 04. Earth Connect - Inside The Rabbit Hole (08:25)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psychill, Downtempo, Psybient, Ambient, Progressive Trance •Продолжительность: 51:43:12 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E8E4727C535302F4C712C43AC8868AE00FE29A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103686   (883633) от 13.02.2017
+
+VA - TranceMission 2017 (Mixed by Feel & Roman Messer) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vadim Bonkrashkov - AION (Radio Edit)  2:29
+02.  Denis Sender & Cari - Don't Give Up (Radio Edit)  3:05
+03.  Moonlight Tunes - As Long As You With Me (Radio Edit)  3:11
+04.  Moonlight Tunes - Little Star (Original Mix)  5:06(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 05:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E946B4097797BCDDB2F822386047CF955316C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103817   (883630) от 13.02.2017
 
 VA - Schickimicki (2017) [MP3|320 Kbps] <Tech House, Deep House, Electronic>
@@ -6,7 +64,7 @@ VA - Schickimicki (2017) [MP3|320 Kbps] <Tech House, Deep House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883630.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ n5MD - Label-Pack 192 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, tracks]<I
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883566.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Deep Dish - Junk Science (1998) [APE|Lossless|image + .cue] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883538.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Phaeleh - Discography 33 Releases (2008-2020) Afterglo, Undertow [FLAC|Lossless|
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883330.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Above & Beyond - Anjunabeats, Volume 13 (2017) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883328.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Dusty Kid - III (2014) [FLAC|Lossless|tracks] <Techno, Acid, Tech Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882839.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Zoo Debts (2016) [MP3|320 кб/с] <PsyTrance, Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882692.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Italia Synthetica 1981-1985 (2013) CD [MP3|320 Kbps] <Electronic, New Wave,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882292.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Arktapes - Space Versions 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub T
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882200.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Complicated - Nature Harmony (2016) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tranc
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882136.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Complicated - Time and Space (2019) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tranc
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882088.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Psychedelic Selections Vol.004 (Compiled by Antinomy) (2020) [FLAC|Lossless
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882061.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Coffee Bar Lounge, Vol. 18 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Liste
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882037.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Arecibo Calling (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882002.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Drizzly Music presents: Dubai Loungers Series (Only For The Riches) - 5 Rel
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881992.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - All The Way Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881978.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Love & Chill Out Valentines Day (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881977.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Warm & Loving Chillout Selections (2017) [MP3|320 Kbps] <Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881973.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Chill Out Collection, To Lift Your Soul, Vol.4 (2017) [MP3|320 Kbps] <Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881902.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Best Love Winter Music (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881895.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Chill Out Dreams Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881888.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - All About The Bass (20 Electro Monsters) Vol 1 (2017) [MP3|320 Kbps] <Elect
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881886.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - This Is My Church Vol.5 (The Lounge Edition) (2017) [MP3|320 Kbps] <Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881883.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Love & Chill Out Covers (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_881827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881827.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Love & Chill Out Covers (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A795B8161D174ED0785936EBA8FED287EE4F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085885   (881814) от 05.04.2020
-
-Lee Anthony Norris - Discography 4 Releases (2013-2020) Unknown Tone Records, ...txt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Abstract, Drone, Techno Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Of Communion - Ocean Of Religion (20:28)
- 02. Lee Anthony Norris & Porya Hatami - Perfume Technique (09:17)
- 03. Moss Garden - Floating In Memories (05:09)
- 04. Ishqamatics - Angels On The Stairway (09:43)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Experimental/Techno AmbientПродолжительность: 06:54:41 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514BAA86699D686AC030721E353EC6E72031CF20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104148   (881688) от 14.02.2017
-
-Lichtmond - The Journey (2016) [FLAC|Lossless|image + .cue] <Ambient, Electronic, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Journey Part 1 [0:01:42.08]
-02. The Journey Part 2 [0:02:28.15]
-03. Flowing Like A River [0:06:30.15]
-04. Nothing But Change [0:06:53.23](   Читать дальше...   )Жанр: Ambient, Electronic, DowntempoПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2684DC22D995780B7F0C1A4CD2F1DF2BBE9C9DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

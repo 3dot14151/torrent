@@ -6,7 +6,7 @@ Various Artists - Emozioni 2 (2007) [WavPack|Lossless|image + .cue] <Easy Listen
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106325.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Duran Duran - All She Wants Is (1988) Remaster, 2024, Rhino [FLAC|Lossless|WEB-D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106099.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Army Of Lovers - Remixodus (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106047.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Duran Duran - Do You Believe in Shame? (1989) Remaster, 2024, Rhino [FLAC|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105943.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ David Hasselhoff - Crazy For You  (1990) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105601.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Amy Shark - Sunday Sadness (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105585.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Love Sexy Hot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105471.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Duran Duran - Duran Duran (1981) Deluxe Edition, 2010, Parlophone UK [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105229.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Duran Duran - The Reflex (1984) Remaster, 2024, Rhino Records [FLAC|Lossless|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105199.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Duran Duran - Planet Earth (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105179.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Duran Duran - Girls On Film (1981) Remaster, 2024, Rhino Records [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105173.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Vanessa Williams - Survivor (2024) [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105131.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Kendji Girac - Kendji (2014) Limited Edition, 2024, Universal Music Division [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105099.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Daryl Hall - Three Hearts In The Happy Ending Machine (1986) [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105012.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ David Kushner - The Dichotomy (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104813.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Michael Bolton - 'Til the End of Forever (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104736.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ The Cardigans - The Rest Of The Best (2024) Vol. 1 [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104735.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Autumn Chill 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104708.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ The Cardigans - The Rest Of The Best (2024) Vol. 2 [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104703.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Niall Horan - The Show: Live On Tour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104660.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Camila Cabello - C,XOXO (2024) Magic City Edition [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104646.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - The Sound Of Summer 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104596.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Sylvester - Live At The Opera House (1979) 2024, Craft Recordings [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104544.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ London Grammar - The Greatest Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, In
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104526.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Terry Stafford - Suspicion (1994) [WavPack|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104508.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - House - Move Your Body - Top Dance (2024) [FLAC|Lossless|WEB-DL|tracks] <Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104354.jpg" />
 </div>
 
 

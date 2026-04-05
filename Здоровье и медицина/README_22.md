@@ -1,31 +1,3 @@
-###  Публикация: 1177257   (365171) от 24.10.2017
-
-Антонина Шмак | Методы распознавания фертильности или когда возможно зачатие (2003) [PDF, DJVU]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга знакомит читателей с основами деторождения, физиологическими процессами, протекающими в женском организме, и основными признаками, позволяющими распознать, когда возможно зачатие.
-
-Будет полезна как медицинским работникам, руководствующимся в своей деятельности этическими нормами, так и супругам, заинтересованным в создании крепкой семьи и в здоровом образе (   Читать дальше...   )Жанр: ГинекологияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4DBF9C1DE0CCD324DF90D684E79CBF504DBE5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576133   (365158) от 16.11.2012
 
 М.П. Ковальский (ред.) | Оперативная хирургия и топографическая анатомия [2012] [DJVU]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365158.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363464.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363461.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363267.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362954.jpg" />
 </div>
 
 
@@ -167,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362947.jpg" />
 </div>
 
 
@@ -193,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362192.jpg" />
 </div>
 
 
@@ -219,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361477.jpg" />
 </div>
 
 
@@ -247,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361311.jpg" />
 </div>
 
 
@@ -273,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361062.jpg" />
 </div>
 
 
@@ -299,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358915.jpg" />
 </div>
 
 
@@ -327,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357980.jpg" />
 </div>
 
 
@@ -355,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356907.jpg" />
 </div>
 
 
@@ -383,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355400.jpg" />
 </div>
 
 
@@ -409,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354509.jpg" />
 </div>
 
 
@@ -437,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349636.jpg" />
 </div>
 
 
@@ -463,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349550.jpg" />
 </div>
 
 
@@ -492,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347701.jpg" />
 </div>
 
 
@@ -519,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346663.jpg" />
 </div>
 
 
@@ -545,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345034.jpg" />
 </div>
 
 
@@ -571,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343935.jpg" />
 </div>
 
 
@@ -597,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336436.jpg" />
 </div>
 
 
@@ -623,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_336284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_336284.jpg" />
 </div>
 
 
@@ -649,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336176.jpg" />
 </div>
 
 
@@ -675,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333570.jpg" />
 </div>
 
 
@@ -687,6 +659,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44A307B73FBD5F2CF7680CBA3C856E847C09E757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259536   (333111) от 18.11.2010
+
+Борис Орлов. | Ядовитые животные и растения СССР. [Москва «Высшая школа» 1990] [CHM]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-технический прогресс возможен только при рациональном использовании богатейших природных ресурсов страны. Одним из аспектов этой проблемы является изучение и научно обоснованное применение ядовитых животных и растений СССР как источников природных биологически активных веществ. Как известно,
+ядовитость — универсальное и широко распространенное явление в живой природе.Формат: CHM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BCAC2501DA3D16FCB5B4FA559DB3960AA38CC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

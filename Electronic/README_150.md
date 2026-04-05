@@ -1,3 +1,61 @@
+###  Публикация: 1205910   (783251) от 11.02.2018
+
+VA - Carnaval House (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  RezaKarami  -  My Bass Friend (Original Mix)  4:58
+02.  High One  -  Low Kiss (MKVG Remix)  4:30
+03.  MikeSelf  -  Candy War (Extended Mix)  8:22
+04.  Mack Jack  -  Aruba (Instrumental Mix)  4:56(   Читать дальше...   )Жанр: HouseПродолжительность: 03:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5872F5DB2BFD571E1E864A0352F93D4FDB0D4F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205689   (783247) от 11.02.2018
+
+VA - Ultra Tone Essentials Vol.2 (2018) [MP3|320 Kbps] <Deep House, Afro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Genvee & Faith Feloque  -  Dream In Neon Shades (Original Mix)  6:00
+02.  Genvee & Faith Feloque  -  All Inside (Original Mix)  4:48
+03.  Rona Ray & V.Underground  -  Your Friend (Original Mix)  6:48
+04.  Keenan & V.Underground  -  Spellbound (Vuky J's Soulful Vocal Mix)  7:06(   Читать дальше...   )Жанр: Deep House, Afro HouseПродолжительность: 02:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CF6DA4AE769A327CAAAB31CA4E8359D3AA203F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205896   (783240) от 11.02.2018
 
 VA - Caribbean Beach Lounge Vol.7 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Caribbean Beach Lounge Vol.7 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783240.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Beatz 4 Freaks Vol.27 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783239.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Clinique: The Best Of 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783222.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Jazz Bar Lounge (Chillout Your Mind) (2018) [MP3|320 Kbps] <Balearic, Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783207.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Physical Dreams - Ancient Sounds (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783197.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Physical Dreams - Nature Sounds (2018) [MP3|320 Kbps] <Chillout, Ambient, Electr
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783196.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Sea Cruising Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783065.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Talamasca - The Experiment (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783046.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Deep Booty House Vol.1 (2018) [MP3|320 Kbps] <Future House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782984.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - A Taste Of Kandi Winter (2010) [FLAC|Lossless|tracks] <House, Disco, Electr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782983.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Hed Kandi (A Taste Of Kandi Summer 2009) (2009) [FLAC|Lossless|tracks] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782982.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Bigroom Miami Smasher Vol.3 (2018) [MP3|320 Kbps] <House, Big Room, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782981.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Nujazzvides (2018) [MP3|320 Kbps] <Lounge, Chillout, Nu-Jazz>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782962.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Vocal Trance 2k18 Vol.2 (2018) [MP3|320 Kbps] <Trance, Hard Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782955.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Chilling Sounds, Vol. 4 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782952.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Best Of Deep House Vol.01 (2018) [MP3|320 Kbps] <House, Deep House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782948.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Ison - 2 EP (2015 - 2018) [MP3|320 Kbps] <Space Ambient, Drone Doom, Post-Rock>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782944.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Spaceinvader - Escape (2018) [MP3|320 Kbps] <Synthwave, Darksynth, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782937.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Don Diablo - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782914.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Associates - Sulk (1982) Bonus Tracks, Remastered, Reissue, 2000, V2 Music Ltd. 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782723.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Logic Moon - 2017 (2020) Logic Moon Records [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782697.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Approaching Black - Dusk (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782688.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - CP OneHundred (2020) Counter Pulse [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782663.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ VA - Clinique Mixed XV (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782572.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ VA - Clinique Mixed XV (2018) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F05034D52769A43BF995E0EAA825EC7B6AAA0195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206308   (782569) от 13.02.2018
-
-VA - Nothing But Lounge (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brass  -  Lounge Night  5:24
-02.  Jon Bax  -  Ruby Lips  2:30
-03.  Stephan Sin Roza  -  Sweet Hop  2:47
-04.  Simon Di & Olivier Portal  -  Over The Tracks  3:47(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08192ED6CDECEAA502A88AC7AE5ABDAD8670D959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206328   (782568) от 13.02.2018
-
-VA - Chilling Sounds Vol. 3 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex DJ Zeya - Hear Your Heartbeat (Out Of Smile Mix) 2:36
-02. Amok404 - City of Stars 7:03
-03. Andrew Riqueza - Living the Dream 4:31
-04. ArcticA - Last Kindom 6:39(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA58E0626A68E7F1E0F26D2A3EFB3C7F97101CD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

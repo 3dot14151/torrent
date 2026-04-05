@@ -1,3 +1,81 @@
+###  Публикация: 1690324   (124053) от 06.01.2024
+
+London Detective Mysteria / Eikoku Tantei Mysteria (2019) [Multi] (1.6) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124053.jpg" />
+</div>
+
+
+###  Подробнее
+
+London Detective Mysteria - визуальная новелла в аниме-стилистике, переносящая в Лондон на закате XIX века. История рассказывает про истинную любовь на фоне Биг-Бена и газовых фонарей. Игра стартует в тот момент, когда Ее Величество празднует День рождения. Она - наследница дома Уайтли. Это ее первый общественный прием. Внимание девушки привлекает множество необычных (   Читать дальше...   )Тип издания: LicenseРазработчик: Karin EntertainmentЖанр: Приключение, Визуальные новеллыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB44E315363A49B6D227BAFF5CC3EEEC28658E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690456   (124023) от 07.01.2024
+
+The Night is Grey (2024) [En] (1.0) Scene SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124023.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Night is Grey наполнена мрачной атмосферой темной ночи, которая застала мужчину по имени Грэхем в лесу с бродящими волками. Главный герой спасается бегством, обнаружив небольшой заброшенный домик. Заглянув внутрь, протагонист находит девочку, испуганную и ищущую выход из ловушки. Совместными усилиями предстоит выбираться из загадочного леса, в котором мистическим (   Читать дальше...   )Тип издания: SceneРазработчик: Whalestork InteractiveЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0076B214E7BCF98507465782CFB5169DE9B287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690502   (123978) от 07.01.2024
+
+Amatsutsumi (2022) [En] (1.02/dlc) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amatsutsumi - визуальная новелла в аниме-стилистике, героем которой выступает парень по имени Макото. Он обладает сверхсилой под названием котодама. Ее суть заключается в том, что протагонист при помощи силы голоса способна управлять людьми. Герой проявляет интерес к внешнему миру и покидает деревню, в которой жила очень долгий период. Однако он не ожидал, что мир (   Читать дальше...   )Тип издания: LicenseРазработчик: Purple SoftwareЖанр: Adventure, Visual Novel, NarrativeЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8E8AEBE4DC2EFB864913F8714CF35B34EC7C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690681   (123849) от 08.01.2024
 
 About a Boy (2023) [En] (1.01) License GOG
@@ -6,7 +84,7 @@ About a Boy (2023) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123849.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Ditzy Demons Are in Love With Me / Boku to Koi Suru Ponkotsu Akuma (2018) [M
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123845.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ So Blonde (2008) [En] (1.0) Scene Reloaded
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123838.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Aquarium (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123460.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Shining Song Starnova (2018) [En] (1.00) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123337.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ THE DESCENT (2024) [Ru/Multi] (1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123234.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Supernormal (2024) [En] (1.3.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123232.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Retreat to Enen (2022) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123011.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122666.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Progeria: Vae Victis (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122643.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Baldr Sky (2019) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122586.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Viewfinder (2023) [Ru/Multi] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122282.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Source (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120878.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Death of Marionette (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120701.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ A Night at the Watermill (2024) [Multi] (1.0.794) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120572.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Train to Nowhere (2024) [Ru/En] (Build 11054454) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120565.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Lil' Guardsman (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120550.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Children of Silentown (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120392.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Mahoutsukai no Yoru / Witch on the Holy Night / Ведьма святой ноч
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120333.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9v) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120220.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ I'm counting to 6... (2024) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120202.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ COCOON (2023) [Ru/Multi] (13127050) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119575.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119397.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0.3) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D19EF549CAB8EA0054B2B0F2B2C3DED981F146A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696755   (119394) от 04.02.2024
-
-Shards of Chaos (2024) [Ru/En] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shards of Chaos - это визуальная новелла в жанре фэнтези с элементами мистики и детектива. Вы окунетесь в мрачный мир, покинутый богами, где предстоит разгадать тайну магической катастрофы. Главная героиня - наемница Рейн, вынужденная отправиться в опасное путешествие по заброшенному поместью Черной Розы. Ей предстоит найти и спасти юную Леллию, невольно оказавшуюся (   Читать дальше...   )Тип издания: SceneРазработчик: ChaoticwayЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2A4DE6D94BE914AD614ECEA1EE155501FBB6E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696767   (119390) от 04.02.2024
-
-Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Scene Skidrow
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boxes: Lost Fragments бросает вас с головой в роскошную позолоченную клетку таинственного особняка. Вы - мастер воровства, соблазненный шепотом о забытых богатствах и рассказанных секретах. Но блеск золота быстро тускнеет, когда вы натыкаетесь на серию загадочных коробок-головоломок, каждая из которых - тайный замок, открывающий скрытую истину. То, что начиналось (   Читать дальше...   )Тип издания: SceneРазработчик: Big Loop StudiosЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27FA119B4B8018A81995D132B32BCF5FCA84CC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697017   (119249) от 05.02.2024
-
-The Last Worker (2023) [Ru/Multi] (1.0.11) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119249.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Last Worker является атмосферным проектом, представляющим собой интерактивное повествование в стиле инди-головоломки. Игроки столкнутся с разнообразными сюжетными историями, что будут изображены в кат-сценах. Между рассказами придется заниматься выполнением обязательств героя, что проживает в мире полной автоматики. Человечество добилось технологичного развития, (   Читать дальше...   )Тип издания: LicenseРазработчик: Oiffy, Wolf & Wood Interactive LtdЖанр: Экшены, Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C227427BC05B52D8EBB3C244068D69984252F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

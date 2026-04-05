@@ -1,3 +1,56 @@
+###  Публикация: 1637311   (197377) от 06.06.2023
+
+Американцы первыми в мире передали собранную в космосе солнечную энергию на Землю
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_197377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учёные из Калтеха сообщили о первой в мире успешной передаче солнечной энергии из космоса на Землю. Опытная орбитальная платформа передала микроволновое излучение на приёмник на крыше инженерной лаборатории в кампусе Калтеха в Пасадене, что доказало возможность получения чистой энергии из космоса.Модуль MAPLE изнутри. Разнесённые пустым пространством приёмник и
+передатчик (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637896   (197336) от 07.06.2023
+
+Китай проведёт эксперимент по полному запрету продаж машин с ДВС на острове Хайнань
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_197336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китайский рынок электромобилей является крупнейшим в мире и довольно бурно развивающимся, но власти КНР не спешат по примеру европейских и американских коллег ставить глобальные цели по отказу от использования машин с ДВС. Вместо этого они в качестве пилотного проекта обкатают концепцию на примере острова Хайнань, на котором продажи новых машин с ДВС будут запрещены (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638963   (197115) от 12.06.2023
 
 В Западной Африке решили ввести единую валюту
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_197115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_197115.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_196927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_196927.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Amazon отключила умный дом инженера Microsoft из-за
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_196800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_196800.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196688.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_196677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_196677.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196197.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_196189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_196189.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196158.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_196091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_196091.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ Kaminaki Sekai no Kamisama Katsudou / KamiKatsu: Working for God in a Godless Wo
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196078.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195927.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_195888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_195888.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_195625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_195625.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ Telly начала поставки бесплатных 55-дюймовых т�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_195597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_195597.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_195536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_195536.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_195485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_195485.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_195217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_195217.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_195180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_195180.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_194691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194691.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ SolidWorks 2023 SP3.0 Premium RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194673.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_194666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194666.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ RedShift Render 3.0.45 (x64) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194622.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ Virgin Galactic впервые успешно отправила туристо�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_194515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194515.jpg" />
 </div>
 
 
@@ -610,65 +663,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_194366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194366.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Вы когда-нибудь слышали, как Джонни Кэш поет «Barbie Girl»? А как Фрэнк Синатра рэпует «Gangsta’s Paradise»? Если нет, то вы можете легко найти эти и другие необычные кавер-версии в интернете. Они созданы с помощью искусственного интеллекта (AI), который умеет имитировать голоса, стихи и звучание известных артистов, часто без их согласия. Это называется «дипфейками» (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653597   (194076) от 18.08.2023
-
-SKIDROW ответили EMPRESS: прошлись по личности хакера, а так же пообещали скорый взлом Denuvo-игры
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_194076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько дней назад хакеры из SKIDROW взломали защиту Denuvo в игре Fe, которая оставалась невзломанной более пяти лет. В одном из DLL файлов они написали скрытое обращение ко всем P2P-группам, мягко говоря послав их все на три буквы, в том числе пользователей Reddit.В NFO к Judgment EMPRESS ответила Skidrow, заявив, что Fe была взломана благодаря эксплойту в движке (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654065   (194002) от 20.08.2023
-
-Ночью тысячи 3D-принтеров Bambu самостоятельно включились и начали печатать
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_194002.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 августа владельцы 3D-принтеров Bambu X1C и P1P столкнулись с неожиданной проблемой: их устройства внезапно включились и начали печатать без ведома пользователей.Некоторые из принтеров повторили последнее задание, в то время как другие начали печатать новую модель прямо поверх уже готовой, что привело к их поломке.Отметим, что Bambu уже приступила к расследованию (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

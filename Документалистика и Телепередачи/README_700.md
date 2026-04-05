@@ -1,3 +1,160 @@
+###  Публикация: 1086831   (150397) от 25.12.2016
+
+Воскресное время - Первый канал (25.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационно-аналитическая программа Первого канала, выходящая в эфир каждое воскресенье (кроме праздников) с начала сентября по начало июля в 21:00 с хронометражем в 1 час. Рубрик не имеет. Состоит из двух частей примерно по полчаса каждая, разделенных рекламным блоком. Производится Дирекцией информационных программ ОАО «Первый канал».Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 01:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853E51E3C6DD9D984E2D361A15B12CD4E0DA7E25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086702   (150305) от 25.12.2016
+
+Чудо техники (2016.12.25) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150305.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD74906A9E27680DDDDEA2791329043895E4ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677707   (150273) от 18.11.2023
+
+Экстрасенсы. Битва сильнейших (18.11.2023) WEBRip [H.264/1080p] (сезон 1, выпуск 24)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150273.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом шоу ТНТ «Экстрасенсы. Битва сильнейших» за право стать лучшим сражаются самые яркие участники легендарной «Битвы экстрасенсов». Самые сильные победители и финалисты «Битвы» приняли вызов продюсеров и согласились еще раз доказать свои способности.
+«Экстрасенсы. Битва сильнейших» – это турнир, в котором лучшие из лучших показывают свою силу и эзотерические (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23F92A6BAF678AABADAF19424F7B8C58AF87FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086810   (150204) от 25.12.2016
+
+Вести недели (25.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150204.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EA526285D82088FCEDF028C67099728F0B62BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619806   (150167) от 18.11.2023
+
+Корни и кроны. По городам и весям / Des Racines et des Ailes. Des Racines & des Ailes (2021) DVB (часть 8, серии 1-8 из ?) [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский документальный цикл в виде тележурнала "Корни и кроны / По городам и весям" создан Патриком де Каролисом / Patrick de Carolis и Патриком Шарлем / Patrick Charles в 1997 году. Выходит дважды в квартал по каналу France 3 с ретрансляцией по TV5. Патрик де Каролис вел программу до 2005 года, когда он был избран Президентом France Télévisions, (   Читать дальше...   )Производство: Франция, France 3 Production Lille, Infotainment ChinaЖанр: документально-познавательный, путешествияРежиссер: Патрик Шарль, Жан-Люк Орабона, Люсиль Беланже, Софи Скала, Стефан Гез, Райнальд Мерьенн, Вероник Прео, Жером Миньяр, Филипп Пуаре, Мари Мори, Франк Делен, Маха Харрат, Гари Грабли, Мириам ЭльхададУчастники: Кэрол Гесслер, Патрик де Кэролис, Луи ЛафоржПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод О.Першиной, компания Hiventy), английские, французские, немецкие, нидерландские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: серии ~02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CB50FC847758DE4640CFB24156BB6A56DA8CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086706   (150115) от 25.12.2016
+
+Орел и решка. Кругосветка (2016) SATRip (сезон 12: За кадром, часть 8)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150115.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED1E35CF595393A6FF50F85BBED8A34681D15E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086823   (150106) от 25.12.2016
 
 Лучше всех (2016.12.25) SATRip (выпуск 7)
@@ -6,7 +163,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150106.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150075.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150056.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150008.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149992.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149976.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149955.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149913.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149910.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149776.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149767.jpg" />
 </div>
 
 
@@ -293,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149746.jpg" />
 </div>
 
 
@@ -319,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149743.jpg" />
 </div>
 
 
@@ -345,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149740.jpg" />
 </div>
 
 
@@ -371,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149728.jpg" />
 </div>
 
 
@@ -398,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149723.jpg" />
 </div>
 
 
@@ -424,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149501.jpg" />
 </div>
 
 
@@ -450,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149496.jpg" />
 </div>
 
 
@@ -476,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149465.jpg" />
 </div>
 
 
@@ -502,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149406.jpg" />
 </div>
 
 
@@ -515,163 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED885CDA70FAC5468E7B4F79AA3B08BD87AFCFBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086748   (149375) от 25.12.2016
-
-Гранд тур / The Grand Tour (2016) WEBRip [H.264/720p-LQ] (сезон 1, серия 5) Jetvis Studio & RG.Paravozik
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149375.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Amazon StudiosЖанр: Реальное ТВ, комедияПеревод: Многоголосый закадровый, профессиональный - Jetvis Studio & RG.ParavozikПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D251726F3045FB082090285F317BCC4573A9206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969223   (149368) от 26.12.2015
-
-Главная сцена. Сезон 2. Выпуск 14 (2015.12.26) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149368.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Главная сцена" – это крупнейшая музыкальная академия, цель которой – поиск современных талантливых артистов, способных стать новыми звездами российской эстрады.
-В новом сезоне задача для конкурсантов усложняется: участники проекта будут исполнять песни только на русском языке, с первого выхода они должны доказать, что готовы стать настоящей звездой российской (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйПродолжительность: 02:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E453872E0E260BDFDB4D813E96AB0328C80B9000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969182   (149362) от 26.12.2015
-
-Территория заблуждений с Игорем Прокопенко (2015.12.26) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйПродолжительность: 01:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEAFE45CE95C0E59F4720C803B85883F9730CC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969187   (149361) от 26.12.2015
-
-Военная тайна с Игорем Прокопенко (2015.12.26) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149361.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйПродолжительность: 02:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F909349C94ABA89D8C33F43037CF47F5D7010B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677812   (149338) от 19.11.2023
-
-Агент-крот / El Agente Topo (2020) WEBRip [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чилийский частный детектив нанимает «крота» для расследования в доме престарелых, где его клиент подозревает опекунов в жестоком обращении с постояльцами.Производство: Чили, США, Германия, Нидерланды, Испания / Micromundo Producciones, Motto Pictures, Sutor KolonkoЖанр: документальныйРежиссер: Мэйти АльбердиУчастники: Sergio Chamy, Romulo Aitken, Marta Olivares, Berta Ureta, Zoila Gonzalez, Petronila Abarca, Rubira OlivaresПеревод: Многоголосый профессиональный (Zone Vision)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4EF649263C2A677BB23EA3844335CB1A22B2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086746   (149327) от 25.12.2016
-
-Гранд тур / The Grand Tour (2016) WEBRip [H.264/720p-LQ] (сезон 1, серия 6) Jetvis Studio & RG.Paravozik
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149327.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Amazon StudiosЖанр: Реальное ТВ, комедияПеревод: Многоголосый закадровый, профессиональный - Jetvis Studio & RG.ParavozikПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0135157C6B7C11E2468E38FA0A0D016148A722E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

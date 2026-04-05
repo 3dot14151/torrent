@@ -1,3 +1,136 @@
+###  Публикация: 1708282   (62331) от 20.03.2024
+
+Золушка / Cinderella (1950) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Золушка - бедная сиротка, которую злая мачеха и ее вздорные дочки заставляют тяжко работать с утра до ночи. Она так хочет попасть на королевский бал. На помощь бедняжке приходит Добрая фея! Силой волшебства она наделяет Золушку роскошной каретой, чудесным платьем и необыкновенными хрустальными башмачками.Производство: США / Walt Disney ProductionsЖанр: мультфильм, мюзикл, фэнтези, мелодрама, семейныйРежиссер: Клайд Джероними, Уилфред Джексон, Хэмилтон ЛаскАктеры: Илен Вудс, Элеонор Одли, Верна Фелтон, Клер Дю Бри, Рода Уильямс, Джеймс МакДональд, Хелен Стэнли, Луис Ван Рутен, Дон Барклай, Люсиль Блисс и др.Перевод: Дублированный (Пифагор)Язык озвучки: Русский, украинскийСубтитры: Русские,украинскиеПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B09C8258E66138515417714F8961E2A33E841DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708673   (62244) от 21.03.2024
+
+Питер Пэн / Peter Pan (1953) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уолт Дисней зовет нас с собой в волшебную страну Неверленд, где живет удивительный мальчик, который умеет летать и отказывается взрослеть. Это веселый выдумщик, храбрец и проказник Питер Пэн!
+
+Однажды в поисках собственной тени Питер попадает в Лондон нашего мира и становится другом маленькой Венди и ее братьев Майкла и Джона, и, конечно же, он берет своих ночных (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: мультфильм, мюзикл, фэнтези, приключения, семейныйРежиссер: Клайд Джероними, Уилфред Джексон, Хэмилтон ЛаскПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: русские (full, forced)Продолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9EC8213339D9A997AB735062EA3A4D7C0260179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708925   (62141) от 22.03.2024
+
+Манускрипт ниндзя / Juubee Ninpuuchou / Ninja Scroll (1993) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62141.jpg" />
+</div>
+
+
+###  Подробнее
+
+В провинции Ямасиро неожиданно начинается эпидемия чумы. Все жители бегут оттуда, а глава одного из соседних самурайских кланов, клана Мотидзукэ, отправляет на разведку в эти места подчиняющиеся ему остатки клана ниндзя Кога. Однако какие-то странные существа, наделенные невероятной силой, мгновенно расправляются с незваными гостями, и спастись удается только девушке-ниндзя (   Читать дальше...   )Производство: Япония / MadhouseЖанр: аниме, мультфильм, фэнтези, боевикРежиссер: Ёсиаки КавадзириПеревод: Многоголосый профессиональный (MC Entertainment)Язык озвучки: РусскийСубтитры: русскиеПродолжительность: 01:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4111D593C06BF32B54292DA15C213F1F1AD18233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 45733   (62107) от 23.03.2024
+
+Здесь могут водиться тигры (1989) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из культовых фантастических мультфильмов Советского времени. По мотивам одноимённого рассказа Рэя Брэдбери. Замечательный фантастический мультфильм о приключениях четвёрки космических путешественников на неизведанной планете. Для кого-то это путешествие закончилось обретением нового мира, а для кого-то...
+Люди уже забыли как выглядит земное солнце. Наша планета (   Читать дальше...   )Жанр: фантастикаПродолжительность: 10 мин. 11 сек.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAE7777ADC0AD02FA1D23C153961BBE305B5533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709057   (62083) от 23.03.2024
+
+Лео / Leo (2023) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавный рассказ про старенькую 74-летнею ящерицу из школьного террариума во Флориде, которая решает осуществить дерзкий побег со своим лучшим другом-черепахой, после нескольких десятков лет заточения.Производство: США, Австралия / Netflix, Happy Madison Productions, Animal Logic, Screen NSWЖанр: мультфильм, комедия, семейныйРежиссер: Роберт Марианетти, Роберт Шмигель, Дэвид УочтенхеймАктеры: Адам Сэндлер, Билл Бёрр, Сесили Стронг, Джейсон Александер, Роб Шнайдер, Эллисон Стронг, Джо Кой, Сэди Сэндлер, Санни Сэндлер, Култер ИбанезПеревод: дублированный (Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DF8C8800EBDBE24436EA2BB10BFAB419D234AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709158   (62043) от 23.03.2024
 
 Леди и бродяга / Lady and the Tramp (1955) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +139,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62043.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62002.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61960.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61955.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61954.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61953.jpg" />
 </div>
 
 
@@ -162,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61950.jpg" />
 </div>
 
 
@@ -188,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61948.jpg" />
 </div>
 
 
@@ -214,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61934.jpg" />
 </div>
 
 
@@ -240,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61931.jpg" />
 </div>
 
 
@@ -266,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61924.jpg" />
 </div>
 
 
@@ -292,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61867.jpg" />
 </div>
 
 
@@ -319,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61858.jpg" />
 </div>
 
 
@@ -347,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61762.jpg" />
 </div>
 
 
@@ -373,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61756.jpg" />
 </div>
 
 
@@ -399,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61671.jpg" />
 </div>
 
 
@@ -429,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61648.jpg" />
 </div>
 
 
@@ -455,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61643.jpg" />
 </div>
 
 
@@ -481,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61622.jpg" />
 </div>
 
 
@@ -507,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61616.jpg" />
 </div>
 
 
@@ -533,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61600.jpg" />
 </div>
 
 
@@ -544,139 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B48F5A0EAEE05B1AE758947C482F9D2C6C6D54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710719   (61594) от 27.03.2024
-
-Летучий корабль (1979) WEBRip [VP9/2160p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цветной рисованный фильм по мотивам русской сказки о том, что доброта, бескорыстная любовь и честность всегда побеждают коварство, злобу и чванство.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, фэнтези, мюзикл, семейныйРежиссер: Гарри БардинАктеры: Гарри Бардин, Михаил Боярский, Анатолий Папанов, Рогволд Суховерко, Татьяна ШабельниковаСубтитры: ОтсутствуютПродолжительность: 00:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CACA6D7264805B9C268EBD8F749BAE595E7A35F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711459   (61297) от 30.03.2024
-
-Пантеон / Panteon (2022-2023) WEBRip [H.264/1080p] (сезоны 1-2, серии 1-16 из 16) Кравец-Рекордз
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэдди - обычная девушка-подросток, которую травят в школе. Однажды ей начинают приходить сообщения со словами поддержки в социальных сетях от незнакомого пользователя. Вскоре таинственный доброжелатель сообщает, что он - недавно почивший отец девушки Дэвид. Его сознание было загружено в «облако» в рамках эксперимента по сканированию мозга. Дэвид стал первым, но не (   Читать дальше...   )Производство: США / AMC StudiosЖанр: рисованная анимация, компьютерная анимация, фантастика, драмаРежиссер: Джуно Джон ЛиАктеры: Пол Дано, Уильям Хёрт, Тейлор Шиллинг, Лара Пулвер, Мод Апатоу, Скут МакНэйри, Аарон Экхарт, Дэниэл Дэ Ким, Крис Диамантопулос, Розмари ДеУитт, Кори Столл, Рон Ливингстон, Раза Джеффри, Кэти Чанг, Сэмюэл РукинПеревод: Дублированный (Кравец-Рекордз)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562BDD88DC542C6F4457F3C0DC43AA3442639107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208624   (61243) от 31.03.2024
-
-Доктор Айболит и другие сказки К. И. Чуковского (1946-1985) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебные сказки самого популярного детского писателя в СССР и России К. И. Чуковского не только доставляют массу удовольствий родителям и детям, но и учат всех ребят доброте и взаимовыручке; помогают развивать фантазию и восприятие окружающего мира, эстетически развивают малышей.
-Лучшие из них воплощены на экране талантливыми российскими аниматорами.Производство: СССР , СоюзмультфильмЖанр: Сказка, Детский, Приключения, МузыкальныйРежиссер: Борис Аблынин, Сергей Олифиренко, Борис Степанцев, Владимир Попов, Иван Иванов-Вано, Наталия Червинская, Владимир Полковников, Леонид Амальрик, Владимир МорозовСубтитры: ОтсутствуютПродолжительность: 01:34:38Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E81F877052DEB80381D62986AB3C35D5F1DFEEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656670   (61213) от 31.03.2024
-
-Человек-паук: Паутина вселенных / Spider-Man: Across the Spider-Verse (2023) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61213.jpg" />
-</div>
-
-
-###  Подробнее
-
-После воссоединения с Гвен Стейси дружелюбный сосед Человек-Паук попадает из Бруклина в Мультивселенную, где встречает команду Паучков, защищающих само её существование. Пытаясь справиться с новой угрозой, Майлз сталкивается с Пауками из других вселенных. Настаёт момент, когда ему необходимо решить, что значит быть героем, спасающим тех, кого любишь больше всего.Производство: США, Sony Pictures Animation, Marvel Entertainment, Arad ProductionsЖанр: Мультфильм, фантастика, фэнтези, боевик, приключения, семейныйРежиссер: Жуакин Душ СантушАктеры: Шамеик Мур, Хейли Стайнфелд, Брайан Тайри Генри, Луна Лорен Велес, Джейк Джонсон, Оскар Айзек, Джейсон Шварцман, Исса Рэй, Дэниэл Калуя, Каран СониПеревод: Дублированный (Кинопоиск HD, RHS, Flarrow Films), Многоголосый профессиональный (HDRezka, TVShows, LostFilm)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (2x Forced, 2x Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD0320FE05B89ACE93237AA0C96D44EC41D3B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711759   (61208) от 31.03.2024
-
-Меч в камне / The Sword in the Stone (1963) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61208.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стародавние времена в центре Лондона появился громадный камень с замурованным в нем старинным мечом. Золотая надпись на мече гласила, что королем Англии станет тот, кто вытащит этот заколдованный меч, доказав тем самым свою особую силу и право на власть. Пока это не удавалось никому.
-
-А между тем в далекой лесной глуши жил себе 11-летний мальчик Артур, прислуживал (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Вольфганг Райтерман, Клайд Джероними, Дэвид ХэндАктеры: Себастьян Кабот, Карл Свенсон, Рикки Соренсен, Джуниос Мэтьюз, Джинни Тайлер, Марта Вентуорф, Норман Элден, Алан Напье, Ричард Рейтерман, Роберт РейтерманПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:818A30EC628ED21D5DB3933251765F6C95AB7DB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

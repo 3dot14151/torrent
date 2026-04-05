@@ -1,3 +1,61 @@
+###  Публикация: 1014389   (776486) от 07.05.2016
+
+Dagaz - Reflection Of The Soul (2014) [FLAC|Lossless|tracks] <New Age, Downtempo, Chill Out>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay With Me    03:38
+02. Silver Lights    04:42
+03. Philadelphia    04:34
+04. Reflection Of The Soul    03:41(   Читать дальше...   )Жанр: New Age, Downtempo, Chill OutПродолжительность: 00:01:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023EAF47CA71B3DDD4A5A82F8F426F35ADF22367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014354   (776481) от 07.05.2016
+
+Wong Wai Ming - Romance On Violin (2013) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If (2:52)
+02. Song From Secret Garden (2:59)
+03. Make It With You (3:21)
+04. First Of May (4:05)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1102DD8B89D8DE35FBE2E6A695FBC8BADFB27E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212057   (776430) от 10.03.2018
 
 Жабъ - Гимны Болотному Троллю (2017) [MP3|320 Kbps] <folk,metal,rock>
@@ -6,7 +64,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776430.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Cyndi Lauper - Detour (2016) [FLAC|Lossless|WEB-DL|tracks] <Country, Country Blu
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776414.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Sade - Flower of the Universe (From Disney's "A Wrinkle in Time") (2018) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776390.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ Mariza - Mundo (2015) [FLAC|Lossless|tracks  + .cue] <Folk, World, Country, Fado
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776376.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ VA - Creed (Original Motion Picture Soundtrack) (2015) [FLAC|Lossless|Web-DL|tra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776366.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ Deuter - Ocean Waves (2012) [FLAC|Lossless|tracks] <New Age, Meditative>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776152.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ Brian Crain - Piano and Night (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ins
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776083.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ Zhou Zifeng - Hotel California (1999) [MP3|320 кб/с] <Guitar, Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776071.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ Greg Butler - Whispering Yiruma (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, P
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776058.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ John Camacho - Morning Calm (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Medit
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775791.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ The Nexion-Project - Voices Of The Ascension (2011) [MP3|320 кб/с] <New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775763.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ The Hero Guitar Maniacs - 50 Acoustic Guitar Classics (2014) [MP3|320 кб/с] <
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775601.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - Yoga Music Session 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775010.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Peter Kater - Heart of the World - Colorado's National Parks (2016) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774993.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Gandalf - All is One - One is All (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774982.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Magick Numbers - Dreaming of Oceans (2018) [MP3|320 Kbps] <Ambient, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774460.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - Лучшие песни из кинофильмов (2003 - 2004) 4 CD [APE
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774419.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Relaxation Collection 2 - Cool Breeze (2017) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774299.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Relaxation Collection 1 - Mirror Pond (2017) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774298.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Sverre Knut Johansen - Earth From Above (2016) [FLAC|Lossless|tracks + .cue] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774273.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Salvador Candel - Gently (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774230.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Gyuto Monks of Tibet - Chants: The Spirit of Tibet (2013) Deluxe Version [FLAC|L
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774168.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ David Wright & Carys - Prophecy (2017) [MP3|320 Kbps] <Electronic, Ambient, New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773447.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Kenio Fuke - Relaxing Melodies of Nature (2011) [FLAC|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773395.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Kenio Fuke - Relaxing Melodies of Nature (2011) [FLAC|Lossless|tracks + .cue] <N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C338FA7B906E7A434A63C15EF93B529C084779E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124843   (773390) от 13.04.2017
-
-Ewan Dobson - 12 String Guitar (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic guitar, Fingerstyle, Folk>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motion Potion (3:08)
-02. Disk Read Error (4:21)
-03. Dancing With Her (3:17)
-04. Doctor Pepper Jam (3:50)(   Читать дальше...   )Жанр: Acoustic guitar, Fingerstyle, FolkПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8F764B1727710D99652C8EF3D7C33D6C7E0F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213024   (773224) от 15.03.2018
-
-Michael E & Jirka - The Garden Of The Open Mind (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773224.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mantra (5:25)
-2. Beautiful Solitute (3:24)
-3. Tokyo Morning (5:19)
-4. Flight Over India (4:45)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CDB81393B1651FA88EB453952D69671B7C92E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Defiatory - Extinct (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712294.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nowen - Peace With Death (2016) [MP3|320 кб/с] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712291.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Revolt - Torture To Exist (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712289.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Romuvos - Infront Of Destiny (2016) [MP3|320 кб/с] <Epic Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712285.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Black Crown Initiate - Violent Portraits of Doomed Escape (2020) [MP3|320 Kbps] 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711609.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Orbit Culture - Nija (2020) [MP3|320 Kbps] <Groove Metal, Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711438.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Leecher - Slightless (2016) [MP3|320 кб/с] <Gothic Metal, Symphonic>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710179.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Raw Ensemble - Suffer Well (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708214.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - The Battle of Metal, Vol. 3 (2016) [MP3|320 кб/с] <Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708120.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Stonebirds - 4 альбома (2011-2020) [MP3|320 kbps,~245 Kbps (V0)] <Doom, S
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707806.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mattias Ohlsson Project - Illumination (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707803.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Erik Ekholm - Titanium Angel (2015) [MP3|320 кб/с]<Epic Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707488.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kamelot - Haven (2015) 2CD, Deluxe Edition [MP3|320 кб/с]<Progressive / Melod
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707022.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Stratovarius - Best Of (3 CD) Limited Edition (2016) [MP3|320 кб/с] <Power Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705874.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Rage - The Devil Strikes Again (2016) 2CD [MP3|320 кб/с] <Heavy Metal, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705790.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dymna Lotva - Чакай Перамен! (Кино cover) (2020) Single [MP3|320
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705618.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Athlantis - The Way to Rock'n'Roll (2019) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705518.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Traitors - Repent (2019) [MP3|320 Kbps] <Downtempo Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705375.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Battle Beast - Eden (2019) Single [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705362.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ HammerFall - Hammer of Dawn (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705333.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ The Unity - The Unity (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704950.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - A Tribute To Iron Maiden (2017) [MP3|320 Kbps] <Heavy Metal, Thrash Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704606.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Great Master - Lion & Queen (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704157.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Rage - The Refuge Years (2015) EP, Compilation, Remastered [MP3|320 кб/с] <He
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704074.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Serious Black - Vengeance Is Mine (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703220.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Stryctnyne - Unfinished Business (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702524.jpg" />
 </div>
 
 

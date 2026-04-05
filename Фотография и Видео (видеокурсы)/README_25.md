@@ -6,7 +6,7 @@ MZed, Ollie Kenchington | Углубленное изучение и овлад�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140622.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Liveclasses, Дмитрий Шатров | Affinity Photo: быстрый ста
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140553.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140387.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ JayLay | Мастер-класс по обработке JayLay (2014) PCRec [H.
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140279.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Arma Gray Photographer | Arma Gray - Шоколад и кофе (2019) PCRec [RU
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139252.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139023.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Photocasa, Татьяна Малышева | Портрет со всех сто
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138672.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138621.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138142.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Fstoppers, Elia Locardi | Photographing the World 5 - Japan (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137433.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137415.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tamara Williams Academy, Tamara Williams | The Art of Beauty Masterclass (2023) 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137338.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Profileschool | Adobe Lightroom: Практика обработки фотог�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137320.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137290.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137151.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Fstoppers, Andres Moline | Mastering Macro Photography - The Complete Shooting a
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135155.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ AEJuice | I Want To Learn It All Bundle (2021) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135103.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ SlrLounge | Complete Wedding Photography Training System (2018) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134797.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134451.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ World of Portraits | Master Retouch Collection (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133643.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Daniel Kordan | Photo Editing Masterclass (2023) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132540.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Udemy, Marc Schneider | Mastering Theater Lighting (2023) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132030.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Udemy, Jesse Lawrence | How to become a music photographer (2023) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131782.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Udemy, Phil Ebiner, Viola Kanka Malaspina | AI Video Production: Create Videos 1
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130996.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Udemy, Илья Зернов | Энциклопедия Adobe Premiere 2.0. На
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130864.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ School of Motion, Mark Christiansen | VFX For Motion After Effects (2020) PCRec 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130191.jpg" />
 </div>
 
 

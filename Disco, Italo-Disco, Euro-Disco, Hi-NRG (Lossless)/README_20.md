@@ -1,125 +1,3 @@
-###  Публикация: 1341216   (262615) от 27.11.2019
-
-VA - ZYX Italo Disco Spacesynth Collection 2 (2015) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.M. Samurai - Secret Entrance (4:42)
-02. Marco Rochowski - Voyage Of Discovery (5:46)
-03. Synthesis - Strange Land (6:51)
-04. Rygar - Illusion In C Minor (6:37)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834F9E7CC05CC4BC4759A97F1DBA76FBDF3DED03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341559   (262314) от 28.11.2019
-
-VA - ZYX Italo Disco Spacesynth Collection 3 (2017) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserdance - Endless Space (5:22)
-02. Albiero - Electronic Scout (6:05)
-03. Steve Burbon - Night In Motion (Space-Mix) (6:51)
-04. Aphelion - Virtual Life (6:20)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB92848B3B4DC3F9AC305ACAB6018AB760CD550F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838675   (261342) от 23.11.2025
-
-Aurum Project - Can't Fight This Feeling (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance, AI Music>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Fight This Feeling (4:42)
-02. All We Need Is Love (4:39)
-03. Casanova (4:12)
-04. Darlin' (4:09)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 02:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BAA0E34BDDF898275452F07F92A594FE349509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501654   (259125) от 28.05.2012
-
-VA - Tribute in Bossa To The Beatles (2010) [FLAC|Lossless]<Pop, Bossa>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259125.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Come Together - Monique Kessous
-2 - A Hard Day'S Night - Monique Kessous
-3 - Help - Barbara Mendes
-4 - Got To Get You Into My Life - Lulu Joppert
-5 - Day Tripper - Tahta Menezes
-6 - We Can Work It Out - Marcela Mangabeira
-7 - Yesterday - Monique Kessous
-8 - Penny Lane - Maria Augusta
-9 - Hey Jude - Monique Kessous
-10 - Eleanor Rigby - Eduardo Braga(   Читать дальше...   )2010Жанр: Pop, BossaПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838183   (258024) от 21.11.2025
 
 Lian Ross - V (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
@@ -128,7 +6,7 @@ Lian Ross - V (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258024.jpg" />
 </div>
 
 
@@ -157,7 +35,7 @@ Discobonus - Different Shores (2020) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255672.jpg" />
 </div>
 
 
@@ -186,7 +64,7 @@ Marc Fruttero - Eagles (2025) Limited Edition [FLAC|Lossless|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251735.jpg" />
 </div>
 
 
@@ -215,7 +93,7 @@ Matia Bazar - Fantasia (Best & Rarities) (2CD) (2011) [FLAC|Lossless]<Italo-pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251000.jpg" />
 </div>
 
 
@@ -250,7 +128,7 @@ Lian Ross - 4You (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244799.jpg" />
 </div>
 
 
@@ -279,7 +157,7 @@ Kaioh - Emotional Fire (2021) [FLAC|Lossless|tracks] <Eurobeat>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242534.jpg" />
 </div>
 
 
@@ -308,7 +186,7 @@ Fred Ventura - Rewind Of Change (Italoconnection Reworks) (2023) EP [FLAC|Lossle
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241026.jpg" />
 </div>
 
 
@@ -337,7 +215,7 @@ Linda Jo Rizzo - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235924.jpg" />
 </div>
 
 
@@ -366,7 +244,7 @@ Giorgio Moroder - From Here To Eternity / E=MC2 (1977, 1979) Reissue, Remastered
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235663.jpg" />
 </div>
 
 
@@ -393,7 +271,7 @@ Cerrone - A Part of You (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235565.jpg" />
 </div>
 
 
@@ -422,7 +300,7 @@ Donna Summer - Another Place and Time (1989) Deluxe, 2023, Driven By The Music [
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233604.jpg" />
 </div>
 
 
@@ -451,7 +329,7 @@ Fancy - D.I.S.C.O. (1999) [FLAC|Lossless|image + .cue] <Euro-Disco, Eurodance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229392.jpg" />
 </div>
 
 
@@ -480,7 +358,7 @@ Lordi - Lordiversity: Superflytrap (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229113.jpg" />
 </div>
 
 
@@ -509,7 +387,7 @@ New Baccara - F.U.N. (1990) Japanese Edition [FLAC|Lossless|tracks + .cue] <Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229016.jpg" />
 </div>
 
 
@@ -538,7 +416,7 @@ Bad Boys Blue - Around the World (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228894.jpg" />
 </div>
 
 
@@ -567,7 +445,7 @@ Boney M. - Gold (2019) 3CD [FLAC|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228486.jpg" />
 </div>
 
 
@@ -596,7 +474,7 @@ Fun Girl - The Album (2022) [FLAC|Lossless|image + .cue] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226635.jpg" />
 </div>
 
 
@@ -625,7 +503,7 @@ Cerrone - Cerrone by Cerrone (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226180.jpg" />
 </div>
 
 
@@ -654,7 +532,7 @@ VA - ZYX Italo Disco Spacesynth Collection 4 (2018) 2CD, Compilation [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225471.jpg" />
 </div>
 
 
@@ -683,7 +561,7 @@ VA - ZYX Italo Disco Spacesynth Collection 5 (2019) 2CD, Compilation [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225437.jpg" />
 </div>
 
 
@@ -712,7 +590,7 @@ VA - Italian Style Vol. 1 (1988) [FLAC|Lossless|image + .cue] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223831.jpg" />
 </div>
 
 
@@ -741,7 +619,7 @@ Stars On 45 - The Very Best Of... (2010) Compilation [FLAC|Lossless|WEB-DL|track
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223622.jpg" />
 </div>
 
 
@@ -755,6 +633,121 @@ Stars On 45 - The Very Best Of... (2010) Compilation [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7F6252719DC3AFBF6A7358956CDDE7FA945BDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425306   (222475) от 20.11.2020
+
+Savage - Love And Rain (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Second Of My Life (Ouverture) (0:41)
+ 02. Don't Say You Leave Me (3:02)
+ 03. I Love You (3:17)
+ 04. Italodisco (3:07)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2678FC0BAB4135F7E2AEB4D3CC0FB2C02F47C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425183   (222186) от 20.11.2020
+
+Savage - Love And Rain (Remixes) (2020) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You (Kimmo Salo Flashback Remix) (6:54)
+02. Where Is The Freedom (Kimmo Salo Flashback Remix) (6:11)
+03. Italodisco (Kimmo Salo Flashback Remix) (5:52)
+04. Lonley Nights (Kimmo Salo Flashback Remix) (6:25)(   Читать дальше...   )Жанр: Electronic, Italo-Disco |Продолжительность: 01:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC74ED76C2F5E0E45E04869AB74B2A6981AF7390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342929   (221196) от 04.12.2019
+
+Digital Emotion - You'll Be Mine / Run Away (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Disco, Electronic>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'll Be Mine
+02. Run AwayЖанр: Disco, ElectronicПродолжительность: 00:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF3498B22D854DB11411E904B8EE87A6CB2A3DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 164166   (218176) от 02.12.2021
+
+Matia Bazar - Коллекция (1976-1989) [FLAC|Lossless] <Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218176.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 Альбомов с вокалом Антонеллы Руджеро (Antonella Ruggiero)
+Спасибо bazar и dimitri28 с "национального"01. Stringimi
+02. Se Tu
+03. Il Mare
+04. Winnie(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4431EC1DDA951A0C7A747E576BDDF39DC1FF572
 ```
 
 https://mybot314.ru/tekegram_catalog/

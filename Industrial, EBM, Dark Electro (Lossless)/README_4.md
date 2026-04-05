@@ -6,7 +6,7 @@ Emika - Emika (2011) [FLAC|Lossless]<Trip-Hop, Electronic, Abstract, Dubstep>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469023.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Monolith - Unnatural Bodies (2020) Soundofmonolith [FLAC|Lossless|WEB-DL|tracks]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466540.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Sopor Aeternus & The Ensemble Of Shadows - Mitternacht (2014) [FLAC|Lossless|tra
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464579.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Mlada Fronta - Discography (1993-2018) [FLAC|Lossless|tracks+.cue, tracks]<Rhyth
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463741.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Kraftwerk - The Mix (1991) [FLAC|Lossless|image + .cue] <EDM>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459364.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Vortex - As Gods Fall (2018) Cyclic Law [FLAC|Lossless|WEB-DL|tracks] <Dark Ambi
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459079.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ HIDE - Hell Is Here (2019) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448381.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Rammstein - InFected Brain (Instrumental & Remixes Versions) (2003) Bootleg [FLA
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411559.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Ah Cama-Sotz - Discography 29 Releases (1997-2020) Bats & Cats, Ant-Zen, Hands P
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411187.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ IC3PEAK - До Свидания (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387574.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Cervello Elettronico - Collection 10 Releases (2007-2020) [FLAC|Lossless|tracks+
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386952.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ M83 - DSVII (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380770.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Asa Tone - Temporary Music (2020) Japan Edition [FLAC|Lossless|tracks + .cue] <E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374292.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Meta Meat - Metameat (2016) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Industrial, T
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371317.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Psyclon Nine - Less To Heaven (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial M
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364186.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Neurotech - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Elect
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364034.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - XXXd Generation (2000) Unit [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344547.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ S:cage - Discography 2 Albums (2004-2006) Ant-Zen [FLAC|Lossless|tracks+.cue] <R
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343305.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Sylvgheist Maelstrom (Sylvgheist Maëlström) - Discography 4 Releases (2010-201
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342938.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Art Of Noise - Moments In Love (2018) 2CD, Compilation [FLAC|Lossless|tracks + .
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341149.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Dirty K - The Rite Of The Enraged (2020) INFERN0 [FLAC|Lossless|WEB-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337807.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Mika Tapio Vainio (Mika Vainio, Ø, Philus) - Discography 61 Releases (1993-2020
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336930.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Extize - MonStars (2022) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, EBM, Electro-I
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329923.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Aeon Rings - Enemy (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Beat, New
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323356.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ SALEM - Fires In Heaven (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experi
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322099.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Nommo Ogo - Discography 12 Releases (2000-2017) [FLAC|Lossless|tracks+.cue, trac
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309804.jpg" />
 </div>
 
 

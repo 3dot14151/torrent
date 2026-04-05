@@ -1,133 +1,3 @@
-###  Публикация: 1738007   (106477) от 20.07.2024
-
-Джон Г. Мэтьюз, Куртис Д. Финк | Численные методы. Использование MATLAB (2001) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106477.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге, ориентированной на пакет MATLAB, изложены основные методы численного анализа: численные решения нелинейных уравнений, систем линейных уравнений, дифференциальных уравнений и т. д. Все методы иллюстрируются примерами, в которых используютсяпрограммы из пакета MATLAB. Книга также содержит приложение, которое знакомит читателя с основными принципами (   Читать дальше...   )Жанр: МатематикаИздательство: ВильямсФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD458E0EA1119A94FCE632D0F21D2BAE2938BFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737984   (106444) от 20.07.2024
-
-С.И. Туманов | Поиски решения задачи (1969) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106444.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно разобрано много задач и примеров по всему курсу математики старших классов средней школы. Показаны приемы и методы решения различных задач алгебры, геометрии и тригонометрии. Около 500 задач для самостоятельной работы, в конце к ним даны ответы, указания или полные решения. Из оглавления. 1. Алгебра. Уравнения в целых числах. Задачи на делимость. (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEB624C8D22F3F3667AABBC57CA7797F9623FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738233   (106363) от 21.07.2024
-
-P. Bettiol, R.B. Vinter | Principles of Dynamic Optimization (2024) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106363.jpg" />
-</div>
-
-
-###  Подробнее
-
-This monograph explores key principles in the modern theory of dynamic optimization, incorporating important advances in the field to provide a comprehensive, mathematically rigorous reference. Emphasis is placed on nonsmooth analytic techniques, and an in-depth treatment of necessary conditions, minimizer regularity, and global optimality conditions related to the (   Читать дальше...   )Жанр: учебное пособиеИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECE3376C9A067B1BDEAC1609952F022AA915BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739046   (106231) от 25.07.2024
-
-А.Ф. Филиппов | Сборник задач по дифференциальным уравнениям (1979) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит материалы для упражнений по курсу дифференциальных уравнений для университетов и технических вузов с повышенной математической подготовкой.Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660A3ED9ADC20959960F24FA5BF0B5C8FF560B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739360   (106130) от 27.07.2024
-
-Я.Ю. Заборовский | На тропах истории (2024) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106130.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны научные и публицистические статьи известного историка, посвящённые актуальным вопросам истории Украины, в частности Галиции. Автор пытается найти ответы на них, а также на такой болезненный вопрос современности: чему мы можем научиться у своего собственного, не такого уж далёкого прошлого, и рассчитывает на то, что любознательные читатели, если и (   Читать дальше...   )Жанр: ИсторияПеревод: Е.Р. СоваИздательство: Киев: 2024 (Івано-Франківськ: 2003)Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289DAB9114517A830B13EB4EEA385C0C710332C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739303   (106118) от 27.07.2024
 
 Н.С. Ахметов | Общая и неорганическая химия (1988) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106118.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106113.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106049.jpg" />
 </div>
 
 
@@ -216,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105874.jpg" />
 </div>
 
 
@@ -242,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105867.jpg" />
 </div>
 
 
@@ -268,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105861.jpg" />
 </div>
 
 
@@ -294,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105807.jpg" />
 </div>
 
 
@@ -320,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105783.jpg" />
 </div>
 
 
@@ -346,7 +216,7 @@ A.D. Sheffield | Command of Sentence-Patterns (1929) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105763.jpg" />
 </div>
 
 
@@ -374,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105660.jpg" />
 </div>
 
 
@@ -400,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105187.jpg" />
 </div>
 
 
@@ -426,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105151.jpg" />
 </div>
 
 
@@ -452,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105141.jpg" />
 </div>
 
 
@@ -479,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105138.jpg" />
 </div>
 
 
@@ -505,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105135.jpg" />
 </div>
 
 
@@ -531,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105133.jpg" />
 </div>
 
 
@@ -557,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105103.jpg" />
 </div>
 
 
@@ -583,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104678.jpg" />
 </div>
 
 
@@ -610,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104645.jpg" />
 </div>
 
 
@@ -636,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104513.jpg" />
 </div>
 
 
@@ -662,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104405.jpg" />
 </div>
 
 
@@ -675,6 +545,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:048688419ECABBAAA7ED09BAB33068F70E3C8CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752090   (104012) от 28.09.2024
+
+Галина Зеленская | Северное Возрождение (2016) [PDF, DOCX]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Северное Возрождение – термин, использующийся для описания эпохи Возрождения в северной Европе, или – во всей Европе за пределами Италии, к северу от Альп.
+Северное Возрождение тесно связано с итальянским, но имеет ряд характерных отличий, причем в каждой стране своих. Так, культурология и искусствоведение выделяют немецкое, нидерландское, французское, испанское, (   Читать дальше...   )Жанр: ЖивописьИздательство: Интернет издание «Mif-medyza»Формат: PDF, DOCXКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A420CBDF9463B6BEE24C2802CD605E8549834513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752128   (104010) от 28.09.2024
+
+Вячеслав Бондаренко | 100 великих героев Великой Отечественной войны (2015) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104010.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Нет в России семьи такой, где бы не памятен был свой герой". В годы Великой Отечественной войны 1941-1945 гг. наш народ проявил массовые героизм и мужество, отстаивая свою страну от нашествия чудовищного врага. Золотыми буквами вписаны в летопись войны имена прославленных полководцев в маршальских и генеральских погонах и рядовых бойцов, верных долгу офицеров (   Читать дальше...   )Жанр: Биографии. История.Издательство: Москва: «Вече»Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FD653E1CDC773B0D53D051AA8C7075096FFBAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752109   (104008) от 28.09.2024
+
+А.С. Литвак | Программированное обучение в судебной медицине (1970) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104008.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном учебном пособии освещены основные разделы судебной медицины с использованием элементов программирования в виде информации, контроля и самоконтроля. Подобное пособие нацелено на оптимизацию учебного процесса. Оно обеспечивает изучение основ теории и практики судебной медицины и может оказать существенную помощь преподавателям и студентам. Допущено Главным (   Читать дальше...   )Жанр: Судебная медицина, учебная литератураИздательство: Москва: МедицинаФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD04177C2C9B39BEC93D111530F6BAB2E87681F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752018   (104003) от 28.09.2024
+
+Б. Серафин | Преобразование солнечной энергии (1982) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104003.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге написанной ведущими специалистами США, ФРГ, Франции, рассмотрены вопросы физики полупроводников, определяющие эффективность преобразователей солнечной энергии.
+Описаны исследования селективных оптических поверхностей и материалов тепловых коллекторов, фотолиза с полупроводниками в качестве электродов, времени жизни носителей в кремнии и его влияние на характеристики (   Читать дальше...   )Жанр: ФизикаИздательство: ЭнергоиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B3E496B979BE2E96BDA3AD98CFB64437D09EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764589   (102710) от 07.12.2024
+
+Валерий Кравец | Розовая чайка (2005) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга действительного члена Русского географического общества, почетного полярника Валерия Кравца рассказывает о реальных людях и событиях, которые происходили в Арктической и Заполярной части Таймырского полуострова в 70-90-х годах прошлого столетия. Непосредственным участником этих событий был автор этих воспоминаний.
+Книга сформирована в виде серии репортажей, (   Читать дальше...   )Жанр: Путешествия, исследования АрктикиИздательство: Студия "Полярная звезда"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14EA0EED7FB46E9C45C31373280124A1196F634
 ```
 
 https://mybot314.ru/tekegram_catalog/

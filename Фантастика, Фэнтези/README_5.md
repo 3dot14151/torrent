@@ -1,30 +1,3 @@
-###  Публикация: 1470583   (1015551) от 17.05.2021
-
-Григорий Шаргородский | Станционный смотритель. Долг платежом красен (2021) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман цикла «Станционный смотритель».
-Вот и подошел к концу сезон на почтовой станции Туманный перевал. Он не был простым, и магу Никите Зимину пришлось пережить немало опасных моментов. И все же на зимовку в великий Нью-Китеж-град станционный смотритель и его команда возвращаются с опаской. Ведь там их ждет не только отдых, но и человек, решивший, что Зимин (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCEA9D660C4EF9A740DCB4D63A85B7260792EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471230   (1015234) от 19.05.2021
 
 Генри Лайон Олди | Золотой лук. Книга 1. Если герой приходит (2021) [FB2]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015234.jpg" />
 </div>
 
 
@@ -60,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015131.jpg" />
 </div>
 
 
@@ -87,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015062.jpg" />
 </div>
 
 
@@ -114,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015056.jpg" />
 </div>
 
 
@@ -141,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014758.jpg" />
 </div>
 
 
@@ -168,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014428.jpg" />
 </div>
 
 
@@ -195,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013983.jpg" />
 </div>
 
 
@@ -224,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013741.jpg" />
 </div>
 
 
@@ -253,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013634.jpg" />
 </div>
 
 
@@ -280,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012721.jpg" />
 </div>
 
 
@@ -307,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012709.jpg" />
 </div>
 
 
@@ -334,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012399.jpg" />
 </div>
 
 
@@ -360,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012253.jpg" />
 </div>
 
 
@@ -386,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012241.jpg" />
 </div>
 
 
@@ -413,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012191.jpg" />
 </div>
 
 
@@ -441,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012120.jpg" />
 </div>
 
 
@@ -468,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010753.jpg" />
 </div>
 
 
@@ -495,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010452.jpg" />
 </div>
 
 
@@ -523,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010111.jpg" />
 </div>
 
 
@@ -550,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010089.jpg" />
 </div>
 
 
@@ -577,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009923.jpg" />
 </div>
 
 
@@ -604,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008835.jpg" />
 </div>
 
 
@@ -632,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008261.jpg" />
 </div>
 
 
@@ -661,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008126.jpg" />
 </div>
 
 
@@ -687,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007143.jpg" />
 </div>
 
 
@@ -698,6 +671,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F576E962DED2B9AA6A7F48A09AE38634F276D7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483611   (1006718) от 14.07.2021
+
+Мария Семенова, Анна Гурова | Аратта. Книга 5. Зимняя жертва (2021) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006718.jpg" />
+</div>
+
+
+###  Подробнее
+
+По всей Аратте множатся знамения гибели мира. Пора спросить себя: зачем ты жил? Куда стремился и чего достиг? Что не можешь изменить, и главное – что еще можешь?
+«Ты летишь сквозь чужие судьбы, как отравленная стрела», – говорили о лазутчице Янди. Однажды она начинает задумываться, кто выпустил эту стрелу и зачем.
+Убежденная в своей божественности, царевна Аюна осознает, (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24EACD8CC7631DBCCC477FD5175ECD916006BCAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

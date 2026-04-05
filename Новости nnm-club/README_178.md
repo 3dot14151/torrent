@@ -1,3 +1,56 @@
+###  Публикация: 1250478   (424324) от 28.09.2018
+
+Обвиняемый в растрате пресс-секретарь Роскомнадзора Ампелонский вернулся к работе
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_424324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пресс-секретарь Роскомнадзора Вадим Ампелонский, обвиняемый в растрате, вернулся к работе в ведомстве. Об этом Агентству городских новостей «Москва» сообщил его адвокат Сергей Седаков.«Все запреты сняты, он уже на рабочем месте», - рассказал он.Расследование уголовного дела о растрате более 58 млн руб. в Роскомнадзоре завершено, сообщало ранее агентство. Обвиняемые (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 642469   (424253) от 14.10.2015
+
+Кто не пускает нас на Марс? (2013) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из главных тайн Марса открыта! На нем когда-то была вода. Это стало известно после обнаружения роботом Курьесити неоспоримых признаков существовавшей когда-то на планете жизни. Аппарат, название которого переводится как "любопытство", помог впервые ответить на один из важных вопросов: есть или была ли когда-то на Марсе жизнь?
+ Но не менее удивительно (   Читать дальше...   )Телекомпания: Россия, ВГТРК, телекомпания "Goldmedium"Жанр: Документальный, космос, гипотезы, исследованиеРежиссер: Андрей РозовПеревод: Не требуется (русский язык)Субтитры: ОтсутствуютПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B7FF57653F7121BAAF99EE18D184A175D1F56A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946492   (424241) от 14.10.2015
 
 Ягодкин Николай | Стань гением (2015) DVDRip [H.264]
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424241.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424240.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Minecraft: Story Mode Episode 1: The Order of the Stone (2015) [Ru/En] (1.0) Lic
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424236.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4266.1001 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424234.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_423350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_423350.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ Profileschool | Калибровка монитора от А до Я (2014) PCR
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423317.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ Windows 10 Enterprise 2016 LTSB x64 Release by StartSoft 51-2017 [Multi-Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423248.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423243.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ NVIDIA GeForce Desktop 375.57 WHQL + For Notebooks [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423070.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423023.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_422929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422929.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_422924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422924.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422816.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ Stellaris (2016) [Ru/Multi] (1.3/dlc) License CODEX [Galaxy Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422807.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ VideoHive - RTFX Generator [1000 FX elements] - 19563523 [AEP]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422781.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ GreedFall (2019) [Ru/Multi] (1.0/dlc) License HOODLUM
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422778.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_422577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422577.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422296.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_422239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422239.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421971.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_421866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_421866.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420837.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ XCOM Enemy Unknown [Xbox 360] [ENG] [Region Free] [LT 3.0/XGD3/14719] (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420619.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ Batman: Arkham City Game of the Year Edition + 6 DLC [Ru/En] (RePack) 2012 | R.G
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420584.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ Batman: Arkham City Game of the Year Edition + 6 DLC [Ru/En] (RePack) 2012 | R.G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95CF84A5A37FE165265B9BE6054AFDDF2C18F671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 146508   (420517) от 16.10.2009
-
-Суррогаты / Surrogates (2009) DVD-5
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в будущем, в 2057 году, — когда люди практически перестанут общаться между собой и полностью возложат эту функцию на плечи роботов-заменителей. Они сильнее, моложе, привлекательнее своих обладателей и даже могут быть другого пола. Но находится террорист, начинающий уничтожать идеальных андроидов. Полицейскому Харви Гриру предстоит узнать, (   Читать дальше...   )Жанр: фантастика, боевик, триллерРежиссер: Джонатан МостоуАктеры: Брюс Уиллис, Рада Митчел, Розамунд Пайк, Борис Коджо, Джеймс Джинти, Джеймс Кромуэлл, Винг Рэймс, Джек Ноузуорти, Девин Рэтрей, Майкл КудицПеревод: ДублированныйСубтитры: нетПродолжительность: 01:24:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065099   (420350) от 22.10.2016
-
-BELOFF 2016.10 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный сборник программ, распределённых по категориям, с автоматической установкой на операционные системы Windows. В сборник дополнительно добавлены портативные приложения, которые можно будет легко использовать как с диска и виртуального привода, так и с USB-накопителей, включая установку MInstAll и WPI. Для большего удобства использования сборника добавлено (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E41FD701BA336F9C62CDFC102161D1BA965CCC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Joe Zawinul Trio - To You With Love (1959) 2005, Fresh Sound Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036986.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ian Hendrickson-Smith - The Lowdown (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036964.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Wayne Alpern - Standard Deviation (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036948.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ John Medeski - A Different Time (2013) Okeh [FLAC|Lossless|tracks + .cue] <Avant
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036743.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Dinah Washington - The Fats Waller Songbook (1957) 1992, EmArcy [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036741.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Sun Ra And His Arkestra - Greatest Hits: Easy Listening For Intergalactic Travel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036738.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Hal Singer - Milt & Hal (1968) 2019, Solid Records [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036670.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ The Dave Brubeck Quartet - Brubeck in Amsterdam (1962) 2015,  Sony Music Labels 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036668.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Enrique Haneine - Unlayered (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Post Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036666.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Jo Jones - Caravan (2019) [FLAC|Lossless|image + .cue] <Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036661.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Jeff Lorber - West Side Stories (1994) [FLAC|Lossless|tracks + .cue] <Fusion, Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036614.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Dinah Washington - Dinah Jams (1954) 1984, EmArcy [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036452.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Dinah Washington - Collection: 25 songs (1994) The Collection [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036444.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Najee - Savoir Faire (2022) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036441.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Nicki Parrott - Misty (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036428.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Erotica - Nymphomania (2022) [FLAC|Lossless|tracks] <Jazz, Instrumental, Easy Li
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036411.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Buddy De Franco (DeFranco) - Four Classic Albums Plus (1952 - 1954) 2014, 2CD, A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036362.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Jimmie Lunceford And His Harlem Express - Wham (2005) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036357.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Al Casey - Buck Jumpin' (1960) 1991,  Prestige/Swingville/Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036265.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Buddy De Franco (DeFranco) - In A Mellow Mood (1954) 2012, Universal [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036060.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Dinah Washington - Mellow Mama (1945) 1992, Delmark Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035875.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Sun Ra Arkestra - Swirling (2020) Strut [FLAC|Lossless|tracks + .cue] <Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035866.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Dinah Washington - The Queen Sings Jazz: Jazz Archives № 145 (1943 - 1948) 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035864.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Mary Lou Williams - Black Christ Of The Andes (1963) 2006, Universal [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035775.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Dinah Washington - After Hours With Miss "D" (1953, 1954) 2004, Verve Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035624.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Dinah Shore - Fascination: The Encore Collection (1950-e) 1997, BMG Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035621.jpg" />
 </div>
 
 

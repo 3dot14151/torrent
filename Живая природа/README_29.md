@@ -1,3 +1,29 @@
+###  Публикация: 1578841   (340970) от 25.09.2022
+
+Масаи-Мара / Maasai Mara (2020) WEBRip [H.264/720p] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масаи-Мара – заповедник на юго-западе Кении, в округе Нарок. Является северным продолжением национального парка Серенгети. Заповедник назван в честь племени масаи – традиционного населения региона и реки Мара, которая разделяет его. Масаи-Мара знаменит своими редкими животными и ежегодной миграцией гну, проходящей в сентябре и октябре. В парке Кении Масаи-Мара живут (   Читать дальше...   )Производство: Франция, Sintaxis FilmsЖанр: документальный, природа, флора, фаунаРежиссер: Адам Скотт КеннедиПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 2x ~00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFB1FE6D9008B6FC652C325BE7C8C2EE08026C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912230   (340236) от 18.11.2016
 
 Viasat Nature: Австралия: путешествие сквозь эволюцию / Australia - A Journey Through Evolution (2014) SATRip
@@ -6,7 +32,7 @@ Viasat Nature: Австралия: путешествие сквозь эвол�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340236.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339967.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337772.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335429.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335091.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334942.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334466.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333821.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333755.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333674.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332918.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332808.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332488.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332469.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332365.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331999.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331185.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330719.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329819.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328811.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328722.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324475.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323403.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322778.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321392.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91FE49B7F93D8E3E978F74F3315B3224F8D6F03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259364   (321265) от 03.11.2018
-
-Эволюция в действии / Evolution on the Move (2014) HDTVRip (серии 1-4)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал о поразительных особенностях поведения животных. В Саудовской Аравии, в Канаде, в Сенегале и в России ученые, обнаружили виды, которые проходят через удивительный эволюционный скачок.Производство: Франция, Arte France & Les Films en VracЖанр: Документальный, природа, эволюцияРежиссер: Жан-Франко БартодПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2358E262FC70F17277B8ED83C0CDDFCD72C5D190
 ```
 
 https://mybot314.ru/tekegram_catalog/

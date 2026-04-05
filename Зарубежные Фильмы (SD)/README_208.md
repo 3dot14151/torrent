@@ -1,55 +1,3 @@
-###  Публикация: 1206636   (781709) от 15.02.2018
-
-Рассказ женщины / A Woman's Tale (1991) TVRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнеутверждающий и глубокий взгляд на последние дни пожилой женщины, больной раком. Этот фильм особенно значим тем, что сценарий был специально написан для актрисы, исполнившей главную роль, Шилы Флоранс. Она действительно умирала от рака, и эта роль стала для нее своеобразным автопортретом....Производство: Австралия / Australian Film Finance Corporation (AFFC), Beyond Films, Illumination FilmsЖанр: ДрамаРежиссер: Пол КоксАктеры: Шила Флоранс, Гося Добровольска, Норман Кэй, Крис Хейвуд, Эрни Грэй, Мертл Вудс, Брюс Майлз, Алекс Менглет, Франсуа БернардПеревод: Одноголосый закадровый, авторский (Леонид Володарский)Субтитры: отсутствуютПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FAC97C40D52B5CEC00DE05051D717FB5804E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206813   (781668) от 15.02.2018
-
-Снеговик / The Snowman (2017) BDRip [H.264] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781668.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение многих лет в день, когда выпадает первый снег, бесследно исчезают замужние женщины. Сложить все части загадочного пазла под силу только знаменитому детективу. Он потерял покой и сон, ведь время следующего снегопада неумолимо приближается.Производство: Великобритания, США, Швеция, Universal Pictures, Perfect World Pictures, Another Park FilmЖанр: Ужасы, триллер, драма, криминал, детективРежиссер: Томас АльфредсонАктеры: Майкл Фассбендер, Ребекка Фергюсон (II), Шарлотта Генсбур, Йонас Карлссон, Ронан Вайберт, Дж.К. Симмонс, Вэл Килмер, Давид Денсик, Тоби ДжонсПеревод: Дублированный (Blu-ray EUR)Субтитры: русские (форсированные, полные)Продолжительность: 01:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD5BE702AB0239DCFD1A12F4B9761677192A995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206776   (781664) от 15.02.2018
 
 История двух Кори / A Tale of Two Coreys (2018) HDTVRip [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781664.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781661.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781627.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781581.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781558.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781548.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781539.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781248.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781153.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781134.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781126.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781117.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780999.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780957.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780522.jpg" />
 </div>
 
 
@@ -452,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780490.jpg" />
 </div>
 
 
@@ -478,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780465.jpg" />
 </div>
 
 
@@ -504,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780451.jpg" />
 </div>
 
 
@@ -530,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780407.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780341.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780238.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780194.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780172.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780165.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:224CA0959E6B18EC315E5F2F7345FCC33EE8CE1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207848   (780146) от 20.02.2018
+
+Три билборда на границе Эббинга, Миссури / Three Billboards Outside Ebbing, Missouri (2017) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя несколько месяцев после убийства дочери Милдред Хейс преступники так и не найдены. Отчаявшаяся женщина решается на смелый шаг, арендуя на въезде в город три биллборда с посланием к авторитетному главе полиции Уильяму Уиллоуби. Когда в ситуацию оказывается втянут еще и заместитель шерифа, инфантильный маменькин сынок со склонностью к насилию, офицер Диксон, (   Читать дальше...   )Производство: Великобритания, США / Blueprint PicturesЖанр: Драма, криминалРежиссер: Мартин МакДонаАктеры: Фрэнсис МакДорманд, Вуди Харрельсон, Сэм Рокуэлл, Джон Хоукс, Питер Динклэйдж, Калеб Лэндри Джонс, Лукас Хеджес, Эбби Корниш, Керри Кондон, Даррел Бритт-Гибсон ...Перевод: Дублированный (Blu-ray EUR)Субтитры: русские (форсированные, полные), английские (полные, SDH, SDH цветные)Продолжительность: 01:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAF8C007CF36A5643BFAAB77090BC9D296EE1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207876   (780142) от 20.02.2018
+
+Афера доктора Нока / Knock (2017) BDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780142.jpg" />
+</div>
+
+
+###  Подробнее
+
+1950-е. Карманник и авантюрист Нок, скрываясь от «коллег» в небольшом французском городке Сен-Морис, притворяется лицензированным врачом. Он придумал хитрый, но простой план, как не остаться без средств к существованию: лечить здоровых людей от несуществующих у них болезней. Нок — мастер в искусстве манипуляции и соблазнения — почти достиг желанной цели, если бы (   Читать дальше...   )Производство: Франция, Бельгия / Canal+Жанр: комедияРежиссер: Лоррэйн ЛевиАктеры: Омар Си, Алекс Лутс, Ана Жирардо, Сабин Азема, Паскаль Элбе, Одри Дана, Мишель Вюйермоз, Кристиан Эк, Элен Венсан, Андреа ФерреольПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D69C4EC57B9D88B2C3CAB9D0C0B68FC459FDF3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

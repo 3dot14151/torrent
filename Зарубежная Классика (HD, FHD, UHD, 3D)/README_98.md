@@ -1,3 +1,108 @@
+###  Публикация: 1749792   (43233) от 17.09.2024
+
+За стеной / Outside the Wall (1950) BDRip [H.264/720] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о бывшем заключённом Ларри Нельсоне, который освобождён условно-досрочно после того, как провёл в тюрьме почти половину своего 30-летнего срока. Не желая более иметь проблемы с законом, Ларри устраивается на работу ассистентом лаборатории в загородном санатории, где влюбляется в привлекательную медсестру Шарлотту. Вскоре в стенах санатория Ларри (   Читать дальше...   )Производство: США / Universal International Pictures (UI)Жанр: фильм-нуар, триллер, драма, мелодрама, криминалРежиссер: Крэйн ВилбурАктеры: Ричард Бейсхарт, Мэрилин Максвелл, Синье Хассо, Дороти Харт, Джозеф Пивни, Ллойд Гоф, Гарри Морган, Джон Хойт, Микки Нокс, Гарри ЭнтримПеревод: Авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6947E209D3A16A8ECFD2A235E22178F8A13993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749846   (43224) от 18.09.2024
+
+Кентерберийские рассказы / I racconti di Canterbury / The Canterbury Tales (1972) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по мотивам одноимённого произведения классика английской литературы XIV века Джеффри Чосера. В основу сюжета положены восемь из двадцати двух новелл романа Чосера. Многие новеллы существенно дополнены Пазолини элементами социальной сатиры, направленной, в частности, на обличение торговли санами, царящей в средневековой церкви. Сюжеты фильма изобилуют фривольными (   Читать дальше...   )Производство: Италия, Франция / Les Productions Artistes Associés, Produzioni Europee Associati (PEA)Жанр: драма, комедия, историяРежиссер: Пьер Паоло ПазолиниАктеры: Хью Гриффит, Лаура Бетти, Нинетто Даволи, Франко Читти, Джозефин Чаплин, Алан Уэбб, Пьер Паоло Пазолини, Дж.П. Ван Ван, Вернон Добчефф, Адриан Стрит, Дерек Дэдмен, Николас Смит, Дэн Томас, Майкл Бальфур, Дженни РанэйкрПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 01:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF705701588835310CFAACF2B5328112BCDE90B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749977   (43071) от 19.09.2024
+
+Трапеция / Trapeze (1956) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек приезжает в Париж учиться тройному сальто у одного из немногих акробатов, способных его исполнить. Вместе они начинают готовить номер. Но тут появляется акробатка, очаровавшая юношу, но полюбившая того, кто гораздо старше.Производство: США / Hill-Hecht-Lancaster Productions, Joanna Productions, Susan ProductionsЖанр: драма, мелодрамаРежиссер: Кэрол РидАктеры: Берт Ланкастер, Тони Кертис, Джина Лоллобриджида, Кати Хурадо, Томас Гомес, Джонни Пулео, Майнор Уотсон, Жерар Ландри, Жан-Пьер Керьен, Сидни ДжеймсПеревод: Многоголосый профессиональный (5 канал СПб), профессиональный двухголосый (НТВ+)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), немецкиеПродолжительность: 01:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C66369024EEA14495C1682B6B40043E65BA682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750047   (42997) от 20.09.2024
+
+Последний из Могикан / The Last of the Mohicans (1936) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42997.jpg" />
+</div>
+
+
+###  Подробнее
+
+1757 год. Англо-французская война за американские колонии в самом разгаре. Дочери полковника Манро пытаются пробраться в осажденный французами английский форт. На одну из сестер положил глаз индеец Магуа, который пошел с ними проводником, а сам решил заманить их в ловушку.
+Им на помощь приходит молодой белый охотник Соколиный Глаз и его верные друзья – индейцы Чингачгук (   Читать дальше...   )Производство: США, Edward Small ProductionsЖанр: драма, приключения, вестерн, военный, историяРежиссер: Джордж Б. СэйтцАктеры: Рэндольф Скотт, Бинни Барнс, Генри Уилкоксон, Брюс Кэбот, Хэзер Эйнджел, Филип Рид, Роберт Бэррат, Хью Баклер, Уиллард Робертсон, Уильям Стэк и др.Перевод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A079F0E5045B61776EB6FD0B51F5BF2239F140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750658   (42648) от 23.09.2024
 
 Манон / Manon (1949) BDRip [H.265/1080p] [MVO]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42648.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42546.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42350.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41842.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41007.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40826.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40790.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40658.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40650.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40621.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40443.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40214.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40102.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39319.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39260.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39226.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39206.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39136.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38975.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38930.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38835.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38829.jpg" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16E39994807DDB0A147247B9B2EB47DFA0214266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788030   (38742) от 31.10.2024
-
-...иначе мы рассердимся / ...altrimenti ci arrabbiamo! (1974) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жил да был один мафиози местного значения. И задумал он, по совету своего верного психолога, возвыситься, разорив беззащитный парк аттракционов и построив на его месте огромный небоскрёб. И всё бы у него получилось, если бы под горячую руку распоясавшихся рэкетиров не попалась дюна-багги, любимый автомобиль двух приятелей — голубоглазого красавца и медведоподобного (   Читать дальше...   )Жанр: Боевик, КомедияРежиссер: Марчелло ФондатоАктеры: Теренс Хилл, Бад Спенсер, Пэтти Шепард, Деогратиас Уэрта, Джон Шарп, Мануэль де Блас, Луис Барберо, Дональд Плезенс, Эмилио Лагуна, Рафаэль АльбачинПеревод: ДвухголосыйПродолжительность: 01:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9341BF73414CE02AD1A6DDD50B9EA515FC7FBEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681839   (38641) от 01.11.2024
-
-Поезд ужасов / Horror Express (1972) WEBRip [H.264/1080p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38641.jpg" />
-</div>
-
-
-###  Подробнее
-
-1906 год. Геологическая экспедиция находит в глухом районе Китая захоронение. Останки грузятся в Пекине на транссибирский экспресс, но уже на вокзале православный священник утверждает, что там находится нечистая сила.Производство: Великобритания, Испания / Benmar Productions, Granada FilmsЖанр: ужасы, фантастика, триллер, приключенияРежиссер: Эухенио МартинАктеры: Кристофер Ли, Питер Кушинг, Альберто де Мендоса, Сильвия Тортоса, Хулио Пенья, Жорж Риго, Анхель дель Позо, Виктор Исраэль, Хельга Лине, Элис Рейнхарт, Хосе Хаспе, Телли Савалас, Висенте РокаПеревод: Студийный одноголосый (Андрей Ярославцев)Язык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D27E20A34EADCF93CAD6A7AA29D1F4D602EDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757838   (38613) от 01.11.2024
-
-Виктория Великая / Victoria the Great (1937) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кино дает интимный портрет одной из самых долго царствовавших королев с первых дней ее правления до празднования бриллиантового юбилея. Роль королевы в государственных делах была весьма незначительной. Однако ее имя стало символом, олицетворяющим преуспеяние и самодовольство английских господствующих классов, а период ее правления получил название «викторианского (   Читать дальше...   )Производство: Великобритания / Herbert Wilcox ProductionsЖанр: драма, историяРежиссер: Херберт УилкоксАктеры: Анна Нигл, Антон Уолбрук, Вальтер Рилла, Х.Б. Уорнер, Мэри Моррис, Джеймс Дэйл, Феликс Эйлмер, Чарльз Карсон, Гордон МакЛеод, С.В. ФренсПеревод: Авторский (Алексей Яковлев)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 02:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA811F1E5A1D00581160E52468A39A1D6628889D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606658   (38601) от 01.11.2024
-
-Кэрри / Carrie (1976) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робкую и доверчивую Кэрри третируют и обижают в школе и дома. От природы добрая девушка становится замкнутой и мрачной. В то же время она открывает в себе странные и страшные силы. А сверстники готовят очередную изощренную шутку над Кэрри, даже не подозревая, чем это для них закончится.Производство: США / Red Bank FilmsЖанр: ужасы, драмаРежиссер: Брайан Де ПальмаАктеры: Сисси Спейсек, Пайпер Лори, Эми Ирвинг, Уильям Кэтт, Джон Траволта, Нэнси Аллен, Бетти Бакли, П.Дж. Соулз, Присцилла Пойнтер, Сидни ЛэссикПеревод: Многоголосый профессиональный (Варус Видео)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48F3DAE5459CE995799430FF2DC762AD9276896
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,63 @@
+###  Публикация: 1080323   (290145) от 06.12.2016
+
+Armik - Greatest Hits (2008) 2CD [FLAC|Lossless|image + .cue] <Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romantic Dreams (4:54)
+02. Moonlight Cafe (4:45)
+03. Mar De Suenos (4:58)
+04. Morning Sun (5:15)(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 02:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F6C6AB723B77E55B9D5BD8CF71B9DB9C1BB3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262843   (289910) от 18.11.2018
+
+Chilly Gonzales - Solo Piano III, 2CD (2018) Japan Edition [FLAC|Lossless|tracks + .cue] <Instrumental, Piano, Modern Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом "Solo Piano III" завершает соло-фортепианную трилогию  от Chilly   Gonzales. "Музыкальная чистота соло-фортепиано III не является противоядием для нашего времени", - говорит он, "это отражение всей красоты и уродства вокруг нас. "
+
+Бонусный CD2 включает композиции исполненные совместно с  "Kaiser Quartett"01. Treppen
+02. Pretenderness
+03. Prelude In C Sharp Major
+04. Famous Hungarians(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 01:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A50A5439789AE77A0A2C4FF7EBF2F895812A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185957   (289825) от 23.11.2017
 
 Karushanti - Celtic Traces (2017) [MP3|320 Kbps] <New Age, Celtic>
@@ -6,7 +66,7 @@ Karushanti - Celtic Traces (2017) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289825.jpg" />
 </div>
 
 
@@ -35,7 +95,7 @@ Bill Yeats - Relaxing Spanish Guitar (2008) [APE|Lossless|WEB-DL|tracks] <Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289660.jpg" />
 </div>
 
 
@@ -64,7 +124,7 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music fr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289650.jpg" />
 </div>
 
 
@@ -93,7 +153,7 @@ Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Чел�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289579.jpg" />
 </div>
 
 
@@ -122,7 +182,7 @@ Kenio Fuke - 6 альбомов (2002-2013) [MP3|320 кб/с]<New age, Relax, Na
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289510.jpg" />
 </div>
 
 
@@ -155,7 +215,7 @@ Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Чел�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289417.jpg" />
 </div>
 
 
@@ -184,7 +244,7 @@ Tom Holkenborg - Терминатор: Темные судьбы / Terminator: D
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289409.jpg" />
 </div>
 
 
@@ -213,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289198.jpg" />
 </div>
 
 
@@ -242,7 +302,7 @@ Nikonn - Effrosyni (2016) [MP3|320 Kbps] <Ambient, Downtempo, Dream Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288471.jpg" />
 </div>
 
 
@@ -271,7 +331,7 @@ Akela Sun - Ambient & Meditation (2016) [MP3|320 Kbps] <Ambient, Electronic, Sou
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288277.jpg" />
 </div>
 
 
@@ -300,7 +360,7 @@ Hilary Stagg - 7 альбомов (1988-2001) [MP3|320 кб/с]<New Age, Neoclas
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288190.jpg" />
 </div>
 
 
@@ -334,7 +394,7 @@ Meister der Entspannung und Meditation - Early Morning Yoga Music (2019) [FLAC|L
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287735.jpg" />
 </div>
 
 
@@ -363,7 +423,7 @@ Musica Relajante - Power Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Med
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287177.jpg" />
 </div>
 
 
@@ -392,7 +452,7 @@ Thomas E Rouch - Портал/Alpha Gateway (Original Motion Picture Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286299.jpg" />
 </div>
 
 
@@ -421,7 +481,7 @@ Achillea - The Nine Worlds (2005) [MP3|320 Kbps] <Enigmatic, New Age, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286265.jpg" />
 </div>
 
 
@@ -450,7 +510,7 @@ Karunesh - Revelation (2009) [MP3|320 kbps]<New Age/Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286238.jpg" />
 </div>
 
 
@@ -484,7 +544,7 @@ Clannad - The Real... Clannad (The Ultimate Collection) 3CD (2018) [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285928.jpg" />
 </div>
 
 
@@ -513,7 +573,7 @@ Two Steps From Hell - Vanquish (2016) [MP3|320 Kbps] <Soundtrack, Trailer music,
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285715.jpg" />
 </div>
 
 
@@ -542,7 +602,7 @@ Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Т�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285668.jpg" />
 </div>
 
 
@@ -571,7 +631,7 @@ Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Т�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285516.jpg" />
 </div>
 
 
@@ -600,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285051.jpg" />
 </div>
 
 
@@ -626,7 +686,7 @@ Kacey Musgraves - Pageant Material (2015) [FLAC|Lossless|tracks] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284555.jpg" />
 </div>
 
 
@@ -655,7 +715,7 @@ Various Artists - Лондонские поля/ London Fields (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284361.jpg" />
 </div>
 
 
@@ -684,7 +744,7 @@ Guilhem Desq - Visions (2017) Les Jeudis Du Rock, 2018 [FLAC|Lossless|Web-DL|tra
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284259.jpg" />
 </div>
 
 
@@ -698,64 +758,6 @@ Guilhem Desq - Visions (2017) Les Jeudis Du Rock, 2018 [FLAC|Lossless|Web-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:257EA170167EC721BAD64480689CBEA5F4D3CF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963972   (283946) от 10.12.2015
-
-Fridrik Karlsson - Total Chillout (2009) [APE|image+.cue]<New Age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Late Evening Chill (10:17)
- 02. Summer Wind (09:07)
- 03. Relaxing At The Beach (10:16)
- 04. Beach Bar Grill (10:15)(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153193FC0C8D320F1EF24066DEA6EAD0AE459F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081428   (283033) от 10.12.2016
-
-Michael Heemskerk - Angels (2016) [MP3|320 Kbps] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Dawn [00:05:03]
-03 -  Stars [00:03:29]
-04 -  Eon III [00:04:40]
-05 -  Eleanor [00:01:34](   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBFCCDEA7097349308F877A2E3BD34AA9C2D583
 ```
 
 https://mybot314.ru/tekegram_catalog/

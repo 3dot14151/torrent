@@ -1,3 +1,56 @@
+###  Публикация: 1653847   (214144) от 17.08.2023
+
+С.У. Гончаренко | Конкурсные задачи по физике (1966) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Целью данного сборника является ознакомление поступающих в вузы с характерными для конкурсных экзаменов задачами, методикой их решения. Большинство задач предлагалось на вступительных экзаменах в вузы в последние годы. Ко всем задачам даны подробные решения и необходимые объяснения, к которым рекомендуется обращаться только в тех случаях, когда возникают трудности (   Читать дальше...   )Жанр: ФизикаИздательство: ТехнiкаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:128B615BE149296C9FA90C042FB7B0CE697AA73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194021   (214072) от 23.12.2017
+
+Ю.Г. Бабаскин | Технология строительства дорог (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Охарактеризованы основные материалы, оборудование, технологии и организация строительства. Материал изложен системно и обеспечивает последовательное изучение всех стадий строительства. Рассмотрены свойства грунтов, их применимость в дорожном строительстве.
+Дана краткая характеристика дорожно-строительной техники. Изложены особенности и способы сооружения земляного (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D657BE94EC3A36323E9A89255CDCF377FDDFFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514860   (213645) от 05.12.2021
 
 Ефимов А.В. (ред.) | Сборник задач по математике для втузов [3 книги] (1981 - 1984) [DJVU]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213645.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213505.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213168.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213056.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213036.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213032.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212793.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212259.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212182.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211774.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211667.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211641.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211625.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211475.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211468.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211455.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211454.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211434.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211394.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211317.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211266.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211249.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211160.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211120.jpg" />
 </div>
 
 
@@ -626,60 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C43F66776E51C11A2487B3B9687299C70D84E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640743   (211099) от 19.06.2023
-
-В.А. Биллиг | Основы офисного программирования и документы Excel (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс посвящен Ехсеl - основам программирования в Ехсеl, связи Ехсеl с базами данных и другими источниками данных, анализу офисной деятельности, выполняемыми средствами Ехсеl, созданию интерактивных документов в Ехсеl, приданию Web-страницам функциональности Excel. Он познакомит слушателей с устройством и всеми тонкостями мира объектов Excel.
-Первые лекции, посвященные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43A1271646910B4A54251EA2E08DE1E0ECB0AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640881   (211060) от 19.06.2023
-
-Н.Н. Вояковская и др. | Разработка компиляторов (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс посвящен принципам разработки компиляторов. Основные задача данного курса - познакомить студентов с базовыми идеями и методами, используемыми при создании современных компиляторов, а также дать практические навыки написания простых компиляторов. В качестве целевой платформы для компиляторов в данном курсе используется Microsoft .NET.
-Подразумевается, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E7C5BBDD95F18F791CA9A6E618F41AA25FE2F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

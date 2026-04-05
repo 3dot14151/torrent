@@ -6,7 +6,7 @@ Hidden Mysteries: Return to Titanic (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88631.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Victorian Mysteries 2: The Yellow Room (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88539.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Spirits of Mystery 2: Song of the Phoenix Collector's Edition / Тайны ду�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88483.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Secrets of the Titanic - 1912 - 2012 (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88160.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Haunted Hotel II: Believe the Lies / Проклятый отель 2. Паути
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87628.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dark Strokes: Sins of the Fathers. Collector's Edition / Сердце тьмы. 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87460.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Stray Souls: Dollhouse Story. Collector Edition / Заблудшие души. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87431.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Aaron Crane: Paintings Come Alive / Аарон Крэйн. Картины ожи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87421.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Brick of Consciousness: Dorian Gray Syndrome. Collector's Edition / Край с�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87394.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Necronomicon / Книга Мертвых: Потерянные души (P) [Ru]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87196.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Twisted Lands: Insomniac. Collector's Edition / Гиблые земли. Бес�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86815.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Criminal Minds / Мыслить как преступник (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85594.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hidden Mysteries: Royal Family Secrets (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85272.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Flux Family Secrets: The Ripple Effect / Секреты семьи Флакс. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85119.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85104.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Shiver 2: Poltergeist Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85086.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Das Geheimnis des Korsaren (L) [Ge] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85062.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Solitaire Mystery: Stolen Power / Магия пасьянса (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84973.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Princess Isabella: Return of the Curse. Collector's Edition / Принцесса
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84762.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Ghost Encounters: Deadwood (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84227.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Chronicles of Shakespeare: Romeo & Juliet / Хроники Шекспира.
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84128.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Easter Eggztravaganza  / Пасха "eggztravaganza". Поиск яиц (P) [Ru]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84086.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Phenomenon: City of Cyan (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84055.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ House of 1000 Doors: The Palm of Zoroaster. Collector's Edition / Дом 1000 д
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83779.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ House of 1000 Doors: The Palm of Zoroaster Collector’s Edition / Дом 1000 �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83748.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Solitaire Mystery: Stolen Power (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83620.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1420617   (332481) от 01.11.2020
+
+VA - Идеальный голос / Pitch Perfect OST (2012) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Treblemakers - Don't Stop The Music (3:05)
+02. The Treblemakers - Let It Whip (2:22)
+03. Ester Dean & Skylar Astin - Since U Been Gone (2:26)
+04. Anna Kendrick - Cups (1:18)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50AC50EC1EE8CFFC9D0CB7354B863E731AF1A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331460   (332341) от 15.10.2019
+
+Louis Landon - Heartfelt Solo Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332341.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Innocence	03:02
+2. Sweet Honey	02:41
+3. Yin and Yang	04:27
+4. Sweet Sadness	04:12(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12CAD707680494587DC7392B1280020FE167F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420627   (331896) от 01.11.2020
 
 James Last & Richard Clayderman - Traummelodien (1990) [FLAC|Lossless|tracks + .cue] <Instrumental>
@@ -6,7 +64,7 @@ James Last & Richard Clayderman - Traummelodien (1990) [FLAC|Lossless|tracks + .
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331896.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Идеальный голос / Ultimate Pitch Perfect OST (2015) [FLAC|Los
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331270.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Saulius Petreikis & The Unit 7 Allstars - Lowlands (2014) [OGG| 405-493 кб/с]
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331148.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ OST - Впритык / Due Date (2010) [MP3|320 kbps]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330580.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ Mythos - Introspection (1995) [OGG Vorbis|484 Kbps] <Electronic, Vocal, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329913.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ Hans Zimmer - Interstellar (2014) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Sco
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329886.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ VA - Тихая ночь /3CD/ (2009) [MP3|320 kbps]<New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329021.jpg" />
 </div>
 
 
@@ -213,7 +271,7 @@ Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328966.jpg" />
 </div>
 
 
@@ -242,7 +300,7 @@ Eric Tingstad - Mississippi (2015) [OGG|442-502 кб/с]<New Age, Contemporary G
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328444.jpg" />
 </div>
 
 
@@ -271,7 +329,7 @@ Larry Cann - Rodeo Road (2015) [MP3|320 кб/с]<Country, Country Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328419.jpg" />
 </div>
 
 
@@ -300,7 +358,7 @@ Soulwire (Ken Hill) - три альбома (2006-2011) дискография [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328414.jpg" />
 </div>
 
 
@@ -329,7 +387,7 @@ Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327551.jpg" />
 </div>
 
 
@@ -358,7 +416,7 @@ VA - Fast and Furious 7 (original motion picture soundtrack) (2015) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327544.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ VA - TANGO. selected by Eduardo Makaroff (2007) / Wagram Music [FLAC|image+cue]<
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327503.jpg" />
 </div>
 
 
@@ -416,7 +474,7 @@ Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327338.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ Luca Stricagnoli - Luca Stricagnoli (2015) [FLAC|Lossless|WEB-DL]<Instrumental, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327328.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ Trevor Morris - Dragon Age: Inquisition (2014) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327302.jpg" />
 </div>
 
 
@@ -509,7 +567,7 @@ Crimeanization - Without Someone - (2011) [MP3|320 кб/с]<New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326721.jpg" />
 </div>
 
 
@@ -538,7 +596,7 @@ Kory Caudill - Tree of Life (2015) [OGG|452-545 кб/с]<New Age, Neoclassical, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326707.jpg" />
 </div>
 
 
@@ -567,7 +625,7 @@ Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|tracks]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325690.jpg" />
 </div>
 
 
@@ -596,7 +654,7 @@ Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|image + .cue] <New Age, Celti
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325632.jpg" />
 </div>
 
 
@@ -625,7 +683,7 @@ VA - Die Hit-Giganten: Instrumental Hits (2009) 2CD [FLAC|image+.cue]<Pop, Elect
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325628.jpg" />
 </div>
 
 
@@ -654,7 +712,7 @@ Enya - Dark Sky Island (2015) Deluxe Edition [MP3|320 кб/с]<New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325619.jpg" />
 </div>
 
 
@@ -683,7 +741,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325436.jpg" />
 </div>
 
 
@@ -697,64 +755,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74A8E046C378CE116C122ED10ABEBA091F2E489B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958042   (324962) от 20.11.2015
-
-Laurent Petitgand - The Salt of the Earth (Original Soundtrack) (2014) [OGG|~450 kbps]<Score / Modern Classical, Ambient>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Salt of the Earth (02:41)
-02. Papu's Song (03:36)
-03. Serra Pelada (02:50)
-04. Wrangel Island (03:56)(   Читать дальше...   )Жанр: Score / Modern Classical, AmbientПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDC668234A9C972CE5ABD6BA5A576B0FB9FD118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958172   (323878) от 21.11.2015
-
-Orchestra Ennio Morricone - Once Upon A Time In The West (1969) /1995, RCA/ [FLAC|image + .cue]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'era una volta il west (3:44)
-02. Come una sentenza (3:07)
-03. Addio a Cheyenne (2:38)
-04. L'attentato (4:41)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDB791B8CF5F15E22C432E978F274FCDFE68DA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

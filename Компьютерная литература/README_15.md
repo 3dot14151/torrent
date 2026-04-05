@@ -1,164 +1,3 @@
-###  Публикация: 1437412   (1041655) от 06.01.2021
-
-Уэс МакДермотт | Всесторонние руководство по PBR от Allegorithmic / The Comprehensive PBR Guide by Allegorithmic [2 части] (2015) [PDF] [RU, EN]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allegorithmic - лидер отрасли в области технологий 3D-текстурирования с его отмеченным наградами набором программ Substance.
-Эта книга, написанная Уэсом МакДермоттом и перепроверенная экспертами в этой области, описывает принципы физически корректного рендеринга (PBR) и содержит практические рекомендации по текстурированию PBR.
-В первой части книги рассматриваются (   Читать дальше...   )Жанр: 3D графика, ТекстурированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E7043E901931083E05EC42C20D23002FA1588A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437537   (1041604) от 06.01.2021
-
-Уильям Воган | Рабочая книга по топологии Pushing Points: Книга 02 / The Pushing Points Topology Workbook: Volume 02 (2019) [PDF] (+ Bonus) [EN]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая рабочая книга по топологии Pushing Points представляет собой 60-страничное программно-независимое руководство, которое демистифицирует создание голов персонажей с чистой лицевой топологией. На страницах этого руководства вы узнаете проверенные в продакшене советы и методы моделирования.
-Эта книга использует программно-независимый подход, поэтому у вас не должно (   Читать дальше...   )Жанр: 3D моделирование, ТопологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:779DEE7E3F51C68453FA5A2040D5046312860D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437423   (1041594) от 06.01.2021
-
-3DTotal| Concept art for games (2011) [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концепт-арт для компьютерных игр - это увлекательная область, играющая огромную роль в индустрии, в которой хотели бы участвовать многие начинающие цифровые художники. Эта электронная книга была написана одними из крупнейших и лучших имен в игровой индустрии, которые расскажут нам, как они будут заниматься тремя основными областями, в которых требуется концептуальная (   Читать дальше...   )Жанр: Концепт арт для компьютерных игрФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0CB8273B276F38E8E8E2E48B07BCD172891CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437410   (1041590) от 06.01.2021
-
-3DTotal | 101 совет по созданию мультяшных персонажей (2015) [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041590.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге описаны советы как создавать мультяшных персонажей с помощью программы Adobe Photoshop.Жанр: Рисование, созданию мультяшных персонажейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183BDC5813111F152932AE391B2DA03F183A1C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438230   (1041343) от 07.01.2021
-
-Фрэнк Томас, Олли Джонстон | Иллюзия жизни: Анимация Диснея / The Illusion of Life: Disney Animation (1995) [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041343.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Illusion of Life: Disney Animation (Иллюзия жизни: Анимация Диснея) — книга о мультипликации, написанная американскими мультипликаторами Фрэнком Томасом и Олли Джонстоном.
-Книга в свое время вызвала ажиотаж в мультипликационной среде, так как до этого никто не делился так подробно секретами всего технологического процесса создания мультипликации.
-Структурно книга (   Читать дальше...   )Жанр: АнимацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AADFE6D32EC469EA8B6FF8E0C833106B64DFC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438200   (1041293) от 07.01.2021
-
-Кейт Томпсон | Рисуем призраков и демонов - Ожившие мумии, кровавые монстры, крылатые вампиры, жестокие зомби (2012) [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Демоны, привидения и призраки всегда внушали людям страх, но в то же время притягивали своей таинственностью. Благодаря остросюжетным видеоиграм, захватывающим фильмам ужасов и чудесам анимации сегодня страшные персонажи как никогда популярны, и вы можете научиться изображать их сами. Эта книга послужит вам хорошим практическим пособием. Вы научитесь: придумывать (   Читать дальше...   )Жанр: РисованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B5EC36FC3B1045239378749ABFAAD8C2552120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438205   (1041258) от 07.01.2021
 
 21 Draw | Руководство иллюстратора / Illustrator's Guidebook (2016) [PDF] [En]
@@ -167,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041258.jpg" />
 </div>
 
 
@@ -196,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041214.jpg" />
 </div>
 
 
@@ -222,7 +61,7 @@ RB Whitaker | The C# Player's Guide (5th Edition) (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041044.jpg" />
 </div>
 
 
@@ -248,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040966.jpg" />
 </div>
 
 
@@ -274,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040539.jpg" />
 </div>
 
 
@@ -301,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040487.jpg" />
 </div>
 
 
@@ -328,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040479.jpg" />
 </div>
 
 
@@ -355,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040470.jpg" />
 </div>
 
 
@@ -381,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040276.jpg" />
 </div>
 
 
@@ -407,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040018.jpg" />
 </div>
 
 
@@ -433,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040017.jpg" />
 </div>
 
 
@@ -459,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039470.jpg" />
 </div>
 
 
@@ -488,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039451.jpg" />
 </div>
 
 
@@ -515,7 +354,7 @@ ABBYY | ABBYY FineReader 15. Руководство пользователя (20
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039445.jpg" />
 </div>
 
 
@@ -541,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039216.jpg" />
 </div>
 
 
@@ -567,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038295.jpg" />
 </div>
 
 
@@ -593,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038174.jpg" />
 </div>
 
 
@@ -619,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037707.jpg" />
 </div>
 
 
@@ -645,7 +484,7 @@ Patrick Viafore | Robust Python (2021) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037675.jpg" />
 </div>
 
 
@@ -671,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037371.jpg" />
 </div>
 
 
@@ -682,6 +521,165 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EBF2B8225E27A4C39AE98DED1B922B786E69122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439971   (1037317) от 22.01.2021
+
+Билл Любанович | Простой Python. Современный стиль программирования [2-е издание] (2021) [PDF, EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037317.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Простой Python» познакомит вас с одним из самых популярных языков программирования. Книга идеально подойдет как начинающим, так и опытным программистам, желающим добавить Python к списку освоенных языков. Любому программисту нужно знать не только язык, но и его возможности. Вы начнете с основ Python и его стандартной библиотеки. Узнаете, как находить, загружать, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E361E3F07F543BE3CE5355949DCF341E2232F097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441892   (1037050) от 23.01.2021
+
+Peter Bauer | Adobe Photoshop CC для чайников, 3-е издание (2021) [PDF] [EN]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photoshop is a stunning program that puts the power of a professional photography studio into your hands, but it can also be a jungle to navigate—with a dense proliferation of menus, panels, shortcuts, plug-ins, and add-ons to get thoroughly lost in. Written by a literal Photoshop Hall of Famer, the new edition of Photoshop CC For Dummies is your experienced guide (   Читать дальше...   )Жанр: 2-d графикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54ACE16BC477CAF147A7356023F114F3D7101402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442151   (1036816) от 24.01.2021
+
+Антон Полухин | Разработка приложений на С++ с использованием Boost. Рецепты, упрощающие разработку вашего приложения (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите воспользоваться преимуществами Boost и языка C++ и не путаться, какую библиотеку в какой ситуации использовать, тогда эта книга для вас!
+Начиная с основ, вы перейдете к изучению того, как библиотеки Boost упрощают разработку приложений. Увидите, какую работу можно выполнить во время компиляции и на что способны контейнеры Boost. Научитесь разрабатывать (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4289D9A8225A342AD1684425DE0C0A3D68A707DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442292   (1036804) от 24.01.2021
+
+Эдуард Сьоре | Проектирование и реализация систем управления базами данных (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор подробно разбирает исходный код полностью функциональной, но при этом простой для изучения учебной базы данных SimpleDB и предлагает читателям, изменяя отдельные ее компоненты, разобраться в том, к чему это приведет. Это отличный способ погрузиться в тему и изучить, как работают базы данных на уровне исходного кода.
+Приводится краткий обзор систем баз данных; (   Читать дальше...   )Жанр: Базы данныхФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF0D96F53EE1FD6F747A72A70631DBFB0212356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442194   (1036769) от 24.01.2021
+
+Василий Усов | Swift. Основы разработки приложений под iOS, iPadOS и macOS [6-е издиздание] (2021) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтаете стать iOS-разработчиком, написать собственное приложение и работать в крутой ком-пании?
+Тогда эта книга для вас!Язык Swift прост, понятен и отлично подойдет как новичкам, так и опытным программистам.  Чтобы начать писать код, вам потребуются только эта книга, компьютер и желание учиться. Все базовые концепции программирования и основы синтаксиса объясняются (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99CF5DD177BA7660EA469BC050AB7610C64D33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616053   (1036646) от 01.03.2023
+
+Doug Lowe | Java All-in-One For Dummies, 7th Edition (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновленная для Java 19, эта книга включает все основные изменения в языке программирования, так что вы не отстанете. Начните с изучения основ Java - вы сможете это сделать, даже если никогда в жизни не написали ни строчки кода. Затем переходите к углубленному изучению, где вы найдете всю необходимую информацию по объектно-ориентированному программированию, Java (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192BA4911EB529977C1C0CB916CAAB1876F1E28B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1449369   (237629) от 21.02.2021
+
+Inner Prospekt - Canvas Two (2021) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Glimpse [00:03:06]
+02 Soul Of Hundred Lives [00:17:45]
+03 King Of Spades [00:06:48]
+04 Why Me [00:08:06](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5924D42D612AA5CB09B037B25FF2C2BA0ED561D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640252   (237627) от 16.06.2023
 
 Wonders - Beyond The Mirage (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
@@ -6,7 +35,7 @@ Wonders - Beyond The Mirage (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237627.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Czakan - Unreal (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237626.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lions at the Gate (ex. El Nino) - 2 Singles (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237617.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Excalion - Emotions (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237614.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Smoke 'N' Flame - On Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237609.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Merv Spence - Phenomena Recovered (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237603.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Old Ben - The Darkest Room (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237597.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Wallner Vain, Will Wallner & Vivien Vain - Duel (2023) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237593.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ What For? - Ганнибал У Ворот (2021) EP [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237591.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Johnny The Boy - You (2023) [FLAC|Lossless|WEB-DL|tracks] <Black-Metal, Extreme-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237580.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Contrail Architects - Guarded Cave (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237569.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Mindfar - Prophet Of The Astral Gods (2021) [MP3|320 Kbps] <Symphonic Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237567.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237563.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Protomartyr - Formal Growth in the Desert (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237559.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ ASAP - Down The Wire (1990) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237552.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ Pink Floyd - In Concert 1987 (8CD) (2021) [FLAC|Lossless|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237543.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Natalie Merchant - Keep Your Courage (2023) [FLAC|Lossless|tracks + .cue] <Folk-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237532.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ Hostage - Black Sky Calling (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237522.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Opera Magna - Of Love and Other Demons (2023) Compilation [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237521.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Snakemother - Snakemother (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237505.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Rhythm Therapy Band - Music Room Sessions, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237499.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ Aramis - Crimson (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237497.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Shaka Ponk - Shaka Ponk (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237496.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Void King - 3 Albums (2016-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237495.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Core Fire - Consumed (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237489.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ Core Fire - Consumed (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:061329BFE922D0D9EB35B73C3786D882093C6853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640403   (237479) от 17.06.2023
-
-Vision Denied - Age Of The Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:41]
-02. Two Worlds Collide [00:03:49]
-03. Age Of The Machine [00:04:10]
-04. Broken Wings [00:05:20](   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CAE5EB399B6DDCB9BFE1BA4750422661A45E48
 ```
 
 https://mybot314.ru/tekegram_catalog/

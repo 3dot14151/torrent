@@ -1,3 +1,133 @@
+###  Публикация: 1319843   (479342) от 14.08.2019
+
+Журнал | Windsurf UK №8 (август 2019) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанный в 1980 году, журнал Windsurf Magazine содержит удивительные фотографии, интервью с крупнейшими спортивными деятелями, советы по технике, тесты продуктов и поездки в самые интересные места. Являясь исчерпывающим руководством к занятию виндсерфингом, мы постоянно демонстрируем новые продукты, открываем новые ракурсы, рассказываем о наиболее важных действиях (   Читать дальше...   )Жанр: СпортФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037BA4861774311243C9474C6E90EA514426C5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056557   (479309) от 26.09.2016
+
+Газета | Народный совет. Спецвыпуск Ваша пенсия. Выпуск №2 (2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пенсионное законодательство одно из самых сложных в России, разобраться в нём простому человеку без помощи и подготовки практически невозможно. А еще и реформа, которая началась в прошлом году, многих сбила с толка. Средства массовой информации обо всех изменениях говорят поверхностно. Именно поэтому редакция газеты "Народный совет" и решила выпустить этот (   Читать дальше...   )Жанр: ПознавательныйФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08BD33318903E3B11F6F50B367679B4C2773189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319862   (479233) от 14.08.2019
+
+Журнал | Cosmopolitan RSA №8 (август 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cosmopolitan — международный женский журнал. Содержание включает в себя статьи о взаимоотношениях и сексе, здоровье, карьере, самосовершенствовании, знаменитостях, а также моде и красоте.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE4A7FB76FFDC9350ACBCC80AA126C948F42416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056841   (479189) от 26.09.2016
+
+Журнал | Дилетант №10 (октябрь 2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый исторический журнал, в живой, далеко не академической форме передающий колорит эпох и помогающий ориентироваться в истории, искать и находить в прошлом ответы на многие сегодняшние вопросы. В каждом номере увлекательные и познавательные материалы, подготовленные именитыми историками, великолепными писателями, популярными журналистами. Каждый выпуск журнала (   Читать дальше...   )Жанр: Исторический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B3114198CBA47EC614C22BA52A6734C16DA9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056397   (479187) от 26.09.2016
+
+Каталог | Quelle Главный (Осень-Зима 2016) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступающая осень - не повод предаваться унынию! Откажитесь от стереотипа, что пастельные цвета гармоничны и уместны только летом, добавьте романтичную нотку в строгие зимние образы. Поклонникам ярких цветов предлагаем насыщенную палитру ягодных оттенков и теплую горчичную гамму. Подчеркните свою индивидуальность и создайте собственный стиль вместе с Quelle!Жанр: КаталогФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E894A8FE7DD3859348934103CBC87D91B267083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546754   (478995) от 13.09.2012
 
 Журнал | Ландшафт. Коттедж. Интерьер №18 [сентябрь 2012] [PDF]
@@ -6,7 +136,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478995.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478988.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478902.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478847.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478843.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478740.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478665.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478553.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478497.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478465.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478342.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478039.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478002.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477920.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477912.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477905.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477786.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477766.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477602.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477061.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476982.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8704B434A5AE4EFEE8D27258601B72478265F326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547167   (476905) от 14.09.2012
-
-Журнал | Apps №24 (UK) [сентябрь 2012] [PDF] [En]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание специализируется на обзорах софта для Apple- и Android-мобильных компьютеров. Обзор многогранный - от игр до бизнес приложений. В этом номере: Топ-55 новых игр и 100 лучших приложений.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F7514EE07FF4AE22BC5C0AC01DCE52F3F74E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546964   (476777) от 14.09.2012
-
-Журнал | Тайны ХХ века №26 [июль 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2492445DA79F73F5B3BE9948914334923C01D370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701232   (476720) от 18.09.2013
-
-Журнал | PC Magazine [Россия] №9 (267) (сентябрь 2013) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476720.jpg" />
-</div>
-
-
-###  Подробнее
-
-PC Magazine является одним из известнейших и авторитетнейших журналов в мире. Оценки этого международного бренда уважаются всеми производителями аппаратного и программного обеспечения, в обязательном порядке указывающих их в характеристиках своей продукции. Журнал внимательно отслеживает современный рынок ИТ-индустрии, рассказывает о новинках hardware, проводит подробные (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC290D0EB013F8F223FC90A66D06E46674B83A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547062   (476623) от 14.09.2012
-
-Журнал | Красивые квартиры №9 (сентябрь 2012) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые квартиры - всё необходимое для ремонта и обустройства квартиры, свежая информация о ремонте, перепланировке, реконструкции жилища, оформлении интерьера, традиционном и современном дизайне, применении для этих целей самых оптимальных материалов и технологий.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D4AC10E689B5B6D06038423B1F802414651250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701142   (476554) от 18.09.2013
-
-Журнал | Cosmopolitan [Россия] №10 (октябрь 2013)  [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cosmopolitan – женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается. Сегодня Cosmo - больше чем просто журнал, он стал стилем жизни. "Девушка в стиле Cosmo" молода, независима и энергична, сама выбирает свой путь и добивается (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC60CADDFC666E1BC78EDD732E7AE7DC8BE7155
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Orphaned Land - A Heaven You May Create - Live @ Heichal HaTarbut, Tel Aviv 2021
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133515.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Daisy Jones & The Six - Aurora (2023) Super Deluxe Edition [FLAC 24/48,96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133133.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Britny Fox - Britny Fox (1988) Remaster, Expanded Edition, 2023,  SBCMG [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133106.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Status Quo - Official Archive Series Vol. 2 (Live in London 2012) (2023) New Mix
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133091.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Alan Parsons Project - The Sicilian Defence (2014) Reissue, 2023, Arista - L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133077.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Fate - If Not For The Devil (2013) Remastered Version, 2023, Frontiers Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133066.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Fate - Ghosts From The Past (2011) remastered version, 2023, Frontiers Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133062.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Alan Parsons Project - The Instrumental Works (1988) Reissue, 2023, Arista -
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133044.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ P!nk (Pink) - Trustfall (2023) Tour Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132987.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132664.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Porcupine Tree - Closure / Continuation.Live (2023) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131499.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The London Suede - Autofiction (2022) Expanded, 2023, BMG Rights Management (UK)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131195.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Atreyu - The Beautiful Dark of Life (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131190.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Chronicles of Father Robin - The Songs & Tales of Airoea - Book II (2023) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131188.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Cassidy Paris - New Sensation (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131177.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Fifth Note - Here We Are (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131161.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Neil Young - Before and After (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131091.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Killers - Rebel Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131078.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Kylie Minogue - Extension (2023) The Extended Mixes [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129887.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Everdawn - Venera (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129831.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Chamelion - Legends & Lores (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129721.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Easy Rider - Maniphesto (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128599.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Blacksilver - Blacksilver (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128553.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Dave Kelly - Sun On My Face (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128531.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Pimpinela - Especial de Navidad (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128348.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Agnetha Faltskog - A+ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128122.jpg" />
 </div>
 
 

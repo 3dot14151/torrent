@@ -1,138 +1,3 @@
-###  Публикация: 1325341   (414323) от 14.09.2019
-
-Л.А. Предвечная | Practical english for adults: student's book / Английский язык для взрослых: Практический курс. Книга обучающегося (1997) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс английского языка готовит к ведению беседы в любой жизненной ситуации и предназначен для обучения разговорному английскому языку взрослых. Он может быть с успехом использован желающими самостоятельно улучшить свое владение английским языком, а также как справочник по применению английского языка в том или ином случае, когда английский язык оказывается (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73E5F9A5506F7E1FABF6804E0BD9C0338EBBD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066085   (414308) от 25.10.2016
-
-В.Е. Фортов (ред.) | Высокоэнергетичная электроника (2007) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414308.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены качественные и количественные закономерности, определяющие физические особенности процессов генерации и преобразования энергии в термоэлектрических, термоэмиссионных, магнитогидродинамических и газоразрядных устройствах и системах высокоэнергетичной электроники, использующих активные среды всех четырех агрегатных состояний - твердые тела, жидкости, (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4812639F4CC6C4C1C3A2DAE784AE4850DE8D832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066116   (414307) от 25.10.2016
-
-В. П. Полонский | Русский революционный плакат (1925) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414307.jpg" />
-</div>
-
-
-###  Подробнее
-
-В истории пролетарской революции плакат сыграл немалую роль.
-
-Получив развитие, какого не знали Европа и заокеанские страны, революционный плакат являет собой живописный памятник, подобного которому не оставила ни одна эпоха.
-(   Читать дальше...   )Жанр: История, политология, искусство, культурологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2515DDB3E19E06B23BF6DD5D54498E2C5D71C736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325335   (414198) от 14.09.2019
-
-Е.А. Склярова и др. | Физика. Механика (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414198.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии изложены все разделы курса физической механики. Даны разъяснения основных законов, явлений и понятий классической механики, релятивистской механики и рассмотрены основные положения общей теории относительности. Учитываются наиболее важные достижения в современной науке и технике, уделяется большое внимание физике различных природных явлений.
-Цель (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB0AABB977FF9FBED57BBDF1FF004057A291786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325234   (414194) от 14.09.2019
-
-В.В. Давыдков | Физика. Механика, электричество и магнетизм (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414194.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем учебном пособии рассмотрены основные понятия и законы классической и релятивистской механики, примеры решения типовых задач, свойства и явления, связанные с электрическими зарядами, а также даны характеристики и расчеты магнитных нолей.
-Соответствует актуальным требованиям Федерального государственного образовательного стандарта среднего профессионального (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691DA54D73A40C4CED9946B993DD3651DE2F5AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325337   (414187) от 14.09.2019
 
 Н.А. Шиловская | Финансовая математика. Учебник и практикум (2019) [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414187.jpg" />
 </div>
 
 
@@ -168,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414182.jpg" />
 </div>
 
 
@@ -194,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414175.jpg" />
 </div>
 
 
@@ -221,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414053.jpg" />
 </div>
 
 
@@ -247,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413923.jpg" />
 </div>
 
 
@@ -273,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413866.jpg" />
 </div>
 
 
@@ -301,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413850.jpg" />
 </div>
 
 
@@ -327,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413839.jpg" />
 </div>
 
 
@@ -353,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413747.jpg" />
 </div>
 
 
@@ -379,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413685.jpg" />
 </div>
 
 
@@ -405,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413679.jpg" />
 </div>
 
 
@@ -431,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413634.jpg" />
 </div>
 
 
@@ -460,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413626.jpg" />
 </div>
 
 
@@ -486,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413619.jpg" />
 </div>
 
 
@@ -513,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413608.jpg" />
 </div>
 
 
@@ -541,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413573.jpg" />
 </div>
 
 
@@ -568,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413504.jpg" />
 </div>
 
 
@@ -594,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413501.jpg" />
 </div>
 
 
@@ -620,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413492.jpg" />
 </div>
 
 
@@ -647,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413482.jpg" />
 </div>
 
 
@@ -673,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413338.jpg" />
 </div>
 
 
@@ -684,6 +549,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC63F0A978452E629A2B2535C6CE1420BB3369FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251778   (413176) от 03.10.2018
+
+Книжная серия | 400 лет Дому Романовых. Повседневная жизнь Российского императорского двора [11 книг] (2010-2017) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413176.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книжной серии приводятся результаты глубоких исследований повседневных аспектов жизни российских монархов династии Романовых.
+Из книг вы узнаете много нового и интересного о членах императорской фамилии. Поймете, что их жизнь совсем не была бесконечной чередой праздников и торжественных церемоний. Помазанники Божии – живые люди со своими характерами, вкусами, причудами, (   Читать дальше...   )Жанр: Биографии и Мемуары, История, КультурологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636155D812F45BF0B08C12FB057198A8A975B12D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301783   (413154) от 01.10.2020
+
+Книжная серия | Военные тайны XX века [197 книг] (1999-2019) [FB2, PDF, DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413154.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Военные тайны XX века" - серия документально-публицистических книг, рассказывающих о наиболее загадочных и драматических событиях и явлениях бурного XX века. В рамках серии публикуются мемуары, исторические исследования и сборники очерков, авторами которых являются писатели и политики, журналисты и военные.
+
+Главная задача серии - освещение таких тем и (   Читать дальше...   )Жанр: История, Военная историяФормат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906713DC0EDCBA0A0433CADA4445226AE9757A7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167880   (412845) от 22.09.2017
+
+А. И. Лепешкин и др. | Основы советского государства и права (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержание книги отражает уровень развития юридической науки и советского законодательства на 1970 год.Жанр: История, политология, правоведение, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A9DD4C88CBEE5AEAF6DB91E249DD2C19E1DBAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832329   (412636) от 18.10.2014
+
+С. И. Поварнин | Введение в логику (1921) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание посвящено проблеме научного исследования в аспекте логического знания.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EA0EEE5F3646FBE22714D5211059F73CA49598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325586   (412584) от 15.09.2019
+
+В.Ф. Марков и др. | Коллоидная химия. Примеры и задачи (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412584.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии изложены основные разделы коллоидной химии: количественные характеристики, образование, строение лиофильных и лиофобных дисперсных систем, их молекулярно-кинетические и оптические свойства, седиментационный анализ, адсорбция, смачивание, капиллярные и электрокинетические явления, кинетика коагуляции. Каждый раздел содержит основные теоретические положения, (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7932801BD4747E38C4C74DCD36ABDB7F3F3D2109
 ```
 
 https://mybot314.ru/tekegram_catalog/

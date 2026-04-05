@@ -1,3 +1,60 @@
+###  Публикация: 1373303   (880340) от 06.04.2020
+
+Squash — Web Image Compression 2.0.4 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Squash является простым, мощным приложением для сжатия и преобразования изображений и многое другое.
+Оптимизация размера файла ваших изображений не должна означать, что это делает их зернистыми или размытыми. Squash  сохраняет существующее качество при одновременном снижении размера файла и экономии пространства!
+
+Squash работает точно так же, как магия.Тип издания: macOS SoftwareРелиз состоялся: 04.09.2017Разработчик: Realmac SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDB7E341480AB3171957F269BE9A0632D5DA070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104579   (880095) от 15.02.2017
+
+Sketchode 2.0.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая версия Sketchode с расширенным функционалом, программное решение для разработчиков, обеспечивающее быстрый доступ к элементам дизайн проекта, выполненного в Sketch. Более быстрый, с обновленным дизайном и улучшенным интерфейсом, Sketchode 2 стал еще удобнее.
+
+Главное преимущество второй версии — улучшенный способ отображения контента. Теперь все элементы рисуются (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 января 2017Разработчик: IT Top, LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2328F706164F39FAB1D7FA98A275A7B4C0328D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104600   (880062) от 15.02.2017
 
 Little Audio App 1.2.1 [Multi]
@@ -6,7 +63,7 @@ Little Audio App 1.2.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880062.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ Timerik 1.3 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878216.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ Chaos Control Premium 1.8.1 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876859.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ Wondershare Recoverit Video Repair 1.1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876365.jpg" />
 </div>
 
 
@@ -119,7 +176,7 @@ Principle 2.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876344.jpg" />
 </div>
 
 
@@ -148,7 +205,7 @@ PhotoDesk - for Instagram 4.1.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876282.jpg" />
 </div>
 
 
@@ -177,7 +234,7 @@ DxO OpticsPro Elite 10.5.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875346.jpg" />
 </div>
 
 
@@ -203,7 +260,7 @@ Bitdefender Antivirus 2016 v4.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875123.jpg" />
 </div>
 
 
@@ -231,7 +288,7 @@ Webcam Settings Control: Full Camera Adjustment 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874821.jpg" />
 </div>
 
 
@@ -260,7 +317,7 @@ Paragon Camptune X v10.10.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874382.jpg" />
 </div>
 
 
@@ -286,7 +343,7 @@ QR Factory 2.9.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873838.jpg" />
 </div>
 
 
@@ -313,7 +370,7 @@ Flyer Mill - Templates for Pages 1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873521.jpg" />
 </div>
 
 
@@ -340,7 +397,7 @@ Textual 7 v7.1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873170.jpg" />
 </div>
 
 
@@ -368,7 +425,7 @@ Soulver 3 v3.3.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873168.jpg" />
 </div>
 
 
@@ -396,7 +453,7 @@ Anesidora 2.02 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873163.jpg" />
 </div>
 
 
@@ -422,7 +479,7 @@ Duplicate Sweeper 1.06 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873161.jpg" />
 </div>
 
 
@@ -449,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872874.jpg" />
 </div>
 
 
@@ -477,7 +534,7 @@ Araxis Merge Pro Edition 2020.5350 for macOS 10.13–10.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872840.jpg" />
 </div>
 
 
@@ -505,7 +562,7 @@ Cross DJ 3.4.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872739.jpg" />
 </div>
 
 
@@ -533,7 +590,7 @@ Gemini 2: The Duplicate Finder 2.6.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872442.jpg" />
 </div>
 
 
@@ -561,7 +618,7 @@ Downie 3.9.11 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870950.jpg" />
 </div>
 
 
@@ -589,7 +646,7 @@ Capturer - auto screen capturesr 1.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870057.jpg" />
 </div>
 
 
@@ -617,7 +674,7 @@ NepTunes 1.63 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869967.jpg" />
 </div>
 
 
@@ -646,7 +703,7 @@ Chikoo 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868994.jpg" />
 </div>
 
 
@@ -657,61 +714,6 @@ Chikoo это органайзер файловТип издания: macOS Soft
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97FC6B488615BEB65C663DD5C49665D0E4DCB6B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374986   (868986) от 12.04.2020
-
-Tipard Mac 3D Converter 6.2.22 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tipard Mac 3D Converter, лучшее и профессиональное программное обеспечение для преобразования 3D для Mac, специально разработано, чтобы помочь вам конвертировать ваши любимые видеоролики 2D в формат 3D и даже конвертировать фильмы 3D в формат 2D / 3D в соответствии с потребностями. Одним словом, с конвертером Mac 3D «все-в-одном» вы сможете испытать скорость конвертирования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Tipard StudioПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233B0337168B42EB834AB1A0CC39198388CD22D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375155   (868824) от 12.04.2020
-
-QR Factory 2.9.17 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868824.jpg" />
-</div>
-
-
-###  Подробнее
-
-QR Factory является незаменимым и универсальным способом быстро поделиться какой-либо текстовой информацией.
-Его главное достоинство — легкое распознавание — активно применяется в самых разных сферах: производстве, торговле, логистике, туризме рекламе, конкурсах, играх и др.
-
-Сканеры QR-кодов существуют практически на всех мобильных платформах, а значит, это хороший (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.04.2020Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75135520B1C68879DAF928B7710974836F141610
 ```
 
 https://mybot314.ru/tekegram_catalog/

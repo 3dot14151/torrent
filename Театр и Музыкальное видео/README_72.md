@@ -6,7 +6,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537855.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536924.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lounа - Фестиваль "Нашествие 2011" (2011) WEB-DLRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536899.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536634.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536336.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535896.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535776.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Slayer - Wacken Open Air (2014) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535660.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ The Rolling Stones - Let's Spend the Night Together (1981/2011) BDRip [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535277.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535269.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534932.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Michael Jackson - Moonwalker (1988) BDRip [H.264/1080p]
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534931.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Sting - Live At The Olympia Paris (2017) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534892.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534681.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Queen - Greatest Flix I & II LDRip Edition [2011г.; Full Version with Bonus; Go
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534476.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534343.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ The Sex Pistols: There'll Always Be an England - Live from Brixton Academy (2011
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534223.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Chet Atkins - Certified Guitar Player'87 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534010.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533969.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Летний марафон № 181 / Видеоклипы (Коктейл�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533322.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Europe - Live! At Shepherd's Bush, London (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533314.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Europe - Live at Sweden Rock - 30th Anniversary Show (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533312.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533304.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ NikitA - Avocado (2012) MasterRip [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533108.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Sak Noel - Where? (I lost my underwear) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532748.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532722.jpg" />
 </div>
 
 

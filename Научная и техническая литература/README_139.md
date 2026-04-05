@@ -1,136 +1,3 @@
-###  Публикация: 1004346   (838394) от 06.04.2016
-
-Синодальная типография | Русские самородки в жизнеописаниях и изображениях. Выпуск 4 (1910) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертый  выпуск  содержит жизнеописания:  химика и физика С.П. Власова (1789-1821), механика и химика Т.И. Волоскова  (1729-1805), механика и изобретателя И.П. Кулибина (1735-1818) и механика П.Т. Телушкина (1795-1856).    Всего было издано девять выпусков этой серии. Издание училищного  Совета при Святейшем  Синоде.Жанр: Жизнеописания, биографии и мемуарыФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88F1F6D45F37A1AE3231F1E5E34994FB7CC5959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004557   (838388) от 06.04.2016
-
-Михаил Николаевич Тихомиров | Русское летописание (1979) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838388.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой читателю книге собраны труды выдающегося советского ученого, академика Михаила Николаевича Тихомирова (1893 - 1965), посвященные одной из излюбленных тем в его многообразном научном творчестве - русскому летописанию.
-Том состоит из двух разделов. В первом помещены исследования, посвященные общим вопросам истории русского летописания. Во втором собраны (   Читать дальше...   )Жанр: Монография, источниковедение, история РоссииФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8324363EF994BF4D875197D9E40E95136833389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113491   (838311) от 11.03.2017
-
-В.Ф. Травень и др. | Задачи по органической химии (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное учебное пособие подготовлено с учетом новых требований, предъявляемых к содержанию учебных изданий двухуровневой системы высшего образования. Задачи систематизированы по разделам в соответствии с главами учебника «Органическая химия» (Травень В.Ф., М.: Лаборатория знаний, 5-е издание, 2016 г.), который входит в комплект «Учебник—Задачник—Практикум».
-Каждый (   Читать дальше...   )Жанр: ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8922878BF986B788323082D68D5063C06738CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004531   (838296) от 06.04.2016
-
-Александра Борисовна Ипполитова | Русские рукописные травники XVII-XVIII веков (2008) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена одному из жанров русской естественнонаучной книжности XVII-XVIII вв. - "народным" травникам. В книге дается археографическая характеристика травников, описано их бытование в России XVII-XVIII вв., проанализированы фольклорные мотивы, связанные с растениями, и особенности использования последних в магии и в повседневной жизни.
-Значительная (   Читать дальше...   )Жанр: Монография, фольклорФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA077A6F166424DB3856B9197163699A944AD774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004432   (838293) от 06.04.2016
-
-Г. В. Аксенова | Русская азбука в инициалах XI-XVI века (1998) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание посвящено русскому средневековому искусству книги. Читатель познакомится со славянской азбукой и древнейшими известиями об истории ее создания. Красотой и загадочностью его привлекут инициалы - большие изукрашенные начальные буквы текста. В альбоме представлено более ста различных инициалов кириллического алфавита из рукописных книг XI-XVI веков, хранящихся (   Читать дальше...   )Жанр: Палеография, славистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B11F507B9C16E68D313E6ADD4E168EBF5A2F22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112818   (838080) от 11.03.2017
 
 С.Н. Бердышев | Открытия и изобретения, о которых должен знать современный человек (2002) [FB2, EPUB, MOBI]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838080.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838072.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838071.jpg" />
 </div>
 
 
@@ -220,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837936.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837861.jpg" />
 </div>
 
 
@@ -274,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837850.jpg" />
 </div>
 
 
@@ -300,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837744.jpg" />
 </div>
 
 
@@ -327,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837737.jpg" />
 </div>
 
 
@@ -354,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837683.jpg" />
 </div>
 
 
@@ -383,7 +250,7 @@ Happy Hope | Вокабуки / Voca-book / Vocabulary [135 шт. + Инстру
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837594.jpg" />
 </div>
 
 
@@ -412,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837573.jpg" />
 </div>
 
 
@@ -441,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837390.jpg" />
 </div>
 
 
@@ -467,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836773.jpg" />
 </div>
 
 
@@ -493,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836609.jpg" />
 </div>
 
 
@@ -519,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836552.jpg" />
 </div>
 
 
@@ -547,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836512.jpg" />
 </div>
 
 
@@ -573,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836321.jpg" />
 </div>
 
 
@@ -602,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836319.jpg" />
 </div>
 
 
@@ -629,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836263.jpg" />
 </div>
 
 
@@ -655,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836206.jpg" />
 </div>
 
 
@@ -681,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836174.jpg" />
 </div>
 
 
@@ -692,6 +559,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7220BCB5994A0A9207C500D3A3284CEBEA7D1A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379462   (836111) от 01.05.2020
+
+Вся Украина на 1926/27 год [в 5 частях] (1926) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся Украина на 1926/27 год Адресно-справочная книга в пяти частях.
+Справочник охватывает все стороны административной, хозяйственной и общественной жизни Украины. Содержет небольшое количество рекламных страниц.Жанр: Отечественная история, экономическая историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79D63802471F39A299FF8A9469F62FFAB18DDE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379461   (836091) от 01.05.2020
+
+Ф.И. Полярный (общ. ред.) | Вся Украина и Крым (1924) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся Украина и Крым - справочное издание о государственном устройстве Украины и Крыма, их территории и населении, экономике, адресам жителей и другим вопросам согласно состоянию на 1924 год.Жанр: История ОтечестваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87FF3852488297EC23940109A2D24C293CAC9AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379463   (835904) от 01.05.2020
+
+Подборка книг | Вся Москва, Адресные, справочные, памятные книги, Адрес-календари, Указатели, Табели, Справочники, Алфавиты [179 книг] (1793-1939) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка справочников о городе Москва, из которых можно почерпнуть сведения об административном устройстве, транспорте, коммерции, образовании, здравоохранению, правоохранительных органах, алфавитный указатель жителей города Москвы и прочая, и прочая, и прочая.Жанр: История Отечества, история МосквыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C192B8D2519581E73DEAC3360CE5F7F1C7EF367E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 308896   (835515) от 19.03.2011
+
+Подборка | Серия книг издательства Вече [2000-2011] [PDF, DJVU, DOC] Обновлено 17.03.2011
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835515.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этих сериях авторы попытались раскрыть занавес тайн мировой историиЖанр: Военно-техническая, историческя литератураФормат: PDF, DJVU, DOC
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113911   (835301) от 13.03.2017
+
+Г. М. Дрязгов | Молодежь в революции (1926) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий очерк есть продолжение моей первой работы «На пути к комсомолу». В нем я кратко пытался осветить движение молодежи во время февральской и октябрьской революции, останавливая свое внимание, главным образом, на происходивших политических событиях и на участии в них рабочей молодежи. Об участии учащейся молодежи я касался постольку, поскольку наблюдались попытки (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019BAB4F1663664D829755766FE8EBF2C184B6FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

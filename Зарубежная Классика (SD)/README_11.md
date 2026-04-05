@@ -1,3 +1,57 @@
+###  Публикация: 433609   (987428) от 09.01.2012
+
+Нюрнбергский процесс / Judgment at Nuremberg (1961) HDTVRip
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987428.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Нюрнберге идет процесс над нацистскими преступниками. Слушаются дела юристов, служивших нацистскому режиму.
+
+Напряженная судебная драма сосредоточена вокруг судебного разбирательства под председательством главного судьи, во время которого главный защитник с помощью откровений одного из подсудимых осознает, что он совершает ошибку, выступая в защиту явных пособников (   Читать дальше...   )Жанр: ДрамаРежиссер: Стенли КрамерАктеры: Спенсер Трэйси, Берт Ланкастер, Ричард Уидмарк, Марлен Дитрих, Максимилиан Шелл, Джуди Гарлэнд, Монтгомери Клифт, Эд Биннс, Вернер Клемперер, Торбен Мейер ...Перевод: ДублированныйПродолжительность: 02:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26940376E311EB0A38CA0C4C308DB8FC58916101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967277   (987318) от 02.01.2016
+
+Виннету 3 / Winnetou - 3. Teil (1965) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений вождя апачей Виннету и Шеттерхенда. И вновь белые бандиты на службе бессовестных бизнесменов убивают и грабят на индейских территориях. Снабжая индейцев оружием и спиртным, они подстрекают их к вооруженному восстанию против белых. По поручению губернатора вождь апачей Виннету и Шеттерхенд едут провести мирные переговоры с восставшими…Производство: Германия (ФРГ), Италия, Югославия / Jadran Film, Rialto Film Preben-PhilipsenЖанр: Боевик, Приключения, ВестернРежиссер: Харальд РайнльАктеры: Лекс Баркер, Пьер Брис, Рик Батталья, Ральф Вольтер, Карл Ланге, Миха Балох, Душан Антониевич, Александр Гаврич, Илия Ивезич, Велько МаричичПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95FBB5EEAB539CC5BE6B27956FA7E9E039C9151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350609   (986877) от 23.01.2020
 
 Великое молчание / Il grande silenzio (1968) BDRip [H.264]
@@ -6,7 +60,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986877.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986843.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_985846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_985846.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985735.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985664.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985309.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985308.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985243.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985232.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984302.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984046.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983866.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982744.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982511.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981836.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981796.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981625.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981232.jpg" />
 </div>
 
 
@@ -479,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981017.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980667.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980346.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980107.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979755.jpg" />
 </div>
 
 
@@ -611,68 +665,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979663.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Джонатану опротивила скучная жизнь его клана чаек. Он был с головой погружен в смелые эксперименты с техникой полетов и жаждал высотных далей. И потому, что он был не такой как все, старейшины выгоняют его из стаи. И вот наш герой отправляется за горизонты в мир великий и опасный… в поисках мудрости и свободы.Жанр: Драма, Семейный, ФэнтезиРежиссер: Холл Бартлетт / Hall BartlettАктеры: Чайки, озвучивают: Филип Ан, Ричард Кренна, Джэймс Франсискус, Келли Хэрмон, Хэл Холбрук, Дэвид Лэдд, Дороти МакГуайр, Джульетт МиллсПеревод: Русский одноголосый закадровыйПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741398   (978988) от 06.01.2014
-
-Рай в гавайском стиле / Paradise Hawaiian Style (1966) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рик - пилот вертолета, который хочет наладить чартерное обслуживание туристов на Гавайях. Море, солнце, красивые и беззаботные люди - рай на земле. В этих местах даже серьезная работа превращается в веселое увлекательное приключение. Чего стоит хотя бы история с полетом в кабине геликоптера четырех псов...Производство: США, Wallis-HazenЖанр: мюзикл, комедияРежиссер: Майкл Д. МурАктеры: Элвис Пресли, Сюзанна Ли, Джеймс Шигета, Донна Баттерворф, Марианна Хилл
-Ирэн Цу, Линда Вонг, Джули Пэрриш, Жан Шепард, Джон ДусеттПеревод: Одноголосый закадровыйСубтитры: нетПродолжительность: 01:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26824BF6E4F680D66356DF211C0FFF738EEE1B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 120547   (978553) от 16.01.2012
-
-Козерог Один / Capricorn One (1977) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весь мир следит за подготовкой к первому полету на Марс. Неожиданно астронавтов забирают из космического корабля и отвозят на заброшенную базу в пустыне, где директор НАСА сообщает им, что возникли проблемы с системами жизнеобеспечения.
-
-Но так как запланированный полет чрезвычайно важен для будущего развития космических исследовательских программ, он приказывает (   Читать дальше...   )Жанр: Фантастика, БоевикРежиссер: Питер ХайамсАктеры: Эллиотт Гулд, Джеймс Бролин, Бренда Ваккаро, Сэм Уотерстон, О. Дж. Симпсон, Хэл Холбрук, Карен Блэк, Телли Савалас, Дэвид Хаддлстон, Дэвид ДойлПеревод: Многоголосый закадровыйПродолжительность: 01:58:00
 
 ## Скачать торент
 ```bash

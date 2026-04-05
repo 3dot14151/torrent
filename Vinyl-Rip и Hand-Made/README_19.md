@@ -1,3 +1,34 @@
+###  Публикация: 795718   (690186) от 12.06.2014
+
+Государственный симфонический оркестр СССР (дирижер Евгений Светланов) - Н. Римский-Корсаков - Шехеразада (симфоническая сюита по 1001 ночи, соч. 35) (1985) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Cl ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Море и корабль Синдбада  10:40
+2. Рассказ царевича Календера  11:38
+Сторона 2
+1. Царевич и царевна  11:02
+2. Багдадский праздник и корабль, разбивающийся о скалу с медным всадником  11:20Жанр: ClassicalПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642DF0C7A6B26DF6C1CC35C162EE7822F6A515E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288422   (686333) от 16.03.2019
 
 Apelsin/Ансамбль "Апельсин" - Apelsin [2LP] (1976, 1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock>
@@ -6,7 +37,7 @@ Apelsin/Ансамбль "Апельсин" - Apelsin [2LP] (1976, 1981) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686333.jpg" />
 </div>
 
 
@@ -35,7 +66,7 @@ Pink Floyd - Wish You Were Here (1975) reissue remastered 2011 [FLAC 2.0|192/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684113.jpg" />
 </div>
 
 
@@ -64,7 +95,7 @@ Electric Light Orchestra - Face The Music (1975)  [FLAC 2.0 24/192|image (Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683654.jpg" />
 </div>
 
 
@@ -93,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682448.jpg" />
 </div>
 
 
@@ -122,7 +153,7 @@ Garbage - Strange Little Birds (2016) [FLAC 2.0 24/192|image +.cue|Vinyl-Rip]<Al
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682069.jpg" />
 </div>
 
 
@@ -151,7 +182,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681772.jpg" />
 </div>
 
 
@@ -180,7 +211,7 @@ Eruption - Leave A Light (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681493.jpg" />
 </div>
 
 
@@ -215,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678877.jpg" />
 </div>
 
 
@@ -244,7 +275,7 @@ Randy Travis - Storms Of Life (1986) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678339.jpg" />
 </div>
 
 
@@ -273,7 +304,7 @@ Boots Randolph - The Greatest Hits Of Boots Randolph (1974) [FLAC 2.0|48/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678337.jpg" />
 </div>
 
 
@@ -302,7 +333,7 @@ N'Sync - Star Collection (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <RnB, Synth-p
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678233.jpg" />
 </div>
 
 
@@ -331,7 +362,7 @@ Stevie Wonder - Солнце моей жизни (1988) [FLAC 2.0 24/192|traks(V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677622.jpg" />
 </div>
 
 
@@ -366,7 +397,7 @@ Electric Light Orchestra - A New World Record (1976)  [FLAC 2.0 24/192|image (Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677546.jpg" />
 </div>
 
 
@@ -395,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676600.jpg" />
 </div>
 
 
@@ -424,7 +455,7 @@ Paul McCartney - Pipes Of Peace (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <S
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676576.jpg" />
 </div>
 
 
@@ -453,7 +484,7 @@ Slade - Slade In Flame (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Rock/Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673980.jpg" />
 </div>
 
 
@@ -479,7 +510,7 @@ Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Al
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673808.jpg" />
 </div>
 
 
@@ -508,7 +539,7 @@ Zodiac: Disco Alliance (1980) & Music In The Universe (1983) 2LPs [FLAC 2.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672424.jpg" />
 </div>
 
 
@@ -537,7 +568,7 @@ Scorpions - Virgin Killer (1976) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672215.jpg" />
 </div>
 
 
@@ -572,7 +603,7 @@ VA - Dance Hits Collection (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Disco, Eur
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672115.jpg" />
 </div>
 
 
@@ -601,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671197.jpg" />
 </div>
 
 
@@ -630,7 +661,7 @@ Oscar - Oscar (1974) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669316.jpg" />
 </div>
 
 
@@ -659,7 +690,7 @@ Wes Montgomery - A Day In The Life (1967) 1984 [FLAC 2.0|192/24|image+.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669264.jpg" />
 </div>
 
 
@@ -688,7 +719,7 @@ Scorpions - 2 Альбома (1977-1993) [FLAC 2.0 24/192] image + .cue, (Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669152.jpg" />
 </div>
 
 
@@ -714,7 +745,7 @@ Stray - This Is Stray (1971) renamed album Saturday Morning Pictures, 1976 [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667841.jpg" />
 </div>
 
 
@@ -728,35 +759,6 @@ A4 Move That Wigwam(   Читать дальше...   )Жанр: Prog Rock, Psyc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E47247469E0A25306EB49CF100F5E6AFA75D7969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137527   (667520) от 26.05.2017
-
-Юрий Антонов. Песни (коллекция виниловых пластинок) (1971-1989) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667520.jpg" />
-</div>
-
-
-###  Подробнее
-
-(Vinyl, LP, Мелодия - C50 28357-58 002, USSR)
-
-01. Инро
-02. Ю. Антонов - Живёт повсюду красота(   Читать дальше...   )Жанр: Pop, Pop Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243B89E81F1A943691317B1288DE6AD23D3FAD0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

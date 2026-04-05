@@ -1,3 +1,29 @@
+###  Публикация: 923170   (566257) от 30.07.2015
+
+Картинки - Природа и животные [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев в основном с животными и природными ландшафтами.Формат: JPGРазрешение файлов: 1920х1080—13206х6676
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF3F5D35E9B63625565030E501B2409F97DEB55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922777   (566252) от 30.07.2015
 
 Картинки - Прекрасная абстракция [JPG, PNG]
@@ -6,7 +32,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566252.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566249.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566087.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564710.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564706.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564585.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564548.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564547.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564545.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564543.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564541.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564539.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564501.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564495.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564492.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564400.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563504.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563109.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562961.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562949.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Wallpapers - Sexy Girl Full HD 2 [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561010.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560804.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560801.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560800.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560714.jpg" />
 </div>
 
 
@@ -645,33 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB843908C0317F3857F7582ED2A4683DC06FCFC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923944   (560512) от 02.08.2015
-
-Фотографии - Carl Warner / Карл Уорнер [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор работ – известный австралийский фотограф Карл Уорнер, закончивший художественный колледж и планировавший стать иллюстратором, однако, вовремя нашедший свое истинное призвание. Его работы удивительны, согласитесь!
-Только при детальном рассмотрении Вы понимаете, что это вовсе не рисунки, а настоящие фотографии настоящих овощей, фруктов, хлеба, сыра и других пищевых (   Читать дальше...   )Формат: JPGРазрешение файлов: 660х835—2280х1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E9FA0BAE66519D50100BE68C7F6A0B68735292
 ```
 
 https://mybot314.ru/tekegram_catalog/

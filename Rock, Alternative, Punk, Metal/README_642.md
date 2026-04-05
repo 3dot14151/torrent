@@ -1,3 +1,32 @@
+###  Публикация: 1064977   (424210) от 21.10.2016
+
+Hell Boulevard - Inferno (2016) [MP3|320 Kbps] <Industrial Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Dead
+02. A Lesson in Pain
+03. On the Other Side of Life
+04. A Beautiful Ending(   Читать дальше...   )Жанр: Industrial Metal, Gothic MetalПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C604741CADD256C711092D2818A2AD2B513525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 394848   (424108) от 02.10.2011
 
 Thulcandra - Under A Frozen Sun (2011) [MP3|320 kbps]<Melodic Death Metal>
@@ -6,7 +35,7 @@ Thulcandra - Under A Frozen Sun (2011) [MP3|320 kbps]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424108.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Paradise Lost - Medusa (2017) Limited Edition [FLAC|Lossless|image + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424093.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424077.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Kiss - Monster (2012) [MP3|320 кб/с]<Hard Rock, Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424021.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Mike & The Mechanics - Hits (1996) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_423995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_423995.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Chris Norman - Don't Knock The Rock (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop-Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423924.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ AC/DC ‎– Rock Or Bust (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423903.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ The Guess Who - The Best Of The Guess Who (1971) remaster, 2014, Audio Fidelity 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423890.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423791.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Metonic - The Priest (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423680.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Angeline - We Were Raised On Radio (2021) [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423679.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Voodoo Gods - The Divinity of Blood (2020) [FLAC|Lossless|image + .cue] <Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423677.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Santa Cruz - The Return Of The Kings (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423675.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Dynazty - Final Advent (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423673.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ The Pretty Reckless - Who You Selling For (2016) [MP3|320 Kbps] <Alt.Rock, Post-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423616.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Iron Savior - Reforged - Ironbound (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Power 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423525.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Grave Digger - Symbol of Eternity (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Heavy M
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423512.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Griot - Elisabeth (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423331.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ BeforeTheCalm - Anchors (2020) [MP3|~245 Kbps (V0)] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423328.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Montana Sagrada - The Living Green (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423326.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Signs of Omnicide - Era of Omniscience (2018) [WavPack|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423325.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ VA - Music as a Weapon II (2004) [FLAC|Lossless|WEB-DL|tracks] <Metal, Nu-Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423320.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Firespawn - Abominate (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423316.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ UADA - Djinn (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423312.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Shrine of Malice - 4 Albums (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Blackened
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423310.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Shrine of Malice - 4 Albums (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Blackened
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCF224655E6E34ACAD1525818616176B8C7E711F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412018   (423306) от 27.09.2020
-
-Fight The Fury - Still Breathing (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423306.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. My Demons [4:09]
-2. Dominate Me [3:46]
-3. Still Burning [4:06]
-4. I Cannot [3:50](   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 00:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64BB6256CDE127A61F55BE50654A6381047E604D
 ```
 
 https://mybot314.ru/tekegram_catalog/

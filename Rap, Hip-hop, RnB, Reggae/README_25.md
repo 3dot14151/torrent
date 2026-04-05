@@ -1,32 +1,3 @@
-###  Публикация: 1265153   (276418) от 26.11.2018
-
-Вася В. (Кирпичи) - Триумф (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Йоу, православные (feat. DJ-108)
-02. Один за всех (feat. Стас Сытник)
-03. Миру мир (feat. Дмитрий «Фео» Порубов, Маша Макарова и Децл aka Le Truk)
-04. Созерцатель (feat. Nos MC и MC DannyBoy)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7066B4F8CEAA42E76B24E2720BE0006D67F4614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187892   (275818) от 01.12.2017
 
 Честер Небро - Караван (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275818.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Noize MC - Царь Горы (2016) [MP3|320 Kbps] <Rap, Rock, Electronic>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273178.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Cмоки Мо и Zloi Negr - Доспехи Бога 2 (2017) [MP3|320 Kbps] <R
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270341.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Chillhop Essentials - Spring (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269181.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Wu-Tang Clan - The Saga Continues (2017) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268722.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268570.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Freddie Gibbs - Freddie (2018) Mixtape [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267810.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Moderator - Sinner's Syndrome (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jaz
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267799.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_266987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266987.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Eminem - Kamikaze (2018) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264839.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264245.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Omarion - Sex Playlist (2014) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264089.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Eminem - Revival (2017) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263701.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Eminem - Revival (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263679.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - The French Touch Connection - Soul Machinist (2016) [FLAC|Lossless|Web-DL|t
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262223.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Rihanna - Magic (2012) [MP3|320 Kbps] <R&B, Pop>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260006.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Outkast - Stankonia (2000) [MP3|320 kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258556.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Anacondaz - Ночь с астраханцем (2025) [MP3|320 Kbps] <Rap, Hip-H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258034.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Anacondaz - Ночь с астраханцем (2025) [FLAC 24/48|Lossless|WEB-D
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258032.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255508.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255051.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Feduk - Весёлая музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250424.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ VA - Рэп для любимых женщин (2023) [MP3|320 Kbps] <Rap, Hip-H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250224.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Yopt - 404 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250141.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ VA - Chillhop Essentials Spring (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249461.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ VA - Chillhop Essentials Spring (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50C2F11E452EBA555C77E9176649F84BF7C772BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511191   (246001) от 20.11.2021
+
+Сидоджи Дубоshit - BIG FOOT (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GRIND [01:53]
+02. INDEPENDENT (KASKADER) [02:48]
+03. DEATHFLIP [03:01]
+04. BIGFOOT [03:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA43DDED9694F8C424613BEE505356BAFD185D0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

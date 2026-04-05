@@ -6,7 +6,7 @@ Astra Linux Special Edition 1.8.3 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6532.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Linux Mint 22.2 Zara (Cinnamon Edition, MATE Edition, Xfce Edition) [x86_64] 3xD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4593.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Astra Linux Special Edition 1.8.3 UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2390.jpg" />
 </div>
 
 

@@ -1,88 +1,3 @@
-###  Публикация: 1196363   (824134) от 02.01.2018
-
-Х. Ф. Сабиров | Государство и личность в развитом социалистическом обществе (1980) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824134.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре показывается, что Конституция СССР является основным законодательно-правовым документом, регулирующим взаимоотношения между государством и личностью в условиях развитого социализма.
-
-Автор раскрывает такие черты нового типа взаимоотношений между общенародным социалистическим государством и личностью, как социалистическое народовластие, социальное равенство (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6314AF214452E257D2FDE371FF37C6A443C66410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195708   (824122) от 02.01.2018
-
-В. П. Уваров (общ. ред.) | Как научиться понимать и переводить иностранный текст (1968) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824122.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом методическом пособии авторы делают попытку дать читателю основы понимания и перевода иностранной литературы, показать и обосновать процесс работы над текстом, вооружить читателя практическими навыками самостоятельной работы прежде всего на самом трудном ее этапе.
-
-Книга построена на материале английского и немецкого языков, причем для удобства читателей (   Читать дальше...   )Жанр: История, искусство, лингвистика, филология, языкознаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B1F3DFBC39FE1DA06B32FF8D7A55173976AA6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007086   (823561) от 14.04.2016
-
-Г. И. Исаев (отв. ред.) | Проблемы личности (1969) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание сборника группируется в трех основных разделах:
-
-1. Личность как предмет комплексного исследования современной науки. В этот раздел сборника входят научные работы, относящиеся к определению понятия личности, ее структуры, а также методов ее изучения.
-(   Читать дальше...   )Жанр: История, философия, психология, медицина, онтологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468669E62A833D3D828A5B2E439B2F4ABBD03309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007142   (823558) от 14.04.2016
 
 Б. Ф. Поршнев, Л. И. Анцыферова (ред.) | История и психология (1971) [DJVU]
@@ -91,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823558.jpg" />
 </div>
 
 
@@ -119,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_823485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_823485.jpg" />
 </div>
 
 
@@ -145,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823222.jpg" />
 </div>
 
 
@@ -171,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821699.jpg" />
 </div>
 
 
@@ -197,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821620.jpg" />
 </div>
 
 
@@ -224,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821612.jpg" />
 </div>
 
 
@@ -250,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821605.jpg" />
 </div>
 
 
@@ -276,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821603.jpg" />
 </div>
 
 
@@ -302,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821504.jpg" />
 </div>
 
 
@@ -328,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821073.jpg" />
 </div>
 
 
@@ -354,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821065.jpg" />
 </div>
 
 
@@ -380,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821019.jpg" />
 </div>
 
 
@@ -409,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821016.jpg" />
 </div>
 
 
@@ -437,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819809.jpg" />
 </div>
 
 
@@ -465,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819806.jpg" />
 </div>
 
 
@@ -491,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819804.jpg" />
 </div>
 
 
@@ -519,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819744.jpg" />
 </div>
 
 
@@ -545,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819656.jpg" />
 </div>
 
 
@@ -571,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819065.jpg" />
 </div>
 
 
@@ -599,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818797.jpg" />
 </div>
 
 
@@ -625,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817254.jpg" />
 </div>
 
 
@@ -651,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815819.jpg" />
 </div>
 
 
@@ -677,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815815.jpg" />
 </div>
 
 
@@ -690,6 +605,89 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DF2ADFAEBF21220B33AE69CC9451910AD03CF0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008597   (815365) от 18.04.2016
+
+Дэвид Прайс | Магия Pixar (2012) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815365.jpg" />
+</div>
+
+
+###  Подробнее
+
+О чем эта книга
+О компании, которую знают все, даже если не помнят названия. О компании, которая началась с абсолютно безумной фантазии. О компании, сделавшей Стива Джобса миллиардером.
+Нет, вовсе не об Apple. Герой этой книги - анимационная студия Pixar.
+Компания, в которой трудятся никудышные рисовальщики (на посту гендиректора), куда вкладываются безработные (куда (   Читать дальше...   )Жанр: Искусство, Культура, Кинематография зарубежных странФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E740D49E768A97046337D39A2F31A5ACA8EDA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117504   (815353) от 24.03.2017
+
+К. Маркс, Ф. Энгельс | Критика Готской программы. К критике проекта социал-демократической программы 1891 г. (1959) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815353.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящий выпуск «Библиотечки по научному социализму» входят две работы: первая — «Критика Готской программы» — принадлежит К. Марксу, вторая — «К критике проекта социал-демократической программы 1891 г.» — написана Ф. Энгельсом.
+
+Оба произведения составляют важный вклад в развитие теории научного социализма. Они содержат в себе коренные вопросы марксизма и являются (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A728EB30DBB00F2ECF613BFA1B1237B4E5E0D23C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113403   (815337) от 24.03.2017
+
+Эмиль Маль | Религиозное искусство XIII века во Франции (2008) [PDF, DJVU, DOC]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Эмиля Маля (1862-1954) «Религиозное искусство XIII в. во Франции» (1899) начинает историю иконографической науки в западноевропейском искусствознании. Первое в длинном ряду трудов ученого-энциклопедиста фундаментальное исследование мира образов французской готики — одновременно первая в истории искусства работа, непосредственно связывающая скульптурное и живописное (   Читать дальше...   )Жанр: Искусствоведение, КультурологияФормат: PDF, DJVU, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB0F3BC2414C5CBC3178CF8CB6D4B2A79BFAB10
 ```
 
 https://mybot314.ru/tekegram_catalog/

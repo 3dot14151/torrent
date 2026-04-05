@@ -1,3 +1,81 @@
+###  Публикация: 268938   (293378) от 11.12.2010
+
+Tales of Monkey Island: Collector's Edition / Tales of Monkey Island: Коллекционное издание [Ru/En] (Repack) 2010 | R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: РепакЖанр: QuestЯзык озвучки: АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C312FD0DE8D459A83A0D8C1D1721B5744C6685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334723   (292559) от 30.10.2019
+
+Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мор - авторский сюжетный арт-триллер, рассказывающий о борьбе с эпидемией смертельной болезни в далеком степном городке. Город гибнет на глазах. Приходится принимать тяжёлые решения — иногда заведомо проигрышные. Песочная язва — это не просто болезнь. Всех не спасти.Чума пожирает город. Главный целитель города погибает при загадочных обстоятельствах, и вы должны (   Читать дальше...   )Тип издания: RepackРазработчик: Ice-Pick LodgeЖанр: Adventure (Horror), RPG, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4416DDD3EB836C3B936894D18E7059EF78C2B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962828   (292317) от 05.12.2015
+
+Slender: The Arrival (2013) [Ru/En] (2.0) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slender: The Arrival - профессиональный ремейк жуткой истории о Слендере, от создателей оригинальной игры Slender: The Eight Pages! Новая качественная графика, увлекательный сюжет. Переосмысление оригинальной игры, которое увлечет игроков в ту же жуткую атмосферу, но при этом добавит полноценное сюжетное и геймплейное окружение.Тип издания: RepackРазработчик: Blue Isle Studios и Parsec ProductionsЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9368C0B56FBEE8917FBC5C59F85286E3CC6A9C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027652   (291405) от 05.12.2016
 
 Between Me and The Night (2016) [Ru/Multi] (1.12) Repack R.G. Механики
@@ -6,7 +84,7 @@ Between Me and The Night (2016) [Ru/Multi] (1.12) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291405.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Forgotton Anne (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290939.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack Other s [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290638.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ A Stroke of Fate: Operation Valkyrie / Архивы НКВД: Охота на ф
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289344.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ The Descendant (2016) [Multi] (3.2/dlc) License PLAZA [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287577.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ The Walking Dead: Season One (2012) [Multi] (1.0.0.26/dlc) License GOG [A Tellta
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287375.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ That Dragon, Cancer (2016) [En] (1.0) License PROPER-PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285733.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Her Majesty's SPIFFING (2016) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285416.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ To the Moon (2011) [Multi] (1.0.0.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285183.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Lost Horizon / Затерянный горизонт (2010) [Ru/En] (08.12.2015)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285078.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Mind: Path to Thalamus (2014) [Ru/En] (08.12.2015) Repack R.G. Механики 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285072.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Lost Horizon 2 (2015) [En] (08.12.2015) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285046.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ STASIS (2015) [Ru/Multi] (1.09.5) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283271.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ The Wolf Among Us (2013) [Ru] (1.0.0.1) Repack xatab [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282277.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281610.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Emily Wants To Play (2015) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281513.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Republique Remastered (2015) [Ru/Multi] (4.11) License SKIDROW [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280856.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Republique Remastered (2015-2016) [Ru/Multi] (4.11) Repack Other s [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280499.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Beholder (2016) [Ru/Multi] (1.0.20161118) Repack Dok2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279897.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ The 9th Gate (2018) [En/Ch] (1.1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278909.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Black Mirror (2017) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278108.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278104.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Art of Murder: Cards of Destiny / Смерть как искусство 3: Ка
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276782.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ Art of Murder: Cards of Destiny / Смерть как искусство 3: Ка
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337031   (275637) от 09.11.2019
-
-Moons of Madness (2019) [Ru/Multi] (1.01) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые зафиксировали таинственный сигнал, идущий с Красной планеты. И содержащиеся в нем сведения поставили исследователей из «Орочи» в тупик. Расшифровав сигнал, аналитики корпорации осознали, что он – разумного происхождения. Правление «Орочи» тотчас решило засекретить все данные об открытии, чтобы не рисковать. В атмосфере полной секретности корпорация начинает (   Читать дальше...   )Тип издания: LicenseРазработчик: Rock Pocket GamesЖанр: Action, Horror, Adventure, Sci-fi, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB54DBD695FE8BDB99EB11C2A354ACF77D33A3FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337107   (275547) от 09.11.2019
-
-Moons of Madness (2019) [Ru/Multi] (1.01) Repack xatab
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые зафиксировали таинственный сигнал, идущий с Красной планеты. И содержащиеся в нем сведения поставили исследователей из «Орочи» в тупик. Расшифровав сигнал, аналитики корпорации осознали, что он – разумного происхождения. Правление «Орочи» тотчас решило засекретить все данные об открытии, чтобы не рисковать. В атмосфере полной секретности корпорация начинает (   Читать дальше...   )Тип издания: RepackРазработчик: Rock Pocket GamesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CCC6BEF07A4AE71F29C1F31B078843ACCD8AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083228   (274499) от 15.12.2016
-
-The Wolf Among Us (2013) [Ru/En] (1.0) Repack Seraph1 [Episodes 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274499.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире игры персонажи известных сказок оказались перенесены в мрачный Нью-Йорк, где им пришлось волей-неволей обживаться в суровом обществе людей. Главным героем The Wolf Among Us станет Бигби Вульф (Bigby Wolf - то есть Big Bad Wolf, классический Злой серый волк из сказок о Красной шапочке и трех поросятах), который является теперь матерым детективом Нью-Йорка. (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4FC14EE69E9799F181A7E12548ED843A8AA23C
 ```
 
 https://mybot314.ru/tekegram_catalog/

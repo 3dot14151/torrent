@@ -1,133 +1,3 @@
-###  Публикация: 1601937   (210989) от 03.01.2023
-
-С. В. Анофрикова | Методика преподавания физики в средней школе: Частные вопросы. (1987) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210989.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрен научно-методический анализ содержания всех разделов школьного курса физики, соответствующий программе одиннадцатилетней средней школы, дана методика формирования основных физических понятий, теорий, законов, изучаемых в средней школе, а также конкретные методические рекомендации методологического, мировоззренческого и воспитательного характера. (   Читать дальше...   )Жанр: физика, учебное пособие для студентов пединститутов по физико-математической специальностиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC91E671BFD14776CE9F22DC875ECA501508B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641039   (210969) от 20.06.2023
-
-Ю.И. Дытнерский | Обратный осмос и ультрафильтрация (1978) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210969.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложены теоретические основы и технологические расчеты процессов обратного осмоса и ультрафильтрации, указаны особенности аппаратурного оформления этих эффективных и перспективных процессов, рассмотрены способы получения полупроницаемых мембран из различных материалов и методы определения их характеристик. Показаны области и перспективы широкого практического (   Читать дальше...   )Жанр: ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0B91A5B1CCC8D7856DAEF176A84723D530E1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601969   (210952) от 03.01.2023
-
-В.А. Дубынин | Физиология сенсорных и двигательных систем (2022) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210952.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 лекций по Физиологии сенсорных и двигательных системЖанр: ФизиологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B737849681732FF91D517F15256ADC1527ECF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602485   (210928) от 21.06.2023
-
-К. Сюдсетер и др. | Справочник по математике для экономистов (2000) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы справочника первыми решили задачу создания списка тех формул и математических утверждений, знание которых необходимо студентам высших учебных заведений при знакомстве с общим курсом высшей математики и изучении математических методов анализа экономики. Эта выборка охватывает дифференциальное исчисление, матричную алгебру, математическое программирование, оптимальное (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E8B77141E004FF3909CC05E3C940EC260C105E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641372   (210850) от 22.06.2023
-
-А.А. Петров | Компьютерная безопасность. Криптографические методы защиты (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210850.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются актуальные вопросы защиты данных при создании распределенных информационных систем масштаба предприятия, приводятся подробные описания принципов применения современных криптографических средств, имеющихся на рынке («Криптон», «Верба», «Шип», «Игла» и др.). Значительное место уделяется проблемам сохранения тайны при финансовых обменах через (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A367EC952CFE66F4C27E2FF11E476B633C3C3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602402   (210803) от 05.01.2023
 
 А.А. Гусак | Высшая математика [2 книги] (1983 - 1984) [DJVU]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210803.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210776.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210768.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210753.jpg" />
 </div>
 
 
@@ -242,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210682.jpg" />
 </div>
 
 
@@ -268,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210630.jpg" />
 </div>
 
 
@@ -294,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210603.jpg" />
 </div>
 
 
@@ -320,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210579.jpg" />
 </div>
 
 
@@ -346,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210539.jpg" />
 </div>
 
 
@@ -372,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210532.jpg" />
 </div>
 
 
@@ -398,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210493.jpg" />
 </div>
 
 
@@ -424,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210439.jpg" />
 </div>
 
 
@@ -451,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210390.jpg" />
 </div>
 
 
@@ -477,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210218.jpg" />
 </div>
 
 
@@ -503,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210147.jpg" />
 </div>
 
 
@@ -529,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210057.jpg" />
 </div>
 
 
@@ -555,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210031.jpg" />
 </div>
 
 
@@ -581,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209941.jpg" />
 </div>
 
 
@@ -607,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209917.jpg" />
 </div>
 
 
@@ -634,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209902.jpg" />
 </div>
 
 
@@ -662,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209849.jpg" />
 </div>
 
 
@@ -673,6 +543,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80DD4FF4C0C53A91846FE7AA093A79C5F695ED62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643891   (209820) от 03.07.2023
+
+Крис Винтер | Скажи бессоннице нет. Путь к продуктивности, успеху и здоровью (2023) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему мы часто плохо спим и просыпаемся уставшими? «Заедаем» стресс и мучаемся беспокойным сном? Виним в утомляемости график работы и свою загруженность делами? Мы повзрослели и больше не позволяем себе вздремнуть днем? Опасаемся принимать снотворное?
+Ответ прост: каждый человек и его повседневная жизнь, работа и состояние – индивидуальны. Так же индивидуален и (   Читать дальше...   )Жанр: Здоровье, Популярно о медицинеПеревод: Юлия МеднаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE494DAC7FEDE727599A2E1EF99B99F0A993B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571696   (209750) от 25.08.2022
+
+И.П. Жеребцов | Основы электроники (1985) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описываются физические процессы в полупроводниковых и электровакуумных приборах, в интегральных микросхемах и некоторых специальных приборах современной электроники, устройство, характеристики и параметры приборов, а также некоторые особенности их применения.Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E6CFFE5192FB40C24BD9851D0D29612ABF6282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643934   (209741) от 04.07.2023
+
+Б. Рэнби, Я. Рабек | Фотодеструкция, фотоокисление, фотостабилизация полимеров (1978) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209741.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге известных шведских физико-хммиков, работающих в области фотохимии полимеров, обсуждается широкий круг проблем фотодеструкции, фотоокислительного старения,
+фотомодификации и сеетостабилизации полимерных материалов.
+Для большого числа различных классов полимеров рассмотрены конкретные химические механизмы процессов, лежащие в основе указанных изменений свойств (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5F75DA62BFFBD196FABD87CEBAB66FCEDF82D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605676   (209711) от 18.01.2023
+
+Н.Е. Кучеренко | Биохимия [4 книги] (1988 - 1992) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник по биохимии, в котором рассмотрены структура, свойства, обмен и биологическая роль белков, нуклеиновых кислот, жиров, углеводов и других соединений в живом организме. Дано представление о фотосинтезе, биоэнергетике, путях регуляции обмена веществ.
+В комплекте также находится сборник задач и упражнений, практикум, деловые игры и ситуационные задачи.Жанр: УчебникФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5314095EA647ED99A29DF02760FA5906E4BA5FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644793   (209704) от 06.07.2023
+
+И.Е. Иродов | Задачи по общей физике (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит свыше 2000 задач по всем разделам курса общей физики. Каждой теме предшествуют краткие теоретические сведения, в конце сборника приведены справочные таблицы. Материал сборника скомпонован в соответствии с современной концепцией изучения курса: механика, электромагнетизм, колебания и волны, оптика, квантовая физика и физика макросистем.
+Для студентов (   Читать дальше...   )Жанр: ФизикаИздательство: БИНОМ. Лаборатория знанийФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644BF57A755E3EE2753434A98D85CBA2271C5F52
 ```
 
 https://mybot314.ru/tekegram_catalog/

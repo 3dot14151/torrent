@@ -1,137 +1,3 @@
-###  Публикация: 1427584   (177020) от 05.12.2020
-
-Рудольф Сворень | Электроника шаг за шагом (2020) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга подготовлена на базе второго расширенного издания, вышедшего в 1986 году. Основная (учебная) часть оставлена почти без изменений. Для привязки к современным реалиям и терминологии книга дополнена комментариями, а также «Практикумом» на основе современных компонентов.
-Для широкого круга любителей электроники.Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD86C309009BE9AE15F94165AB4AB0E7CAEEBD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594788   (176957) от 02.12.2022
-
-Э. Альтон, Д. Альтон | Полный медицинский гид по выживанию. Скорая помощь в любой экстремальной ситуации (2022) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наиболее полный медицинский гид по выживанию, в котором вы найдете все: от распознавания симптомов аппендицита до алгоритма действий при возникновении ЧС с множеством жертв.
-
-Эта уникальная медицинская книга призвана помочь обычному человеку справиться с травмами и болезнями в ситуациях, когда современные медицинские учреждения и специалисты недоступны.
-Книга написана (   Читать дальше...   )Жанр: Медицина и здоровьеПеревод: А. МеркуловаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C0DBF0A630C0517B72E604C6054BD4F5371ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429545   (176618) от 06.12.2020
-
-Сесил Рот | Иудеи в Венецианской республике. Жизнь в условиях изоляции (2021) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сесил Рот – известный британский исследователь и крупнейший специалист по истории евреев, автор многих трудов по названной теме, представляет венецианскую жизнь еврейской общины XV—XVII вв. Основываясь на исторических исследованиях и документальных материалах, Рот создал яркую, интересную и драматичную картину повседневной жизни евреев в Венецианской республике на (   Читать дальше...   )Жанр: Культурология, Популярно об историиПеревод: Л.А. ИгоревскийФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B020E4CC2F2351E6FF96537E52583262315700F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429530   (176608) от 06.12.2020
-
-Григорий Нарек | Тридцать дней в красной зоне. Заметки врача (2020) [EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пандемия COVID-19 застала врасплох весь мир. Мы попали в заложники к непонятному вирусу, не готовые к такому развитию событий. На передовой всеобщего хаоса оказались врачи, которые на ходу вырабатывали методы лечения и помогали дышать заболевшим. За героическим образом врача, однако, стоит обычный человек, думающий о семье, любящий пошутить и при этом испытывающий (   Читать дальше...   )Жанр: Медицина и здоровье, Истории из жизниФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C2715DC5A4B3AA5C141E49B9DD61CCFB945B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429270   (176604) от 06.12.2020
-
-Фридрих Ницше | Человеческое, слишком человеческое (2016) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176604.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Человеческое, слишком человеческое» – произведение, важное с точки зрения развития творчества Ницше. В нем он переосмысливает значение своих идеалов и отказывается от них, разочаровывается в трудах своих кумиров. Ницше ищет свободу и освобождение от прописных истин и постепенно приходит к тем неординарным и эксцентричным мыслям, по которым мы его знаем в произведениях (   Читать дальше...   )Жанр: ФилософияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CEA57DE9BE8D2A71B3F323979D9D6CD427C78E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429448   (176600) от 06.12.2020
 
 М.Т. Кохно | Основы радиосвязи, радиовещания и телевидения (2016) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176600.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176566.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176553.jpg" />
 </div>
 
 
@@ -218,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176549.jpg" />
 </div>
 
 
@@ -246,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176490.jpg" />
 </div>
 
 
@@ -272,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176477.jpg" />
 </div>
 
 
@@ -298,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176216.jpg" />
 </div>
 
 
@@ -325,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176205.jpg" />
 </div>
 
 
@@ -351,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176169.jpg" />
 </div>
 
 
@@ -379,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175842.jpg" />
 </div>
 
 
@@ -405,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175832.jpg" />
 </div>
 
 
@@ -431,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175831.jpg" />
 </div>
 
 
@@ -459,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175780.jpg" />
 </div>
 
 
@@ -485,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175757.jpg" />
 </div>
 
 
@@ -511,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175695.jpg" />
 </div>
 
 
@@ -537,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175614.jpg" />
 </div>
 
 
@@ -563,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175605.jpg" />
 </div>
 
 
@@ -589,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175543.jpg" />
 </div>
 
 
@@ -615,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175465.jpg" />
 </div>
 
 
@@ -642,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175433.jpg" />
 </div>
 
 
@@ -668,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175290.jpg" />
 </div>
 
 
@@ -681,6 +547,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77E4FAFD45E67DE7B3479110118CE2481AA45BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667855   (175072) от 10.10.2023
+
+П.Е. Данко и др. | Высшая математика в упражнениях и задачах [2 книги] (1999) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержание I части охватывает следующие разделы программы: аналитическую геометрию, основы линейной алгебры, дифференциальное исчисление функций одной и нескольких переменных, интегральное исчисление функций одной переменной, элементы линейного программирования.
+
+Содержание II части охватывает следующие разделы программы: кратные и криволинейные интегралы, ряды, (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CFFBE98ABD117809867CF5C4F15991BCC9FF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429610   (175058) от 08.12.2020
+
+Д.В. Пегов (ред.) | Скоростной электропоезд Sm6 Allegro (2019) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электропоезд Sm6 "Allegro" выпущен итальянским подразделением компании Alstom (серия ETR 480).
+Относится к типу скоростных поездов под общим названием "Pendolino" (по-итальянски - "маятник"). Особенность таких поездов заключается в наклоняемом кузове, что обеспечивает прохождение кривых с более высокой допустимой скоростью. С 2010 года (   Читать дальше...   )Жанр: техническое пособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8D809FA4F2E06674327979C041B62749BE5FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595578   (175012) от 06.12.2022
+
+А.В. Усова, А.А. Бобров | Формирование умений и навыков на уроках физики (1988) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175012.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге раскрываются основы методики формирования у школьников учебных умений по физике на различных этапах обучения; дается классификация этих умений.
+Использование материала данного пособия поможет учителю более полно и глубоко осуществлять всестороннее развитие подрастающего поколения.
+Показывая методы формирования обобщенных познавательных и практических умений, (   Читать дальше...   )Жанр: физикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1CC420B40454D412F9A53B8EBC79FCF63C9BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595577   (175009) от 06.12.2022
+
+А.Е. Марон, В.Е. Марон | Задания по физике для учащихся 9 класса вечерней (заочной) средней школы (1986) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит задания по физике для самостоятельной работы учащихся IX класса вечерней (заочной) школы. Каждое задание состоит из перечня вопросов программы, указаний к работе с учебником, вариантов зачетных работ, заданий повышенной сложности.Жанр: физикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E16DC0599AC3809092D0706D2163F35AA53046D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595566   (174975) от 06.12.2022
+
+Е.Н. Архангельский и др. | Судовая электротехника и электроника (1985) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174975.jpg" />
+</div>
+
+
+###  Подробнее
+
+В соответствии с программой рассмотрены вопросы, составляющие основное содержание подготовки инженеров неэлектротехнических специальностей в области технического использования электрических и магнитных явлений: теории электрических цепей, электроники (главным образом, энергетической электроники), электрических машин и электрического привода. Теоретический материал (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6D01078C65A2096C90C2CB99A6EE1DAEA15F29
 ```
 
 https://mybot314.ru/tekegram_catalog/

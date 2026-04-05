@@ -1,3 +1,87 @@
+###  Публикация: 1262954   (291069) от 17.11.2018
+
+VA - The Underground Guide, Vol. 10 (2018) [MP3|320 Kbps] <Electro House, Progressive House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saschienne – Grand Cru (Pachanga Boys Glam Drive)
+02. Emery Warman – Bounce Is Back
+03. DJ Fronter – Warning (Nico Cabeza Remix)
+04. Alberto Santana – Imagine (Juanjo Tur Remix)(   Читать дальше...   )Жанр: Electro House, Progressive House, Tech HouseПродолжительность: 03:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58E56D9BA22FD6AFDA4B4847545E462AE05CFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 269727   (290286) от 13.12.2010
+
+VA - Mi Casa Es Su Casa (Mixed And Compiled by UNER, Coyu, Edu Imbernon) - 2010 [MP3|320 kbps]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 10:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B6EC5BF25DD004A26E81F647BB495781BC50FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185923   (289946) от 23.11.2017
+
+VA - In Disco We Trust Vol. 2 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Feelgood - Believe! (Original Mix)
+02. Alfred Azzetto, Vincent Valler, Manuelle - I've Got The Music In Me (Relight Orchestra Remix)
+03. Jose Zaragoza - The Booty Drop (Original Mix)
+04. Water Juice, Denver T Styles - Do It (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA6E73AAA215121E6AF0A128665C9869FE53595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963330   (289065) от 07.12.2015
 
 VA - Jutonish Reload (Mixed by Sonic Mine) (2015) [MP3|320 кб/с]<Pumping House>
@@ -6,7 +90,7 @@ VA - Jutonish Reload (Mixed by Sonic Mine) (2015) [MP3|320 кб/с]<Pumping Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289065.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ VA - Minimal Love (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288948.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ VA - Sexy Funky House Grooves Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288257.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ VA - Re: Structured (Mixed by John Digweed) (2015) [MP3|320 кб/с]<Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287448.jpg" />
 </div>
 
 
@@ -122,7 +206,7 @@ VA - Anjunadeep 07 (Mixed by Jody Wisternoff & James Grant) (2015) [MP3|320 кб
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287306.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ VA - Deep House Ibiza Chart Best of 2016 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286642.jpg" />
 </div>
 
 
@@ -180,7 +264,7 @@ VA - White Nights Grooves Vol 1-2 (2015) [MP3|320 кб/с]<House, Deep House, Ch
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285794.jpg" />
 </div>
 
 
@@ -209,7 +293,7 @@ VA - Best Of Toolroom (2016) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284895.jpg" />
 </div>
 
 
@@ -238,7 +322,7 @@ VA - Future Trance Vol.82 (2017) 3CD [MP3|320 Kbps] <House, Trance, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284599.jpg" />
 </div>
 
 
@@ -267,7 +351,7 @@ VA - Ibiza For 2017 [MP3|320 Kbps] <Funky, Progressive, House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283721.jpg" />
 </div>
 
 
@@ -296,7 +380,7 @@ VA - Who's Gonna Drive You Home Tonight (25 Deep-House Weekenders) Vol.5 (2016) 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283085.jpg" />
 </div>
 
 
@@ -325,7 +409,7 @@ VA - Best Driving EDM 2017 (2016) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283077.jpg" />
 </div>
 
 
@@ -354,7 +438,7 @@ VA - If You Train Hart Enough You Will Come Closer To Your Goal (2018) [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282960.jpg" />
 </div>
 
 
@@ -383,7 +467,7 @@ VA - Release Records: Best Of (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281118.jpg" />
 </div>
 
 
@@ -412,7 +496,7 @@ VA - Underground People Christmas 2016 (50 Tracks For Your Winter Party) (2016) 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281056.jpg" />
 </div>
 
 
@@ -441,7 +525,7 @@ VA - Mainstage Music Top 10 (2016) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281052.jpg" />
 </div>
 
 
@@ -470,7 +554,7 @@ VA - Vocal House Dance Music Experience 2016 Vol.01 (Mixed By Jora Mihail) (2016
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281040.jpg" />
 </div>
 
 
@@ -499,7 +583,7 @@ VA - Armada Music: Best Of (2016) [MP3|320 Kbps] <House, Trance, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280905.jpg" />
 </div>
 
 
@@ -528,7 +612,7 @@ VA - Armada Deep Best Of (2015) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280792.jpg" />
 </div>
 
 
@@ -557,7 +641,7 @@ VA - Soulful Ibiza Sound (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280768.jpg" />
 </div>
 
 
@@ -586,7 +670,7 @@ VA - Ibiza Lounge House: For DJs Only (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279570.jpg" />
 </div>
 
 
@@ -615,7 +699,7 @@ VA - WeArmada 2019 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279524.jpg" />
 </div>
 
 
@@ -644,7 +728,7 @@ VA - Best of Christmas Deephouse (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279291.jpg" />
 </div>
 
 
@@ -658,93 +742,6 @@ VA - Best of Christmas Deephouse (2016) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E14B47526D1DF220748A2AB405CD82AE09957449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082319   (279290) от 12.12.2016
-
-VA - Coffee House (Always Fresh And The Best) Vol.5 (2016) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kobes - Boyana 6:06
-02. Culsu - Sahara 5:02
-03. Mr. Groove - Kremlin 7:48
-04. 9Ball - Hydrosurge 6:03(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7BFE34B9CDEAA1CE3999DE1B25E8F014F0A6FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336222   (279160) от 07.11.2019
-
-VA - Pure Running Hits 2019 Session [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ribeca Dj, Laura Gaeta - Mareia
-02. Pianomatto - Carillon
-03. Kros, Simone Farina, Michelle Lily - Dance With Us
-04. Blanco - Coke In Da House(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8330466F5345C82CBA55257623D6B58A1ADBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082257   (279011) от 12.12.2016
-
-Klubbheads - Bamboo Sessions (2016) [MP3|320 Kbps] <Pumping House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown (1:34)
-02. Klubbslang (6:34)
-03. Bounce To The Bomb (4:00)
-04. Bamboo Masters (5:01)(   Читать дальше...   )Жанр: Pumping HouseПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C97767015415EED8078DC4D68554798DEEF57A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

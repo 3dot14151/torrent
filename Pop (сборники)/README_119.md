@@ -1,3 +1,164 @@
+###  Публикация: 1681577   (132627) от 03.12.2023
+
+Subbota - This Is Subbota (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garmoshka Girl (feat Shatana) (2:27)
+02. Ай я е (2:47)
+03. Бездомный снаряд (2:24)
+04. БОМ БОМ БОМ (3:08)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAA8CE4A4AE332E509450B122CBDA8A923EE24B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596045   (131651) от 30.12.2012
+
+VA - Радио Шторм - NeРусский Шторм - 84 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrian Claudiu Sina - Painted Love
+02. Adrian Sina, Sandra N. - Angel feat. Sandra N. (South Blast! Nympho Angel Remix)Жанр: Pop, DanceПродолжительность: 02:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5042476ED01B6ADED632E5C07B1FCA0AC846B3B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595957   (131645) от 30.12.2012
+
+VA - Christmas Party Lights (2012) [MP3|256 кб/с]<Pop, Vocal, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrodita (Original Mix) - Cosme Martin 05:16
+02. Afrojack & Shermanology - Can't Stop Me (Madein82 Remix) 06:33
+03. Airon Diaz & Raul Ortega - Ya No Puedo Sufrã­r Mã¡s (Pablonez Private Remix) 04:20
+04. Akcent - I'm Sorry (Reworked Radio Edit 2012) 03:35
+05. Akcent - On And On (When The Lights Go Down) 04:22
+06. Aldo Ranks - Parrandero 04:20
+07. Alejandro Sanz - Se Vende 04:00
+08. Alex Mica - Heya 2K12(Radio Edit) 03:35
+09. Alexis & Fido - Donde Estes Llegare 03:14
+10. Alexis & Fido - Hp 04:03Жанр: Pop, Vocal, DanceПродолжительность: 03:03:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595756   (131542) от 30.12.2012
+
+VA - Заряд Новогодних Русских Хитов (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Вера Брежнева -  Бессоница  (03:47)
+02.  Эрика И Алексей Матиас -  Private Emotion  (04:00)
+03.  Opium Project Feat. Phenomenon -  Улетаешь  (04:19)
+04.  Александр Панайотов -  To Sade  (04:34)
+05.  Алсу -  Мир, О Котором Я Не Знала До Тебя  (04:03)
+06.  Ирина Кулькова -  Я Искала Тебя  (02:16)
+07.  Valentina -  Навсегда  (04:03)
+08.  In Da Team -  Оглянись  (03:50)
+09.  Джиган (Geegun) -  Ты Чемпион  (02:52)
+10.  Pulse -  Только С Тобой  (04:13)(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17397500130EC75D7A6EFEBAB12742C9BA36C61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596729   (130898) от 31.12.2012
+
+VA - Союз Зимний (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130898.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Тимати И Григорий Лепс - Лондон.
+002 А-Студио - Раз И Навсегда.
+003 Стас Михайлов - Свет Звезды.
+004 Ани Лорак - Ягода-Малина.
+005 Рок-Острова & Сердце - Я Не Верю.
+006 Настя Задорожная - Позвони Мне, Позвони.
+007 Иванушки International - Я Буду Ждать Тебя.
+008 Анжелика Агурбаш - Ты Всегда И Навсегда.
+009 Валерий Леонтьев - Эммануэль.
+010 Жасмин - Руки В Рукава.(   Читать дальше...   )Жанр: РорПродолжительность: 06:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78951DB74AE1B9309128417F54281637F3232E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682856   (130835) от 09.12.2023
 
 VA - Музыка для машины Vol.50 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -6,7 +167,7 @@ VA - Музыка для машины Vol.50 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130835.jpg" />
 </div>
 
 
@@ -35,7 +196,7 @@ VA - The Top 100 Most Played꞉ Pop (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130439.jpg" />
 </div>
 
 
@@ -64,7 +225,7 @@ VA - Лучший Top-чарт (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129871.jpg" />
 </div>
 
 
@@ -99,7 +260,7 @@ VA - Офигенное Радио (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129747.jpg" />
 </div>
 
 
@@ -134,7 +295,7 @@ VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129291.jpg" />
 </div>
 
 
@@ -163,7 +324,7 @@ VA - Моя Прекрасная Леди (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129098.jpg" />
 </div>
 
 
@@ -198,7 +359,7 @@ VA - Весенняя волна хитов к празднику (2012) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129079.jpg" />
 </div>
 
 
@@ -233,7 +394,7 @@ VA - German Top 100 Single Charts 08.12.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128742.jpg" />
 </div>
 
 
@@ -262,7 +423,7 @@ LOBODA - This is LOBODA (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128268.jpg" />
 </div>
 
 
@@ -291,7 +452,7 @@ VA - Музыка для машины Vol.53 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127827.jpg" />
 </div>
 
 
@@ -320,7 +481,7 @@ VA - Музыка для машины Vol.52 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127799.jpg" />
 </div>
 
 
@@ -349,7 +510,7 @@ VA - Музыка для машины Vol.54 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127478.jpg" />
 </div>
 
 
@@ -378,7 +539,7 @@ Emma Peters - Compilation (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127265.jpg" />
 </div>
 
 
@@ -407,7 +568,7 @@ Elyanna - Compilation (2023) [MP3|320 Kbps] <Pop, Alternative Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126762.jpg" />
 </div>
 
 
@@ -436,7 +597,7 @@ VA - Музыка для машины Vol.58 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126659.jpg" />
 </div>
 
 
@@ -465,7 +626,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 14 (2023) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126545.jpg" />
 </div>
 
 
@@ -494,7 +655,7 @@ VA - Музыка для машины Vol.60 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126015.jpg" />
 </div>
 
 
@@ -523,7 +684,7 @@ VA - Vocal Morning Lounge Mix (2025) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125838.jpg" />
 </div>
 
 
@@ -552,7 +713,7 @@ VA - Disco Holiday 70-80's (2024) [MP3|320 Kbps] <Electronic, Pop, Rock, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124946.jpg" />
 </div>
 
 
@@ -581,7 +742,7 @@ VA - Лучшие песни Love Radio за 2023 год (2024) [MP3|320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124291.jpg" />
 </div>
 
 
@@ -610,7 +771,7 @@ VA - German Top 100 Single Charts 19.01.2024 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121907.jpg" />
 </div>
 
 
@@ -624,151 +785,6 @@ VA - German Top 100 Single Charts 19.01.2024 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56432D811AC03F5FCA272F60931C4716B7A49403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696788   (119395) от 04.02.2024
-
-VA - Зима на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dua Lipa - Houdini (3:05)
-02. Клава Кока & FEDUK - Кабы не было тебя (2:40)
-03. Gayazov$ Brother$ - Нужна Перезагрузка (2:57)
-04. Ofenbach feat. Norma Jean Martine - Overdrive (Extended Mix) (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0FA4B6FA6C2C1A6F47E0F160E884D64FB86C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698287   (118634) от 08.02.2024
-
-VA - Hot songs to make out to (2024) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Wicked Games (5:24)
-02. Big Sean - I Know (5:20)
-03. Drake - Jungle (5:20)
-04. PARTYNEXTDOOR - Recognize (feat. Drake) (5:14)(   Читать дальше...   )Жанр: PopПродолжительность: 05:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A653F04B2A325556C1A6C240DDBE2C0CD08AE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699537   (117492) от 15.02.2024
-
-Юрий Антонов - Коллекция (2024) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Антонов, мой самый любимый композитор и исполнитель. Ещё во времена СССР, у нас дома были все его пластинки. С самого раннего детства, знаю песни наизусть и слушаю до сих пор. Его творчество - лучшее лекарство от тоски и дипрессняка. Когда 7 лет назад я делал собрание песен, на тот момент у меня не было апаратуры должного уровня. В то время я только учился работать (   Читать дальше...   )01. От печали до радости
-02. Несет меня течение
-03. Все, как прежде
-04. У берез и сосен(   Читать дальше...   )Жанр: PopПродолжительность: 04:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269CFB0B30A03FC296117F37953A291CC48C3F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700317   (117303) от 16.02.2024
-
-VA - Winter Ukrainian Calm Songs (2024) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roiko - До Сердешка (2:26)
-02. OKS - Ніченька (3:09)
-03. NK - Кришталь (2:53)
-04. Jerry Heil - #НЕСЕСТРИ (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF1821BA420A6B637BF7DACFFD1946DCB1DF34F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700733   (116907) от 18.02.2024
-
-Paloma Faith - Compilation (2024) [MP3|320 Kbps] <Pop, Soul,>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  30 Minute Love Affair
- 02.  Changing
- 03.  Everything is Changing (Instrumental Tribute to Sigma Ft. Paloma Faith)
- 04.  I've Gotta Be Me(   Читать дальше...   )Жанр: Pop, Soul,Продолжительность: 03:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CAEEEDFB791CA45F1C9B34A489ED659AE726D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1421671   (317294) от 05.11.2020
+
+Лесные разбойники / The Flemish Bandits (2018) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317294.jpg" />
+</div>
+
+
+###  Подробнее
+
+1787 год, после неудачной службы в австрийской армии Ян де Лихт решает вернуться в родной город Алста, который, к удивлению героя, существенно изменился. На месте его любимой деревни оказался лагерь французской армии, которая изгнала местных жителей вместе с семьей Яна в близлежащие леса. У него не осталось иного выбора, кроме как примкнуть к банде грабителей, возглавляемой (   Читать дальше...   )Производство: Бельгия / Menuet Producties, ProximusЖанр: драма, детектив, приключения, историяРежиссер: Maarten Moerkerke, Робин Пронт, Питер Ван ХесАктеры: Маттео Симони, Стеф Артс, Джероен Персеваль, Дирк Руфтхуфт, Том Ван Дик, Anne-Laure Vandeputte, Шарлотта Тиммерс, Анемон Валки, Рик Уиллемс, Ману Керстинг и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B27FC00B12207991B9DEEBB56223F4979EE64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582003   (316430) от 12.10.2022
+
+Монтеросси / Monterossi - La serie (2022) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карло Монтеросси (Фабрицио Бентивольо), знаменитый и талантливый сценарист очень популярного ТВ-шоу. Одним поздним вечером Монтеросси, попивая в одиночестве любимый дорогущий виски, открывает дверь доставщику, который тычет ему в лицо дулом пистолета… А спасает его от смерти всё тот же бокал любимого виски.
+Теперь Монтеросси решает вести своё расследование параллельно (   Читать дальше...   )Производство: Италия / Amazon Studios, PalomarЖанр: триллер, криминалРежиссер: Роан ДжонсонАктеры: Фабрицио Бентивольо, Диего Рибон, Luca Nucera, Донателла Финокьяро, Мартина Саммарко, Silvia Briozzo, Марина Оккьонеро, Мария Пайато, Карла Синьорис, Джузеппе Ипполити и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, итальянскийСубтитры: Русские, английскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4BB8E6B08449B0BE3E99C8C3B782FCD369CEB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582004   (316428) от 12.10.2022
 
 Монтеросси / Monterossi - La serie (2022) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +59,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316428.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315293.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315225.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315118.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315117.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314921.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314917.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313457.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313059.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313045.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311217.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310441.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310424.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308426.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308324.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306974.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306771.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306524.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305938.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304020.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301873.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301864.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298429.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298427.jpg" />
 </div>
 
 
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1E72CBDF6FA7A958642B198AABA84BA5653C4E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246657   (298400) от 13.11.2018
-
-Последний корабль / The Last Ship (2018) WEBRip [H.264/1080p-LQ] (сезон 5, серии 1-10 из 10) OmskBird [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298400.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Последний корабль» — постапокалиптический экшен-триллер в лучших традициях телеканала SyFy, рассказывающий о том, как команда военного эсминца пытается найти лекарство от смертельного вируса, угрожающего уничтожить все человечество. Продюсером сериала выступил заслуженный голливудский кинематографист Майкл Бэй, проекты которого отличаются исключительной зрелищностью (   Читать дальше...   )Производство: СШАЖанр: фантастика, боевик, триллер, драма, военныйРежиссер: Пол ХолаханАктеры: Эрик Дэйн, Адам Болдуин, Бриджит Риган, Чарльз Парнелл, Тревис Ван Винкл, Марисса Нитлинг, Джоко Симс, Кевин Майкл Мартин, Брен Фостер, Эмерсон Брукс и др.Перевод: Многоголосый закадровый, профессиональный - OmskBirdСубтитры: английскиеПродолжительность: ~00:42:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C61253EB8A45DA5B07687B0172E9AD0E8754D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423856   (297601) от 14.11.2020
-
-Забор / La valla (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в мрачном будущем, где демократические ценности западного общества отступили перед нехваткой природных ресурсов. Испанскую столицу пересекает забор, который разделяет население на социальные слои. Появление диктатуры привело к ущемлению прав жителей. Главные действующие лица – семья, которой придётся преодолеть всевозможные невзгоды и бросить (   Читать дальше...   )Производство: Испания / Atresmedia, Good MoodЖанр: фантастикаРежиссер: Давид Молина Энсинас, Ориоль Феррер, Лукас ХильАктеры: Унакс Угальде, Оливия Молина, Элеонора Векслер, Абель Фольк, Анхела Молина, Ману Фуйола, Daniel Ibáñez, Laura Quirós, Элена Сеихо, Оскар де ла Фуэнте и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAD4280D7B666C62824EE8916FB8C0EB6A5DC46
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1580027   (232088) от 30.09.2022
+
+Cerebro - 2 EP (2021-2022) [MP3|320 Kbps] <Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свидетель [00:03:24]
+02. Совесть [00:04:20]
+03. Виварий [00:03:09]
+04. Конфликт [00:03:44](   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 2 CD, 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCB50F6760E1E115C61E26D945D11E571CFE92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641917   (232085) от 25.06.2023
 
 Heathen Hoof - Rock Crusader (2011) [WavPack|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +35,7 @@ Heathen Hoof - Rock Crusader (2011) [WavPack|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232085.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Pistols At Dawn - Ascension (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232083.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Viper - Timeless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power, Speed Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232077.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Coffin Mulch - Spectral Intercession (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232068.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Crimson Mask - Tales of Mayhem & Madness (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232064.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ All Consumed - Hallowed Violence (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232061.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Shining of Kliffoth - Twilight of Sehemeah (2000) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232058.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Razor - Open Hostility (1991) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232055.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Riffobia - Riffobia (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232054.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Blackscape - Suffocated By The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232052.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Unborn Prophecy - Waking Our Ancient Memories (2023) [MP3|320 Kbps] <Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232049.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Sorcier des Glaces - Sous la lune noire (2023) Compilation [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232044.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Unchosen Ones - Sorrow Turns to Dust (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232043.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Heezer - Sungrinder (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Gr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232042.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Unborn Prophecy - Waking Our Ancient Memories (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232038.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Crimson Day - Crimson Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232036.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232032.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Ulfud - Of Existential Distortion (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232031.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Noed - No One Escapes Death (2023) [MP3|320 Kbps] <Strong Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232025.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Todd La Torre - Rejoice in the Suffering (2021) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232020.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ MelloW - Полураспад (2023) [MP3|320 Kbps] <Nu-Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232015.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Ring van Mobius - Commissioned Works Pt II - Six Drops Of Poison (2023) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232014.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Abstractian - Sharpened Hearts (2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232008.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Degreed - Public Address (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232004.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ The Mighty Bard - Beyond The Gate (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232000.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ The Mighty Bard - Beyond The Gate (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:053DC4AA676592BC8557FB8B24FF7F29197E7CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645210   (231994) от 08.07.2023
-
-SoulSplit - Пустой ад. Часть 1-2 (2021-2023) [MP3|320 Kbps] <Gothic, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вспомнить всё [00:03:55]
-02. Вампир [00:05:49]
-03. Пустой aд [00:04:47]
-04. Под землёй [00:04:20](   Читать дальше...   )Жанр: Gothic, Alternative MetalПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3803489F4452DCD9CF724823091A11F5B7588632
 ```
 
 https://mybot314.ru/tekegram_catalog/

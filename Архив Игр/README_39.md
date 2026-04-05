@@ -1,3 +1,55 @@
+###  Публикация: 991354   (549778) от 29.08.2016
+
+Underrail (2015) [En] (1.0.1.10) License GOG
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы переступаете с ноги на ногу, кутаясь в дырявое пальто, которое почти не защищает от влажного, холодного воздуха подземных тоннелей. До вас доносятся голоса мародеров, которые роются в вещах какого-то бездомного, и встречаться с ними вам очень не хочется, но девчушке нужно лекарство. Почти всей нашей расе пришел конец, но вы пока еще живы, а значит, борьба продолжается.Тип издания: LicenseРазработчик: Stygian SoftwareЖанр: Tactical, Turn-based, RPG (Rogue, Action), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11DB8B85DB68921FDC4B5FE68A4E0DC6B65A8F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304957   (549179) от 21.06.2019
+
+S.W.I.N.E. HD Remaster (2019) [Ru/Multi] (1.4.1731) Repack Other s
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549179.jpg" />
+</div>
+
+
+###  Подробнее
+
+S.W.I.N.E. HD Remaster — новое издание классической S.W.I.N.E.! Оригинальная игра о грязной войне кроликов и свиней вышла 18 лет назад, а сейчас продуманная стратегия в реальном времени готова поразить старых и новых поклонников обновленными текстурами, поддержкой современных разрешений, детализированными моделями, интерфейсом, адаптированным под формат 16:9, и улучшенным (   Читать дальше...   )Тип издания: RepackРазработчик: Kite GamesЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9CB09A13B4BB49E33003A3A589FDC40C190B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 693660   (548950) от 26.08.2013
 
 Saints Row 4/IV (2013) [Multi] (1.0.0.1/4 DLC) RePack R.G. Origami
@@ -6,7 +58,7 @@ Saints Row 4/IV (2013) [Multi] (1.0.0.1/4 DLC) RePack R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548950.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0.10246.0/DLC) Steam-Rip R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548047.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ Lost Planet 3 (2013) [Multi] (1.0) License FAIRLIGHT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548045.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.03.1047 PX1/PX2) Repack xatab [Royal Ed
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547934.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ The Bureau: XCOM Declassified (2013) [Ru/Multi] (1.0/2DLC) Steam-Rip R.G. Игр
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547180.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ Armello (2015) [Ru/Multi] (1.4) License GOG [DRM Free Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547059.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Balrum (2016) [Ru/En] (1.12) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547047.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (1.3) SteamRip Ученик_77
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546266.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Order of Battle: World War II (2015) [Ru/Multi] (2.6.7/dlc) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546210.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота [patch] (1.24
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546173.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ StarCrawlers (2016) [En] (Prolific Pocketmonster v8 08.27.2016) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545276.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0/4DLC) Steam-Rip R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544387.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.82.5006/2dlc) Repack R.G. М
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543961.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ FBI Hostage Rescue / ФБР:  Освобождение заложников (P) 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543051.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ HeXen II / HeXen 2 (1997) [En] (1.11) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542314.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ Top Gun: Hard Lock (2012) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unoffic
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540526.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2015) [Ru/Multi] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540272.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.4.1.0/dlc) Repack GAMER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539893.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539294.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ Life is Strange - Episode 4: Dark Room (2015) [Ru] (1.0.0.344867) Steam-Rip
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538376.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.347790) Repack R.G. Механики [Epis
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538371.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ Prototype 2: RedNet Edition [Ru/En] (RePack/1.0) 2012 l TERRAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538053.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ Orcs Must Die Дилогия [Ru/En] (RePack) 2011-2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538052.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ Spec Ops: The Line [Ru] (RePack/1.0/DLC) 2012 l RG Packers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537949.jpg" />
 </div>
 
 
@@ -637,59 +689,6 @@ Spec Ops: The Line сочетает увлекательную сюжетную 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE0A0A26ECE892D9B9459A3EC9E5CC6BB2121679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532374   (537865) от 07.08.2012
-
-Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Расширенное издание [En] (L/2.0) 2011 l THETA
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537865.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Afterfall: Тень прошлого» — психологический survival horror, предлагающий ценителям жанра пережить будоражащие кровь приключения в атмосфере всепоглощающего ужаса. Оказавшись в мрачных подземных бункерах, из которых нет выхода, игроки приподнимут завесу тайны, под которой скрывается нечто гораздо большее, чем просто безумие обитателей убежищ. В ходе расследования они столкнутся с непростыми загадками и вступят в противоборство с жестокими монстрами, им часто придется принимать трудные решения. Справиться же с крайне сложной и опасной задачей помогут не только рефлексы, но также способность мыслить логически и умение использовать дедуктивный метод.(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Intoxicate Studios, Nicolas Entertainment GroupЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF5A354280A6BF9CF067026D55C89C8A429EB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532010   (537857) от 07.08.2012
-
-[PS3] Max Payne 3 [ENG] [PAL] [FIXED TB](2012)
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс Пэйн пережил многое: на его глазах умирали родные и близкие ему люди, и эти трагедии оставили в его душе неизгладимый след. Он ушел из полиции, пристрастился к выпивке и болеутоляющим, все больше погружаясь в бездну отчаянья. В попытке бежать от своего прошлого Макс перебирается в Бразилию и становится телохранителем богатого торговца недвижимостью из Сан-Паулу - Родриго Бранко. Но события разворачиваются таким образом, что Макс оказывается на улицах незнакомого города лицом к лицу со смертельной опасностью. Он должен выжить - и выяснить, что происходит.
-Новейшая игровая ''механика'', позволяющая вести предельно точную стрельбу, усовершенствованные эффекты замедления времени (Bullet Time®) и стрельбы в прыжке (Shootdodge™), система поведения персонажей Euphoria, созданная компанией Natural Motion, а также мрачный и закрученный сюжет - все это делает игру Max Payne 3 от компании Rockstar Games невероятно кинематографичной, проработанной до мельчайших деталей и проносящейся перед игроком на одном дыхании.Тип издания: Пиратка TBЯзык интерфейса: Русские субтитры и меню
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB2A3EF741AE979BABBC4D2F60992671EF2F1B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

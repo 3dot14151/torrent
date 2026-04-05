@@ -1,3 +1,55 @@
+###  Публикация: 1447288   (1031571) от 14.02.2021
+
+Image Uploader 1.3.2 Build 4717 [Multi/Ru] [Winebottler]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Image Uploader - бесплатная программа c открытым исходным кодом, предназначенная для загрузки изображений, фотографий, кадров из видео в интернет. Для хранения файлов программа использует несколько десятков общедоступных хостингов изображений и файлов. При этом программа автоматически генерирует миниатюры желаемого размера, масштабирует изображения, по желанию может (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: ZendenПоддерживаемая ОС: macOS 10.8 - 10.14.xЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98E246523BD0306B5FC2B72AC23F32390B403A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621070   (1031444) от 23.03.2023
+
+Postbox 7.0.59 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Postbox является почтовым клиентом, в основу создания которого лёг код Mozilla Thunderbird с большими функциональными возможностями. Во-первых, программа будет весьма полезна для тех, кто часто отправляет и получает письма, содержащие вложения – документы, фотографии и пр. Просматривать фотографии, которые вам прислали, можно непосредственно в программе, а потом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2022Разработчик: © 2023 Postbox, Inc.Поддерживаемая ОС: macOS 10.9.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF28E3A052421B22320DE892993461F9A44D1811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621018   (1031439) от 23.03.2023
 
 Ultra Audio Converter for Mac 3.2.0 [En]
@@ -6,7 +58,7 @@ Ultra Audio Converter for Mac 3.2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031439.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ GraphicConverter 11.8.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031223.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Flyer Design – Flyer Template for Indeisgn 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031206.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Mirror for Chromecast TV 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031177.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Numi 3.30 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031176.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Flyer Design – Flyer Templates for Pages 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031173.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Flyer Creator - Poster Design 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031169.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Flyer Design – Flyer Templates for Word 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031159.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Flyer Design – Flyer Templates for illustrator 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031152.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Brochure Design - Templates for illustrator 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031148.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ CV Resume Templates for Pages 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031124.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Readiris Corporate 17.1.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031120.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Adobe Dreamweaver 2020 v20.2.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031043.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Adobe Photoshop 2020 v21.2.5
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031006.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Movist 2.10.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030965.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Kodak Preps 9 v9.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030880.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ TwistedWave 25.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030717.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Mirror for Android TV 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030708.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ IM+ All-in-One Messenger 1.16 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030697.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Task Office 8.11 ARM [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030038.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ NCH Prism Plus 10.09 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030036.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Master of Typing - Tutor 1.9.15 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029798.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ Bandizip: Archiver 7.22 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029788.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ Postico 2.0.2 dev [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029243.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ Postico - рациональный (   Читать дальше...   )Тип �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A86A462B435FFF6F3D9456FF6885BC3C77D6CE94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450438   (1029072) от 26.02.2021
-
-Wrise 1.5 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wrise - это текстовый процессор, который делает чтение и письмо доступным для всех. Разработанный для поддержки понимания прочитанного и составления текста, он может быть полезен для людей с дислексией. Благодаря преобразованию текста в речь, выделению слов и предложений, масштабированию и режиму EasyReading тексты становятся более понятными и приятными для глаз. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.02.2021Разработчик: AssistiveWare B.V.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC52FB3DB494D2DE191140A1C2535661EE6F611A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450574   (1029069) от 26.02.2021
-
-GhostReader Plus 2.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029069.jpg" />
-</div>
-
-
-###  Подробнее
-
-GhostReader - это простое в использовании, полностью настраиваемое приложение преобразования текста в речь, которое позволяет вам прослушивать письменный текст на вашем Mac. Читайте выбранные тексты из других приложений, импортируйте тексты практически во всех форматах и ​​слушайте их на ходу. Независимо от того, являетесь ли вы творческим профессионалом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.02.2021Разработчик: ConvenienceWareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C7CCAA9443C95C841EBC32AB6C26D81133C74D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Душевный шансон в хорошей компании (4) (2018)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715728.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Душевный шансон в хорошей компании (3) (2018)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715727.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Душевный сборник радио Шансон (5) (2018) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715632.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Душевный сборник радио Шансон (4) (2018) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715630.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Душевный сборник радио Шансон (6) (2018) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715626.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Душевный сборник радио Шансон (7) (2018) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715622.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Душевный сборник радио Шансон (3) (2018) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715621.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Блатной музобоз (2016) [MP3|256 кб/с] <Chanson>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714133.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Душевный шансон в хорошей компании (5) (2018)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713893.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Душевный шансон в хорошей компании (6) (2018)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713776.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Любимая волна для души (2) (2018) [MP3|256 Kbps] <Шан
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713774.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Любимая волна для души (2018) [MP3|256 Kbps] <Шансо
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713773.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Душевный сборник радио Шансон (9) (2018) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713652.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Любимая волна для души (3) (2018) [MP3|256 Kbps] <Шан
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713650.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Душевный шансон в хорошей компании (7) (2018)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713645.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Душевный сборник радио Шансон (8) (2018) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713644.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Любимая волна для души (4) (2018) [MP3|256 Kbps] <Шан
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713642.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Душевный сборник радио Шансон (10) (2018) [MP3|25
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713636.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Душевный сборник радио Шансон (11) (2018) [MP3|25
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711719.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Душевный сборник радио Шансон (12) (2018) [MP3|25
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711433.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - К Дню 8 марта (2019) [MP3|320 Kbps] <Шансон, поп>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710799.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Душевный шансон в хорошей компании (8) (2018)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709849.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Душевный шансон в хорошей компании (9) (2018)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709783.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Лирика шансона (2013) [MP3|320 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709027.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Любимые песни шансона. Версия № 10 (2017) [MP3|2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709004.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Best-of-ka на радио Шансон. Часть № 3 (2017) [MP3|256 K
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709003.jpg" />
 </div>
 
 

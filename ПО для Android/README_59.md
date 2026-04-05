@@ -1,3 +1,109 @@
+###  Публикация: 946642   (424706) от 14.10.2015
+
+Английский язык (PRO-версия) 1.15 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424706.jpg" />
+</div>
+
+
+###  Подробнее
+
+IntrigaEnglishTeacher - автоматизированная система обучения английскому языку по составлению предложений.
+В настоящей системе реализовано обучение английскому, методом игры, доводя до автоматизма составление английских предложений. Учиться английскому эффективнее составляя на нём предложения, приближенные к реальной речи. Если не знаете как правильно это сделать, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 10 августа 2013Разработчик: INTRIGA-GamesПоддерживаемая ОС: Android 2.2 +Жанр: ОбразованиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91D238D67B68DF37E3F171E36A4F6DD8B36067D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572620   (421047) от 27.08.2022
+
+Библиотека словарей PONS 5.6.46 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта программа Библиотека словарей PONS предлагает к использованию множество словарей, например, бразильский вариант португальского, немецкий как иностранный, английский, французский, итальянский, голландский, греческий, польский, русский и турецкий.Тип издания: FullРелиз состоялся: 12 авг. 2022 г.Разработчик: PONSПоддерживаемая ОС: Android: 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67FCC7FEFCD8478B3BC14ACCD3003152D0E5E59A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572600   (421044) от 27.08.2022
+
+Endel: звуковые фоны 3.60.460 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Endel создаёт адаптивные звуковые фоны, помогая вашему телу и сознанию настроиться на любые занятия и легче с ними справляться.
+Умиротворяющий звуковой фон генерируется алгоритмом в реальном времени и адаптируется под ваши местоположение, время дня, погоду и сердечный ритм. Звуки меняются в течение суток в соответствии с циркадным ритмом — биологическими часами, (   Читать дальше...   )Тип издания: FullРелиз состоялся: 24 авг. 2022 г.Разработчик: Endel Sound GmbHПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27D178E1A284B11E3AC183F1C32A099E50B78491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572467   (421042) от 27.08.2022
+
+Ear Scout: Super Hearing 1.4.7 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите ответственно прослушивать аудио в вашей среде, лучше слышать телевизор или разговор (немедицинский слуховой аппарат) или просто слушать пение птиц из дома, Ear Scout усиливает и передает звук с микрофона на гарнитуру Bluetooth (микрофон Наушники) в режиме реального времениТип издания: PremiumРелиз состоялся: 6 авг. 2022 г.Разработчик: Excelling AppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B4A2A8264892F50C578E6897235288A14B1262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572457   (421037) от 27.08.2022
 
 Call Log Analytics 2.1.2 [Ru]
@@ -6,7 +112,7 @@ Call Log Analytics 2.1.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421037.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420960.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Phases of the Moon Pro 4.5.1 [Ru] - Фазы луны
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420675.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ Electronics Database v2.36 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420570.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420057.jpg" />
 </div>
 
 
@@ -144,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420048.jpg" />
 </div>
 
 
@@ -170,7 +276,7 @@ VideoReg Pro 6.96 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419906.jpg" />
 </div>
 
 
@@ -196,7 +302,7 @@ RocketDial Dialer&Contacts Pro 3.8.6.1 [Ru] - Звонилка с широким
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419895.jpg" />
 </div>
 
 
@@ -222,7 +328,7 @@ Grammatisch 2.4.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419316.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417910.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ Device ID Changer Pro v4.9 [ADIC] [En/Ru] - изменение идентифи�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417639.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ Doninn Audio Editor Pro 1.08 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411220.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ Baby Sleep Sound Machine 1.1.104 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410406.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ Panels - sidebar (edge screen) 1.364 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410310.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ Tools for Google Maps 5.30 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410213.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ Flud v1.8.3.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410211.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ TV Online v1.0 (16) Ad-Free [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408903.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408574.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ DailyRoads Voyager v7.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407982.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ Android Hidden Settings (Professional) v1.7.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407751.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ Marine Aquarium v3.3.21 PRO [Ru\En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406977.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ ABBYY FineScanner Pro v1.13.1157 [Ru/Multi] - сканер для любых д�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403672.jpg" />
 </div>
 
 
@@ -571,110 +677,6 @@ ABBYY FineScanner – ваш карманный сканер для любых �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B10FEF38007DC70BA89591964EFF84A7B4BCA395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964588   (396351) от 04.10.2017
-
-Sound & Voice Recorder - ASR Premium v83 [Ru/Multi] - Мультиформатный диктофон
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396351.jpg" />
-</div>
-
-
-###  Подробнее
-
-ASR - это одно из лучших приложений-диктофонов на Play Маркет. Бесплатный и без каких-либо ограничений на время записи!Тип издания: Пиратка (PREMIUM features Unlocked | Drive works)Релиз состоялся: 01.10.2017Разработчик: NLLПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2263B8595B44B0D0F06E410072CF0DE6F3F4670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171828   (393761) от 07.10.2017
-
-Facetune 1.1.4 [RU]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждое фото можно улучшить. Поэтому глянцевые журналы используют дорогие инструменты типа Фотошопа, чтобы селебрити выглядели идеально. Но теперь появился FaceTune! Facetune обладает простыми в работе и мощными инструментами (ранее доступными только профессионалам) ретуширования и улучшения каждого фото или селфи, которые получат качество глянцевых журналов. Теперь (   Читать дальше...   )Релиз состоялся: 28/03/2017Разработчик: LightricksПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA179300017AC9377CE97E1F4E8603F1F924823D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410486   (387042) от 04.09.2022
-
-Прогноз клева v7.32 [Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387042.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прогноз клева» — это программа, которая будет держать Вас в курсе прогноза погоды и оптимальных погодных условий для рыбной ловли.Тип издания: AdFree + ModРелиз состоялся: 17.07.2022Разработчик: ddi.devПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD83C69CC11B6BF5C65108761FC241D12C8234D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928858   (386810) от 07.10.2020
-
-Diabetes:M v8.0.8 Premium [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработанное для телефонов и планшетов это приложение создано для того чтобы помочь диабетикам лучше управлять своим диабетом и держать его под контролем. Пользователи могут регулярно записывать свои показатели в дневник. Приложение отслеживает практически все аспекты лечения диабета, предоставляет подробные отчеты, графики и статистику которые можно отправить лечащему (   Читать дальше...   )Тип издания: Пиратка (открыт Премиум) + ModРелиз состоялся: 06.10.2020Разработчик: Rossen VarbanovПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07C17CADFAF6A1CAE94B418E336D791BDEF010D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1282975   (741998) от 14.02.2019
+
+Проекты - VideoHive - Film Strip Memories - 21495890 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот винтажный шаблон After Effects с анимацией в стиле кинопленки выглядит очень элегантно и стильно. Вы можете улучшить свой проект и произвести впечатление на своих клиентов всего за несколько минут.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4F23854CA29928FF8F80BEAA5DD7410C8200FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021070   (741558) от 28.05.2016
 
 Проекты - VideoHive - Mosaic Photo Animation Pro [AEP]
@@ -6,7 +32,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741558.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740771.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740601.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740596.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740561.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740557.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740518.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740130.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740087.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739954.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739489.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ VideoHive - 3D Frames Photo Gallery - 7085311
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737063.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736557.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ VideoHive - Forgotten Film - 6379408 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735978.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ Pond5 - Moments Of Life - 33909170 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735563.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734599.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732515.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732458.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732393.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731765.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731725.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731601.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730607.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730593.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730439.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ Parallax Media Slideshow - проект, благодаря которому в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4032F1DA6D99DA24819DF8482E4CB16246014A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127357   (729734) от 23.04.2017
-
-Проекты - Motion Array - Light And Shadow - 31534 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Light And Shadow - это темный и стилизованный шаблон After Effects для создания профессионального видео. Перемещение слайдов мультимедиа и минимальная текстовая анимация. Чернила, утечки света, боке, зерно пленки и оптические вспышки создают эпичную кинематографическую атмосферу. Проект содержит 13 заполнителей для фото/видео и 13 редактируемых текстовых слоев. Идеально (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321255CC46A5B6F52718A84ACCF1DBFCD7E4D894
 ```
 
 https://mybot314.ru/tekegram_catalog/

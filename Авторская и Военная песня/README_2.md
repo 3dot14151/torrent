@@ -6,7 +6,7 @@
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411333.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408521.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396576.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387349.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386937.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384675.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Песни нашего века - 9 альбомов (1998-2011) [MP3|320 
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379695.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378040.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357266.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353997.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352820.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_350918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350918.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340214.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337115.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337112.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319596.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319418.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310688.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306459.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304308.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288879.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276943.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268351.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Визбор 85 (К 85-летию Юрия Визбора) (2019) [MP3|320 
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268048.jpg" />
 </div>
 
 
@@ -757,7 +757,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258134.jpg" />
 </div>
 
 
@@ -792,7 +792,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255931.jpg" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 502950   (259096) от 28.05.2012
+
+Yendorian Tales [En] (RePack) 1996 | RG games (Pilotus)
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yendor 2 (сокращенно от Yendorian Tales part 2) - одна из множества РПГшек с дискретным передвижением. Удобный интерфейс, качественно нарисованные и анимированные враги, интересные карты не оставят настоящих РПГшников-любителей старых игр равнодушными. С другой стороны, скучноватый геймплей (как правило приходится зачищать полностью всю карту), не слишком развитый сюжет и игровой мир - безусловно являются минусами Yendor'а.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502948   (259074) от 28.05.2012
+
+Steg the Slug [En] (RePack) 1993 | RG Games (Pilotus)
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259074.jpg" />
+</div>
+
+
+###  Подробнее
+
+По-настоящему необычная аркада в «механистическом» антураже со слизняком в главной роли, очень сложная для прохождения, хотя сначала это не очень заметно.
+Итак, наш герой – слизняк по имени Стег. У него есть дети, которые голодны. Детей надо кормить. Питаются дети личинками. Чтобы поймать ползущих личинок, Стег придумал просто невероятно оригинальный способ: выдувать мыльные пузыри. Личинки будут к ним прилипать, а Стег потом отправляет пузыри с ними по воздуху к голодным детишкам, которые их съедают. В каком-то смысле подобное, пожалуй, гениально.Тип издания: RePackЖанр: АркадаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501552   (258579) от 26.05.2012
 
 Battle Isle 2220: Shadow of the Emperor (RePack) [En] 1995 | RG Games (Pilotus)
@@ -6,7 +59,7 @@ Battle Isle 2220: Shadow of the Emperor (RePack) [En] 1995 | RG Games (Pilotus)
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258579.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Tomb Raider: Legend / Tomb Raider: Легенда [Multi6/+] (RePack/1.2) 2006 |
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258210.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Mortal Kombat Trilogy (1996) [En] (3.42) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257928.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257625.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Quarantine Антология [En] (RePack) 1994-1996 | RG Games (Pilotus)
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257273.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Defcon 5 [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256996.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256641.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ Rally Championship 2000 [Ru] (L) 1999
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255832.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ Space Dude [En] (RePack) 1994 | RG Games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255719.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255620.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ Hard To Be a God / Трудно Быть Богом (2007) [Ru] (1.1) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255154.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ Venetica (2009) [Multi] (1.0.3) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254797.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ ArcaniA (2010) [Multi] (1.0.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254651.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ Smurfs (RePack) [En] 1996 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254055.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253980.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ Warcraft III (2002) [Ru] (1.29.2/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252567.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252222.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251879.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ Kabus 22 / Зона 22 Территория страха [Ru] (P) 2007
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251579.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251549.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ Painkiller / Крещёный кровью (2004) [Ru] (1.64) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250348.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ Shade: Wrath Of Angels / Гнев Ангелов (2004) [Ru/En] (1.2) Repack Vas
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249974.jpg" />
 </div>
 
 
@@ -580,7 +633,7 @@ Death Rally [En] (RePack) 1996
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_249274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249274.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249063.jpg" />
 </div>
 
 
@@ -617,58 +670,6 @@ Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6431622859913977485BF5CB1C63598C14A3156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834326   (249057) от 03.11.2025
-
-Defender of the Crown (1986) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249057.jpg" />
-</div>
-
-
-###  Подробнее
-
-События игры разворачивались в средневековой Англии (противостояние саксов норманнским завоевателям в середине XI века). Для того, чтобы одержать победу, игрок должен был завоевать все норманнские замки, однако союзники-саксы могли в любой момент нанести коварный удар в спину и надолго задержать наступление.Тип издания: LicenseРазработчик: Fantasy Research, Master Designer SoftwareЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C285383C620FA0AC446D0C7FDAE169FC2272C38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493158   (248904) от 08.05.2012
-
-Rival Realms (P) [Ru] 1998
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Казалось бы, это всего лишь очередная стратегия «в стиле WarCraft», но при ближайшем рассмотрении можно убедиться, что перед нами – совершенно особое и самобытное творение. Rival Realms – это малоизвестная фэнтезийная стратегия реального времени, в которой вы можете выбрать одну из трёх рас – Люди, Эльфы или «зеленокожие существа», в которых, само собой, легко узнаются орки.  От большинства «похожих» стратегий её отличает сильный «РПГ-элемент»Тип издания: ПираткаЖанр: СтратегияЯзык озвучки: РусскийЯзык интерфейса: Русский (7 Волк)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BCA4CE2ACFA04AF79A5EF8EE7F9506D127CD98
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Quantic Dream | Артбук по игре Detroit: Become Human / The Art of De
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200177.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ubisoft Massive | Артбук по игре Tom Clancy's The Division / The Art
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200004.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PlayFlock | Артбук по игре Insanity Clicker / The Art of Insanity Cl
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199999.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Paul Richards | Артбук Substrata: Открытый мир тёмного �
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199509.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Capcom | Артбук по игре Dragon's Dogma / Dragon's Dogma: Official De
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199192.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Marvelous AQL | Артбук по игре Soul Sacrifice / Soul Sacrifice: The 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199188.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sega | Артбук по играм Shinobi / Shinobi THE WIDE Illustration Arch
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199147.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Pat Harrigan, Brian Wood | Артбук Мифы о Ктулху Говарда 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198810.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198808.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Camilla d'Errico | Артбук художника Camilla d'Errico / Dappled Da
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198190.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Nickelodeon | Артбук по мультсериалу Легенда о Ко�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198182.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ DC Comics | Артбук художника Lee Bermejo / DC Comics: The Art of 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198178.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197207.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Mark Cotta Vaz, Shinji Hata | Артбук От Звёздных войн до �
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196977.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Andy McVittie | Артбук Создание игры Call of Duty: Modern Warf
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196904.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Respawn Entertainment | Артбук по игре Titanfall / The Art of Titanf
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191313.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Arkane Studios | Артбук по игре Deathloop / The Art of Deathloop (20
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191305.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Ubisoft Massive | Артбук по играм Tom Clancy's The Division / The W
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191291.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Rare Ltd | Артбук по игре Battletoads / The Art of Battletoads (2022
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191056.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Chris Warner | Артбук по комиксам Чужой и Хищник / A
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191013.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Richard Kadrey | Артбук по играм Myst и Riven / From Myst to Riven
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190287.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Iain McCaig, Nick Sagan | Артбук художника Iain McCaig / Shadowli
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190204.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190169.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190162.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Nintendo | Артбук по игре Splatoon / The Art of Splatoon (2017) [CBR
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189403.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Jorge Gutierrez | Артбук по мультсериалу Майя и три 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189325.jpg" />
 </div>
 
 

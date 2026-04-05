@@ -1,3 +1,55 @@
+###  Публикация: 1291453   (670015) от 24.03.2019
+
+Total War: Medieval II / Total War: Medieval 2 (2018) [Ru/Multi] (1.52) SteamRip R.G. Origins [Definitive Edition]
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возглавьте свою армию и завоюйте мир в Total War: MEDIEVAL II, четвертой игре знаменитой серии стратегических игр Total War. Ведите масштабные 3D-битвы с участием до 10 000 кровожадных бойцов на эпических полях сражений, будучи правителем величайших средневековых государств Западной Европы и Ближнего Востока.Тип издания: SteamRipРазработчик: The Creative AssemblyЖанр: Strategy (Real-time, Turn-based), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4C4F602A384C9A8D262D8CC74F4A98CB093DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137120   (668706) от 25.05.2017
+
+Lost Sea (2016) [Ru/Multi] (1.0.3L) License GOG
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жуткий шторм в Атлантике забросил вас на берега таинственного острова. Сумеете ли вы совершить побег из Потерянного Моря? Lost Sea – это экшн-приключение, действие которого происходит посреди Бермудского треугольника. Соберите команду выживших, которые помогут вам выжить посреди архипелага смертельно опасных островов и собрать набор артефактов, необходимых для побега.Тип издания: LicenseРазработчик: Eastasiasoft Ltd.Жанр: Экшн, Приключение, ВыживаниеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7404B2CA38E1616F1A741409A990639BB085C466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291545   (668513) от 25.03.2019
 
 War Wind (1996) [En/Fr/Ge] (1.2) License GOG
@@ -6,7 +58,7 @@ War Wind (1996) [En/Fr/Ge] (1.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668513.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Age of Wonders III / Age of Wonders 3 (2014) [Ru/Multi] (1.801) Repack xatab [De
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666938.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ S.W.I.N.E. / С.В.И.Н. [Ru] (L) 2002
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664461.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Quarantine (2017) [Ru/Multi] (1.0.24.17) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663951.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Stronghold 3 + 6 DLC [Ru] (RePack/1.10.27781) 2011 l Fenixx
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660921.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The X-Com Files (1994-2016) [Ru/En] (0.6.2) Repack/Mod edcarnby
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655497.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.82.5006) RePack Audioslave
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651496.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ StarCraft 2: Wings of Liberty - 7x Collection [Multi11\+] (L) 2010 {Crack + LAN 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_650711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_650711.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Total War: Napoleon (2018) [Ru/En] (1.3.0) Repack xatab [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650007.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Total War: Empire (2018) [Ru/En] (1.5.0) Repack xatab [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650003.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Warcraft: Orcs and Humans (1994) [En] (1.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646346.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Merchant Prince 2 / Венецианский купец 2 (2001) [Ru] (1.1) Lice
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644387.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Age of Wonders III / Age of Wonders 3 (2014) [Ru/Multi] (1.800) SteamRip Let'sPl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642260.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Warparty (2019) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640626.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635077.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Distant Worlds [En] (RePack/1.0.2) 2010 | R.G. R3PacK
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634518.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Napoleon: Total War Imperial Edition + 7 DLC [Ru/En] (Steam-Rip/1.3) 2010 | R.G.
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_630347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630347.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ Legends of Pegasus (2012) [Ru/En] (1.0.0.4354) RePack R.G. Revenants
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629420.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.94/dlc) Repack R.G. Меха
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629347.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Endless Space 2 (2017) [Ru/Multi] (1.4.2 S5/dlc) Repack R.G. Механики [D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629327.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ Ashes of the Singularity (2016) [En/De] (1.24.20813/dlc) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628026.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ Planar Conquest (2016) [En/Multi] (1.3.1a) License RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625898.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Total War: ATTILA (2015) [Ru/Multi] (1.2.1.0) License CPY
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621269.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Weedcraft (2019) [Ru/Multi] (1.02) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620078.jpg" />
 </div>
 
 
@@ -623,59 +675,6 @@ Weedcraft Inc изучает индустрию производства, выр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C13B9D00588CE2BA774A8F5024313C579478D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684365   (619414) от 28.07.2013
-
-Citadels (2013) [Ru/Multi] License FAIRLIGHT
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Citadels – историческая стратегия в реальном времени, события которой разворачиваются в средневековом мире, наполненном легендами и мифами. В игре представлено две кампании, одна из которых предложит игрокам сразиться на стороне короля Артура и его верных Рыцарей Круглого Стола, а вторая – встать на сторону Морганы и Мордреда.
-В Citadels игрокам необходимо будет возводить и оборонять крепости, управлять экономикой государства, поддерживать поступление ресурсов, набирать войска и сооружать различные ловушки. На исход каждой битвы будут влиять правильный баланс между развитием экономики и ведением боя.(   Читать дальше...   )Тип издания: ЛицензияРазработчик: bitComposer GamesЖанр: Strategy (Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Испанский, ИтальянскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99EEE6E9BCD7F261A988780CE0CEDE08C344FB17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292453   (618252) от 13.04.2019
-
-Warcraft II (1999) [Multi] (2.02v4) License GOG [Battle.net Edition]
-
->>След.
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернитесь в эпоху хаоса и обрушьте на соперников, играющих за людей или орков все свои навыки, приобретенные в жестоких баталиях Warcraft: Orcs and Humans. Проявите свое мастерство в самых эпических сражениях Warcraft II в истории. Чемпионы, желающие испытать игру в ее подлинном облике, могут насладиться ей в том виде, в котором она появилась в 1999 году. В игре (   Читать дальше...   )Тип издания: LicenseРазработчик: Blizzard Entertainment, Inc.Жанр: Стратегия, В реальном времени, ФэнтезиЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5749B6FA5437D3C97C97546F377D9A82A6DD579
 ```
 
 https://mybot314.ru/tekegram_catalog/

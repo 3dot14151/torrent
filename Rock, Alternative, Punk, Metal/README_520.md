@@ -1,3 +1,119 @@
+###  Публикация: 1556445   (559727) от 09.06.2022
+
+Nekonomicon - Nekonomicon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nintendocore, Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559727.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Those Creatures from Ganon are Pretty Bad
+2. Ghost Maze Project
+3. Dismantled
+4. One-Winged Angel of Death(   Читать дальше...   )Жанр: Nintendocore, Metalcore, ElectronicПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D843C9E786ED60363B4107F8F4321E0FA0EC57DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556364   (559722) от 09.06.2022
+
+Ronni Le Tekro - Bigfoot TV (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life On Long Island (05:08)
+02. Demons (04:35)
+03. Moving Like a Cat (04:14)
+04. The Black Rose (04:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A558E22C60BB100A9E3B0FE129AB8AC31087171E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153274   (559698) от 26.07.2017
+
+VA - Rock 'N' Roll Britannia (2016) Box Set, 3CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полезно в жизни возвращаться к истокам. Не замутненные последующими наслоениями они (истоки) позволяют взглянуть на обыденные вещи совершенно с другой стороны. И это новое зрение влечет за собой иные не менее разумеющиеся открытия. И приходит понимание, что вся сущая музыка в этом мире имеет в себе отблеск тех далеких 50-60-х, которые собственно и сформировали сегодняшнюю (   Читать дальше...   )CD1:
+01. Cliff Richard - Twenty Flight Rock  (1:47)
+02. Marty Wilde - Sea Of Love  (2:26)
+03. Adam Faith - High School Confidential  (2:23)(   Читать дальше...   )Тип издания: Box Set, 3CDРелиз состоялся: 5 Aug. 2016Жанр: RockПродолжительность: 02:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D84A9A8FAB8173F1FDDA3E036CE00535052C39D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045347   (559694) от 23.08.2016
+
+Hellbringer - Awakened From The Abyss (2016) [MP3|320 Kbps] <Thrash Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall Of The Cross
+02. Coven Of Darkness
+03. Realm Of The Heretic
+04. Iron Gates(   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B913D66A84393DBF8F9EDFA9D02C3C3FCF55FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045344   (559691) от 23.08.2016
 
 DGM - The Passage (2016) Japanese Edition  [MP3|320 Kbps] <Progressive Metal, Power Metal>
@@ -6,7 +122,7 @@ DGM - The Passage (2016) Japanese Edition  [MP3|320 Kbps] <Progressive Metal, Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559691.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Detroit With Mitch Ryder - Detroit (1971) Reissue, 1987, MCA Records [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559686.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559652.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559648.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559642.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The 69 Eyes - Wrap Your Troubles in Dreams (1997) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559590.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ W.A.S.P. - 22 albums, 20 singles, 83 CD (1984-2018) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559499.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559497.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Sting - The Soul Cages (1991) [FLAC|Lossless|image + .cue] <Blues Rock, Jazz-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559441.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ Queen - A Night At The Opera (1975) Remaster, 1993, Parlophone [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559321.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ Alice Cooper - Paranormal (2017) Deluxe Edition [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559307.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ Wings of Destiny - Time (2015) [MP3|320 кб/с]<Melodic Progressive, Heavy, Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559169.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ Stratovarius - Collector's Package (2015) 3 CD [FLAC|image+.cue]<Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559065.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ Xandria - Fire & Ashes (2015) EP [FLAC|image+.cue]<Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559059.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Xandria - Fire & Ashes (2015) EP [MP3|320 кб/с]<Symphonic Metal, Power Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558952.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ Joe Satriani - Shockwave Supernova (2015) [FLAC|image +.cue]<Instrumental Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558867.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ Masfel - Katasztrofamamor (1998) [FLAC|Lossless|image + .cue] <Experimental rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558756.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Masfel - En garde! (2005) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558754.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Omen - Agymosas (2006) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558751.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Marthyrium - Beyond the Thresholds (2017) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558750.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Angelus Apatrida - Cabaret de la guillotine (2018) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558749.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Gruesome - Twisted Prayers (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558747.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ Gruesome - Twisted Prayers (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04A0719224BE1A359B55C350F42F5E7E351FBB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235480   (558746) от 12.07.2018
-
-Stryper - God Damn Evil (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Take It To The Cross 4:56
-Sorry 3:56
-Lost 3:44
-God Damn Evil 4:06(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D4EC40216EADCB0651622DFB16736555AE6F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235483   (558680) от 12.07.2018
-
-Temperance - Of Jupiter and Moons (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Hope in a World of Hopes
-02. Broken Promises
-03. Of Jupiter and Moons
-04. Everything That I Am(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFA91A957E3C449F1C0B33DE659A6C1E206B41C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235591   (558668) от 12.07.2018
-
-Chelsea Grin - Eternal Nightmare (2018) [MP3|320 Kbps] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Rose
-02. The Wolf
-03. Across the Earth
-04. See You Soon(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DEF6D5DA29340733CED87ABCBFE6DAFF58269E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235573   (558664) от 12.07.2018
-
-Barb Wire Dolls - Rub My Mind (2017) Silver Lining Music, Motörhead Music [MP3|320 Kbps] <Punk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In The U.S.S.A. 2:27
-02. If I Fall 3:57
-03. Desert Song 4:43
-04. Hole Of Isolation 2:23(   Читать дальше...   )Жанр: Punk, RockПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280BB255EF4C8EBBE32873B3D68F0408366F3C7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

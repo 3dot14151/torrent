@@ -1,134 +1,3 @@
-###  Публикация: 973910   (978947) от 09.01.2016
-
-Виктор Крупнов | Современный деловой английский в диалогах + словарь (2013) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник содержит 25 бизнес-диалогов для развития навыков устного общения деловых людей, а также образцы коммерческой документации (деловых писем) для грамотного ведения деловой переписки. Сборник заканчивается русско-английским словарем "Язык делового общения", содержащим большое количество терминов, фраз, словосочетаний, необходимых для ведения (   Читать дальше...   )Жанр: Английский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9257E41EF91491BFF2281D07644CF1ED3388E1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356307   (978722) от 30.01.2020
-
-Алексей Маслов | Загадки, тайны и коды "Дао дэ цзина" (2005) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978722.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дао дэ цзин», приписываемый Лао-цзы, – один из самых знаменитых и по-прежнему самых загадочных текстов VI–V вв. до н. э., принадлежащий одной из наиболее закрытых школ китайской традиции, которая и дала начало даосизму. Если это тайный текст, то почему он был записан? Если это текст не тайный, общедоступный, то почему же он столь высоко ценился всей китайской мистической (   Читать дальше...   )Жанр: Философия, РелигияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31A1177B276D4C115DECD4177C02D5D4F28FF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356331   (978714) от 30.01.2020
-
-И.Н. Огородников | Микропроцессорная техника: введение в Cortex-M3 (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие нацелено на формирование у студентов практических навыков разработки и программирования микропроцессорных устройств автоматики физических установок, приборов радиационной безопасности человека и окружающей среды, а также различных приборов биофизического и медицинского назначения.
-Рассмотрены практические вопросы программирования микропроцессорных (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0357E0EFF54109F4A55126EB52644B6BACA3E141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973584   (978669) от 09.01.2016
-
-Габриэль Билич | Анатомия человека. Большой популярный атлас (2015) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выбирая домашний анатомический атлас, легко растеряться. Научные книги пугают терминами, латынью и мелкими рисунками с бесконечными подписями. Популярные, наоборот, грешат неточностями и поверхностной подачей материала. Вы держите в руках большой и практичный атлас, сочетающий лучшие черты популярного и научного издания: крупные иллюстрации с емкими, но точными пояснениями, (   Читать дальше...   )Жанр: Анатомия и физиология человекаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C439E45FD86F203430E7845B3AB683239240115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356285   (978607) от 30.01.2020
-
-Валерия Черепенчук (сост.) | 1000 шедевров мирового искусства (2019) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под обложкой этого издания вы найдете не только творения Леонардо да Винчи и Винсента Ван Гога. К шедеврам мы причисляем и простые на первый взгляд картины реалистов, имевших смелость заявить, что простые крестьяне и тяжелый физический труд вполне достойны кисти художника; и отдельные произведения представителей поп-арта, которые в ХХ веке спровоцировали очередной (   Читать дальше...   )Жанр: История , Культурология, ИскусствоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F8C8CD56D98A6A0CAA3E040E3DE85482C39BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 413831   (978582) от 07.02.2013
 
 Б.А. Тыркин | Монтаж холодильных установок [1986] [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978582.jpg" />
 </div>
 
 
@@ -165,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978551.jpg" />
 </div>
 
 
@@ -192,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978516.jpg" />
 </div>
 
 
@@ -219,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978215.jpg" />
 </div>
 
 
@@ -245,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978213.jpg" />
 </div>
 
 
@@ -272,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978210.jpg" />
 </div>
 
 
@@ -298,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978182.jpg" />
 </div>
 
 
@@ -326,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978169.jpg" />
 </div>
 
 
@@ -353,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978167.jpg" />
 </div>
 
 
@@ -379,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978155.jpg" />
 </div>
 
 
@@ -407,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978148.jpg" />
 </div>
 
 
@@ -433,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978118.jpg" />
 </div>
 
 
@@ -460,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978065.jpg" />
 </div>
 
 
@@ -486,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977986.jpg" />
 </div>
 
 
@@ -512,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977846.jpg" />
 </div>
 
 
@@ -538,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977746.jpg" />
 </div>
 
 
@@ -564,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977745.jpg" />
 </div>
 
 
@@ -590,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977738.jpg" />
 </div>
 
 
@@ -617,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977641.jpg" />
 </div>
 
 
@@ -643,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977637.jpg" />
 </div>
 
 
@@ -669,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977461.jpg" />
 </div>
 
 
@@ -680,6 +549,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42614ADE54AB452500DE144451B57A1BA2732601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613493   (977301) от 08.02.2013
+
+Александр Муа | Цикл "Таинственные существа. Криптиды" [2012-2013] [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таинственные существа. Криптиды - увлекательный цикл произведений Александра Муа - французского писателя, режиссёра и журналиста.
+Криптиды – это животные, существование которых не доказано наукой. Снежный человек, Лохнесское чудовище, кракен...
+Герои книг Александра Муа точно знают о существовании по крайней мере нескольких криптидов, они уверены, что именно по их вине происходят необъяснимые катастрофы. Но власти пытаются скрыть правду и уничтожить криптидов...
+Скоро должен выйти фильм по первой книге цикла.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD11CBE8309643974E3F81539D717DFA1D69A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974054   (976978) от 11.01.2016
+
+Генри Хоум | Основания критики (1977) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трактат Хоума — характерное произведение английской сенсуалистско-просветительской мысли XVIII века. В решении эстетических проблем Хоум обнаруживает близость к традиции, нашедшей наиболее яркое выражение в трудах Шефтсбери, Хатчесона и Юма. Однако широкое привлечение фактов искусства и их конкретный анализ составляют преимущество этого трактата.Жанр: Философия, эстетика в ВеликобританииПеревод: З. Е. АлександроваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC530133A3DC57FB540D02525DE5275CB673A25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974064   (976975) от 11.01.2016
+
+К. В. Ф. Зольгер | Эрвин. Четыре диалога о прекрасном и об искусстве (1978) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трактат немецкого эстетика К.-В.-Ф. Зольгера «Эрвин» публикуется на русском языке впервые. Это сочинение, написанное в традициях платоновского диалога, носит характер напряженной философской дискуссии о природе красоты. В споре о прекрасном, возвышенном, комическом, трагическом, в обосновании системы классификации искусств, в характеристике древнего и нового искусства (   Читать дальше...   )Жанр: ФилософияПеревод: Н. М. БерновскаяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF95DDE1EE4862CBECACFAC4EC04AC54AF6B498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974308   (976972) от 11.01.2016
+
+А. И. Герцен | Эстетика, критика, проблемы культуры (1987) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник состоит в основном из произведений, посвященных проблемам культуры и общественной борьбы, внутри которых и приобретают законное место высказывания Герцена об искусстве, литературе и общих вопросах эстетики. Философско-эстетическое наследие А. И. Герцена, проблемы, им поставленные (взаимодействие культур — русской и европейской, искусства, как органической (   Читать дальше...   )Жанр: История, философия, эстетика, культурология, литературоведениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14186A6AACC4C9FA35421A4EF39A365C73ADF793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974085   (976971) от 11.01.2016
+
+Жан-Поль Рихтер | Приготовительная школа эстетики (1981) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание является первым полным переводом на русский язык известного эстетического произведения немецкого писателя конца XVIII—начала XIX в. Жан-Поля. Наиболее ценные и яркие страницы книги посвящены проблемам комического, юмора, иронии. Изложение Жан-Поля, далекое от абстрактности теоретических трактатов, использует блестящую и крайне своеобразную литературную технику, (   Читать дальше...   )Жанр: Философия, эстетикаПеревод: А. В. МихайловФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410AE98FA8A6E82F2E890FA6C51AEE390F01D684
 ```
 
 https://mybot314.ru/tekegram_catalog/

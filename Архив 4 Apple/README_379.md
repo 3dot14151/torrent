@@ -6,7 +6,7 @@ Xojo IDE RAD 17.2.0.37811 (2017r2) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439198.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ DaisyDisk 4.6.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439175.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Alien Skin Exposure X4 Bundle 4.0.1.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439170.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ AppDelete 4.3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438968.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ PullTube 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438643.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ SyncTime 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438631.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ PhoneRescue for iOS 4.0.0.20200919 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438548.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Affinity Publisher Beta 1.9.0.742 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438516.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ AnyTrans for iOS 8.8.0.20200918 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438514.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Transmit 5.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438509.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Chain Timer 9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438476.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Screegle - Clean Screen Sharing 2.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438473.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ NetShred X 5.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438470.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VideoDuke 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438469.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Chronicle Pro 14.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438468.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Music Tag Editor Pro 7.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438466.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438463.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Affinity Photo Beta 1.9.0.196 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438426.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ My Metronome 1.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438377.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ KCNcrew Pack 08-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438374.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Millumin 4 v 4.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438372.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ NCH ClickCharts Diagram Pro 6.83 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438370.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ PDF Reader Pro Edition 2.8.15.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438366.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ PullTube 1.8.4.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438365.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438363.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Gemini 2: The Duplicate Finder 2.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438344.jpg" />
 </div>
 
 

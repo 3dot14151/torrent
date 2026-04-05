@@ -1,81 +1,3 @@
-###  Публикация: 1840734   (1047479) от 06.12.2025
-
-В.Н. Демин | Основной принцип материализма (1983) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047479.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге кандидата философских наук В. Н. Демина анализируется фундаментальное положение диалектико-материалистической философии - принцип материальности мира. В ней показывается, что этот основной принцип материализма позволяет не только выявлять объективные закономерности, присущие природе и социальной действительности, но и определять научную достоверность теоретических (   Читать дальше...   )Жанр: История, науковедение, философияИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF715E48B32458DE06779CC9BBBD62B08925FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840737   (1047478) от 06.12.2025
-
-Л.А. Куликов | Понятие детерминизма в марксистско-ленинской философии (1973) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047478.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии раскрывается содержание детерминизма, его виды и различные формы проявления в природе и обществе, показывается место детерминизма среди категорий материалистической диалектики и его значение для познания и практической деятельности, подвергаются критике современные буржуазные концепции индетерминизма и вытекающие из них фаталистическое и волюнтаристское (   Читать дальше...   )Жанр: История, науковедение, философияИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C074E4B6579D332EB7FC1778229267A20A209B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840741   (1047475) от 06.12.2025
-
-Л.А. Лавинская, М.М. Сидоров (сост.) | Хрестоматия по диалектическому и историческому материализму (1976) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой сборник отрывков из произведений классиков марксизма-ленинизма. Она содержит наиболее важные высказывания К. Маркса, Ф. Энгельса, В. И. Ленина по вопросам диалектического и исторического материализма. Сборник составлен в соответствии с программой по марксистско-ленинской философии для школ основ марксизма-ленинизма и предназначен для занимающихся (   Читать дальше...   )Жанр: История, науковедение, философия, социология, экономика, политология, логика, правоведение, искусствоИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F36E0F39575C1AEFDA6280D2AE350CB9EB216A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840477   (1047422) от 05.12.2025
 
 Шарль Барг, Жан-Леон Жером | Курс рисования. Основы учебного академического рисунка (2020) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047422.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047174.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1046792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1046792.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046591.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046590.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046557.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046551.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044232.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044151.jpg" />
 </div>
 
 
@@ -320,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044126.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044003.jpg" />
 </div>
 
 
@@ -377,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042554.jpg" />
 </div>
 
 
@@ -405,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042550.jpg" />
 </div>
 
 
@@ -431,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041973.jpg" />
 </div>
 
 
@@ -458,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041954.jpg" />
 </div>
 
 
@@ -486,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041949.jpg" />
 </div>
 
 
@@ -513,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041736.jpg" />
 </div>
 
 
@@ -539,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041702.jpg" />
 </div>
 
 
@@ -565,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041440.jpg" />
 </div>
 
 
@@ -593,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040621.jpg" />
 </div>
 
 
@@ -619,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039909.jpg" />
 </div>
 
 
@@ -645,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039266.jpg" />
 </div>
 
 
@@ -671,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038304.jpg" />
 </div>
 
 
@@ -682,6 +604,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48DBFDA160ACD8BA7185EFBEA3B48E6B8DCD4E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440967   (1037996) от 20.01.2021
+
+Бобби Чиу | Идеальная наживка / The Perfect Bait (2011) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда я еще учился в художественной школе, мне впервые пришла идея написать книгу. Книгу о том, как стать успешным художником с точки зрения того, кто ещё не добился успеха.
+В течение следующих десяти лет я записывал всё, что делал для своей карьеры, чтобы однажды, если всё же добьюсь успеха, суметь рассказать об этом шаг за шагом. За это время мне очень повезло (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD13608DE23E3A407009C9F0CE2971051ED0EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440961   (1037940) от 20.01.2021
+
+Брюс Блиц | Как рисовать Блиц-шаржи / How to Draw Blitz Cartoons (1991) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037940.jpg" />
+</div>
+
+
+###  Подробнее
+
+А вы когда-нибудь ловили себя на создании произведений искусства на полях вашего блокнота? А как насчет вашей телефонной книги или списка покупок? Они тоже покрыты рисунками? Ну что ж, если вы один из тех людей, которые не могут перестать рисовать каракули, вы не одиноки… И у меня для вас хорошие новости! Эта книга поможет вам превратить эти рисунки в завершенные (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C319ACA0AB8D65F04FA93AF14B4E6CDCA672BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439737   (1037907) от 20.01.2021
+
+Коос Эйссен, Розелиен Стюр | Скетчинг: Основы / Sketching: The Basics (2011) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга а адресована начинающему дизайнеру и проводит читателя за руку, направляя его шаг за шагом, через все аспекты скетчинга (эскизирования) в промышленном дизайне.
+Основы включают в себя изучение методики подробного и всестороннего изображения предмета дизайна от истоков, следуя шаг за шагом по иллюстрациям, примерам и стратегиям. Вы научитесь использовать (   Читать дальше...   )Жанр: СкетчингФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4959E33867339C324A48A17C4700F3A9258D1934
 ```
 
 https://mybot314.ru/tekegram_catalog/

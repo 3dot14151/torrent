@@ -6,7 +6,7 @@ Stan Kenton - New Concepts of Artistry in Rhythm (1952) 1989, Capitol [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601225.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ John Hicks, Cecil McBee, Elvin Jones - Power Trio (1991) BMG Music [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601220.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Billy Cobham - Flight Time (1980) 2006, Inak [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601168.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Cindy Blackman - Arcane (1988) Muse Records [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600855.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lionel Hampton - Jazz Time Paris vol.4, 5 & 6 (1953) Remaster, 2017, Sony Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600375.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Songs For A Lazy Sunday (2001) 2CD, Rajon Music Group [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600370.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rigmor Gustafsson - When You Make Me Smile (2014) [FLAC|tracks+.cue]<Jazz, Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600358.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Illinois Jacquet - The Illinois Jacquet Story: Jumpin' Jacquet (1944 - 1951) 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600167.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ V.S.O.P. The Quintet - Five Stars (1979) 2004, Wounded Bird Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600161.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Gene Harris Quartet - It's The Real Soul (1996) Concord Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600149.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Bad Plus - Give (2004) Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599804.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Chet Baker & Philip Catherine - There'll Never Be Another You (1985) Remaster, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599695.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Donald Byrd & Doug Watkins - The Transition Sessions (1955, 1956) 2CD, 2002, Cap
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598637.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bria Skonberg - So Is The Day {ECD} (2012) Random Act Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598633.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Art Blakey & Les Jazz-Messengers - Au Club Saint-Germain Vol. 3 (1959) /2014, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598575.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Gigi Gryce Orch-Tette - Reminiscin' (1960) /2013, Universal/[FLAC|tracks+.cue]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598571.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Art Blakey & Les Jazz-Messengers - Au Club Saint-Germain Vol. 2 (1959) /2014, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598570.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Blue Chamber Quartet - Children's Songs (composed by Chick Corea) (2009) [FLAC|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598566.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ James Brown - The CD Of JB: Sex Machine & Other Soul Classics (1985) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598535.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ David Ian - Valentine's Day (2014) Prescott Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598417.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tamir Hendelman - Destinations (2010) Resonance Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598416.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ V.A. - The Very Best Of Smooth Jazz (2002) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_597302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597302.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Various Artists - Blue Note Trip Vol. 10: Late Nights / Early Mornings 2CD (2012
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_596972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_596972.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ VA - Coffee Time Jazz (2007) [FLAC|Lossless]<Jazz, Bossa Nova, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_596946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_596946.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Edmond Hall - Four Classic Albums Plus (1954 - 1959) 2CD, 2010, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596648.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Torque - Forward (2011) Neuklang [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596627.jpg" />
 </div>
 
 

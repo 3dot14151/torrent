@@ -1,32 +1,3 @@
-###  Публикация: 1399970   (719150) от 05.08.2020
-
-ST1M x Black Bros. - King Is Back 3 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крушим [04:05]
-02. Не святой [04:13]
-03. Улица сезам [03:39]
-04. Сиять [04:22](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE6DEE1C797489180230F921A426511DFE7756C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401009   (713333) от 08.08.2020
 
 Trueтень & Алексей Сулима - Калейдоскоп (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -35,7 +6,7 @@ Trueтень & Алексей Сулима - Калейдоскоп (2020) [MP3|
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713333.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704312.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Horus - Прометей роняет факел (2018) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702334.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ POR.NORAP - Бронетрусы (2019) [MP3|320 Kbps] <Comedy Rap, Electronic>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701705.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698494.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690774.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688145.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684402.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684400.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Jah Khalib - Баха и Дмитрий Карантино (2020) [MP3|320 Kbps]
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684270.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684172.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Rap Прорыв - Выпуски 1-8 (2000-2006) [MP3|320 kbps]<Рэп, Хип-
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682958.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ L'One - Пангея (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680226.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676317.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664019.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Fike & Jambazi - Где-то (2013) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664002.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664000.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ SLIMUS - Место под луной (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661824.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ SLIMUS - Место под солнцем (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661818.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661781.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661732.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Jah Khalib - E.G.O. (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661717.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659751.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659619.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652408.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FEB440B1D0D6B1588FD7D4411C0D068AE94AF17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141195   (652127) от 09.06.2017
+
+Noize MC - Чайлдфри (2017) Single [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652127.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Чайлдфри
+2. Чайлдфри (версия Монеточки)
+3. Марафон
+4. Чайлдфри (инструментал)(   Читать дальше...   )Жанр: Rap, Hip-Hop, RockПродолжительность: 00:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5277D059BDEAE0E66F1B28B5645D79CAA3B9800F
 ```
 
 https://mybot314.ru/tekegram_catalog/

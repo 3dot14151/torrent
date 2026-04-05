@@ -1,3 +1,55 @@
+###  Публикация: 1559437   (213080) от 25.06.2022
+
+Городские легенды. Возвращение / Seoul goedam / Seoulgoedam / Urban Myths (2022) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько страшных историй, которые происходят с жителями Сеула. Истории и городские легенды окружают нас повсюду, будь то шум между этажами, странная поддержанная мебель или жуткие манекены.Производство: Южная Корея, Megabox Plus M, ZanybrosЖанр: Ужасы, фэнтезиРежиссер: Хон Вон ЧханАктеры: Ким До Юн, Чон Вон Чхан, Ли Хо Вон, Бон Джэ Хён, Со Джи Су, Чжу Хак Нён, Ли Су Мин, Ли Ёль Ым, Ли Ён Джин, Алекса, Чхве Йе Вон, Ли Мин Хёк, Сола, Экси, ШонуПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские (forced, full)Продолжительность: 02:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60018F2C9E5679ABB634F8813A7AE227F1DF7B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560973   (212903) от 02.07.2022
+
+Криминальный город / Beomjoi dosi / Beomjoidosi / The Outlaws (2017) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212903.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2004 году в китайском квартале Сеула, печально известном высоким уровнем преступности, объявляются три особо борзых мигранта-коллектора и вместо того? чтобы по старинке изымать деньги у должников, сразу убивают главу одной из преступных группировок. Свято место пусто не бывает, и вот уже предводитель троицы Цзян Чэнь руководит этой бандой и пытается отжать бизнес (   Читать дальше...   )Производство: Южная Корея, BA Entertainment, Hong FilmЖанр: боевик, криминал, триллерРежиссер: Юн Сон КанАктеры: Ма Дон-сок, Юн Ге-сан, Чо Джэ-юн, Чхве Гви-хва, Хён Чжун Им, Чин Сон-гю, Хон Ги-джун, Хо Дон-вон, Сон Ха-джун, Ким Сон-гюПеревод: дублированный (Lucky Production), любительский многоголосый (Batafurai team & SOUND-GROUP & Anidub), любительский двухголосый (GrееnPаy Studio; den904 & DeadSno  Перевод Сергей Константинов), авторский (Юрий Сербин)Продолжительность: 02:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B5AE2276B21E98F775900FD37EC65BFED97FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563729   (212473) от 16.07.2022
 
 Заклинание / Zhou (Incantation) (2022) WEB-DLRip [MVO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212473.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212243.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211601.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211165.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210954.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210785.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210694.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210582.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210561.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210471.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210140.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209740.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209602.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209523.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209025.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208544.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208209.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208004.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207771.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207560.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207304.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207204.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206805.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206700.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:030F9B40802D999C59A755205EB252F0A835B6D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652337   (206574) от 11.08.2023
-
-В погоне за драконами: Дикая банда / Chui lung 2 / Chasing The Dragon II: Wild Wild Bunch (2019) BDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всякая эпоха рождает своих героев, а в девяностые в Гонконге таких героев было целых два — взрывотехник Хэ Тянь и безбашенный главарь шайки похитителей по кличке Старшой. Накануне возвращения Гонконга в лоно КНР, силы национальной безопасности решают разобраться с бандитским беспределом царящим в бывшей британской колонии, и за Старшим начинается настоящая охота, (   Читать дальше...   )Производство: Гонконг, Китай / Bona Film Group, Sil-Metropol OrganizationЖанр: криминал, драма, боевикРежиссер: Джейсон Кван, Вон ЦзинАктеры: Тони Люн Ка-Фай, Луис Ку, Гордон Лам, Сабрина Цю, Е Сянмин, Саймон Ям, Ду Цзян, Конни Ман, Вай Ка-Хун, Ван ЛукяньПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FED4E4C79E47698D6362DB8135F46BDFBCFAC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652960   (206305) от 14.08.2023
-
-Бродячие псы 2 / Yamikin dogguzu 2 / Stray Dogz 2 (2016) WEB-DLRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тадаоми работает ростовщиком. Он нанимает Тукасу работать на него. Однажды должник Тадаоми, Окабаяси, просит взаймы еще два миллиона иен. Тадаоми доверяет Окабаяси, который искренне заплатил, но Окабаяши внезапно исчезает.Производство: Япония / AMG Entertainment, JVC Kenwood Victor EntertainmentЖанр: триллерРежиссер: Тэцухико ЦутияАктеры: Цунэнори Аоки, Эрина Химэно, Юко Ито, Баикэн Дзюккандзи, Рино Конно, Даисукэ Курода, Кадзуки Намиока, Аюми Танида, Юки ЯмадаПеревод: Авторский (Александр Смирнов)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A86B17581CE5337495231F00276240CAB2E229
 ```
 
 https://mybot314.ru/tekegram_catalog/

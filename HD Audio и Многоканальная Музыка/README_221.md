@@ -1,32 +1,3 @@
-###  Публикация: 1736388   (50249) от 12.07.2024
-
-Eminem - The Death of Slim Shady (Coup De Grâce) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Renaissance [1:39]
-02 - Habits [4:59]
-03 - Trouble [0:42]
-04 - Brand New Dance [3:27](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A55D24E1672F38DAF1511C7A53F08EAB3B86C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736416   (50223) от 12.07.2024
 
 Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental, Symphonic Metal, Cello Metal>
@@ -35,7 +6,7 @@ Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50223.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - В стиле Шансон от Arhangel Music (2024) [FLAC 2.0|44.1/16|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50117.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Jack Magnet Science, Peter Erskine - Future Forecast (2024) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49718.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Love Music Zone, Smooth Jazz Music Ensemble - Charming Nights: Sensual Collectio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49631.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Babbba - Cabaret III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49616.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Sexual Music Collection, Romantic Piano Ambient - Forbidden Jazz for Night Pleas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49614.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Babbba - Extended Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49612.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Babbba - Groovy Things (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49610.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Land Of Talk - Applause Cheer Boo Hiss (3CD) (2007) The Definitive Edition, 2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49606.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Al Di Meola - Twentyfour (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49603.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49545.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Deep Purple - =1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49514.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Deep Purple - Studio Albums (13 releases) (1984-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49139.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Beth Hart - You Still Got Me (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48975.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Kiss - Studio Albums (5 releases) (1992-2013) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48971.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Imagine Dragons - Studio Albums (6 releases) (2012-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48884.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Powerwolf - Studio Albums (11 releases) (2005-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48685.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48429.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Powerwolf - Wake Up The Wicked (Deluxe Version) (2024) [FLAC 24/48,24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48380.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Isomen - 16 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48275.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ Iced Earth - Studio Albums (16 releases) (1990-2017) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48267.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Armin Van Buuren - Live at Tomorrowland 2024 (Mainstage) [Highlights] (2024) Liv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48168.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Army Of Lovers - Remixodus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48163.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Armin Van Buuren - A State of Trance Radio Top 50 - 2024, Vol. 2 (2024) [FLAC 16
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48161.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ VA - Остров Сокровищ. По Другому! от Arhangel Music (20
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47898.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ VA - Остров Сокровищ. По Другому! от Arhangel Music (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8150643928E958009D3B75148F29D9509AA504D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741246   (47745) от 05.08.2024
+
+Yes - The Yes Album (1971) Reissue, Remastered, 2024, Analogue Productions  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Yours Is No Disgrace 9:36
+Written-By - Yes
+02 - The Clap 3:07
+Written-By - Howe(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71F7A1C5617CC96CDFB12F840F282907C8AE2E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

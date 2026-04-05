@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063055.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NG: Драконы наяву / Dragons Uncovered (2024) HDTV [H.264/1080p] [VO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062759.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NG. Озеро Танганьика. Голубое сердце Африки / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062196.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG. Фашистский лагерь смерти. Большой побег / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061956.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060814.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060089.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060081.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059411.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059241.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BBC: История Вселенной / Our Universe (2022) WEB-DLRip [AV1/2160
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058903.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG. Намибия - убежище гигантов / Namibia: Sanctuary of Gia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058853.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057843.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC. Снежные медведи / Snow Bears (2017) WEB-DL [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057690.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056630.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG. Титаник: цифровое воскрешение / Titanic: The Digit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055954.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NG. Королевство обезьян: линии фронта / Kingdom of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055484.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052942.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052936.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG: Дикие леса Австралии / Australia's Wild Woodlands (2025) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052150.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051867.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NG. Незабываемые дорожные приключения Криса 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051861.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050480.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NG: Чудища морей: Доисторическое Приключение
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050282.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NG. Дикая природа Центральной Америки / Wild Centr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049941.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Discovery: Сражение динозавров / Clash of the dinosaurs (2009)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049920.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049876.jpg" />
 </div>
 
 

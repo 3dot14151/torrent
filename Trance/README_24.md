@@ -1,3 +1,61 @@
+###  Публикация: 1239109   (542525) от 03.08.2018
+
+VA - We Love New Trance Vol.1 [Mixed by Dave Zee] (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk & Emanuele Braveri feat. Rebecca Louise Burch - Escape Reality Tonight (Original Mix) 7:42
+02. Andres Sanchez - Eternity (Original Mix) 4:59
+03. Talla 2XLC - Uprising (Original Mix) 7:07
+04. RAM & Darren Porter - The Calling (Grotesque 300 Anthem) 7:50(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED2BB5996F9A127D45DD18E789FE5DC37645C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154910   (537245) от 01.08.2017
+
+Cj Stereogun - Top & New (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cj Stereogun - Autumn Wave (Original Mix) 08:06
+02. Cj Stereogun - Cassiopeia (Original Mix) 07:02
+03. Cj Stereogun - Dolphin Pond (Original Mix) 08:27
+04. Cj Stereogun - Ice Planet (Uplifting Trance Mix 2017) 06:04(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1114AD0FB4323D9B491D034B6EF0814CD9C6B793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154858   (537234) от 01.08.2017
 
 VA - Uplifting Trance Sessions Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Uplifting Trance Sessions Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537234.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Dave Pears Trance Anthems 2 (2019) 3CD [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536489.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Female Vocal Trance 2022 Vol 2 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535550.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Best Of Trance 2018 Vol.05 (2018) [MP3|320 Kbps] <Trance, Progresive Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535245.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Black Hole Trance Music 06-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533754.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - A World Of Trance Vol. 4 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533623.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Uplifting Trance Generation Vol.2 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533616.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Tony Igy - It's Beautiful… It's Enough... (2017) [MP3|320 Kbps] <Electronic, D
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533223.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - A State Of Trance Radio Top 20 - August / September (2016) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532698.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Uplifting Trance Sessions Vol.15 (2019) [MP3|320 Kbps] <Trance, UpliftingTr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532557.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - FSOE pres. Ibiza (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531682.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Infrasonic Summer Selection (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531398.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - The Best Of Critical Uprising 003 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531396.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Miami Music (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531392.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Trance Energy (Mixed by Cosmic Gate & Ben Nicky) (2018) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531384.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Uplifting Trance Top 50 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530819.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Aly And Fila Vs Roger Shah Feat Adrina Thorpe - Perfect Love (2012) [MP3|320 к�
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530757.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Vocal Trance Gems - Summer (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530624.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Dream Dance Vol.87 (2019) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530538.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - A State Of Trance: Ibiza 2018 (Mixed By Armin Van Buuren) (2018) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528616.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Summer Selection (2017) [MP3|320 Kbps] <Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527782.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Trance Music Lounge (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527777.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Alcyone Project - The Worldseeker (2017)Single [MP3|320 Kbps] <Trance,Uplifting 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527652.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Armada Music - Trance Legacy (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527105.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Armada Music - Trance Legacy (2022) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:683E33684318274DC047D06C5DD98297BB58D71B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157353   (525536) от 11.08.2017
-
-VA - Vocal Anthems Ibiza (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frainbreeze - I'll Be There (feat Angel Falls - Denis Airwave remix) (03:45)
-02. Ruslan Radriges Pres. Mantra & Lucid Blue - Take Me Higher (original mix) (03:33)
-03. Roman Messer - For You (feat Clare Stagg - Frainbreeze extended remix) (05:12)
-04. Russian Dolls & Nathia Kate - Always (feat Robin Vane - original mix) (04:24)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CDB70274B75E7BFABF460BAB8ABC26F8DE3FE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157349   (525533) от 11.08.2017
-
-VA - Trance Hits Top 20: 2017-08 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia – Sun Comes Again (feat. Jonathan Mendelsohn) (Eximinds Remix) (03:26)
-02. Fisherman & Hawkins – Antidote (Dave Neven Remix) (03:30)
-03. Airscape – Be Who You Are (03:28)
-04. Robert Nickson – Euphorica (04:18)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E71006884438AFCC021BE680E9C9A0EBEFB03C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

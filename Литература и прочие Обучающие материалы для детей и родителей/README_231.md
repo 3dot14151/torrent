@@ -1,3 +1,55 @@
+###  Публикация: 1044860   (563248) от 21.08.2016
+
+Журнал | Счастливые родители №9 (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563248.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Счастливые родители» - журнал, который давно стал незаменимым помощником для молодых родителей. На страницах издания вы найдете: рекомендации и материалы, написанные лучшими российскими докторами ( гинекологами, педиатрами, диетологами, детскими психологами), они отвечают на самые насущные вопросы, касающиеся беременности и первых лет жизни ребенка. Кроме того, (   Читать дальше...   )Жанр: Детский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E416304A8E9F9BC35F40CEDCD7579B558F9DAB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923688   (562854) от 01.08.2015
+
+О. Зобнин | Неразлучные друзья (1957) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таня проснулась, когда ещё все девочки спали. Она встала и подошла к окну. Со двора тянуло ароматным лесным настоем. За частыми, словно к празднику побелёнными стволами берёз, на клубной веранде лагеря пестрели разноцветные стенгазеты, вывешенные к приезду родителей. Под окном, на усыпанной жёлтым песком дорожке, бегала трясогузка. Не переставая покачивать своим (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7133FB2C8EE9D6E805B0C78A85DA163CFFD9B8A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923738   (562852) от 01.08.2015
 
 С. Черный и др. | О весёлых собачках [антология]  (2015) [FB2]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562852.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562837.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562695.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562638.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562565.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562528.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562093.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561988.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561867.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561817.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561720.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561530.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561238.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561207.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561124.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561041.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561035.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560981.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560954.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560920.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560586.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560256.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560074.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560073.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD38E1240EBFBBF0464A0BBC4C3646FF4D714D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304997   (560072) от 28.05.2019
-
-Вадим Селин | На краю мечты (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ира пела всегда, сколько себя помнила. Пела дома, в гостях у бабушки, на улице. Пение было ее главным увлечением и страстью. Ровно до того момента, пока она не отправилась на прослушивание в музыкальную школу, где ей отказали, сообщив, что у нее нет голоса. Это стало для девушки приговором, лишив не просто любимого дела, а цели в жизни. Но если чего-то очень сильно (   Читать дальше...   )Жанр: Детская литература, для девочекФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0FEB2142A1D038098B281FBC24ECEF52184731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305053   (560068) от 28.05.2019
-
-Вадим Селин и др. | Большая рождественская книга романов о любви для девочек (2013) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Катя - спокойная, примерная девочка, мечтает стать врачом, навещает в больнице одиноких людей, помогает матери по дому. Но в один день ее тихая жизнь меняется и превращается в кошмар из-за звезды школы Стаса Полянского, который оклеветал девушку и посмеялся над ней. Как дальше ходить в школу, если весь класс тебя ненавидит? Как помогать людям, если запрещено появляться (   Читать дальше...   )Жанр: Детская литература, для девочек, для подростковФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2A1983726C3F7D16A3C0A33F95F05693D20730
 ```
 
 https://mybot314.ru/tekegram_catalog/

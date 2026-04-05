@@ -1,3 +1,81 @@
+###  Публикация: 1096545   (894059) от 07.02.2017
+
+Война Мерфи / Murphy's War (1971) WEB-DL [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошо поставленный, захватывающий боевик о войне, в котором наряду с батальными сценами дается психологический портрет английского моряка, который один остался в живых после того, как его судно оказалось потоплено немцами. Опираясь на помощь местного населения, после восстановления здоровья, он, одержимый местью, решает один напасть на немецкую армию, несмотря на (   Читать дальше...   )Производство: Великобритания / Hemdale, Michael Deeley-Peter Yates FilmsЖанр: Военный, ДрамаРежиссер: Питер ЙетсАктеры: Питер О’Тул, Шан Филлипс, Филипп Нуаре, Хорст Янсон, Джон Хэллам, Инго Могендорф, Гарри Филдер, Джордж РубисекПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8A1D9060C695038A5716E227FE37FC11B19B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493430   (893782) от 04.09.2021
+
+В воскресенье всегда идёт дождь / It Always Rains on Sunday (1947) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гуги Уиверс замужем, у неё две падчерицы, и её брак лишен любви. Неожиданно в её жизни появляется старый возлюбленный, сбежавший из тюрьмы.Производство: Великобритания, Ealing StudiosЖанр: Драма, криминалРежиссер: Роберт ХеймерАктеры: Гуги Уизерс, Эдвард Чэпман, Сьюзэн Шоу, Патриция Планкетт, Дэвид Лайнс, Сидни Тэфлер, Бетти Энн Дейвис, Джон Слейтер, Джейн Хилтон, Мейер Целкинер, Джон Маккаллум, Джимми Хэнли, Джон Кэрол, Элфи Бэсс, Джек УорнерПеревод: Одноголосый профессиональный (AA-Studio)Субтитры: Русские, английскиеПродолжительность: 01:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0B99D572DD165A67FE60BDDA0CB4D8105FCA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992427   (893661) от 06.03.2016
+
+Поддержите своего шерифа / Support Your Local Sheriff! (1969) BDRemux [H.264 /1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893661.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Диком Западе Джейсон МакКаллоф неожиданно получает освободившуюся должность шерифа в городке, охваченном золотой лихорадкой. Джейсон МакКаллоф изначально становится шерифом по большому счету ради оплаты, полагая, что если пойдёт что-то не так, то он всегда сможет уехать в Австралию. Но МакКаллоф усмиряет нечистых на руку жителей с помощью меткой стрельбы и остроумия, (   Читать дальше...   )Производство: США, Cherokee-Brigade Productions, Three PicturesЖанр: Комедия, вестерн, приключенияРежиссер: Берт КеннедиАктеры: Джеймс Гарнер, Гарри Морган, Джоан Хэккетт, Уолтер Бреннан, Джек Илэм, Генри Джонс, Брюс Дерн, Уиллис Бучи, Джин Эванс, Уолтер БуркПеревод: Профессиональный (многоголосый, закадровый) (TB5 Санкт-Петербург)Продолжительность: 01:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099B8BE3B1F88A63533AE977CC44B2ABC6655093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 639129   (892963) от 04.04.2013
 
 Приключения Робин Гуда / The Adventures Of Robin Hood (1938) BDRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892963.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892753.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892637.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891431.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890872.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890503.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890447.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889820.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889090.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889015.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888958.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888794.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888700.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888520.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888302.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887687.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887008.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886999.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886487.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885875.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885797.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885123.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884578.jpg" />
 </div>
 
 
@@ -596,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45F77A2394402317CE1D34EAF7CBF20FCE77F094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500906   (884576) от 03.04.2020
-
-Будучи там / Being There (1979) [1080p] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Садовник, вся жизнь которого прошла в уходе за садом и телевизором, оказывается без работы, поскольку его прежний хозяин умер, а новые хозяева выставляют его на улицу. Зная внешний мир только по программам телевидения и общению с чернокожей кухаркой, он, делая первые неуверенные шаги в незнакомом для него мире. И тут же попадает под колеса лимузина богатой дамы и (   Читать дальше...   )Жанр: Драма, комедияРежиссер: Хэл ЭшбиАктеры: Питер Селлерс, Ширли МакЛейн, Мелвин Дуглас, Джек Уорден, Ричард А. Дайсарт, Ричард Бейсхарт, Рут Аттавэй, Дэвид Кленнон, Фрэн Брилл, Дениз ДюБарриПеревод: Дублированный, АвторскийСубтитры: Английские, РусскиеПродолжительность: 02:09:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9922FCCA2D701444A9F9476A586F9E4B219124A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990576   (884260) от 11.03.2016
-
-Приключения хитроумного брата Шерлока Холмса / The Adventure of Sherlock Holmes' Smarter Brother (1975) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сиджерсона Холмса, младшего брата детектива Шерлока Холмса, раздражает, что он вынужден жить в тени своего великого родственника. Единственный выход – постоянно доказывать свое превосходство над братом. Когда Шерлоку Холмсу и доктору Ватсону необходимо срочно уехать из Англии, Шерлок просит Сиджерсона завершить одно запутанное дельце. Сможет ли Сиджерсон, подражая (   Читать дальше...   )Производство: США, Великобритания, Jouer Films, Twentieth Century Fox Film CorporationЖанр: Мьюзикл, Комедия, Криминал, ДетективРежиссер: Джин УайлдерАктеры: Джин Уайлдер, Мэдлин Кан, Марти Фельдман, Дом Делуиз, Лео Маккерн, Рой Кинниэр, Джон Ле Месурье, Дуглас Вайлмер, Торли УолтерсПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1447FCE0E18B56BFE4A0751C5CF71138BC3D680E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493932   (884122) от 10.09.2021
-
-Саломея / Salome (1953) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884122.jpg" />
-</div>
-
-
-###  Подробнее
-
-После изгнания из Рима еврейская принцесса Саломея возвращается на родину, управляемую римлянами, в Галилею, где пророк Иоанн Креститель настраивает всех против родителей Саломеи.Производство: США / The Beckworth CorporationЖанр: Драма, ИсторияРежиссер: Уильям ДитерлеАктеры: Рита Хэйворт, Стюарт Грейнджер, Чарльз Лотон, Джудит Андерсон, Седрик Хардвик, Бейзил Сидни, Морис Шварц, Арнольд Мосс, Алан Бэдел, Дэвид АдарПеревод: Многоголосый профессиональный, Первый каналСубтитры: АнглийскиеПродолжительность: 01:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA95A6693D847CD4FFF4A26A3AFFEE7CB55BA23
 ```
 
 https://mybot314.ru/tekegram_catalog/

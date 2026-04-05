@@ -1,3 +1,84 @@
+###  Публикация: 515700   (648776) от 30.06.2012
+
+Эдвин Лефевр | Воспоминания биржевого спекулянта [2011] [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга была издана еще в 1923 году и до сих пор остается одной из самых популярных книг в области финансовой литературы. В ней Эдвин Лефевр описал биографию Джесси Ливермора - одного из величайших трейдеров в истории человечества. Изображение рынков и психологии инвестирования обогатило жизнь нескольких поколений инвесторов. До сих пор книга "Воспоминания биржевого (   Читать дальше...   )Жанр: Бизнес
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1863820CE9E8730A8B02F43DA208C06775BBB1F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904379   (642956) от 09.06.2015
+
+Бодо Шефер | Путь к финансовой независимости. Первый миллион за 7 лет! (2009) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для многих пропасть между мечтой и ее осуществлением абсолютно нормальное явление. "Путь к финансовой свободе" меняет мировозрение в корень.
+В аудиокниге автор выглядит вашем личным наставником. Он передаст вам свои опыт и знания, желая помочь создать для вас собственный механизм, добывающий для вас деньги.
+Рекомендации Шефера доступны в понимании и просты (   Читать дальше...   )Жанр: БизнесПродолжительность: 12:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA25734A93FFA18421ED91037A452E25A0AB6DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142943   (638809) от 16.06.2017
+
+Константин Бакшт | Азбука денег: управление личным кошельком (2017) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный бизнес-тренер, консультант и предприниматель Константин Бакшт, автор деловых бестселлеров по ведению бизнеса, научит вас персональному финансовому менеджменту, поделится богатым опытом, как взять под контроль свои доходы и расходы.
+Неважно, сколько вы зарабатываете! Важно, сколько денег у вас остается ежемесячно после повседневных трат и направляется на (   Читать дальше...   )Жанр: Личностный рост, Личные финансыПродолжительность: 03:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A9AE41D0C4EFFF5FA784D48ADD352DC34AFE93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146229   (615865) от 28.06.2017
 
 Константин Бакшт | Инвестиции и финансовая свобода (2017) [MP3]
@@ -6,7 +87,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615865.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605498.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578798.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577950.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570264.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566726.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566543.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518990.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518190.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494785.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492132.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487009.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475730.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468223.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_467838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_467838.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457234.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447105.jpg" />
 </div>
 
 
@@ -460,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447096.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447001.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443782.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438773.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438676.jpg" />
 </div>
 
 
@@ -595,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436450.jpg" />
 </div>
 
 
@@ -606,86 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8EE520693A86873864DAC2317B82A6864AFEF15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165221   (434329) от 12.09.2017
-
-Сергей Гуриев | Дорога к рынку (2017) [MP3]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одной из самых существенных лакун в современном российском интеллектуальном поле является отсутствие экономической истории. Между тем экономическая история — это ключ для понимания не только современной нам экономики, но и окружающей нас сегодня социальной реальности.
-
-Курс одного из самых известных российских экономистов Сергея Гуриева «Дорога к рынку. Экономическая (   Читать дальше...   )Жанр: Бизнес-лекцииПродолжительность: 05:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E835CD4B011686F7A6248A725D7D21BD845C600E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571330   (433719) от 21.08.2022
-
-Коллектив авторов | Лекции по маркетингу (Лекторий ВШЭ) (2020) [MP3]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все мы замечали за собой, что регулярно покупаем то, что нам не нужно. Но если нам это не нужно, почему мы это покупаем? Что лежит за такими решениями? Как маркетологи влияют на наше принятие решений? Где и как потребители оставляют информацию, которая затем может быть использована не в их интересах?Жанр: маркетинг для новичков, публицистика, стратегия маркетинга, управление маркетингомПродолжительность: 12:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529C2E35043098EA184163EE7C2EDA43B46690AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410847   (431417) от 23.09.2020
-
-Ха-Джун Чанг | Как устроена экономика (2020) [MP3]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431417.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге экономист из Кембриджа Ха-Джун Чанг в занимательной и доступной форме объясняет, как в реальных условиях работает мировая экономика. Чанг предлагает читателю идеи, которые нельзя найти в учебниках по экономике, и делает это с глубоким знанием истории, остроумием и легким пренебрежением к традиционным экономическим теориям.Жанр: История экономики, Мировая экономикаПродолжительность: 12:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8355A120B0C2629F31EA957DD3555DA9B2285262
 ```
 
 https://mybot314.ru/tekegram_catalog/

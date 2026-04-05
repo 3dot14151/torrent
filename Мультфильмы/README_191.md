@@ -1,3 +1,135 @@
+###  Публикация: 538636   (508516) от 24.08.2012
+
+Про Девочку, которая нашла своего мишку (2002) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм — экранизация одноименного стихотворения Саши Черного. Входит в альманах «Волшебный фонарь».Жанр: мультфильм, короткометражкаРежиссер: Елена ЧерноваПродолжительность: 00:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BB5EA404CDC97F75469BB86C806178EDE88A92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538544   (508216) от 24.08.2012
+
+Звездный десант: Вторжение / Starship Troopers: Invasion (2012) [720p] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удалённый аванпост Федерации «Форт Кейси» подвергается атаке жуков. Базирующийся там корабль «Джон А. Уорден» должен как можно быстрее увезти выживших на Землю, заодно доставив собранные на «Форте Кейси» данные военной разведки. На помощь к уцелевшим спешит истребитель «Алесия», однако незадолго до запланированной встречи министр Паранормальных Боевых Действий Карл Дженкинс реквизирует «Джон А. Уорден» для какой-то секретной миссии и пропадает в ближайшей туманности. И бравым десантникам с «Алесии» приходится менять курс, ещё не зная, что эта спасательная миссия может закончиться очень печально.Жанр: Мультфильм, анимационный, фантастика, боевикРежиссер: Синдзи АрамакиПерсонажи: Лерардо Анзалдуа, Люси Кристиан, Мелисса Дэвис, Джастин Доран, Дэвид Матранга, Эмили Нэвис, Дэвид ВолдПеревод: Профессиональный многоголосыйЯзык субтитров: АнглийскийПродолжительность: 01:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7412847CC6EBE4A6B70E0482112355438BF7DDEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 127076   (507939) от 01.09.2010
+
+Реставрационные релизы от КП
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реставрационные релизы от студии38 попугаев (DVD5)
+Алиса в Стране Чудес. Алиса в Зазеркалье (DVD5)
+Бременские музыканты (DVD5)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316248   (507693) от 24.07.2019
+
+Маша и Медведь. Машкины страшилки (2014-2018) WEB-DL [H.264/1080p-LQ] (серии 1-26 из 26)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очаровательная непоседа Маша, которая полюбилась большим и маленьким зрителям по мультсериалу «Маша и Медведь», не только виртуозная рассказчица сказок, но еще и настоящий эксперт по детским страшилкам. Только не пугайтесь заранее: ничего по-настоящему страшного в «Машкиных страшилках» нет, это своего рода ликбез по популярным детским страхам: на ярких примерах Маша (   Читать дальше...   )Производство: Россия / Студия "Анимаккорд"Жанр: Мультсериал, Анимация, ДетскийРежиссер: Георгий Орлов, Илья Трусов, Андрей БеляевАктеры: Алина Кукушкина, Варвара Саранцева, Борис Кутневич, Эдуард Назаров, Марк Кутневич, Ирина КукушкинаПерсонажи: Маша и МедведьПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~00:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A453536DB952F4739E838195D41A3288F6967BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286510   (507678) от 24.07.2019
+
+Тигтон / Tigtone (2019) WEB-DL (сезон 1, серии 1-11 из 11) [MVO] NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cага о герое, зависимом от квестов, который прокладывает свой путь через сатирическую фэнтезийную вселенную с мелодраматической свирепостью, всегда подчиняясь букве закона, но не духу.Производство: США, Adult SwimЖанр: ужасы, фэнтези, комедия, приключенияРежиссер: Фредди КристиПеревод: Двуголосый закадровый, любительский (NewStation)Субтитры: нетПродолжительность: ~00:11:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB564C61D4FEAA51A115AE522E800AEE237565D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 377873   (507354) от 20.08.2011
 
 Ёжик и девочка (1988) SATRip
@@ -6,7 +138,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507354.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507157.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506751.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505901.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505882.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505878.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505876.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505851.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505849.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505844.jpg" />
 </div>
 
 
@@ -267,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505748.jpg" />
 </div>
 
 
@@ -293,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505744.jpg" />
 </div>
 
 
@@ -319,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505163.jpg" />
 </div>
 
 
@@ -345,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504644.jpg" />
 </div>
 
 
@@ -371,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504147.jpg" />
 </div>
 
 
@@ -397,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504103.jpg" />
 </div>
 
 
@@ -423,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503956.jpg" />
 </div>
 
 
@@ -449,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503638.jpg" />
 </div>
 
 
@@ -475,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503531.jpg" />
 </div>
 
 
@@ -502,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503409.jpg" />
 </div>
 
 
@@ -528,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503315.jpg" />
 </div>
 
 
@@ -539,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:225FF8ED448D56A7BC191B43CA9435553C72B350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463978   (502491) от 16.07.2022
-
-Тимошкина елка. Сборник мультфильмов Владимира Дегтярёва (1966-1973) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник отечественных мультфильмов, в который вошли следующие мультфильмы, созданные Владимиром Дегтяревым: Тимошкина елка, Снегурка, Сладкая сказка, Как Ослик счастье искал, Новогодняя сказка, Волшебные фонарики.Производство: СССР /  Киностудия «Союзмультфильм»Жанр: Рисованная анимация, Кукольный, Сказка, ДетскийРежиссер: Владимир ДегтярёвСубтитры: ОтсутствуютПродолжительность: 01:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FB61FCB795E167023EBF12B9556E8A8221EE78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378332   (502435) от 25.08.2011
-
-Замочек с секретом (1985) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Детский, Рисованая анимацияРежиссер: Леонид КощениковПродолжительность: 00:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD74F81F4D8B7BE1809122CE319F7B896379A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377768   (502415) от 25.08.2011
-
-Лямзи-Тыри-Бонди, злой волшебник (1976) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Приключения, Рисованая анимацияРежиссер: Марианна НовогрудскаяПерсонажи: Коля Рогов, Лямзи-Тыри-БондиПродолжительность: 00:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860C2917A88DC9CF0A996AE9DE6B768AF3A7AE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478266   (502219) от 16.07.2022
-
-Сборник мультфильмов о Лисенке (1989-1994) SATRip - DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник старых добрых советских мультфильмов о том, как маленький Лисёнок открывает для себя мир, а заодно, проявляет отзывчивость, храбрость и любознательность.Жанр: Детский, Рисованная анимацияРежиссер: Борис ТузановичПродолжительность: 00:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC275D83EC4ECD924069CEBDD533AFF574AAD7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304375   (502214) от 16.07.2022
-
-Умка ищет друга / Сборник мультфильмов, Умка, Умка ищет друга, Птичка Тари, Халиф-аист, Терем-теремок, Кот Котофеевич, Жил-был пес, Осторожно, обезьянки (1969-1982) DVD5
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_502214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильмы режиссеров Владимира Попова и Владимира Пекаря. Белый медвежонок по имени Умка (от чук. умкы — «самец белого медведя») случайно познакомился с мальчиком. Они подружились. Однако люди уходят из той местности, где жил Умка. Медвежонок расстроен и решает найти своего друга. Во 2-й части мультфильма, придя на полярную станцию, Умка, после ряда забавных приключений, (   Читать дальше...   )Жанр: Рисованая анимация, Детский, ПриключенияРежиссер: Владимир Попов, Владимир Пекарь, Геннадий Сокольский, Леонид Амальрик, Валерий Угаров, Галина Баринова, Леонид Шварцман, Эдуард НазаровПродолжительность: 01:27:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1165998   (428475) от 15.09.2017
+
+Виктория Романенко | Маленьким эрудитам (2004) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вам совершить увлекательное путешествие в сказочную страну гномов. Оно непременно заинтересует вашего маленького непоседу.
+Занимаясь вместе с Людвиком, ребёнок научится логически рассуждать, сравнивать и считать предметы, составлять высказывания на основе рисунков, обобщать; ознакомится с понятиями «головоломка», «кроссворд», «ребус».
+Сведения о жизни (   Читать дальше...   )Жанр: ДосугФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA12F22FCDD23A2A89661855A440BFED4F7E0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064328   (428211) от 19.10.2016
+
+Александр Асмолов | Сказочные дали [4 книги] (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки Дальнего леса. Книга 1
+В лесу под названием Дальний стало исчезать время. Некоторые и не сразу заметили беду. А вот забавный медвежонок, который раньше только менялся снами, стал попадать в другие времена и судьбы. Ему открылась пещера Желаний, где можно становиться кем угодно. Это место тайных забав повелителя времени, но медвежонок оказался там не случайно. (   Читать дальше...   )Жанр: Сказки. Детская фантастика. Детские приключения.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D4E8E324E23A4F9C01B24E95DA296EE01AA6D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165993   (428169) от 15.09.2017
 
 А. Железный | Как жить, чтобы здоровым быть? (1925) [PDF]
@@ -6,7 +61,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428169.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428167.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428144.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428040.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427657.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427651.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427547.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427407.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427359.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427353.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427343.jpg" />
 </div>
 
 
@@ -298,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427253.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427217.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427204.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427161.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427077.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427066.jpg" />
 </div>
 
 
@@ -460,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426450.jpg" />
 </div>
 
 
@@ -486,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425956.jpg" />
 </div>
 
 
@@ -514,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425955.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425725.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425719.jpg" />
 </div>
 
 
@@ -592,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425716.jpg" />
 </div>
 
 
@@ -618,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425715.jpg" />
 </div>
 
 
@@ -631,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85D7976AB563B793C6A9A43A1C44CC7E968A493D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411727   (425712) от 26.09.2020
-
-Петр Волцит | Необыкновенные истории о самом лучшем папе на свете (2014) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Папа любит говорить, что он самый обыкновенный человек. Но я-то знаю, что на самом деле он вовсе не обыкновенный: он МОЙ папа! Самый сильный, самый смелый, самый добрый и самый замечательный отец на свете. Он летает в космос, вяжет шарфики и читает мне перед сном. Он столько всего умеет - просто невероятно. Хотя чего тут невероятного: я же его люблю. И знаете что? (   Читать дальше...   )Жанр: Детская литература/Проза для детейФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48F816B87C4B411759976F9475F0D909823B6965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411753   (425711) от 26.09.2020
-
-Фрауке Шойнеманн, Антье Циллат | Пауль и Сникерс, детективы на четырёх лапах. Плюшевая тайна. Книга 3. (2020) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святая мисочка, ну что за безобразие?! Кто посмел обворовывать маленьких детей?! В парке, в котором я, Пауль фон Таксенвальд, гуляю каждый день, завелись воры. Они совершают ужасно дерзкие преступления: крадут мягкие игрушки у малышей! Но зачем им старые плюшевые собачки и медвежата? И как выйти на след злодеев? Очевидно, мне и моему другу коту Сникерсу пора приниматься (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: Ирина ГиляроваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5922E110776C463699FCEE62EAA21D8A523D5C23
 ```
 
 https://mybot314.ru/tekegram_catalog/

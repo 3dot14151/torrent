@@ -1,3 +1,56 @@
+###  Публикация: 1822509   (100995) от 07.10.2025
+
+В России отключили мобильный интернет для иностранных SIM и eSIM
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100995.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ночь с пятого на шестое октября в Сети стали появляться многочисленные сообщения о неработающем интернете при использовании иностранных SIM и eSIM-карт, в том числе выпущенных сотовыми операторами стран СНГ. При этом голосовая связь и отправка SMS доступны. Предположительно, блокирование интернета на роуминговых SIM-картах связано с так называемым «периодом охлаждения», (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821588   (100709) от 06.10.2025
+
+«Почту России» оштрафовали за 10-дневную задержку сообщения через интернет
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100709.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Почта России» получила штраф за 10-дневную задержку сообщения... ЧЕРЕЗ ИНТЕРНЕТ — нет, это не новость  ИА «Панорама», а реальная история.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 738549   (99933) от 05.10.2025
 
 Географ глобус пропил (2013) BDRip [1080p]
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99933.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Launcher for zapret 3.0 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94511.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_94494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94494.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Assassin's Creed Director's Cut Edition [Ru] (RePack/1.02) 2008 | SHARINGAN
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90769.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90567.jpg" />
 </div>
 
 
@@ -147,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90561.jpg" />
 </div>
 
 
@@ -173,7 +226,7 @@ VA - Хиты с Катушек (1-54 Выпуск) (2004) [MP3|192 kbps]<Pop>
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90359.jpg" />
 </div>
 
 
@@ -202,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90356.jpg" />
 </div>
 
 
@@ -228,7 +281,7 @@ Platinum Hide IP 3.1.8.2 [Мульти/Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89934.jpg" />
 </div>
 
 
@@ -255,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89931.jpg" />
 </div>
 
 
@@ -285,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89750.jpg" />
 </div>
 
 
@@ -315,7 +368,7 @@ SamDrivers 12.4 Final - Сборник драйверов для Windows x86/x64
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89745.jpg" />
 </div>
 
 
@@ -341,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89727.jpg" />
 </div>
 
 
@@ -367,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89725.jpg" />
 </div>
 
 
@@ -393,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89444.jpg" />
 </div>
 
 
@@ -420,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89331.jpg" />
 </div>
 
 
@@ -446,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89126.jpg" />
 </div>
 
 
@@ -472,7 +525,7 @@ The Lord of the Rings: The Battle for Middle-earth 2 The Rise of the Witch-king 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88923.jpg" />
 </div>
 
 
@@ -498,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88725.jpg" />
 </div>
 
 
@@ -524,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88625.jpg" />
 </div>
 
 
@@ -551,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88516.jpg" />
 </div>
 
 
@@ -577,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88515.jpg" />
 </div>
 
 
@@ -603,7 +656,7 @@ Traffic Inspector 2.0.1.721 Full [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88512.jpg" />
 </div>
 
 
@@ -629,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88495.jpg" />
 </div>
 
 
@@ -640,58 +693,6 @@ Ninja Gaiden 3 впервые даст возможность игрокам в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA790C9691806A75F9D76EB5365D28A3089321B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440255   (88321) от 13.04.2012
-
-Быть человеком / Being Human (US) (Сезон 2 полный (13)) (2012) WEB-DLRip (LostFilm)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый американский сериал - увлекательная истории о трех существах, которых мы, люди, привыкли воспринимать с опаской. Однако удивительная троица: вампир, оборотень и привидение, - проживающая в одном доме, едва ли способна обидеть даже ребенка. Всеми силами герои стремятся выйти за границы тех образов, которыми их «наградили» люди. Вампир не злоупотребляет кровавыми (   Читать дальше...   )Производство: США-Канада, SyFyЖанр: Драма, мистикаРежиссер: Адам Кэйн, Паоло Барзмен, Чарльз БинамиПеревод: Профессиональный многоголосый закадровый - LostFilmПродолжительность: ~ 45:00 мин серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482190   (88311) от 13.04.2012
-
-Two Worlds II + Pirates of the Flying Fortress / Два Мира 2 + Пираты Летучей крепости [Ru/En] (RePack/1.3) 2010 2011 | Naitro
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Two Worlds II: Castle Defense – стратегия в реальном времени, основанная на ролевых играх Two Worlds и Two Worlds II. Пока кровавая битва между войсками Гандохара и армиями Орков бушует перед воротами Осварота, император, расположившись внутри своего дворца, ожидает исхода битвы за власть. Однако он не знает, что элитное подразделение Орков под предводительством Рогдора пробирается через тайные пути в крепость и вскоре доберется до тронного зала.В Two Worlds II: Castle Defense фанатам серии Two Worlds впервые предстоит выступить в роли злодеев - императора Гандохара и его приспешника Сордахона. Используя дар предвиденья и другие умения, вы должны защитить заброшенные руины, темные леса и извилистые катакомбы от стремительных Орков, а также уберечь трон Гандахора и крепость Осварота, применяя различную тактику и вооружение.Тип издания: RePackЖанр: Strategy (Real-time) / 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB6384EF285661256D70ADD0BEA7229AC77EAB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

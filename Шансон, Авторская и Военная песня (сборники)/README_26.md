@@ -6,7 +6,7 @@ VA - Шансон На Выходной (2016) [MP3|256 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292133.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Блатной шансон на любимой волне. Версия 3 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292129.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Гуляночка блатного радио Шансон. Версия 6
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292068.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Шансон 69 (2016) [MP3|256-320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292067.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Душевная Музыка Шансона. Давай поговорим
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292066.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291899.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Я помню это время (2016) [MP3|320 Kbps] <Эстрада>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291834.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Зимний шансон Top 100 (2015) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287313.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Масть крестовая. Зима на радио Шансон. Вы�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286638.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Радио Шансон. Высшая Лига Хитов Версия №8
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286636.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Душевная музыка от радио Шансон. Версия 2 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286434.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Сборник Шансона: Вавилон Обетованный (2015)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285474.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Убойные хиты на Шансоне. Версия 4 (2016) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284811.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Дальняя дорога. Новый сезон (2017) [MP3|256-320 Kbps
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280309.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Зимний шансон года (2016) [MP3|256 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279209.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Гуляночка блатного радио Шансон. Версия 7
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279208.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Как и год назад (2016) [MP3|256 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279204.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Высшая лига хитов шансона. Часть 9 (2016) [MP3|2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279201.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Масть крестовая. Зима на радио Шансон час
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277484.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Блатной шансон на любимой волне часть 5 (20
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277478.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Зимний Шансон Года 2011 (2010) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277198.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Убойные хиты от радио Шансон часть 5 (2016) [M
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274849.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Душевная музыка на Шансоне. Выпуск 3 (2016) [M
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273708.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Шансон 2018 [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271797.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Зимний шансон года Часть 2 (2016) [MP3|256 Kbps] <Ша
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271453.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Гуляночка блатного радио Шансон Часть 8 (2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271446.jpg" />
 </div>
 
 

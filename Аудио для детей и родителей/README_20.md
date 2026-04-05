@@ -1,3 +1,29 @@
+###  Публикация: 306085   (854297) от 08.03.2011
+
+Мелодия | Детские сказки с винила. Часть 13. [2010] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тринадцатая часть сборника сказок, которые оцифрованы с виниловых пластинок. В которую вошли такие сказки как: "Волшебные башмачки", "Тень", "Соловей, принцесса и горшок каши"... выбирайте свою любимую сказку и слушайте вместе со своими детками.Жанр: СказкиПродолжительность: 04:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A105373FCEE5041BB3BD45FCDA7F67B461B3A1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 306072   (854295) от 08.03.2011
 
 Мелодия | Детские сказки с винила. Часть 11. [2010] [MP3]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854295.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854132.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853890.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853558.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Richard Vallance - No More Crying (2012) [MP3|192 кб/с]<New age, Relax>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852959.jpg" />
 </div>
 
 
@@ -148,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852657.jpg" />
 </div>
 
 
@@ -177,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852035.jpg" />
 </div>
 
 
@@ -203,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850423.jpg" />
 </div>
 
 
@@ -229,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849588.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849228.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848370.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846844.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ VA - Любимые Песенки из Новых Мультфильмов (201
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846160.jpg" />
 </div>
 
 
@@ -368,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845295.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841431.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ VA - Классическая музыка для детей.Танцы. (2008) 
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840658.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839781.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838363.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838239.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838057.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837558.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835262.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833742.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833322.jpg" />
 </div>
 
 
@@ -668,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831219.jpg" />
 </div>
 
 
@@ -680,33 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:347128FFA1A6AF022AE5D57A25F5491A64725ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305532   (830955) от 04.05.2020
-
-Мелодия | И. Якушенко | Зайка почтальон (1979) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами новая работа Всесоюзной фирмы грампластинок "Мелодия" — детский музыкальный спектакль, написанный по мотивам русских народных сказок драматургом Георгием Фере и композитором Игорем Якушенко.
-Авторы называют свое произведение «детской музыкальной комедией», и это, наверное правильно, хотя жанр здесь смешанный — тут соединились хрошо знакомая нам (   Читать дальше...   )Жанр: СказкаПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154A4E24B6AE9AE83955FA0B8DF470C222CE2719
 ```
 
 https://mybot314.ru/tekegram_catalog/

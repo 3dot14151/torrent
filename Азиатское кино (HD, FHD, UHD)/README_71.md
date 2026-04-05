@@ -1,3 +1,159 @@
+###  Публикация: 1433798   (152561) от 23.12.2020
+
+Звонок из прошлого / Kol / The Call (2020) (2020) WEBRip [H.264/720p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152561.jpg" />
+</div>
+
+
+###  Подробнее
+
+2019 год. 28-летняя Со-ён возвращается в отчий дом в сельской местности. Отец давно умер, а с матерью, которая лежит в больнице, отношения так и не наладились. Со-ён потеряла мобильный, поэтому включает городской телефон и начинает получать странные звонки от девушки с просьбами о помощи. Выясняется, что незнакомку зовут Ён-сук, ей тоже 28 лет, и она живёт в этом (   Читать дальше...   )Производство: Корея Южная / Next Entertainment World, Yong FilmЖанр: триллер, фантастика, криминалРежиссер: Ли Чхун-хёнАктеры: Пак Щин-хе, Чон Джон-со, Ким Сон-нён, Ли Эль, Пак Хо-сан, О Джон-сэ, Ли Дон-хви, Ом Чхэ-ёнПеревод: Многоголосый любительский (ShpadoinkleTV)Субтитры: отсутствуютПродолжительность: 01:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5E5313F0AD748B3F5A6AA4BECEE9E608AFF6D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434102   (152446) от 23.12.2020
+
+Звонок из прошлого / Kol / The Call (2020) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152446.jpg" />
+</div>
+
+
+###  Подробнее
+
+2019 год. 28-летняя Со-ён возвращается в отчий дом в сельской местности. Отец давно умер, а с матерью, которая лежит в больнице, отношения так и не наладились. Со-ён потеряла мобильный, поэтому включает городской телефон и начинает получать странные звонки от девушки с просьбами о помощи. Выясняется, что незнакомку зовут Ён-сук, ей тоже 28 лет, и она живёт в этом (   Читать дальше...   )Производство: Корея Южная / Next Entertainment World, Yong FilmЖанр: Триллер, фантастика, криминалРежиссер: Ли Чхун-хёнАктеры: Пак Щин-хе, Чон Джон-со, Ким Сон-нён, Ли Эль, Пак Хо-сан, О Джон-сэ, Ли Дон-хви, Ом Чхэ-ён, Чо Гён-сук, Мун Чхан-гильПеревод: Многоголосый закадровый, любительский (ShpadoinkleTV)Субтитры: Русские (Forced, Full), английские, немецкие, французскиеПродолжительность: 01:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11206D5B812319C0F7E3928EA5488A32B2AB7542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601177   (152418) от 30.12.2022
+
+Дети свинга / Seuwingkijeu (2018) WEBRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время Корейской войны в лагере для военнопленных Кодже северокорейцы разделились на две большие группы: тех, кто согласен перейти на сторону Юга, и тех, кто остаётся верен идеям коммунизма. Чтобы не ударить в грязь лицом перед иностранными журналистами, комендант лагеря обязывает американского солдата Джексона организовать кружок танцев и заманить туда самого (   Читать дальше...   )Производство: Корея Южная / Annapurna Films, Next Entertainment WorldЖанр: Драма, военный, история, музыкаРежиссер: Кан Хён-чхольАктеры: То Гён-су, Джаред Граймс, Пак Хе-су, О Джон-сэ, Ким Мин-хо, Росс Кеттл, А.Дж. Симмонс, Сон Джэ-рён, Ли Дэвид, Пак Чин-джуПеревод: Двухголосый любительский (Храм Дорам)Язык озвучки: русский, корейскийСубтитры: корейские (hardsub), русскиеПродолжительность: 02:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8924BCA5CAD05808BFAF59503B31828DFC6A3E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601221   (152014) от 30.12.2022
+
+Падшие ангелы / Do lok tin si / Fallen Angels (1995) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в Гонконге 1995 года, до передачи власти. В фильме представлены две переплетённые сюжетные линии — одна рассказывает историю наёмного убийцы, желающего покинуть преступный мир, проститутки, с которой он начинает отношения, и его агента, который влюблён в него. Другая история о немом бывшем заключённом, скрывающемся от полиции, и психически неуравновешенной (   Читать дальше...   )Производство: Гонконг, Block 2 Pictures Inc., Chan Ye-Cheng, Jet Tone Production Co.Жанр: драма, мелодрама, комедия, криминалРежиссер: Вонг Кар-ВайАктеры: Леон Лай, Мишель Райс, Такеши Канеширо, Чарли Ен, Карен Мок, Чань Фай-Хун, Чань Мань-Лэй, Тору Сайто, Кун То-Хой, Ли-на КванПеревод: Профессиональный двухголосыйЯзык озвучки: русский, кантонскийСубтитры: Русский, АнглийскийПродолжительность: 01:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985C5F53815B04AA453F80CEACCC6A704E0CC8AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601271   (151946) от 30.12.2022
+
+Чунгкингский экспресс / Chung Hing sam lam / Chungking express (1994) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейский с жетоном N223 переживает разлуку с любимой. Работа прикидывается судьбой и сводит его с бывшей информаторшей — сексапильной блондинкой, вынужденной спасаться от недовольных партнеров по бизнесу. Еще один полицейский N633 по удивительному совпадению также переживает вынужденное одиночество. Ему невдомек, что миловидная, хотя и немного странная официантка (   Читать дальше...   )Производство: Гонконг, Jet Tone ProductionЖанр: драма, мелодрама, комедия, криминал, детективРежиссер: Вонг Кар-ВайАктеры: Бриджит Линь, Тони Люн Чу Вай, Фэй Вон, Такеши Канеширо, Валери Чоу, Пигги Чань, Ли-на Кван, Жиминг Хуанг, Лианг Жен, Суншэнь ЦзоПеревод: многоголосый профессиональный (Кармен Видео)Язык озвучки: русский, китайскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 01:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7716DDE235BC4E9BED9C095E146205855CB5CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601171   (151406) от 30.12.2022
+
+Помнить / Rimembeo / Remember (2022) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151406.jpg" />
+</div>
+
+
+###  Подробнее
+
+На пальцах 80-летнего старика с болезнью Альцгеймера вытатуированы имена. Это имена людей, которых он считает виновными в гибели своей семьи во времена японской оккупации. Вместе с молодым напарником он отправляется в путешествие, цель которого — убить виновных одного за другим.Производство: Корея Южная / Acemaker Movie Works, Moonlight FilmЖанр: драма, триллерРежиссер: Ли Иль-хёнАктеры: Ли Сон-мин, Нам Джу-хёк, Чон Ман-щик, Пак Кын-хён, Юн Джэ-мун, Сон Ён-чхан, Мун Чхан-гиль, Чхве Мин-чхоль, Нам Мун-чхоль, Ян Хён-минПеревод: Многоголосый профессиональный (iTunes, Jaskier)Язык озвучки: Русский, КорейскийСубтитры: Русские (Forced), АнглийскиеПродолжительность: 02:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638AE5BC260F3232C633D29669D90FDA733F6BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194836   (150950) от 27.12.2017
 
 Красотка / Pichi garu (2017) HDTVRip [H.264/720p-LQ] [MVO]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150950.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150791.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150582.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149435.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148675.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148398.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148089.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148080.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147392.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147251.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147242.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147239.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146854.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146106.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145858.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145432.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145428.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145228.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144398.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142561.jpg" />
 </div>
 
 
@@ -511,163 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:207A011D1BF0E7334E0C357FF5EB37A4AACCF391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435690   (141664) от 29.12.2020
-
-Меч демона (Демон меча) / Ken ki / Sword Devil (1965) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141664.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Ханпэя началась с загадки. Его мать, простая крестьянка, была сиделкой безумной матери князя, главы клана. В благодарность за верную службу, после смерти госпожи, ей позволили остаться в замке. Во внутренние покои замка, где она жила, мужчин не допускали, однако вскоре женщина забеременела, и умерла, родив мальчика. Досужие дворцовые сплетники тут же разнесли (   Читать дальше...   )Производство: Япония, Daiei StudiosЖанр: Боевик, драмаРежиссер: Кэндзи МисумиАктеры: Раидзо Итикава, Митико Сугата, Кэи Сато, Рютаро Гоми, Горо Мицуми, Рокко Тора, Кэнтаро Кудо, Асао Утида, Рюдзо Симада, Коити МидзухараПеревод: Авторский (Сергей Кузнецов)Субтитры: Русские, английскиеПродолжительность: 01:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1111D97BAE4A7FE4CE00F83E4C2C43E8A7B43A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435654   (140901) от 29.12.2020
-
-Атака на Пёрл-Харбор / Rengo kantai shirei chokan: Yamamoto Isoroku (2011) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о событиях войны на Тихом океане в 1941—1943 гг., когда Объединенным флотом командовал адмирал Исороку Ямамото. Охватывает все ключевые эпизоды периода: атака Перл-Харбора, битва у Мидвэя, борьба за Гвадалканал. События воссозданы в соответствии с исторической традицией и с немалым кинематографическим размахом.
-По сути, это ремейк фильма 1968 г., без Мифунэ, (   Читать дальше...   )Производство: Япония /  Bandai Visual Company, Toei Company, Kinoshita KomutenЖанр: драма, военный, биография, историяРежиссер: Идзуру НарусимаАктеры: Кодзи Якусё, Хироси Абэ, Сюити Азумая, Мицугоро Бандо, Акира Эмото, Ёсихико Хакамада, Миэко Харада, Масато Ибу, Юсукэ Иидзука, Дзюн ИтоПеревод: ДублированныйСубтитры: НетПродолжительность: 02:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36008572F54847CDF7A92BB638432CBD865ED754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520736   (140551) от 29.12.2021
-
-Атомные самураи / Fukushima 50 (2020) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140551.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о ликвидаторах аварии на АЭС Фукусима-1 после землетрясения у восточного побережья острова Хонсю в Японии 11 марта 2011 года, также известного как Великое восточно-японское землетрясение. Как руководству станции, так и обычным сотрудникам предстоит принять ряд важных решений и бороться с мирным атомом ценой собственных жизней.Производство: Япония, KadokawaЖанр: Драма, биография, историяРежиссер: Сэцуро ВакамацуАктеры: Коити Сато, Кэн Ватанабэ, Хидэтака Ёсиока, Наруми Ясуда, Наото Огата, Сёхэи Хино, Мицуру Хирата, Масато Хагивара, Рихо Ёсиока, Такуми СаитоПеревод: Дублированный (iTunes)Язык озвучки: Русский, английский, японскийСубтитры: АнглийскиеПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC345BD46AFF2C2DBD7F29AA8AC529E02218288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520740   (140499) от 29.12.2021
-
-Атомные самураи / Fukushima 50 (2020) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140499.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о ликвидаторах аварии на АЭС Фукусима-1 после землетрясения у восточного побережья острова Хонсю в Японии 11 марта 2011 года, также известного как Великое восточно-японское землетрясение. Как руководству станции, так и обычным сотрудникам предстоит принять ряд важных решений и бороться с мирным атомом ценой собственных жизней.Производство: Япония, KadokawaЖанр: Драма, биография, историяРежиссер: Сэцуро ВакамацуАктеры: Коити Сато, Кэн Ватанабэ, Хидэтака Ёсиока, Наруми Ясуда, Наото Огата, Сёхэи Хино, Мицуру Хирата, Масато Хагивара, Рихо Ёсиока, Такуми СаитоПеревод: Дублированный (iTunes)Язык озвучки: Русский, английский, японскийСубтитры: АнглийскиеПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5CF04B7BF64D24C91E2B40F350B0C88CE35D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508608   (139751) от 29.12.2021
-
-Месть земли (Бесконечная глубина, Облачная гора) / Feng bao / Cloudy Mountain / Infinite Depth (2021) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под воздействием глобальных геологических изменений надвигается серия геологических катастроф. Землетрясения, оползни, сели, провалы в земле угрожают жизни простых граждан. Также это может затронуть туннель, который возводили последние 10 лет.Производство: Китай, China Film Co. Ltd., Shanghai Film (Group) Co.Ltd, Tianjin Maoyan WeyingMedia Co. LtdЖанр: Боевик, приключения, драмаРежиссер: Ли ЦзуньАктеры: Чжу Илун, Хуан Чжичжун, Чэнь Шу, Цзяо Цзюньянь, Тайшэн Чэнь, Ван Гэ, Лу Сыюй, Хун Цзяньтао, Чжоу Сяооу, Бинь ЦзыПеревод: Дублированный (iTunes), многоголосый любительский (АрхиAsia)Субтитры: Русские (.ASS), английские и китайские (hardsub)Продолжительность: 01:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AEA873E1F22B5FFF83AF2FE7F608B7E49F5252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508669   (139693) от 29.12.2021
-
-Месть земли (Бесконечная глубина, Облачная гора) / Feng bao / Cloudy Mountain / Infinite Depth (2021) WEB-DL [H.265/2160p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под воздействием глобальных геологических изменений надвигается серия геологических катастроф. Землетрясения, оползни, сели, провалы в земле угрожают жизни простых граждан. Также это может затронуть туннель, который возводили последние 10 лет.Производство: Китай, China Film Co. Ltd., Shanghai Film (Group) Co.Ltd, Tianjin Maoyan WeyingMedia Co. LtdЖанр: Боевик, приключения, драмаРежиссер: Ли ЦзуньАктеры: Чжу Илун, Хуан Чжичжун, Чэнь Шу, Цзяо Цзюньянь, Тайшэн Чэнь, Ван Гэ, Лу Сыюй, Хун Цзяньтао, Чжоу Сяооу, Бинь ЦзыПеревод: Дублированный (iTunes), многоголосый любительский (АрхиAsia)Субтитры: Русские (.ASS), английские и китайские (hardsub)Продолжительность: 01:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044853DB462E4AE7572DCA70282E6B389D047E4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

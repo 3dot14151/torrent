@@ -1,3 +1,55 @@
+###  Публикация: 1755353   (39329) от 25.10.2024
+
+Жыыызнь (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-19 из 19)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39329.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первобытном лесу на пасмурном берегу реки живет племя. Кровожадные хищники, постоянная нехватка еды и отсутствие какой-либо медицины вынуждают их изо дня в день бороться за жЫЫЫзнь. Вождь, которому катастрофически не хватает зрелости и опыта, хочет, чтобы все в племени в первую очередь считали его своим другом. Он всячески старается скрасить жизнь своих соплеменников (   Читать дальше...   )Производство: Россия / ТНТ, PREMIER, 1-2-3 ProductionЖанр: комедияРежиссер: Эмиль Никогосян, Александр БойковАктеры: Михаил Галустян, Светлана Ходченкова, Борис Дергачёв, Михаил Кремер, Пётр Скворцов, Андрей Федорцов, Филипп Ершов, Игорь Грабузов, Ксения Гусева, Игорь ЧеховПродолжительность: ~00:41:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5BCCD5DFEBF0CF027E5B955F72D9BE278F2604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558024   (39246) от 26.10.2024
+
+Старик / The Old Man (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-7 из 7) LostFilm, HDRezka
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн Чейз (Джефф Бриджес) — вдовец из Вермонта, который живет с двумя ротвейлерами в тихом уединении и время от времени общается по телефону со своей дочерью. Когда в его доме появляется ватага киллеров, становится очевидно, что Дэн — больше, чем обычный пенсионер с регулярными визитами к врачу и нерегулярным сном. Оказывается, в 1980-х он был оперативником ЦРУ в (   Читать дальше...   )Производство: США / 20th Television, Fox 21 Television Studios, Fresh Bacon Media, Littlefield Company, The Littlefield Co.Жанр: боевик, триллер, драмаРежиссер: Джон Уоттс, Джет Уилкинсон, Зетна ФуэнтесАктеры: Джефф Бриджес, Педж Вахдат, Джон Литгоу, Нур Разуки, Э.Дж. Бонилья, Алиа Шокат, Гбенга Акиннагбе, Билл Хек, Фаран Таир, Этан РэйнсПеревод: Профессиональный многоголосый (LostFilm, HDRezka)Язык озвучки: Русский, английскийСубтитры: русские (forced, Full), английские (Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF5CDA6A9C21061E533366ACCBB8208E9E5C3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444823   (39245) от 26.10.2024
 
 Все мои друзья мертвы / Wszyscy moi przyjaciele nie zyja (2020) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39245.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39237.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39146.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39142.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39052.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39047.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39035.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38962.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38950.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38765.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38666.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38468.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38450.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38449.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38158.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Driver Easy Pro 6.1.1.29776 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38154.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Return to Castle Wolfenstein (2001) [Ru/En] (1.41/1.42d) Repack 1nomok
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38051.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Serious Sam Classic (2002) [Ru/En] (1.07/dlc) Repack 1nomok
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38046.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38044.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37839.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37828.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ Shadowsocks
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37738.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.2 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37737.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37734.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66D91B8D303578FAF0A4DBABE6A336077E1E3D3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759301   (37724) от 10.11.2024
-
-В Японии арестовали создателей сайта со спойлерами к фильмам и аниме
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полиция японской префектуры Мияги арестовала троих мужчин за создание так называемого сайта спойлеров, где публиковались пересказы новинок кино и аниме. Об этом сообщает Sendai Television Incorporated.Задержанных обвиняют в нарушении закона об авторском праве. По данным полиции, в прошлом году все трое сговорились создать сайт, на котором без разрешения правообладателей (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759758   (37607) от 11.11.2024
-
-Открытый разум: как бесконечная комбинация идей создала человеческую культуру
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учёные из Университета Аризоны предложили новое объяснение уникальности человеческой культуры, предполагая, что её особенность заключается в «открытости» — способности бесконечно комбинировать и интерпретировать новые идеи и действия. Исследование, опубликованное в *Nature Human Behaviour*, демонстрирует, что не только люди обладают культурой, но и многие виды животных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

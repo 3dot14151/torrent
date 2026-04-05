@@ -6,7 +6,7 @@ Rainbow Cotton (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54375.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mercenary Battle Company: The Reapers (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54316.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54286.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SAMURAI WARRIORS 4 DX (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54283.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Pine Hearts (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54107.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Scene DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54082.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SOS OPS! (2023) [Ru/Multi] (122/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53999.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ I Don't Fall (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53866.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Star Stuff (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53341.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wander Hero (2023) [Multi] (1.0.240608) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53334.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.11.0e) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53261.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Grounded (2022) [Ru/Multi] (1.4.0.4495) Repack FitGirl [Fully Yoked Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53258.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (1.1.1a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53184.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ My Little Pony: A Zephyr Heights Mystery (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53126.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ My Little Pony: A Zephyr Heights Mystery (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53097.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Whacking Hell! (2024) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53056.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Pinball M (2023) [Multi] (1.0.4/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53052.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53025.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Redout II (2) (2022) [Ru/Multi] (1.3.1/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52956.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ DNF Duel (2022) [Multi] (1.81/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52822.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ UnEpic (2011) [Ru/Multi] (1.51.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52648.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ JoJo's Bizarre Adventure: All-Star Battle R (2022) [Multi] (2.3.3/dlc) Scene Ten
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52456.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Champion Shift (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52430.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Patti Hattu! - Cosmic Revolt (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52386.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ CRYMACHINA (2023) [Multi] (1.2.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51579.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Hunt the Night (2023) [Ru/Multi] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51543.jpg" />
 </div>
 
 

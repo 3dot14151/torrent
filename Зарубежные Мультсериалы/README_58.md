@@ -1,3 +1,55 @@
+###  Публикация: 1708705   (54119) от 07.06.2024
+
+Люди Икс ’97 / X-Men '97 (2024) WEB-DL [H.264/1080p] (Сезон 1, Серия 1-10 из 10) HDRezka Studio, LostFilm, Jaskier, NewComers, Flarrow Films
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54119.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Люди Икс ’97" - американский супергеройский мультсериал, созданный шоураннером Бо ДеМайо для стримингового сервиса Disney+. Он основан на комиксах об одноимённой команде Marvel Comics и является продолжением мультсериала "Люди Икс" 1992 года. Повествование начинается с момента завершения оригинального сериала и освещает приключения мутантов после (   Читать дальше...   )Производство: США Marvel Animation, Marvel Studios, The Walt Disney Company/Жанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Джейк Касторена, Чейз КонлиПеревод: Дублированный (Flarrow Films), Профессиональный многоголосый (HDRezka Studio, LostFilm, Jaskier, NewComers)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D41B33B0AB5CBCEC3B3A0FD7161E5F157AFD8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709601   (54116) от 07.06.2024
+
+Люди Икс ’97 / X-Men '97 (2024) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit] (Сезон 1, Серия 1-10 из 10) LostFilm, HDRezka Studio, Jaskier, NewComers, Flarrow Films
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54116.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Люди Икс ’97" - американский супергеройский мультсериал, созданный шоураннером Бо ДеМайо для стримингового сервиса Disney+. Он основан на комиксах об одноимённой команде Marvel Comics и является продолжением мультсериала "Люди Икс" 1992 года. Повествование начинается с момента завершения оригинального сериала и освещает приключения мутантов после (   Читать дальше...   )Производство: США Marvel Animation, Marvel Studios, The Walt Disney Company/Жанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Джейк Касторена, Чейз КонлиПеревод: Дублированный (Flarrow Films), Профессиональный многоголосый (LostFilm, HDRezka Studio, Jaskier, NewComers)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D70819398F380D562665D9717FD5214FCB67B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728932   (53830) от 09.06.2024
 
 Люди Икс ’97 / X-Men '97 (2024) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (Сезон 1, Серия 1-10 из 10) HDRezka Studio, LostFilm, Jaskier, NewComers, Flarrow Films
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53830.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53338.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53084.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52928.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52636.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51922.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51398.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51245.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49485.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49484.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49206.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48419.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48210.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48194.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47943.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47911.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47465.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47397.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47264.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47176.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46958.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46550.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45918.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45796.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5438A6EAFF5132D469453EBB7F180F8658BF0C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745259   (45620) от 26.08.2024
-
-Наруто / Naruto (2002-2007) DVDRip (1-220 серии из 220) 2x2  [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45620.jpg" />
-</div>
-
-
-###  Подробнее
-
-На деревню, Сокрытую в Листве, напал древний демон Кьюби, ужасный Девятихвостый Лис. Вождь деревни одолел демона, ценой собственной жизни заточив его в теле новорожденного младенца. Мальчик, получивший имя Наруто, рос сиротой и изгоем, но не сломался, не озлобился, потому что рядом оказались люди, верящие в него. И потому, окончив академию ниндзя и узнав нелегкую (   Читать дальше...   )Производство: Япония / Studio PierrotЖанр: аниме, мультфильм, фэнтези, боевик, комедияРежиссер: Хаято Датэ, Харумэ Косака, Рион КудзёПеревод: Многоголосый профессиональный (2x2)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFBDD70E8F545557D2FF38267FC4CB9F6D958B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745368   (45540) от 26.08.2024
-
-Боевая фея Вьюга / Sentou Yousei Yukikaze (2002-2005) BDRip (1-5 серии из 5) Azazel & NesTea [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в недалёком будущем, через 33 года после того, как через гиперпространственный переход на Землю вторглись пришельцы, которых называют JAM. Совместными действиями стран мира и ООН вражеские силы были вытеснены на родную планету Фею, где продолжают идти военные действия. Но на Земле почти успели забыть о произошедшем и начали воспринимать войну (   Читать дальше...   )Производство: Япония / GonzoЖанр: аниме, мультфильм, фантастика, боевик, драма, приключенияРежиссер: Масахико Окура, Юкио ТакахасиАктеры: Харуми Итирюсаи, Такая Хаси, Нориаки Сугияма, Такуя Киримото, Хотю Оцука, Михо Ямада, Кацуми Тё, Ацуко ТанакаПеревод: Двухголосый любительский (Azazel & NesTea)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:37:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB13143E8409AA769896D4FEF8BDEBFD554D4D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

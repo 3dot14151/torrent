@@ -1,32 +1,3 @@
-###  Публикация: 1689357   (124774) от 01.01.2024
-
-Eisfabrik - Gotter in Weiss (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, EBM>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hearts [00:04:26]
-02. Götter in Weiss [00:03:52]
-03. Lost My Mind [00:03:48]
-04. King of the Cold [00:04:06](   Читать дальше...   )Жанр: Synthpop, Futurepop, EBMПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D19C70C50E84D40B37984A791A45F50582B7B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691322   (123419) от 11.01.2024
 
 Trevor Something - Archetypes (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
@@ -35,7 +6,7 @@ Trevor Something - Archetypes (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123419.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Pet Shop Boys - SMASH - The Singles 1985–2020 (2023) 3CD, Remaster [FLAC|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122951.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Antarsys - The North Star (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122904.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120813.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Cyberwalker - Become Human (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120651.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Caro Emerald - The Shocking Miss Emerald (The Remixes) (2013) [FLAC|Lossless|WEB
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120434.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Depeche Mode - Speak & Spell (1981) 1st German Press [APE|Lossless|image + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120305.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Billie Piper - She Wants You (1998) Remaster, 2024, Virgin Records Limited [FLAC
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119627.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Depeche Mode - Album Collection (1981-1990) German Press Intercord [APE|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118652.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Pet Shop Boys - Discography: The Complete Singles Collection (1991) 1st Austrian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117240.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Pet Shop Boys - Actually (1987) Holland Press [APE|Lossless|image + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117221.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Pet Shop Boys - Introspective (1988) 1st German Press / Holland Press [APE|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117205.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117198.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Pet Shop Boys - Bilingual (1996) 1st Holland Press [APE|Lossless|image + .cue] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117175.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Soft Cell - Memorabilia - A Man Could Get Lost E.P. (2024) [FLAC|Lossless|WEB-DL
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117029.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Sanz - Let Us Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synth-pop, R
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116997.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Karl Bartos (ex-Kraftwerk) - The Cabinet Of Dr. Caligari (2024) [FLAC 24/44.1|Lo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116889.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Smash Palace - Smash Palace (1985) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Powe
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116491.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Eight Seconds - Big Houses (1990) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Progr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116352.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Eight Seconds - Almacantar (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116345.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Allie X - 2 Albums (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Canadian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115870.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Max Cruise - Heatwave (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115856.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Max Cruise - Night Cruise (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115821.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Missing Persons - Hollywood Lie (2023) [FLAC|Lossless|WEB-DL|tracks] <New Wave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115820.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ FM-84 - Atlas (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115714.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ FM-84 - Atlas (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF43FD0DEF44FBD83E3D96B7E3BB6EEE70E3D7CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702430   (115706) от 25.02.2024
+
+Max Cruise - Nights at Sunset Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Synthwave, Saxophone>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nights at Sunset Beach (04:55)
+02. Risky Business (04:45)
+03. Midnight Glow (04:35)
+04. La Contessa (02:35)(   Читать дальше...   )Жанр: Smooth Jazz, Synthwave, SaxophoneПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98BC94DECC0E0DC7750898F8DFEC1696F06D77D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

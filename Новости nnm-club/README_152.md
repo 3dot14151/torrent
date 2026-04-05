@@ -1,3 +1,55 @@
+###  Публикация: 1313883   (521955) от 11.07.2019
+
+Total War: THREE KINGDOMS (2019) [Ru/En] (1.1.0/dlc) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total War: THREE KINGDOMS — эта игра из популярнейшей стратегической серии посвящена легендарному военному конфликту в древнем Китае. Вас ждет эпоха легендарных героев и традиционное для Total War сочетание эпических сражений в реальном времени и глубоко проработанной пошаговой кампании.Тип издания: LicenseРазработчик: CREATIVE ASSEMBLY, Feral Interactive (Mac), Feral Interactive (Linux)Жанр: Strategy (RTS, TBS), 3DЯзык озвучки: Русский (отдельно), АнглийскийЯзык субтитров: Русский (отдельно), АнглийскийЯзык интерфейса: Русский (отдельно), Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E8F92C265AAA67E900BBAEEBFD15DA86E7E5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313876   (521947) от 11.07.2019
+
+Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.11727.20244 (2019.07) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, SharePoint (   Читать дальше...   )Язык интерфейса: русский, английский, украинский + языковые пакеты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4DE2886A2E61B062D2869134FA66F256FBCE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 372165   (521858) от 06.08.2011
 
 Очень плохая училка / Bad Teacher (2011) DVDRip
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521858.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ ReCore (2016) [Ru/Multi] (1.1.7468.2) License CODEX [Definitive Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520842.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520838.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520834.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ DLL-files.com Fixer   v2.7.72.2315 Portable  [Multi+Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520728.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520645.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Advanced SystemCare Pro 8.4.0.811 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520187.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520185.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519688.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519686.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519637.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 9.1.2051.0 RePack by KpoJIuK [M
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519620.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Destroy Windows 10 Spying 1.5 Build 231 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519246.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ uTorrent Pro 3.4.4 Build 40911 Stable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519150.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ ZOMBI (2015) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519138.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518835.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Prototype 2 + DLC [Ru] (RePack) 2012 l BoxPack
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518583.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ The Witcher 2: Assassins of Kings Enhanced Edition / Ведьмак 2: Убий�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518579.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518576.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518552.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517986.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ Adobe Photoshop CC 2018 (19.1.5.61161) Portable by XpucT [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517811.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517809.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517484.jpg" />
 </div>
 
 
@@ -624,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08EC3ED7674FEC28C968052858207399E177239D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535182   (517461) от 15.08.2012
-
-CorelDRAW Graphics Suite X6 16.1.0.843 (x32/x64) [Русский/Английский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517461.jpg" />
-</div>
-
-
-###  Подробнее
-
-CorelDRAW Graphics Suite X6 — надежное программное решение для графического дизайна, которое подойдет как начинающим, так и опытным пользователям. Пакет включает в себя среду с обширным контентом и профессиональные приложения для графического дизайна, редактирования фотографий и веб-дизайна. С ним вы получите безграничные возможности, чтобы проявить себя и реализовать ваши творческие идеи. Встроенная справка, обучающие видеоматериалы и профессиональные шаблоны помогут вам быстро освоиться с программами пакета. Затем вы сможете с уверенностью создавать все что угодно — например, впечатляющие логотипы и вывески, веб-сайты и элементы веб-графики, афиши, декоративные наклейки для автомобилей, буклеты и многое другое!
-
-(   Читать дальше...   )Название программы: CorelDRAW Graphics Suite X6Язык интерфейса: Русский/Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929586   (517207) от 21.08.2015
-
-Erica - новый фотореалистичный робот-андроид профессора Хироши Ишигуро
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_517207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор из университета Осаки Хироши Ишигуро (Hiroshi Ishiguro) получил широкую известность в мире робототехники благодаря созданным им и его группой фотореалистичным роботам-андроидам серии Geminoid, Kodomoroid, Otonaroid и другим. Каждое творение профессора Ишигуро становится все реалистичней и обретает дополнительные способности, увеличивающие его сходство с (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

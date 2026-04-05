@@ -1,3 +1,55 @@
+###  Публикация: 1012048   (795560) от 29.04.2016
+
+Журнал | Военная история №4 (2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тематическое издание для всех интересующихся развитием военного дела от древних времен до наших дней. Масса интересного и познавательного не только для тех, кто любит историю. Знаменитые крепости, великие полководцы, ручное оружие, женщина на войне. И многие другие смежные темы - в статьях нового номера издания.Жанр: Военное дело, историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184476CFCB9984D2B168813E15759758DF334E99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011783   (795418) от 29.04.2016
+
+Журнал | Народные рецепты. Спецвыпуск Как сохранить сердце здоровым (2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Болезнь сердца всегда была основной причиной смерти, но в ХХ веке ситуация изменилась. Раньше самым распространенным заболеванием сердца было повреждение сердечного клапана, вызванного ревматическим пороком в детском и молодом возрасте. В наши же дни это заболевание редко встречается у людей до 60 лет. Зато болезни сосудов сердца стали главной причиной смерти в развитых (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9892759FD5E6A380864654D3B74D84DBAC62E322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012246   (794727) от 30.04.2016
 
 Журнал | Загадки истории №15 (Апрель 2016) [PDF]
@@ -6,7 +58,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794727.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794721.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793645.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793516.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793435.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793359.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793303.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792821.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792812.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792242.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790465.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789520.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789479.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788655.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788119.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786163.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786158.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786156.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786155.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786137.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786125.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785953.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785796.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785789.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A954F70A70B599E6F836AEADA2B2F49E8466D4B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276688   (785340) от 20.01.2019
-
-Журнал | Техника. Технологии. Инженерия №1 (2019) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785340.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Техника. Технологии. Инженерия» - Международный научный журнал. Разделы журнала: Общие вопросы технических наук, Информатика и кибернетика, Электроника, радиотехника и связь, Автоматика и вычислительная техника, Электротехника, Энергетика, Металлургия, Машиностроение, Строительство, Транспорт, Архитектура, Легкая промышленность, Пищевая промышленность, Химическая (   Читать дальше...   )Жанр: Техника, технологии, инженерияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBF0BBFD6CF163B3C02E6C4573B11EE7689917B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277736   (785012) от 21.01.2019
-
-Журнал | Историк №11 (47) (ноябрь 2018) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785012.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7960EB9D2236AC352A554E8117A33563D264A605
 ```
 
 https://mybot314.ru/tekegram_catalog/

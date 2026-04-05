@@ -1,23 +1,74 @@
-###  Публикация: 1605380   (1044801) от 18.01.2023
+###  Публикация: 1305013   (1045235) от 14.01.2023
 
-Очередное достижение: 1000 релизов от krochka1
+PC Building Simulator (2019) [Ru/Multi] (1.15.3.0/dlc) License GOG [Overclocked Edition]
 
 >>3
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1044801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очередное достижение: 1000 релизов от krochka1!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища krochka1 с 1000-м релизом! Спасибо за регулярное пополнение трекера отличной музыкой!
-От всей души поздравляем с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации nnm-club!  :pozdravlyayu:Надеюсь, (   Читать дальше...   )
+Постройте свою ПК-империю: начните с базовой диагностики и закончите сборкой машин, за которые удавится любой геймер! И вообще, мы постарались максимально точно передать реальные цены на реальные комплектующие. Давайте, самое время использовать полученную в игре информацию и собрать себе зверь-компуктер, а потом еще и замерить бенчмарк!Тип издания: LicenseРазработчик: Claudiu Kiss, The Irregular CorporationЖанр: Симулятор, Строительство, МенеджментЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A34A625B84E3FACACEC0EE4AE01B36DDB0A3A0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605064   (1044902) от 17.01.2023
+
+AMD обнаружила 31 новую уязвимость в своих процессорах Ryzen и EPYC
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания AMD обновила информацию об уязвимостях в своих процессорах. В список добавлены данные о 31 уязвимости, которые, в том числе, затрагивают потребительские процессоры Ryzen и серверные EPYC. Разработчики также опубликовали список версий библиотеки AGESA, в которых реализованы исправления для закрытия выявленных уязвимостей.Библиотека инструкций AMD Generic (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587612   (1044890) от 17.01.2023
+
+Концерты (2022-2023) WEBRip [H.264/1080p] (сезон 1, выпуски 1-10 из 10)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы об этом мечтали, но боялись произнести вслух. Чистый юмор в эфире ТНТ! В рамках этого проекта профессиональные юмористические коллективы будут выступать со специальными часовыми перфомансами. Никаких судей или оценок – только юмор – это и есть «КОНЦЕРТЫ». Самый отвязный юмор во всём его жанровом и смысловом разнообразии, без запретов и ограничений. В каждом выпуске (   Читать дальше...   )Телекомпания: АО «ФМП Групп» по заказу АО «ТНТ-Телесеть»Жанр: ТВ-шоу, юморРежиссер: Роман НовиковПродолжительность: ~00:45:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF607F7277061C948DE6DAAA8DB5C4B83BFFD830
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044781.jpg" />
 </div>
 
 
@@ -59,7 +110,7 @@ Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (01.2023) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044662.jpg" />
 </div>
 
 
@@ -85,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044659.jpg" />
 </div>
 
 
@@ -112,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044479.jpg" />
 </div>
 
 
@@ -139,7 +190,7 @@ VivaVideo Video Editor v9.7.5 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044456.jpg" />
 </div>
 
 
@@ -166,7 +217,7 @@ Windows 10 PE (x86/x64) by Ratiborus v.3.2023 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044343.jpg" />
 </div>
 
 
@@ -192,7 +243,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2021 by Eagle123 (01.2023) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044094.jpg" />
 </div>
 
 
@@ -218,7 +269,7 @@ Windows 11 3in1 x64 22Н2 (build 22621.1105) by ivandubskoj 26.01.2023 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043871.jpg" />
 </div>
 
 
@@ -236,32 +287,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606747   (1043764) от 28.01.2023
-
-Adobe Photoshop 2022 23.5.4.981 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1043764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop 2022 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B309088A84CE4184C96AC1F24F246D16B96F8D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609460   (1043195) от 03.02.2023
 
 Wondershare Filmora 12.0.12.1450 + Plug-ins (x64) RePack by PooShock [Multi/Ru]
@@ -270,7 +295,7 @@ Wondershare Filmora 12.0.12.1450 + Plug-ins (x64) RePack by PooShock [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043195.jpg" />
 </div>
 
 
@@ -296,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042910.jpg" />
 </div>
 
 
@@ -322,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042909.jpg" />
 </div>
 
 
@@ -348,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042907.jpg" />
 </div>
 
 
@@ -375,7 +400,7 @@ Comedy Woman (2008-2019) SATRip/WEBRip/TVRip [Выпуск: 1-231]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042903.jpg" />
 </div>
 
 
@@ -401,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042718.jpg" />
 </div>
 
 
@@ -428,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042696.jpg" />
 </div>
 
 
@@ -454,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042626.jpg" />
 </div>
 
 
@@ -480,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042582.jpg" />
 </div>
 
 
@@ -506,7 +531,7 @@ Parallels Desktop for Mac 9.0.23062.920702 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042568.jpg" />
 </div>
 
 
@@ -532,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042566.jpg" />
 </div>
 
 
@@ -558,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042326.jpg" />
 </div>
 
 
@@ -584,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042314.jpg" />
 </div>
 
 
@@ -610,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042311.jpg" />
 </div>
 
 
@@ -636,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042309.jpg" />
 </div>
 
 
@@ -647,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63D13D667434DC6E60F1C45D69DAF9D2887F9067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599316   (1042062) от 08.02.2023
-
-Жестокая ночь / Violent Night (2022) BDRip [H.264] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042062.jpg" />
-</div>
-
-
-###  Подробнее
-
-В канун Рождества преступники берут в заложники состоятельную семью, чтобы получить их деньги. Незадолго до этого захваченные родители подарили дочери рацию, по которой можно связаться с Сантой. Девочка вызывает подкрепление в его лице, чтобы проучить захватчиков.Производство: США, Канада / 87North, Québec Production Services Tax CreditЖанр: фэнтези, боевик, триллер, комедия, криминалРежиссер: Томми ВирколаАктеры: Дэвид Харбор, Джон Легуизамо, Беверли Д’Анджело, Алекс Хэсселл, Кэм Жиганде, Алексис Лодер, Эди Паттерсон, Леа Брэйди, Брендан Флетчер, Майк ДопудПеревод: Многоголосый профессиональный (Jaskier | 18+), (TVShows)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AA02CEDD2162E26B5E1B53DBEFF0ABF44CFAF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

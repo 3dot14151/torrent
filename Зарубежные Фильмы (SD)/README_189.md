@@ -1,3 +1,29 @@
+###  Публикация: 1121449   (800309) от 02.04.2017
+
+Эксперимент / Das Experiment (2001) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800309.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ходе научного эксперимента 12 обыкновенных людей добровольно становятся на две недели «заключенными» тюрьмы, в то время как 8 таких же добровольцев становятся надзирателями. Задача первых — соблюдать правила тюремного режима; задача вторых — поддерживать порядок. Но человеческая природа берет свое, и эксперимент выходит из-под контроля: под бесстрастными взглядами (   Читать дальше...   )Производство: ГерманияЖанр: Триллер, драмаРежиссер: Оливер ХиршбигельАктеры: Мориц Бляйбтрой, Кристиан Беркель, Оливер Стоковски, Вотан Вилке Мёринг, Стефан Сцац, Полат Дал, Дэнни Рихтер, Ральф Меллер, Маркус Рудольф, Петер Физелер ...Перевод: Профессиональный многоголосыйСубтитры: Русский, английскийПродолжительность: 01:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2002AE0BB84169D5C8E1FE0D6CF65DD5BA8D10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121399   (800256) от 02.04.2017
 
 Двойной просчет / Double Jeopardy (1999) DVDRip
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_800256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_800256.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800254.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800242.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800232.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800168.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800165.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800111.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800077.jpg" />
 </div>
 
 
@@ -207,33 +233,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506399   (799936) от 31.10.2021
-
-Король танцует / Le roi danse (2000) DVDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_799936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вольная трактовка романа Филипа Боссана «Люлли, солнечный музыкант».
-После смерти кардинала Мазарини 22-х летний король Людовик XIV превращает свое увлечение танцами, музыкой и искусством практически в государственную политику, желая сделать из своей страны блестящую монархию, сверкающую театром, оперой и музыкой. С юношеских лет его соратником был итальянский музыкант (   Читать дальше...   )Производство: Франция, Германия, БельгияЖанр: драма, история, музыкаРежиссер: Жерар КорбьоАктеры: Бенуа Мажимель, Чеки Карио, Борис Терраль, Коллет Эммануель, Сесиль Буа, Клер КеймПеревод: Авторский (Юрий Сербин)Субтитры: Русские (full)Продолжительность: 01:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA222B0C48687CF6A66BB13BA2D67AB6A4AC5E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503581   (799935) от 31.10.2021
 
 Бёрдмэн / Birdman (2014) BDRip
@@ -242,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799935.jpg" />
 </div>
 
 
@@ -268,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799889.jpg" />
 </div>
 
 
@@ -294,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799882.jpg" />
 </div>
 
 
@@ -321,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799808.jpg" />
 </div>
 
 
@@ -347,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799795.jpg" />
 </div>
 
 
@@ -373,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799755.jpg" />
 </div>
 
 
@@ -399,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799746.jpg" />
 </div>
 
 
@@ -425,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799698.jpg" />
 </div>
 
 
@@ -451,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799602.jpg" />
 </div>
 
 
@@ -477,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799590.jpg" />
 </div>
 
 
@@ -503,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799581.jpg" />
 </div>
 
 
@@ -529,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799562.jpg" />
 </div>
 
 
@@ -556,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799546.jpg" />
 </div>
 
 
@@ -582,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799463.jpg" />
 </div>
 
 
@@ -600,33 +599,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506648   (799442) от 01.11.2021
-
-На 10 минут старше / Ten Minutes Older (2002) DVDRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_799442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник короткометражек выдающихся режиссеров современности.
-В 1978 году советские режиссеры Юрис Подниекс и Герц Франк сняли шедевр документального кино «Старше на десять минут»: в течение десяти минут камера неотрывно следила за лицом маленького зрителя в кукольном театре. На экране мальчик переживал столько эмоций, что на глазах зрителей превращался в новую личность. (   Читать дальше...   )Производство: Испания, Великобритания, Франция, Германия, Финляндия, Китай, США, Япония, КанадаЖанр: драма, мелодрама, фантастикаАктеры: Валерия Бруни-Тедески, Амит Райани, Тарун Беди, Мария Людовика Бернарди, Кьяра Масталли, Доминик Уэст, Александра Стаден, Дэниэл Крэйг, Джабедул Азад, Зохирул АзадПеревод: Двухголосый профессиональныйЯзык озвучки: РусскийСубтитры: Русские (full)Продолжительность: 01:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928BE69C74375026344BB1C92A70AA8B48D8C6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506770   (799440) от 01.11.2021
 
 Черный пляж / Black Beach (2020) WEBRip [DVO]
@@ -635,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799440.jpg" />
 </div>
 
 
@@ -661,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799389.jpg" />
 </div>
 
 
@@ -672,6 +644,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCAB730527C9C46D2EBBC577A2CDBAF33C5EB111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506423   (799387) от 01.11.2021
+
+Пушки Акимбо / Guns Akimbo (2019) BDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майлз небезосновательно считает себя неудачником: девушка бросила, а сам он работает в заштатной конторе разработчиком мобильных игр. Единственная отдушина в жизни парня — интернет-троллинг. Каждый вечер он провоцирует кого-нибудь в сети и, хорошенько поругавшись, спокойно засыпает. Однажды Майлз хамит очередному незнакомцу на сайте, где транслируются жестокие игры (   Читать дальше...   )Производство: Великобритания, Германия, Новая Зеландия / Altitude Film Entertainment, Electric Shadow Company,Жанр: Боевик, КомедияРежиссер: Джейсон Ли ХауденАктеры: Дэниэл Рэдклифф, Самара Уивинг, Риз Дэрби, Нед Деннехи, Наташа Лю Бордиццо, Марк Роули, Грант Боулер, Ханако Футман, Джош Роберт Томпсон, Сет СьострандПеревод: Авторский (Евгений Солодухин (Solod))Субтитры: отсутствуютПродолжительность: 01:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE3F4EECEB125AF917122FEBED3052E1B4517FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

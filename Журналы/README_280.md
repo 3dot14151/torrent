@@ -1,3 +1,133 @@
+###  Публикация: 920968   (577450) от 24.07.2015
+
+Журнал | Дарья. Спецвыпуск №15. Заготовки (2015) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал целиком посвящен домашним заготовкам - более 100 рецептов в каждом номере. Доступные, простые и очень вкусные заготовки.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38264BA74679291DD501C606546CD97C9A774151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920964   (577448) от 24.07.2015
+
+Журнал | Твой чудесный сад №1 (2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советы для дачников и не только. Журнал знакомит садоводов и огородников с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами, садовой культурой других стран и др.Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C556D44CAB49765A403819539E53344BDBDA7F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920971   (577444) от 24.07.2015
+
+Журнал | CNews №75 (2015) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577444.jpg" />
+</div>
+
+
+###  Подробнее
+
+"CNews" - издание, ориентированное на руководителей ИТ-департаментов и специалистов в области высоких технологий. Изюминкой журнала является его акцент на вертикальные рынки, потребляющие информационные технологии. Кроме того, журнал содержит разделы, посвященные рынкам корпоративного ПО и аппаратных средств, статьи о проблемах отрасли связи и потребительские (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18EC6D83DB29AF84754BCFE2BD2F94FCE854812B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921125   (577249) от 24.07.2015
+
+Журнал | Вокруг света №8 (август 2015) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вокруг света - один из первых журналов в России вообще и один из первых журналов в мире на познавательную тематику. «Вокруг света» публикует новые взгляды на известные исторические события, рассказы о знаменитых людях и их судьбах, информацию о новых научных открытиях и технических достижениях.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9301578CF7CC8C93F198D61C3926E93D0FB39486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921065   (577165) от 24.07.2015
+
+Журнал | Электрик №6 (Июнь 2015) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элeктрик» — специализированное электротехническое издание. Издание публикует актуальные материалы по таким направлениям, как: электроавтоматика, источники питания, электродвигатели и приводы, трансформаторы, силовое оборудование высокого, среднего и низкого напряжения, энергетика, осветительные приборы, а также методические рекомендации, обзорные статьи с комментариями (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FD7B331A34D7971076D85E9C4626D3ACD080C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921138   (577137) от 24.07.2015
 
 Журнал | Идеи вашего дома [Россия] №8 (199) (август 2015) [PDF]
@@ -6,7 +136,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577137.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577021.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576999.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576927.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576926.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576860.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576841.jpg" />
 </div>
 
 
@@ -192,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576640.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576539.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576536.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576534.jpg" />
 </div>
 
 
@@ -297,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576517.jpg" />
 </div>
 
 
@@ -323,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576433.jpg" />
 </div>
 
 
@@ -350,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576330.jpg" />
 </div>
 
 
@@ -376,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576324.jpg" />
 </div>
 
 
@@ -402,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576322.jpg" />
 </div>
 
 
@@ -429,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576210.jpg" />
 </div>
 
 
@@ -455,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576168.jpg" />
 </div>
 
 
@@ -481,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576012.jpg" />
 </div>
 
 
@@ -507,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575976.jpg" />
 </div>
 
 
@@ -533,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575871.jpg" />
 </div>
 
 
@@ -544,136 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24395680EE8A0162F64476A46E94F5E24B36E056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554591   (575758) от 31.05.2022
-
-Журнал | Приусадебное хозяйство №9 [+ Приложения] (сентябрь 2021) [PDF, DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142B8FE42E877338B4F3E689378EA7E5F64B08F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554656   (575684) от 31.05.2022
-
-Журнал | Приусадебное хозяйство №1 [+ Приложения] (январь 2022) [PDF, DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94DD895BB286C9908D0182BD34E12B83AF8E6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554658   (575682) от 31.05.2022
-
-Журнал | Приусадебное хозяйство №3 [+ Приложения] (март 2022) [PDF, DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57A549811C29B92EE2712CE669333FFC237BB40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554594   (575676) от 31.05.2022
-
-Журнал | Приусадебное хозяйство №12 [+ Приложения] (декабрь 2021) [PDF, DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF42909990F756252167991E4DE99003B1F07A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554659   (575670) от 31.05.2022
-
-Журнал | Приусадебное хозяйство №4 [+ Приложения] (апрель 2022) [PDF, DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468E83B0863ADDB058CE30DDBBE23DE361865DD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

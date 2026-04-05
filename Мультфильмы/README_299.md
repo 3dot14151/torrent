@@ -1,3 +1,133 @@
+###  Публикация: 560646   (213553) от 18.08.2023
+
+Мадагаскар: Трилогия / Madagascar: Trilogy (2005,2008,2012) [1080p] BDRemux
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: мультфильм, комедия, приключения, семейныйРежиссер: Эрик Дарнелл, Том МакГрат, Конрад ВернонПеревод: дублированныйСубтитры: Русские (форсированные, полные), английские (полные, SDH, комментарии)Продолжительность: 01:33:24 + 01:25:58 + 01:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B96532F7049AE6F265CBEF984060B6ECBC858C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653329   (213493) от 20.08.2023
+
+Элементарно / Elemental (2023) WEB-DL [H.265/1080p] [SDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213493.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Городе Стихий обитатели огня, воды, земли и воздуха живут вместе. У сильной и вспыльчивой Эмбер завязывается дружба с расслабленным, плывущим по течению Уэйдом — дружба, которая бросит вызов её представлениям о мире вокруг.Производство: США, Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фантастика, фэнтези, драма, комедия, приключения, семейныйРежиссер: Питер СонАктеры: Леа Льюис, Мамуду Ати, Роналдо Дель Кармен, Шила Омми, Венди Маклендон-Кови, Кэтрин О’Хара, Мэйсон Вартхаймер, Ронобир Лахири, Уильма БонетДжо ПераПеревод: Дублированный (MovieDalen)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 01:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA18C5C134DB5CCDD4C490D9A8472A021C263AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832467   (213490) от 30.10.2025
+
+В гости к сказке. Сказки земли русской - 2. Сборник мультфильмов (1947-1953) DVD5
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимые мультфильмы из детства. Сказка не является способом описания жизни, это животворящее слово, способное творить, исцелять, делать счастливым, радостным, делать чище, позволить расти, обрести знания и внутреннюю силу. Сказка это защитник, это помощник. Сказка помогает обрести знания, пробудить их в себе, пробудить память в себе. И передать её можно даже образом. (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражка, экранизация, русская сказкаРежиссер: Михаил Цехановский, Иван Иванов-Вано, Леонид АмальрикАктеры: Анастасия Зуева, Инесса Дровосекова, Дмитрий Павловский, Николай Никитич, Борис Терентьев, Вениамин Шевцов, Леонид Ктиторов, Вероника Борисенко,Ирина Масленникова, Владимир Конкин и другиеСубтитры: отсутствуютПродолжительность: 03:09:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B1BDCFF6BBB96145C96DE039A44B1FC3AF94A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557171   (213379) от 13.06.2022
+
+Суворов: Великое путешествие (2022) WEBRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простому юноше Грише предстоит разлучиться с любимой Соней и отправиться в великое путешествие: он попадет на службу к непобедимому полководцу Александру Васильевичу Суворову. Гриша станет участником захватывающих приключений и судьбоносных событий во время легендарного Швейцарского похода. Поверив в себя, Гриша бросит вызов опасному злодею, не раз проявит смекалку (   Читать дальше...   )Производство: Россия / Киностудия им. М. Горького, КиноАтис, СоюзмультфильмЖанр: Компьютерная анимация, Детский, Обучающий, ПриключенияРежиссер: Борис ЧертковАктеры: Константин Хабенский, Антон Макарский, Филипп Киркоров, Анна Ардова, Алексей Демидов, Юлия Рутберг, Наталия БыстроваСубтитры: отсутствуютПродолжительность: 01:22:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5646D4A9A25C4B11C529E73586D9A9F0A054A839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557331   (213345) от 14.06.2022
+
+Пламенное сердце / Vaillante / Fireheart (2022) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213345.jpg" />
+</div>
+
+
+###  Подробнее
+
+С самого детства у Джорджии Нолан была только одна мечта: стать пожарным, как ее папа! К сожалению, законы того времени не оставляли шанса этой мечте осуществиться. Но когда в городе стали один за другим пропадать пожарные, а таинственные пожары — сжигать дотла городские театры, Джорджиа поняла: вот она, ее возможность! Переодевшись в «Джо», неуклюжего парня с усиками, (   Читать дальше...   )Производство: Франция, Канада / SND Groupe M6, Caramel Film, eOne FilmsЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Теодор Ти, Лоран ЗэйтунАктеры: Оливия Кук, Кеннет Брана, Лори Холден, Уильям Шетнер, Мара Жюно, Уайлекс Ли, Райан В. Гарсиа, Алис Поль, Венсан Кассель, Валери ЛемерсьеПеревод: Дублированный (SDI Media / IYUNO SDI Group)Субтитры: Английские (Full, SDH)Продолжительность: 01:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4719ED686E75FD02A0157987CC6C281AA500D827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557535   (213327) от 15.06.2022
 
 Викинг Вик / Vic the Viking and the Magic Sword (2019) BDRip [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213327.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213251.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213223.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213171.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213152.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213096.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213063.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213062.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212913.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212912.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212889.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212887.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212881.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212874.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212873.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212872.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212785.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212769.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212768.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212765.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212743.jpg" />
 </div>
 
 
@@ -541,137 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71346AAE5D38D9C2D38A2560646C8938A2CF4314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 38317   (212724) от 09.07.2022
-
-Сборник мировой анимации DVDRip (часть 3)
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зритель вместе с Грегором — жуком оказываются внутри огромного, враждебного, черного мира.
-Фильм, основанный на рассказе Franz Kafka'и "Метаморфоза", история рассказана через мультипликацию песка.. Образный саундтрек и инновационные художественные работы объединяются, чтобы обновить мир Кафки отчуждения и вины.Производство: Канада, National Film Board of CanadaЖанр: ПритчаРежиссер: Кэролайн ЛифАктеры: ОтсутствуютПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA6113A6BDAEAF6C7930F17D580DEEF9723BE6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 52369   (212723) от 09.07.2022
-
-Сборник мировой анимации DVDRip (часть 5)
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие из идей мультипликации Билла, которые были слишком чрезвычайными для рынка мужских журналов, помещены в эту короткометражку.Производство: СШАЖанр: Для взрослыхРежиссер: Билл ПлимптонПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEB95200640DC08CDA4530A0FF65AD06AE03443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562733   (212661) от 12.07.2022
-
-Бесконечный поезд / Infinity Train (2019-2021) WEB-DLRip [H.264/720p-LQ] (Сезон 1-4, серии 1-40 из 40)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Различные люди оказываются в таинственном поезде с бесконечным количеством вагонов, каждый из которых является своим собственным миром с разными законами и причудами. Они должны найти способ сойти с поезда и вернуться домой.Производство: США, HBO MaxЖанр: фантастика, фэнтези, драма, комедия, детектив, приключения, семейныйРежиссер: Оуэн ДэннисПеревод: MVO TVShows, MVO TrainStudio, MVO HDRezkaСубтитры: русские (TrainStudio)Продолжительность: 40 x ~00:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D7CEBD4140D98B380C109E4C6A480B7F3E3BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563111   (212641) от 12.07.2022
-
-Морской монстр / The Sea Beast (2022) WEB-DLRip [H.264] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Мэйси и легендарный охотник на монстров Джейкоб Холланд отправляются в путешествие по неизведанным морям.Производство: США / Netflix Animation, NetflixЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Крис УильямсПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD834BA4463E9532AE2672E85283987F3A7C526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563216   (212634) от 13.07.2022
-
-Морской монстр / The Sea Beast (2022) WEBRip [H.264/1080p] [UKR, EN / UKR, EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Мэйси и легендарный охотник на монстров Джейкоб Холланд отправляются в путешествие по неизведанным морям.Производство: США / Netflix AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Крис УильямсПеревод: Дублированный (Netflix)Язык озвучки: Украинский, английскийСубтитры: Украинские (Forced, full), английские (Full, SDH)Продолжительность: 01:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BC45C3FEA338CBFB085E048781560D21804018
 ```
 
 https://mybot314.ru/tekegram_catalog/

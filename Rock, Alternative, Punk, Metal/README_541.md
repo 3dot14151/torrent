@@ -1,3 +1,118 @@
+###  Публикация: 1154838   (536894) от 01.08.2017
+
+Бездна Анального Угнетения - Всё Превратится в Металл (2017) EP [MP3|320 Kbps] <Melodic Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я Ненавижу Питер
+02. Всё Превратится в Металл
+03. Кожаная ПуляЖанр: Melodic Death Metal, Thrash MetalПродолжительность: 00:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42219FF7616EB34987854400A3CC12861CBE3672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050451   (536747) от 09.09.2016
+
+Solution .45 - Nightmares In The Waking State Pt.II (2016) [FLAC|Lossless|image + .cue] <Melodic Groove Metal, Progressive Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dim Are The Pathways (Instrumental)
+02. The Faint Pulse Of Light
+03. Mind Mutation
+04. Built On Sand(   Читать дальше...   )Жанр: Melodic Groove Metal, Progressive Melodic Death MetalПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573F8004C53DDDACCBE6F165188C6D34CDE697F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050652   (536734) от 09.09.2016
+
+Smokey Fingers - Promised Land (2016) [MP3|320 Kbps] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Madame (04:14)
+02. Rattlesnake Trail (04:24)
+03. The Road Is My Home (04:48)
+04. Damage Is Done (04:46)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A54894356532467DD93A167CC614C64656D4094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050701   (536729) от 09.09.2016
+
+Tennessee Iron - Better Late Than Never (2016) [MP3|320 Kbps] <Tennessee Boogie Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakin' the Glass
+02. It Ain't Right
+03. Girl Don't Tell Me
+04. Let's Get It On(   Читать дальше...   )Жанр: Tennessee Boogie Rock, Classic RockПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3AD2C0A7C94579A75BB641A87EBC8120B5B655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312158   (536592) от 02.07.2019
 
 Зноев - Ты на меня любишь (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +121,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536592.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ Michael Sweet - One Sided War (2016) [FLAC|Lossless|image + .cue] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536586.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Humble Pie - Smokin' (1972) Reisue, 1990, A&M Records [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536575.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Smokie - The World And Elsewhere (1995) [APE|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536574.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ Jimi Hendrix - Live At Monterey Pop Festival (1992) [WavPack|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536460.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ Twilight Force - Heroes Of Mighty Magic (2016) [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536451.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536375.jpg" />
 </div>
 
 
@@ -206,7 +321,7 @@ Charm City Devils - Let's Rock'N'Roll / Sin (2009, 2012) [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536371.jpg" />
 </div>
 
 
@@ -235,7 +350,7 @@ The Beatles - Live At The Hollywood Bowl (1977) Remastered, 2016, Universal [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536368.jpg" />
 </div>
 
 
@@ -264,7 +379,7 @@ ZZ Top - Live: Greatest Hits From Around The World (2016) Live [MP3|320 Kbps] <H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536362.jpg" />
 </div>
 
 
@@ -293,7 +408,7 @@ Brand New - Discography 7 Releases (2001-2017) [FLAC|Lossless|tracks|tracks + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536303.jpg" />
 </div>
 
 
@@ -322,7 +437,7 @@ The Hatters - Forte & Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ska, Pun
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536210.jpg" />
 </div>
 
 
@@ -351,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536188.jpg" />
 </div>
 
 
@@ -378,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536148.jpg" />
 </div>
 
 
@@ -407,7 +522,7 @@ Pain - Coming Home (2016) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536079.jpg" />
 </div>
 
 
@@ -436,7 +551,7 @@ Midwinter - Enthrone in Blizzard (2006) Reissue, 2011 [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535935.jpg" />
 </div>
 
 
@@ -465,7 +580,7 @@ Carrie - Secrets (1986) Reissue, 2020, Earthshaker Records [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535838.jpg" />
 </div>
 
 
@@ -495,7 +610,7 @@ Tungsten - Bliss (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Heavy Metal, Power Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535837.jpg" />
 </div>
 
 
@@ -524,7 +639,7 @@ Vypera - Eat Your Heart Out (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535835.jpg" />
 </div>
 
 
@@ -553,7 +668,7 @@ Drive At Night - Echoes Of An Era (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535834.jpg" />
 </div>
 
 
@@ -582,7 +697,7 @@ Oni - Loathing Light (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive Metalcor
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535832.jpg" />
 </div>
 
 
@@ -611,7 +726,7 @@ Collective Soul - Disciplined Breakdown (1997) Remaster, 2022, Craft Recordings 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535828.jpg" />
 </div>
 
 
@@ -625,122 +740,6 @@ Collective Soul - Disciplined Breakdown (1997) Remaster, 2022, Craft Recordings 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C1D7A3E984031BC78591A282989B5A3240F52AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557795   (535826) от 18.06.2022
-
-The Waterboys - An Appointment with Mr Yeats (2011) Remaster, 2022, Cooking Vinyl Limited [FLAC 2.0|44/24|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hosting of the Shee (2022 Remaster) (4:42)
-02. Song of Wandering Aengus (2022 Remaster) (6:00)
-03. News for the Delphic Oracle (2022 Remaster) (4:32)
-04. A Full Moon in March (2022 Remaster) (2:09)(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B17C454A15710A45E981F3D106AA903516D1C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557790   (535708) от 18.06.2022
-
-Grey Daze - The Phoenix (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturation (Strange Love) (3:55)
-02. Starting To Fly (3:28)
-03. Be Your Man (3:40)
-04. Holding You (4:15)(   Читать дальше...   )Жанр: Alt.RockПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C920946C04331559407C035F03D76DF0FEE6A9F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557728   (535697) от 18.06.2022
-
-Jorn - Over the Horizon Radar (2022) [FLAC 2.0|44,1/24|tracks|WEB-DL] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over the Horizon Radar (5:24)
-02. Dead London (7:05)
-03. My Rock and Roll (7:31)
-04. One Man War (5:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B424FC1BBFF0785FF4E80E7331C81CA75600D834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557994   (535682) от 18.06.2022
-
-Edge Of Forever - Native Soul (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Rivers (1:48)
-02. Native Soul (4:31)
-03. Promised Land (3:55)
-04. Carry On (3:19)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716179D705E22402CDBFC035D392A898BA133119
 ```
 
 https://mybot314.ru/tekegram_catalog/

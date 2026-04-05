@@ -1,3 +1,29 @@
+###  Публикация: 1123449   (786231) от 08.04.2017
+
+Киллер поневоле / Un petit boulot (Odd Job) (2016) WEB-DLRip [H.264/720p-LQ] [AVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жак готов на всё, чтобы заработать денег. Даже на предложение местного авторитета убить его неверную жену. Но есть две проблемы: Жак едва ли умеет управляться с оружием, а его новая девушка работает в полиции, где вовсю ищут неумелого киллера.Производство: Франция, Бельгия / Gaumont, Scope Pictures, Paddock FilmsЖанр: Комедия, КриминалРежиссер: Паскаль ШомельАктеры: Ромен Дюрис, Мишель Блан, Алис Белаиди, Гюстав Керверн, Алекс Лутс, Шарли Дюпон, Филипп Гран’Анри, Томас Мастин, Кароль ТревоПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Субтитры: Французские (форсированные)Продолжительность: 01:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DD6C54AA00C947BFB9F708365EF4F60EA16ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123944   (786001) от 09.04.2017
 
 Corel VideoStudio Ultimate X10 20.1.0.14 (x64) RePack by PooShock [Multi/Ru]
@@ -6,7 +32,7 @@ Corel VideoStudio Ultimate X10 20.1.0.14 (x64) RePack by PooShock [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786001.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785852.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785692.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Acronis True Image 2017 New Generation 21.0.6206 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785691.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ KMSAuto Net 2016 1.5.0 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785679.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785492.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Adobe Photoshop Lightroom CC 2015.10 (6.10) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785489.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Assassin's Creed 3 (2012) [Ru/En] (1.06/dlc) Repack =nemos= [Ultimate Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785488.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785486.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_785299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785299.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_785251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785251.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Test Drive Unlimited 2 ModPack (2011/2017) [Ru/En] (034/1.7.4/dlc) Repack/Mod Ni
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785174.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_785084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785084.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784786.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Corel VideoStudio Ultimate 2018 21.1.0.89 + Content Pack [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784521.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784520.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784273.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Avira Phantom VPN Free / Pro 2.12.5.31589 RePack by elchupacabra [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784261.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Windows 7 SP1 4in1 (x86/x64) Elgujakviso Edition (v.03.02.18) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784222.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ InuYasha / Инуяша [1996] [Манга] [Русский] [главы:1-442, 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784220.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Win 10 Tweaker 5.2 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783975.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783613.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783607.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783576.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.06.11 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783563.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.06.11 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE033FB9491A47BA111EBF1CA6E38F6BD32E13A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205665   (783363) от 10.02.2018
-
-Quantum Break (2016) [Ru/En] (1.0.126.0307) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quantum Break - это приключенческий экшен от третьего лица от создателей Max Payne и Alan Wake. Главный герой игры - молодой парень Джек, который после неудачного эксперимента смог управлять временем. За Джеком начинает охота некая организация под названием "Монарх", основатель которой, Пол Серин, так же владеет особой способностью - он может видеть альтернативные (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCCA133B66E2FB7F6930415B05A4075C5691B612
 ```
 
 https://mybot314.ru/tekegram_catalog/

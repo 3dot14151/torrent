@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646712.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646655.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646525.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645853.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645838.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645569.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Лучшие песни русского радио 7 (2002) 2CD [FLAC|Loss
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644843.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Лучшие песни русских сериалов (2003) [FLAC|Lossle
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644838.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Заяц Рор Шоу-3 (1997) [FLAC|Lossless|image + .cue]<Pop, Dance>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644746.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643685.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Заяц Рор Шоу-2 (1996) [FLAC|Lossless|image + .cue]<Pop, Dance>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642917.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641903.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_641026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641026.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640615.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ SEVENROSE - Нам не забыть (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637120.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637107.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636953.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636876.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636145.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636131.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636034.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635709.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633290.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633287.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631983.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ VA - Ещё одна вечеринка!! (1995) [FLAC|Lossless|image + .cue]<Po
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631978.jpg" />
 </div>
 
 

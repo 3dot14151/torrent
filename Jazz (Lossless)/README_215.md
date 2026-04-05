@@ -6,7 +6,7 @@ Paul Shapiro - It's in the Twilight (2006) [FLAC|Lossless|image + .cue] <Klezmer
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323718.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Paul Taylor - Prime Time (2011) [APE|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323599.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sonny Stitt - 12! (1972) 1999, 32 Jazz [WavPack|Lossless|image + .cue] <Hard Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323590.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Patti Austin - For Ella (2002) Playboy Jazz [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323405.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Elmo Hope - Five Classic Albums 1953 - 1961  (2017) 2CD, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322947.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bob Brookmeyer - One More: Music Of Thad Jones (2004) 2005, IPO Recordings [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322333.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Geoffrey Keezer - Wildcrafted: Live At The Dakota (2005) MaxJazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322329.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Art Blakey & The Jazz Messengers - Just Coolin' (1959) 2020, Blue Note [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322324.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jan Aldridge-Clark - Moving Forward (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322218.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bing Crosby & The London Symphony Orchestra - Bing at Christmas (2019) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322210.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Rene Thomas & Bobby Jaspar - Thomas & Jaspar Quintet (1961) 2006, BMG [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322116.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Late Night Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322110.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Eddie Heywood - 1950 - 1951 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322033.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Urbie Green - The Fox (1976) 2013, King Records[FLAC|tracks+.cue]<Jazz Funk, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321974.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Nikolay Gromin & Alexey Kuznetsov (Николай Громин и Алексей
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321652.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Christian Sands - Reach (2017) Mack Avenue Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321592.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sahib Shihab - Complete Sextets Sessions 1956-1957 (2008) 2CD, Fresh Sound Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321527.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Acker Bilk & His Paramount Jazz Band - Mr Acker Bilk's Lansdowne Folio (1960, 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321518.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Hank Jones & Tyree Glenn - Quintet / Sextet (1957-1961) 2CD, 2004, Lone Hill Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321420.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ira Sullivan - Horizons (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321417.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Kirk Lightsey Quartet - First Affairs (1986) Remaster, 2015, Solid Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321416.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Herb Ellis & Ray Brown - After You've Gone (1975) 1990, Concord[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321414.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Tsuyoshi Yamamoto Trio - Summertime (1976) Remaster, 2014, Sony Music[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321168.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ John McLaughlin And Mahavishnu - Adventures In Radioland (1993) [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320980.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Flip Phillips & Scott Hamilton - A Sound Investment (1987) Concord Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319809.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Chick Corea - 3 Essential Albums (1986, 1991,1995) 2016, 3CD, Universal [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319807.jpg" />
 </div>
 
 

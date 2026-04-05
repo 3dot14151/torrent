@@ -1,3 +1,57 @@
+###  Публикация: 1183044   (311291) от 12.11.2017
+
+Apple iWork Pages 6.3.1, Numbers 4.3.1, Keynote 7.3.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый простой, удобный и элегантный способ для создания текстовых документов, электронных таблиц и великолепных презентаций с пакетом iWork. Кроме того, пакет iWork работает с Microsoft Office, поэтому совместное использование файлов становится ещё проще.Тип издания: macOS SoftwareРелиз состоялся: 09.11.2017Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031C09D2AF5C6DEE111B1A3F9A65CD42AF6B7C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076801   (310830) от 26.11.2016
+
+CursorSense 1.3.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310830.jpg" />
+</div>
+
+
+###  Подробнее
+
+CursorSense - приложение, позволяющее регулировать ускорение и чувствительность курсора. Отрегулировав эти значения, вы сможет управлять курсором так же легко, как своей рукой.
+
+Кроме того, утилита CursorSense поставляется со встроенной поддержкой всех трекпадов и мышей, и предназначен, чтобы позволить вам перемещать курсор с большей точностью.Тип издания: macOS SoftwareРелиз состоялся: 23 ноября 2016Разработчик: Plentycom SystemsПоддерживаемая ОС: macOS 10.6  +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99C34021714A0E08AACB36F4A674D968BA9EB38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182625   (309796) от 13.11.2017
 
 Tyme 2 v1.9.6 [En]
@@ -6,7 +60,7 @@ Tyme 2 v1.9.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309796.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ Capture Gif 1.4.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308886.jpg" />
 </div>
 
 
@@ -64,7 +118,7 @@ Forecast Bar - Weather and Radar 3.0.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307775.jpg" />
 </div>
 
 
@@ -93,7 +147,7 @@ SSH Config Editor Pro 1.11.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307651.jpg" />
 </div>
 
 
@@ -119,7 +173,7 @@ AnyToISO Pro 3.8.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307511.jpg" />
 </div>
 
 
@@ -145,7 +199,7 @@ Tipard Mac Video Converter Ultimate 9.1.20 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307503.jpg" />
 </div>
 
 
@@ -171,7 +225,7 @@ On1 Photo 10.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307422.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ Video Converter Movavi 19 v19.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307139.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ MacAppBlocker 3.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306983.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ Templates for Numbers 4.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306800.jpg" />
 </div>
 
 
@@ -281,7 +335,7 @@ uTorrent 1.8.7 (43001) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306079.jpg" />
 </div>
 
 
@@ -307,7 +361,7 @@ Metasequoia 4.7.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305389.jpg" />
 </div>
 
 
@@ -333,7 +387,7 @@ Apple iMovie 10.1.10 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304650.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ EasyPing - network tool 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303601.jpg" />
 </div>
 
 
@@ -387,7 +441,7 @@ Go64 1.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303556.jpg" />
 </div>
 
 
@@ -413,7 +467,7 @@ Password Vault Manager Enterprise 4.6.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303519.jpg" />
 </div>
 
 
@@ -439,7 +493,7 @@ Spillo 1.9.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303001.jpg" />
 </div>
 
 
@@ -468,7 +522,7 @@ Templates for Pages 5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302840.jpg" />
 </div>
 
 
@@ -497,7 +551,7 @@ Keymou 1.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302624.jpg" />
 </div>
 
 
@@ -523,7 +577,7 @@ Affinity Publisher 1.8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302393.jpg" />
 </div>
 
 
@@ -550,7 +604,7 @@ Affinity Photo 1.8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302174.jpg" />
 </div>
 
 
@@ -576,7 +630,7 @@ Affinity Designer 1.8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302160.jpg" />
 </div>
 
 
@@ -603,7 +657,7 @@ Apple iMovie 10.1.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301997.jpg" />
 </div>
 
 
@@ -631,7 +685,7 @@ DiskWarrior 4.2 Rev909 BootDVD (Alsoft)[English] (2009)
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301881.jpg" />
 </div>
 
 
@@ -643,59 +697,6 @@ DiskWarrior 4.2 Rev909 BootDVD (Alsoft)[English] (2009)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184496   (301493) от 17.11.2017
-
-Diagrammix 2.15 (3013) [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент для для построения любых видов диаграмм с минимальными услилиями с вашей стороны. Если вы студент, менеджер или руководитель, то с этим инструментом вы можете составить диаграмму любой сложности легко и просто. Такой инструмент пригодится для иллюстрирования отчетов и при подготовке презентаций. Он поможет вам схематично выразить свои мысли, обнаружить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2017Разработчик: Deep IT ProПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B9D6A8DD594AE2D221CF550FCE1D3841ADFA5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333920   (300952) от 26.10.2019
-
-Movavi Video Editor 15.4.1 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактор видео для Mac OS от Movavi
-Встречайте лучшую программу для обработки видео на Мак – вам понадобится всего несколько минут, чтобы ее освоить! В Видеоредакторе Movavi есть все, что нужно для быстрого видеомонтажа на Mac, удобной нарезки видео и создания красочных слайд-шоу из фотографий. Просто загрузите фото и видео в программу, исправьте качество одним нажатием (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0C86E6C95EF9A86BEE639AD67C5144635AA523
 ```
 
 https://mybot314.ru/tekegram_catalog/

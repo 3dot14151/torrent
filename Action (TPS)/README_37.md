@@ -6,7 +6,7 @@ M.E.R.C. Genesis (2023) [En] (1.0.0.00) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194032.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Daymare: 1994 Sandcastle (2023) [Ru/Multi] (6410) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193193.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Armored Core VI: Fires of Rubicon (2023) [Ru/Multi] (11893351/dlc) Repack DjDI [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192813.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Daymare: 1998 (2019) [Ru/Multi] (1.4) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192476.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BloodRayne: Terminal Cut (2020) [Ru/Multi] (1.06) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190922.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Aragami 2 (2021) [Ru/Multi] (1.0.30195.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188566.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Pilot Down: Behind Enemy Lines / Падение ястреба: В тылу вр
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188172.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Manhunt 2 (2009) [Ru/Multi] (1.0) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187991.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Steelrising (2022) [Ru/Multi] (Build 9770876/dlc) Repack Other s [Bastille Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187624.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Darksiders III (2018) [Ru/Multi] (1.4a/dlc) License GOG [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187603.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BloodRayne 2: Terminal Cut (2020) [Ru/En] (1.06) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187598.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Manhunt (2004) [Ru/Multi] (1.1) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186077.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (53106) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182090.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ No Sun To Worship (2023) [En] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181037.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.98/dlc) Repack xatab [Game of the Yea
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180992.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.2.0/dlc) Repack Decepticon [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178576.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Resident Evil: Revelations (2013) [Ru/Multi] (1.0u5/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177174.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Resident Evil: Revelations 2 (2015) [Ru/En] (6.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177136.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Resident Evil 2 (2019) [Ru/Multi] (1.05u13/dlc) Repack Decepticon [Deluxe Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177084.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176100.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ En Garde! (2023) [Multi] (1.0.5) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171110.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Grand Theft Auto III (2021) [Ru/Multi] (1.14718) Repack Other s [The Definitive 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169822.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.14718) Repack Other s [The Def
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168815.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168027.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Zombie Army 4: Dead War (2020) [Ru/En] (2.02/dlc) Repack Other s [Super Deluxe E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163423.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Saints Row (2022) [Ru/Multi] (1.6.1.4735700/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159062.jpg" />
 </div>
 
 

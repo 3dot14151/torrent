@@ -1,55 +1,3 @@
-###  Публикация: 1165065   (436920) от 11.09.2017
-
-Александр Ржешевский | Павлов. Тайна расстрелянного генерала (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дмитрий Григорьевич Павлов - одна из наиболее трагических фигур начала Великой Отечественной войны. Генерал армии, Герой Советского Союза, заслуженно снискавший боевую славу на полях сражений гражданской войны в Испании, Павлов, будучи начальником Особого Западного военного округа, принял наиболее страшный и жестокий удар немецко-фашистских войск - на направлении (   Читать дальше...   )Жанр: Роман. БиографияПродолжительность: 12:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C136688048FFEAA3A9C4E3301F758B71E2F0859B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 26705   (435298) от 01.10.2012
-
-Валентин Пикуль | Фаворит
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_435298.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе запечатлены важнейшие события отечественной истории второй половины XVIII столетия. В центре повествования — образ фаворита императрицы Екатерины II Алексеевны, выдающегося государственного деятеля, полководца Григория Александровича Потемкина. Среди действующих лиц — императрица Елизавета Петровна и граф Алексей Разумовский, великий русский ученый Михаил (   Читать дальше...   )Жанр: ИсторияПродолжительность: 57:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063213   (434822) от 16.10.2016
 
 Рафаэль Сабатини | Буканьер Его Величества (2009) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434822.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431572.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430795.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430791.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429314.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428942.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425387.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424437.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424085.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424056.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423519.jpg" />
 </div>
 
 
@@ -350,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423473.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422823.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421914.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421048.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421045.jpg" />
 </div>
 
 
@@ -483,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420096.jpg" />
 </div>
 
 
@@ -510,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419589.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419458.jpg" />
 </div>
 
 
@@ -563,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419332.jpg" />
 </div>
 
 
@@ -589,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417700.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417322.jpg" />
 </div>
 
 
@@ -642,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415746.jpg" />
 </div>
 
 
@@ -668,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415499.jpg" />
 </div>
 
 
@@ -680,6 +628,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB0E42086BF3475D2E8B19AE0E435D2CE55DD66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167641   (415005) от 21.09.2017
+
+Эскотт Линн | Робин Гуд (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Англия XI века. Эпоха двух известных всему миру героев: Ричарда – Львиное Сердце и Робина Гуда. М. Хьюлетт создает образ короля в оригинальном стиле, явившемся, по сути дела, предшественником авангардистского «потока сознания». Жизнь благородного разбойника, некогда воспетая простым народом, в такой же легкой, занимательной и доступной всем возрастам форме, описана (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 07:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1182E69478E1BFE64E10D1B4363C353EEB9C5423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065719   (414310) от 25.10.2016
+
+Лев Лурье | 22 смерти, 63 версии (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414310.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге 22 очерка о таинственных обстоятельствах ухода из жизни знаменитых в истории России государственных деятелей и людей литературы и искусства: Ивана Грозного, Петра Первого, Александра Радищева, Петра Чайковского, Александра Блока, Саввы Морозова, Максима Горького, Владимира Ленина, Петра Врангеля, Сергея Кирова, Иосифа Сталина и других. События в книге охватывают (   Читать дальше...   )Жанр: Общие работы по истории РоссииПродолжительность: 09:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D303FA8711BAA22E8D42B295381970C566B090
 ```
 
 https://mybot314.ru/tekegram_catalog/

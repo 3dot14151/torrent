@@ -1,3 +1,61 @@
+###  Публикация: 1187250   (280312) от 28.11.2017
+
+VA - Fitness Latino Party 2018,  3CD (2017)   [MP3|320 Kbps] <Reggaeton, Latin Pop, Samba>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J Balvin, Willy William - Mi Gente 03:09
+02. Luis Fonsi, Daddy Yankee - Despacito 03:48
+03. Nacho - Bailame 03:27
+04. The Boy Next Door, The Boy Next Door, Fresh Coast Feat. Jody Bernal, Fresh Coast, Jody Bernal - La Colegiala 02:59(   Читать дальше...   )Жанр: Reggaeton, Latin Pop, SambaПродолжительность: 03:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BE14CFC73EDD6248C4556BBD8368B4DBE4189F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081945   (280257) от 11.12.2016
+
+Piano Tribute Players - Piano Tribute to Sia (2016) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive [00:04:05]
+02. Bird Set Free [00:04:02]
+03. One Million Bullets [00:04:11]
+04. Move Your Body [00:03:36](   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383FA79670E70DB152E359336F99D37ED159E0B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263900   (279462) от 24.11.2018
 
 Jim Brickman - 8: Just Breathe (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +64,7 @@ Jim Brickman - 8: Just Breathe (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279462.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jim Brickman - Soothe, Vol. 3: Meditation - Music for Peaceful Relaxation (2017)
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279458.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ James Newton Howard - Фантастические твари: Преступл�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279352.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ James Newton Howard - Фантастические твари: Преступл�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279349.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279159.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|track
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279153.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279117.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Neil H - Syllabus Of Magic - Merlins Quest (2010) [FLAC|Lossless|tracks + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279107.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Best Relaxation Music - Kundalini Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279062.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Various Artists - Наши песни - Песни Победы (2001) [APE|loss
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279028.jpg" />
 </div>
 
 
@@ -290,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278955.jpg" />
 </div>
 
 
@@ -319,7 +377,7 @@ VA - Office Christmas Party (Original Motion Picture Soundtrack) (2016) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278762.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Roc
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278755.jpg" />
 </div>
 
 
@@ -376,7 +434,7 @@ Sean Evenett - My Peaceful Heart (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278721.jpg" />
 </div>
 
 
@@ -405,7 +463,7 @@ Leonard Cohen - The Essential Leonard Cohen (2002) 2CD, Compilation [FLAC|Lossle
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278632.jpg" />
 </div>
 
 
@@ -434,7 +492,7 @@ Atlantida Project - Bezdna (2016) [MP3|320 Kbps] <Cyberfolk / Electronic / Ethni
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278529.jpg" />
 </div>
 
 
@@ -463,7 +521,7 @@ Goran Bregovic - Discography (1989..2008) [MP3|320 kbps]<Balkan Ethno, World Mus
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278284.jpg" />
 </div>
 
 
@@ -489,7 +547,7 @@ James Last - The Classic Touch (1988) 5CD [FLAC|Lossless]<Instrumental, Easy Lis
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277615.jpg" />
 </div>
 
 
@@ -518,7 +576,7 @@ Gipsy Kings - 16 альбомов (1982-2006) [MP3|320 кб/с]<Rumba - Flamenco
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277574.jpg" />
 </div>
 
 
@@ -547,7 +605,7 @@ Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277528.jpg" />
 </div>
 
 
@@ -576,7 +634,7 @@ Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277526.jpg" />
 </div>
 
 
@@ -605,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277404.jpg" />
 </div>
 
 
@@ -634,7 +692,7 @@ Francois Jolin - Alice VR  (original soundtrack) (2016) [MP3|320 Kbps] <OST, Sco
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277375.jpg" />
 </div>
 
 
@@ -663,7 +721,7 @@ Eric Chiryoku - Winter Story (2007) [FLAC|Lossless|WEB-DL|tracks] <New Age, Inst
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277295.jpg" />
 </div>
 
 
@@ -677,61 +735,6 @@ Eric Chiryoku - Winter Story (2007) [FLAC|Lossless|WEB-DL|tracks] <New Age, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72D69E3EC0775DE2F2252236925B93367CCFA155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336803   (277184) от 08.11.2019
-
-Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исполняют музыку, звучавшую в 1920–40 годах на улицах, в кафе и в популярных танцевальных залах Парижа. Репертуар квартета состоит из вальс аккордеон, танго, пасодоблей, фокстротов, маршей и песен из классического французкого шансона. Они записали пять компакт-дисков: A La Noce (2010), Toujours (2004), Chez Moi (2001), Rendez-Vous (1998) и L'air de Paris (1995). (   Читать дальше...   )Список альбомов:
-1995 - L'air de Paris
-1998 - Rendez Vous
-2001 - Chez Moi(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 04:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5451569F3648D1D5FCF4191D0A89F6BBD81122C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265222   (276417) от 26.11.2018
-
-Sade - The Big Unknown (From the motion picture "Widows") (2018) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Big Unknown (4:21)Жанр: Pop, SoulПродолжительность: 00:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B0799FBB6ED10C363B5E3A5408FFF2C19029044
 ```
 
 https://mybot314.ru/tekegram_catalog/

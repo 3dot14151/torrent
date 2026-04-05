@@ -6,7 +6,7 @@
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188501.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Pretty Reckless - Collection 7 Releases (2010-2022) [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188382.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nickelback - Get Rollin' (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187451.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Saint Asonia - Extrovert (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187198.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Filter - The Algorithm (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Alt. Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187171.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sekta Core - Sinfonia del Caos (2023) [FLAC|Lossless|WEB-DL|tracks] <ska punk, g
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186872.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Samurai Pizza Cats - You're Hellcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186464.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Flat Worms - Witness Marks (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186280.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Day Aches - One Last Dream Before Dying (2023) [FLAC|Lossless|WEB-DL|tracks] <al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186271.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Never Obey Again - The End Of An Era (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186261.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lost Romantic - LovexHate (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186038.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hax - Wives with Knives (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186028.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Primal Scream - More Light (2013) Japanese Deluxe Edition [FLAC|Lossless]<Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185822.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Diamonds to Dust - Amidst the Hallowed and the Vanquished (2022) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185635.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Real McKenzies - Songs of the Highlands, Songs of the Sea (2022) [FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185532.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Saltwound - In the Shadow of the Valley of Death (2023) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185513.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Tallah - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185353.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Jared Dines - the grey (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185336.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ The Smashing Pumpkins - CYR (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184312.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Slipknot - The End, So Far (2022) [FLAC|Lossless|image + .cue] <Alternative Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184270.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Anxious Arms - Crimes of Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Emo, Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183977.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ We Blame The Empire - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183291.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Alanis Morissette - Jagged Little Pill (1995) Maverick 9362-45901-2 [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183258.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Nickelback - 10 Albums (1996-2022) Full Studio Discography [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182693.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Vain Louie - Time Devours Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181988.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Her Anxiety - No Land in Sight (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181972.jpg" />
 </div>
 
 

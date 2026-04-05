@@ -1,3 +1,29 @@
+###  Публикация: 1818110   (2776) от 14.09.2025
+
+Ui Kits - UI8 - Lodgify - Hotel Booking Mobile App UI Kit [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lodgify — это премиальный и высококачественный набор пользовательского интерфейса для мобильного приложения бронирования отелей, включающий более 50 высококачественных экранов и простой в использовании в Figma.Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F55110D4E08914219D419D7973DA7EC28A7624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818422   (2444) от 16.09.2025
 
 Ui Kits - UI8 - FRQNCY STUDIO [FIG]
@@ -6,7 +32,7 @@ Ui Kits - UI8 - FRQNCY STUDIO [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2444.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ui Kits - UI8 - HotelQu - Booking Hotel Mobile App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2320.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Ui Kits - UI8 - Farmiant - Farming Assistant App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1975.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Ui Kits - UI8 - Travela - Travel & Booking Mobile App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1570.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1455.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Ui Kits - UI8 - Oxtopus - Web3 Wallet Mobile App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1422.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Ui Kits - UI8 - Marz - Crypto Wallet App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1309.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Ui Kits - UI8 - Virtual Brain | AI Chatbot App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_795.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Ui Kits - UI8 - Lumen Loops [SVG, WEBM, MP4, FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_793.jpg" />
 </div>
 
 

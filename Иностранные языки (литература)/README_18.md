@@ -6,7 +6,7 @@
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592775.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592771.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592767.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592755.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592743.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592706.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592231.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590352.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590284.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589864.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588629.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588136.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588132.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588131.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588128.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588121.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588107.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587088.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586181.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586167.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586166.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Oskar Perlin | Учебник испанского языка [+audioCD] (1975) 
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586060.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586059.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584175.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584166.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584165.jpg" />
 </div>
 
 

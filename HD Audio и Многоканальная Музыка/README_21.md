@@ -1,32 +1,3 @@
-###  Публикация: 1220077   (704410) от 19.04.2018
-
-Виктор Березинский - Третий концерт (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704410.jpg" />
-</div>
-
-
-###  Подробнее
-
-[1:11] 01. Виктор Березинский - Интро
-[2:43] 02. Виктор Березинский - Дуня
-[3:17] 03. Виктор Березинский - Мани-Мани
-[2:43] 04. Виктор Березинский - Чемодан(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11842F6D9B4748E61EC6ADFB614BEECE2D6C6C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151816   (703076) от 25.02.2022
 
 Axe - Offering (1982) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
@@ -35,7 +6,7 @@ Axe - Offering (1982) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703076.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Van Halen - Fair Warning (1981) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702915.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Annihilator - Дискография (24 releases) (1985-2022) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702796.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Архив Популярной Музыки 1-12 (1988-1990) [FLAC 2.0|96/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699842.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Wetton / Manzanera (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697922.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Lou Gramm - Ready Or Not (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694255.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Shy - Excess All Areas (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694127.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ George Harrison - Somewhere In England (1981) [FLAC 2.0|192/24|image+.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694000.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - The Absolute Sound (2014) [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classical, Fol
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693856.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692986.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ The Beatles - The Beatles (White Album) (1968) 1977 [FLAC 2.0|192/24|image+.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690520.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Scorpions - Rock Believer (2022) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690368.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690186.jpg" />
 </div>
 
 
@@ -414,7 +385,7 @@ Smokie & Chris Norman - The Best Of 20 Years (1995)  [PPCM 5.1|96/24|DVD-Audio] 
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688090.jpg" />
 </div>
 
 
@@ -443,7 +414,7 @@ Apelsin/Ансамбль "Апельсин" - Apelsin [2LP] (1976, 1981) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686333.jpg" />
 </div>
 
 
@@ -472,7 +443,7 @@ Pink Floyd - Wish You Were Here (1975) reissue remastered 2011 [FLAC 2.0|192/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684113.jpg" />
 </div>
 
 
@@ -501,7 +472,7 @@ Electric Light Orchestra - Face The Music (1975)  [FLAC 2.0 24/192|image (Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683654.jpg" />
 </div>
 
 
@@ -530,7 +501,7 @@ Bread – The Best of Bread (2015) [DTS 4.0 44.1 /16 | .wav+.cue (SACD)] <Soft r
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683231.jpg" />
 </div>
 
 
@@ -559,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682448.jpg" />
 </div>
 
 
@@ -588,7 +559,7 @@ Garbage - Strange Little Birds (2016) [FLAC 2.0 24/192|image +.cue|Vinyl-Rip]<Al
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682069.jpg" />
 </div>
 
 
@@ -617,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681772.jpg" />
 </div>
 
 
@@ -646,7 +617,7 @@ Eruption - Leave A Light (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681493.jpg" />
 </div>
 
 
@@ -681,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678877.jpg" />
 </div>
 
 
@@ -710,7 +681,7 @@ Randy Travis - Storms Of Life (1986) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678339.jpg" />
 </div>
 
 
@@ -739,7 +710,7 @@ Boots Randolph - The Greatest Hits Of Boots Randolph (1974) [FLAC 2.0|48/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678337.jpg" />
 </div>
 
 
@@ -753,6 +724,35 @@ A4 Stardust(   Читать дальше...   )Жанр: Jazz, Big Band, FunkП�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D35B1332D75F523105AD336B92C50E85600B9C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289309   (678233) от 20.03.2019
+
+N'Sync - Star Collection (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <RnB, Synth-pop, Hip Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Bye Bye Bye
+02. Here We Go
+03. Crazy For You(   Читать дальше...   )Жанр: RnB, Synth-pop, Hip HopПродолжительность: 01:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057AA7BA1444A9D075D2CE7CA0B8301ED5C5D489
 ```
 
 https://mybot314.ru/tekegram_catalog/

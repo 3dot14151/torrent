@@ -1,3 +1,58 @@
+###  Публикация: 1051837   (530498) от 12.09.2016
+
+Ю.В. Межуева | Математика. 4 класс. Задачи с образцами решений (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это пособие одно из многих в серии пособий с образцами решений, которые жизненно необходимы современным родителям. Ведь не для кого не секрет, что у большинства из них просто нет времени на то что бы сосредоточится и обдумать как правильно решать задачи за пару свободных минут в день.
+
+   А детям всегда важна родительская поддержка и наставления в младшей и средней (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A6D610E50F7D430C9F0E9A5D32F1AD358C51C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 820259   (530464) от 09.09.2014
+
+А. Котовщикова | Нитка кораллов (1979) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530464.jpg" />
+</div>
+
+
+###  Подробнее
+
+"На почту людей заходит много. Сидящие за стеклянными перегородками служащие видят тех, кто близко подходит к их окошечку. На толкущихся в зале обращают внимание редко.
+Почтовый работник Надежда Ивановна, озабоченная женщина лет тридцати, с мелкими чертами лица и тугим перманентом, заметила стоявшего у стены мальчика случайно. Просто никто в этот момент не отправлял (   Читать дальше...   )Жанр: Детская прозаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F7DC9336E43EB8E33C3E7EA29CC12DB43C2FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927202   (529948) от 12.08.2015
 
 Ирина Жданко | Принцесса подводного царства (2015) [FB2]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529948.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529857.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529834.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529825.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529719.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529631.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529549.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529548.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529262.jpg" />
 </div>
 
 
@@ -243,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529222.jpg" />
 </div>
 
 
@@ -269,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529220.jpg" />
 </div>
 
 
@@ -295,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529154.jpg" />
 </div>
 
 
@@ -321,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529031.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528921.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528764.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528763.jpg" />
 </div>
 
 
@@ -427,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528761.jpg" />
 </div>
 
 
@@ -456,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528698.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528690.jpg" />
 </div>
 
 
@@ -511,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528282.jpg" />
 </div>
 
 
@@ -538,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528200.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528134.jpg" />
 </div>
 
 
@@ -594,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528065.jpg" />
 </div>
 
 
@@ -621,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527136.jpg" />
 </div>
 
 
@@ -634,59 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BBDCDE7A3B9DB9A49525B57042811C4BAC7560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052900   (527124) от 15.09.2016
-
-О. Захарова | Решаем и оформляем логические задачи. Классические прописи (2011) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пропись предназначена для формирования у ребёнка логического мышления. В прописи содержатся не только увлекательные задачи с подсказками и ответами, но и образцы письменного оформления логических задач, как это требуется в школе.Жанр: Рабочая тетрадьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7DE9661EC38B1A48FF798177DDA3B7B54185B16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052981   (526694) от 16.09.2016
-
-Леонид Савельев | Комната № 13 (1931) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исторический рассказ о событиях, происходивших в Петрограде в феврале 1917 года.
-Издание 1931 г.Жанр: Детская проза, Историческая прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F230A8D71E33C1A4306902CC2FAC90FE433967BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

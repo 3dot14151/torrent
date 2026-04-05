@@ -1,3 +1,84 @@
+###  Публикация: 1012954   (778215) от 02.05.2016
+
+Sylvio Remastered (2016) [En] (1.0) License RELOADED
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_778215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sylvio – приключенческий инди-хоррор от первого лица, в котором вы сыграете в роли Джульетты Вотерс, умеющей записывать голоса мертвых.
+В поисках новых материалов она отправляется в закрытый еще в 70-х годах заброшенный после чудовищного шторма парк, где попадает в ловушку и находит себя заточенной в старом подвале. Вам предстоит помочь героине выжить и выбраться (   Читать дальше...   )Тип издания: LicenseРазработчик: ApostropheЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7605F8882F19E601AA93CCEE80DFFCEFCF92F97C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013011   (778173) от 02.05.2016
+
+Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778173.jpg" />
+</div>
+
+
+###  Подробнее
+
+С вами связывается Хоуп, девушка из странной тоталитарной страны. Взломав комплексную систему наблюдения, вы помогаете Хоуп пробраться сквозь паутину опасности и обмана, используя камеры слежения и самые современные гаджеты.
+
+Republique разработана ветеранами игровой индустрии (в свое время ее авторы работали над Metal Gear Solid 4, Halo 4, F.E.A.R., SOCOM) на современном (   Читать дальше...   )Тип издания: LicenseРазработчик: CamouflajЖанр: Adventure, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4FA7A43B3408AD974AD0E763E0C47B43532DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994038   (778136) от 02.05.2016
+
+The Walking Dead: Michonne - Episode 1-3 (2016) [Ru/Multi] (1.0.0.0) Repack R.G. Catalyst
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основной героиней игры The Walking Dead: Michonne - A Telltale Miniseries является легендарный персонаж из серии комиксов. Её преследует собственное прошлое, ей приходится справляться с невероятными потерями и сожалением. Сюжет рассказывает о том, что происходило с ней между выпусками #126 и #139. Включает в себя доступ ко всем трём эпизодам этого нового минисериала (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653E8CC91428129295E82875D0EC5231573A68CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211089   (778055) от 05.03.2018
 
 The Raven: Legacy of a Master Thief (2013) [En/Ge] (3.1.0) License GOG
@@ -6,7 +87,7 @@ The Raven: Legacy of a Master Thief (2013) [En/Ge] (3.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778055.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Sylvio Remastered (2016) [En] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777807.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ Life is Strange: Before the Storm (2017) [Multi] (1.0/dlc) License CODEX [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777691.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ Distortions (2018) [En/Br] (1.0) Repack MAXSEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777378.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ I’m Lost (2018) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776625.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ Kathy Rain (2016) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776355.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ Lost Horizon 2 (2015) [Ru/En] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776238.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.17060) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776038.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ Soul Axiom (2016) [En] (1.2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775958.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ Fragments of Him (2016) [En] (1.20) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775906.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ A Golden Wake (2014) [Ru/En] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775521.jpg" />
 </div>
 
 
@@ -293,7 +374,7 @@ Lucius III (2018) [Ru/Multi] (1.190118112744.a) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775501.jpg" />
 </div>
 
 
@@ -319,7 +400,7 @@ Pathologic Classic HD / Mор Утопия HD (2015) [Ru/En] (1.03) Repack R.G. 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775417.jpg" />
 </div>
 
 
@@ -345,7 +426,7 @@ Life is Strange: Before the Storm (2017) [Ru] (1.3.0.2/dlc) Repack xatab [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774893.jpg" />
 </div>
 
 
@@ -371,7 +452,7 @@ Pathologic Classic HD / Mор Утопия HD (2015) [Ru/Multi] (1.03) Repack Ot
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774695.jpg" />
 </div>
 
 
@@ -398,7 +479,7 @@ Kathy Rain (2016) [En/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774692.jpg" />
 </div>
 
 
@@ -424,7 +505,7 @@ CHAOS;CHILD (2019) [En/Jp] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774079.jpg" />
 </div>
 
 
@@ -450,7 +531,7 @@ The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774058.jpg" />
 </div>
 
 
@@ -476,7 +557,7 @@ Q U B E  2 / Q.U.B.E.2 (2018) [Ru/Multi] (1.0.0.7) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774015.jpg" />
 </div>
 
 
@@ -502,7 +583,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.17060) Repack R.G. Механик
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773943.jpg" />
 </div>
 
 
@@ -528,7 +609,7 @@ The Moment of Silence / Момент истины (2005) [Ru/Multi] (1.0) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772900.jpg" />
 </div>
 
 
@@ -554,7 +635,7 @@ Ad Exitum (2016) [En] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770045.jpg" />
 </div>
 
 
@@ -582,7 +663,7 @@ Désiré (2016) [Ru/Multi] (1.0.1) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769435.jpg" />
 </div>
 
 
@@ -593,84 +674,6 @@ Desire – это поэтичный черно-белый классическ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD3D5EEB090EC610B35210806DFECC07A3DB6446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299072   (769013) от 27.06.2020
-
-Lorelai (2019) [Ru/Multi] (1.1.0 S/dlc) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра от Рема Михальски (Rem Michalski), создавшего два интересных проекта Downfall и The Cat Lady. Лорелай (Lorelai) – это имя героини, в роли которой нам и предстоит путешествовать по необычному миру. «Однажды девушка потеряла то немногое, что имела, а затем вся ее действительность исчезла. Тогда ей даже не дали остановить падение, однако теперь, получив шанс отомстить, (   Читать дальше...   )Тип издания: RepackРазработчик: Harvester GamesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6283A6EC5E5B69296B37894DF4505909DD439ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392949   (768874) от 28.06.2020
-
-Westmark Manor (2020) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Westmark Manor для любителей ужасов. Это возможность пережить удивительные события и погрузиться в атмосферу оккультизма. Повествование дополнено головоломками, неожиданными находками. Создатели вдохновлялись вселенной Говорда Лавкрафта. Тщательно исследуйте этот мир, получите массу удовольствия, наберитесь впечатлений от пребывания на его просторах. Все выше перечисленное (   Читать дальше...   )Тип издания: LicenseРазработчик: Nodbrim InteractiveЖанр: Adventure (Horror), Puzzle, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C23C5F30F39C2EE878A8A72706D78FB68B6EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392961   (768829) от 28.06.2020
-
-Beyond: Two Souls / За гранью: Две души (2019) [Ru/Multi] (5117920) Repack xatab
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный психологический экшен-триллер Beyond: Two Souls с участием голливудских суперзвезд Эллен Пейдж и Виллема Дефо уносит вас в увлекательное путешествие по всему миру, в котором вы проживете часть удивительной жизни Джоди Холмс. Джоди не такая как все: с рождения она обладает связью с таинственным существом с невероятными способностями. Ваши действия определят (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Adventure (Interactive Movie), Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4528411572BB66E52B27808D3B2FA9CCB6108C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

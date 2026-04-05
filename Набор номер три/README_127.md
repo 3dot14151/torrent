@@ -1,3 +1,159 @@
+###  Публикация: 642220   (880569) от 10.04.2013
+
+Fraps 3.5.99 Build 15618 Retail [Английский + Русский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fraps - предназначена для подсчета количества FPS (кадров в секунду) в приложениях, работающих в режимах OpenGL и Direct3D. Утилита умеет делать скриншоты и записывать видеоролики с изображением с экрана. Fraps состоит из трех модулей Benchmarking Software, Screen Capture Software, Realtime Video Capture Software. Benchmarking Software - показывает, сколько кадров (   Читать дальше...   )Язык интерфейса: Английский + Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 110279   (880567) от 10.04.2013
+
+Все скринсейверы от 3Planesoft (82 скринсейвера) [Английский/Русский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная коллекция красивейших скринсейверов от 3Planesoft. Всего 82 скринсейвера. В качестве бонуса выложен скринсейвер "Christmas Tree 3D", убраный с сайта компании 3Planesoft. Все скринсейверы и лекарства выложены отдельными файлами для того, чтобы каждый желающий мог скачать только то, что ему нужно.Язык интерфейса: Английский/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871107   (880499) от 21.02.2015
+
+Врожденный порок / Inherent Vice (2014) WEB-DLRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: США, Ghoulardi Film Company, IAC Films, Warner Bros. PicturesЖанр: Драма, мелодрама, комедия, криминал, детектив, экранизацияРежиссер: Пол Томас АндерсонАктеры: Хоакин Феникс, Джош Бролин, Оуэн Уилсон, Кэтрин Уотерстон, Риз Уизерспун, Бенисио Дель Торо, Джена Мэлоун, Майя Рудольф, Мартин Шорт, Джоэнна НьюсомПеревод: Любительский двухголосый (Lord32x и Femida)Субтитры: ОтсутствуютПродолжительность: 02:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F1F44A70B46C483F01A26E1B0894927AC91EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494397   (880310) от 12.09.2021
+
+«Яндекс.Браузер» теперь может автоматически переводить и озвучивать англоязычные видео с YouTube и Vimeo
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания «Яндекс» запустила автоматический голосовой переводчик для англоязычных видеороликов. Об этом сообщается в блоге разработчиков. Сервис работает не с любыми видео, но доступен на YouTube, Vimeo и нескольких других популярных платформах. Главное условие — чтобы видео было общедоступным.Чтобы посмотреть видео с русской озвучкой, нужно будет нажать специальную (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996157   (880301) от 13.03.2016
+
+Manjaro Linux 16.02(03) (Arch + LXQt, Cinnamon) [i386, x86-64] 3xDVD, 1xCD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также ряда других DEs, предлагаемых сообществом Arch. В релизе представлены дистрибутивы с DE LXQt и Cinnamon от (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727F635D00028CBE8925DF1DA7B32A572748660B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996123   (880300) от 13.03.2016
+
+Symantec Endpoint Protection 12.1.6860.6400 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symantec Endpoint Protection, использующий технологию Insight, обеспечивает эффективную и надежную защиту конечных систем. Он предлагает усиленную защиту от всех типов атак для физических и виртуальных систем.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A789DBF75B285C9AE28C45DEF61B5C399511C373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495503   (880266) от 12.09.2021
 
 Abelssoft SSD Fresh Plus 2021 10.05 Portable by zeka.k [Ru]
@@ -6,7 +162,7 @@ Abelssoft SSD Fresh Plus 2021 10.05 Portable by zeka.k [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880266.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Pinnacle Studio Ultimate 19.1.3 + Bonus Content [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880265.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880262.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880259.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880258.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ Never Alone (2014) [Ru/Multi] (1.7.0/dlc) SteamRip  Let'sPlay
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880253.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ Windows 7 SP1 (x86/x64) +/- Office 2016 26in1 by SmokieBlahBlah 11.03.16 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880249.jpg" />
 </div>
 
 
@@ -192,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880242.jpg" />
 </div>
 
 
@@ -218,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880241.jpg" />
 </div>
 
 
@@ -245,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879660.jpg" />
 </div>
 
 
@@ -271,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879659.jpg" />
 </div>
 
 
@@ -297,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879591.jpg" />
 </div>
 
 
@@ -324,7 +480,7 @@ Half-Life: Alyx (2020) [Ru/Multi] (1.2/dlc) Repack xatab [VR]
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879587.jpg" />
 </div>
 
 
@@ -350,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879134.jpg" />
 </div>
 
 
@@ -376,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879131.jpg" />
 </div>
 
 
@@ -402,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878984.jpg" />
 </div>
 
 
@@ -428,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_878882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_878882.jpg" />
 </div>
 
 
@@ -460,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878857.jpg" />
 </div>
 
 
@@ -486,7 +642,7 @@ Highlights School | Творческие эффекты (2015) PCRec
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878676.jpg" />
 </div>
 
 
@@ -512,7 +668,7 @@ Windows XP Pro SP3 x86 WIM Edition by SmokieBlahBlah 16.02.15 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878672.jpg" />
 </div>
 
 
@@ -526,163 +682,6 @@ Windows XP Pro SP3 x86 WIM Edition by SmokieBlahBlah 16.02.15 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84EA274619B9203E08CF44B45AC37944B15008DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841539   (878670) от 22.02.2015
-
-Assassin's Creed: Unity (2014) [Ru/Multi] (1.5.0/dlc) SteamRip R.G. Игроманы [Gold Edition]
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Assassin’s Creed® Единство - приключенческий экшн, который перенесет вас в Париж времен Французской революции. Вы узнаете историю Арно – юноши, по воле случая оказавшегося втянутым в кровавые события того периода. Вас ждут новые возможности в управлении персонажем. Изменяйте и внешний вид предметов, и их технические характеристики. Вы сможете играть в Assassin’s (   Читать дальше...   )Тип издания: Цифровая лицензия (Steam-Rip)Разработчик: Ubisoft Montral, Ubisoft Toronto и Ubisoft MontpellierЖанр: Action / 3D / 3rd PersonЯзык озвучки: Русский, ФранцузскийЯзык субтитров: РусскийЯзык интерфейса: Русский,
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998F8E60F30EAB6EDF53F99ABA6885CF396115AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840423   (878666) от 22.02.2015
-
-Assassin's Creed: Unity (2014) [Ru/Multi] (1.5.0/dlc) Repack R.G. Механики
-
->>3
->>91
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Assassin’s Creed® Единство - приключенческий экшн, который перенесет вас в Париж времен Французской революции. Вы узнаете историю Арно – юноши, по воле случая оказавшегося втянутым в кровавые события того периода. Вас ждут новые возможности в управлении персонажем. Изменяйте и внешний вид предметов, и их технические характеристики. Вы сможете играть в Assassin’s (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montral, Ubisoft Toronto и Ubisoft MontpellierЖанр: Action / 3D / 3rd PersonЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский, ФранцузскийЯзык интерфейса: Русский, Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10A45DC42445D4E29565A1DDDE744FB0326E18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494959   (878610) от 13.09.2021
-
-Ил-496: отечественный лайнер-гигант нового поколения
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже к 2022 году на смену Ил-96-300 придет достойный наследник отечественного авиапрома — настоящий гигант, широкофюзеляжный самолет Ил-96-400М.В 2017 году Авиационный комплекс им. С.В. Ильюшина начал разработку конструкторской документации настоящего титана авиационной промышленности – широкофюзеляжного лайнера Ил-96-400М. По заявлениям самих конструкторов, новый (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495410   (878599) от 13.09.2021
-
-Тема недели: ТСПУ-блокировки и способы их обхода
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878599.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Рунете всё больше блокировок, в том числе VPN. Что делать для обхода в таких условиях и как развиваться VPN-сервисам?Любые массовые сервисы, в том числе VPN, уязвимы к блокировке именно из-за своей массовости.Пока мы не дошли до так называемого «китайского сценария», самым действенным способом является поднятие собственной VPN на арендованных виртуальных серверах (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380670   (878595) от 13.09.2021
-
-Вечная Отечественная (2020) WEBRip [H.264] (серии 1-13 из 13) [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878595.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме представлены кадры видеохроники, исторические документы, воспоминания участников сражений и рассекреченные архивные данные. Рассказ об истинных планах Германии и ее приспешниках, о подоплеке событий, важнейших сражениях и героизме советских военных будут вести известные российские деятели культуры.
-Также в фильме описываются действия стран-победителей — (   Читать дальше...   )Жанр: Документальный, История, Война, ХроникиРежиссер: А. ОсиповПродолжительность: 13 x ~00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E8446CDEB8A3FE151E50310D05F2E6D8C4F009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495018   (878594) от 13.09.2021
-
-Tales of Arise (2021) [Ru/Multi] (7034068/dlc) License Fairlight
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878594.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении 300 лет Рена правила планетой Дахна, разграбляя её ресурсы и лишая её народ достоинства и свободы. Наша история начинается с двух рождённых в разных мирах людей, которые хотят изменить свою судьбу и создать новое будущее. Tales of Arise порадует Вас первоклассным игровым процессом японской ролевой игры: всевозможные персонажи, интуитивно понятные и (   Читать дальше...   )Тип издания: LicenseРазработчик: BANDAI NAMCO Studios Inc.Жанр: jRPG, Action, AdventureЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3258B8CF96610D796602AA6C490C25996EEA730
 ```
 
 https://mybot314.ru/tekegram_catalog/

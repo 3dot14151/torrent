@@ -1,81 +1,3 @@
-###  Публикация: 1018860   (753429) от 21.05.2016
-
-Он никогда не умирал / He Never Died (2015) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кровь необходима герою для того, чтобы продлить свое существование. Однако долгая жизнь имеет свои недостатки, главный из них – скука, от которой не спасают ни крепкий здоровый сон, ни просмотр телешоу, ни участие в лотереях. Так стоит ли такая жизнь того, чтобы продолжать ее? Кажется, герой и сам хотел бы узнать ответ на этот вопрос. Но вместо этого Джек вынужден (   Читать дальше...   )Производство: США, КанадаЖанр: Триллер, драма, комедияРежиссер: Джейсон КравчикАктеры: Бу Бу Стюарт, Генри Роллинз, Стивен Огг, Джордан Тодоси, Джеймс Кейд, Майкл Крэм, Чантал Крэйг, Дэн Петронижевич, Тамара Альмейда, Кейт ГринхаусПеревод: Профессиональный многоголосый, двухголосый закадровый  (любительский)Субтитры: Русский, английскийПродолжительность: 01:37:16Реклама: Присутствует звуковая реклама
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8968021651A5DF8C887ACBF788F34C0454A91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395562   (753417) от 11.07.2020
-
-Мосты округа Мэдисон / The Bridges of Madison County (1995) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франческа — жена американского фермера и мать двоих детей. Она родом из Южной Италии, где ее романтическим мечтам не суждено было сбыться. Неожиданно в ее монотонную жизнь вмешивается судьба: встреча с Робертом. Роберт — свободный фотограф, он давно уже привык жить один. Но эта встреча меняет и его судьбу. Они страстно и без оглядки влюбились друг в друга. На эту (   Читать дальше...   )Производство: США / Amblin Entertainment, Malpaso Productions, Warner BrothersЖанр: Драма, МелодрамаРежиссер: Клинт ИствудАктеры: Клинт Иствуд, Мэрил Стрип, Энни Корли, Виктор Слезак, Джим Хейни, Сара Кэтрин Шмитт, Кристофер Крун, Филлис Лайонс, Дебра Монк, Ричард ЛейджПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: Русские, английскиеПродолжительность: 02:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC48E3FABC4A30CF6801D821B72B792AA885A99D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018763   (753321) от 21.05.2016
-
-Полицейская тачка / Cop Car (2015) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два 10-летних мальчишки находят заброшенный полицейский автомобиль и решают присвоить его себе. Обычная детская игра начинает приобретать пугающие черты после того, как шериф небольшого городка отправляется на поиски своей пропавшей машины.Производство: США, Audax Films, Audax Films, End Cue, Park PicturesЖанр: Триллер, КриминалРежиссер: Джон УоттсАктеры: Кевин Бейкон, Джеймс Фридсон-Джексон, Хэйс Уэллфорд, Камрин Менхейм, Ши Уигхэм, Кэтлин Бентли, Джозеф ОливейраПеревод: Профессиональный многоголосыйОзвучка / Автор перевода: Paradox & Omskbird recordsСубтитры: ОтсутствуютПродолжительность: 01:27:39Реклама: Присутствуют вставки голосовой и текстовой рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D21BABBF2BE2ACD369C0E4DCD13B80A161803E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018963   (753314) от 21.05.2016
 
 Правила съема: Метод Хитча / Hitch (2005) BDRip
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_753314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753314.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753310.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_753274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753274.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753252.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753216.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753212.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753201.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753162.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753108.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753106.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753010.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752971.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752955.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752925.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752923.jpg" />
 </div>
 
 
@@ -477,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752919.jpg" />
 </div>
 
 
@@ -503,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752915.jpg" />
 </div>
 
 
@@ -529,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752825.jpg" />
 </div>
 
 
@@ -555,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752743.jpg" />
 </div>
 
 
@@ -581,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752643.jpg" />
 </div>
 
 
@@ -607,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752542.jpg" />
 </div>
 
 
@@ -634,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752536.jpg" />
 </div>
 
 
@@ -660,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752529.jpg" />
 </div>
 
 
@@ -671,6 +593,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FAF33F49287C9DC257E6BF65EABB2F86AE0B345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663583   (752502) от 01.06.2013
+
+Лангольеры / The Langoliers (1995) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пассажиры самолета, летящего в Бостон из Лос-Анджелеса, попадают в «дыру во времени» и оказываются в ином мире, переживая невероятные приключения. Удастся ли им вернуться назад…Производство: СШАЖанр: Фантастика, Триллер, ДрамаРежиссер: Том ХоллэндАктеры: Патришиа Уэттиг, Дин Стокуэлл, Дэвид Морс, Марк Линдсэй Чэпман, Фрэнки Фэйзон, Бакстер Харрис, Кимбер Риддл, Кристофер Коллет, Кэйт Мэберли, Бронсон ПинчотПеревод: Многоголосый закадровый, Авторский (одноголосый) Юрий ЖивовЯзык субтитров: ОтсутствуютПродолжительность: 02:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A314CB5DAD4BA5BCF3798572A5861CD4195A8B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206117   (752445) от 31.05.2010
+
+Телепорт / Jumper (2008) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подросток из неблагополучного района Дэвид Райс всегда считал себя обычным парнем, пока однажды он не узнал, что он может телепортироваться с места на место. Новые способности открыли перед ним весь мир. Он может побывать в Нью-Йорке и Токио, посетить античные развалины в Риме, увидеть «крышу мира» с горы Эверест, увидеть 20 рассветов и 20 закатов. И все — в один (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Даг Лайман.Актеры: Хейден Кристенсен, Джэми Белл, Рэйчел Билсон, Дайан Лэйн, Сэмюэл Л. Джексон, Майкл Рукер, Анна-Cофия Робб, Макс Тириот, Джесси Джеймс, Том Хульц и др.Язык субтитров: 1. Русские 2. Английские 3. Комментарии (rus)Продолжительность: 01:28:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206110   (752436) от 31.05.2010
+
+Телепорт / Jumper (2008) [H.264] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подросток из неблагополучного района Дэвид Райс всегда считал себя обычным парнем, пока однажды он не узнал, что он может телепортироваться с места на место. Новые способности открыли перед ним весь мир. Он может побывать в Нью-Йорке и Токио, посетить античные развалины в Риме, увидеть «крышу мира» с горы Эверест, увидеть 20 рассветов и 20 закатов. И все — в один (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Даг Лайман.Актеры: Хейден Кристенсен, Джэми Белл, Рэйчел Билсон, Дайан Лэйн, Сэмюэл Л. Джексон, Майкл Рукер, Анна-Cофия Робб, Макс Тириот, Джесси Джеймс, Том Хульц и др.Язык субтитров: 1. Русские 2. АнглийскиеПродолжительность: 01:28:29
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

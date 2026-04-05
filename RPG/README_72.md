@@ -1,3 +1,55 @@
+###  Публикация: 1763474   (22345) от 06.04.2025
+
+Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.7) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь смертных грехов. А вы слышали о восьмом? Погрузитесь в безумие в Sin Slayers, RPG Roguelite, где вам предстоит решить, сколько греха вы готовы нести, чтобы изменить мир. Sin Slayers возвращается на Steam спустя некоторое время в своем лучшем виде. Это сложная RPG Roguelite, в которой вы решаете судьбу мира, взяв на себя его грехи. Сможете ли вы держаться за (   Читать дальше...   )Тип издания: LicenseРазработчик: goonswarmЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEB210CEDCA131EAA31A8A3C018604E9B0ECB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789840   (22320) от 06.04.2025
+
+Redemption of Liuyin (2025) [Multi] (v.0.1) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22320.jpg" />
+</div>
+
+
+###  Подробнее
+
+История мира изменилась в тот день, когда на земле нашли странный кристалл - осколок духовного камня. Поговаривали, будто он может исцелять любые болезни и даже возрождать умершую природу. Ну и конечно, началась грызня за власть - правители затеяли войны за новые осколки, фракции перессорились, а в довесок ко всему появились какие-то чудища. В общем, полный бардак. (   Читать дальше...   )Тип издания: RepackРазработчик: kingnagameЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Корейский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Корейский, Японский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B445F0C76DC4E7A4C1021439353955397204D58E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765967   (22317) от 06.04.2025
 
 Master Key (2024) [Ru/Multi] (1.7.02) License GOG
@@ -6,7 +58,7 @@ Master Key (2024) [Ru/Multi] (1.7.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22317.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Dark Deity 2 (2025) [En] (1.0.1) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22298.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Vagrus: The Riven Realms (2021) [Ru/Multi] (1.2.00.0402Q/dlc) Repack FitGirl [Ce
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22245.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22219.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22004.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21904.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Mass Effect (2021) [Ru/En] (2.0.0.48602/dlc) Repack Wanterlude [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21892.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Skulltide (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21880.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.3/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21717.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ DeTechtive 2112 (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21714.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Bleak Faith: Forsaken (2023) [En] (4036071) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21606.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Middle-earth: Shadow of Mordor / Средиземье: Тени Мордора (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21594.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21586.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.3.1.3/dlc) Repack FitGirl [Complete
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21585.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Driftmoon (2013) [En] (2.0.2) License GOG [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21581.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Wigmund (2022) [En] (1.4.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21578.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Rogue Loops (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21574.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ FATE: Reawakened (2025) [Multi] (1.0.0-94fe67e9) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21572.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ PROGRESS ORDERS (2025) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21560.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Sandwalkers (2024) [Ru/Multi] (2.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21536.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Into the Necrovale (2024) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21521.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14932/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21501.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.3/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21500.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Dead Age 2 (II) (2020) [Ru/Multi] (1.118) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21492.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Dead Age 2 – это продолжение успешной инди-игры 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72E1D7A49F9D10E7825B7A8B9E93B828DB20E3DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791563   (21480) от 14.04.2025
-
-Tower of Time (2018) [Ru/Multi] (1.4.5.11880) Repack Let'sРlay [Final Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tower of Time — удивительная игра со множеством приключений, в которую входит около 50 часов игрового времени. Все уровни в игре созданы вручную, а увлекательный сюжет раскрывается через видеовставки. Tower of Time выводит классические РПГ на совершенно новый уровень, ведь в ней гибкая система развития персонажей, тысячи предметов для сбора и снаряжения, а также (   Читать дальше...   )Тип издания: RepackРазработчик: Event HorizonЖанр: Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D4B998F129B5CDB5EC6956C89C5CC902DECD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786080   (21406) от 15.04.2025
-
-Reignbreaker (2025) [Ru/Multi] (1.0.1 HotFix) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reignbreaker - динамичный roguelike, действие которого разворачивается в мрачном средневековом мире. Помогите отважной бунтарке Клеф одолеть элиту и прорваться в бастион самой Королевы, чтобы избавить мир от тирании. Хватайте копьё и свергайте власть! Проявите своё мастерство в бою, чтобы сокрушить армию хитроумных боевых машин и прорваться в сердце вражеской цитадели.Тип издания: RepackРазработчик: Studio FizbinЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27EE9A85DF7C21C2AB6D2C38FA1C898C38821DB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

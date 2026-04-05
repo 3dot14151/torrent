@@ -1,3 +1,61 @@
+###  Публикация: 1751804   (42199) от 27.09.2024
+
+VA - Cafe Oriental (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amr Aksu - Café Arabic (6:53)
+02. Hassan Mostafa - Nāga (5:21)
+03. Mo-Omar - Balearic Harem (5:31)
+04. Kalita Kumar - Dilbar (5:08)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C2F79EC32432923EE01797404A76E9CA6BB148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751891   (42193) от 27.09.2024
+
+VA - Folktronic & Organic (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mohamed Bahaoui - Shisha Lounge (Hookah Mix) (6:32)
+02. Claude Ravin - Ichnite (Ethnic Deep House Mix) (6:10)
+03. Hakim Assaf - Habiba Mi Amore (6:15)
+04. Philippe Guillermic - Ethno World (Orgánica Mix) (6:28)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EABD6F280748567E227537A55685A3125EF152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751689   (39779) от 20.10.2024
 
 VA - Arab Music by Dust & Grooves (2024) 19CD [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo, Experimental, EBM>
@@ -6,7 +64,7 @@ VA - Arab Music by Dust & Grooves (2024) 19CD [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39779.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jaycee Madoxx x DJ Zkydriver x Plastik Bass - Smells Like Teen Spirit (2023) [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39758.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ Giobbi - Dotr (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39752.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ Ott - Hiraeth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Dub, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39746.jpg" />
 </div>
 
 
@@ -118,7 +176,7 @@ Lane 8 - Childish (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech House, Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39668.jpg" />
 </div>
 
 
@@ -147,7 +205,7 @@ Luttrell - Life at Full Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39666.jpg" />
 </div>
 
 
@@ -176,7 +234,7 @@ Benassi Bros. x Dhany - Every Single Day (remix) (2021) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39273.jpg" />
 </div>
 
 
@@ -204,7 +262,7 @@ VA - Diamond Fitness - Best Songs For Cardio Dance (2024) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39077.jpg" />
 </div>
 
 
@@ -233,7 +291,7 @@ Power Music Workout - Xtreme Cardio Mix 40 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38721.jpg" />
 </div>
 
 
@@ -262,7 +320,7 @@ Power Music Workout - Workout Top Songs 2024 - Fall Edition [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38482.jpg" />
 </div>
 
 
@@ -291,7 +349,7 @@ Power Music Workout - 2024 Ultimate Fitness Tracks [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38388.jpg" />
 </div>
 
 
@@ -320,7 +378,7 @@ Mikhail Catan, Tibetania - Secret Garden (Tibetania Records) (2024) [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38260.jpg" />
 </div>
 
 
@@ -349,7 +407,7 @@ VA - Autumn Car Music Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38081.jpg" />
 </div>
 
 
@@ -378,7 +436,7 @@ Diego Galloso, Noam Garcia, Tibetania - Eastern Sun (Tibetania Records) (2024) [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37875.jpg" />
 </div>
 
 
@@ -407,7 +465,7 @@ VA - Sun Sand & Spirit, Vol. 1 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37866.jpg" />
 </div>
 
 
@@ -436,7 +494,7 @@ VA - Deep House Chill 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37486.jpg" />
 </div>
 
 
@@ -465,7 +523,7 @@ VA - Deep House Hits 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37482.jpg" />
 </div>
 
 
@@ -494,7 +552,7 @@ VA - Chillout Lounge 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37397.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ VA - Deep House 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37201.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ Orbital - A Beginner's Guide (Best Of) - 2024 [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36976.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ VA - World Organic 2024 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36975.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ VA - no pare, sigue sigue 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36870.jpg" />
 </div>
 
 
@@ -639,7 +697,7 @@ DJ Bobo - There Is a Party (30th Anniversary Edition) (1994) Reissue, 2024, Yes 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34994.jpg" />
 </div>
 
 
@@ -668,7 +726,7 @@ Whigfield - Whigfield Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33967.jpg" />
 </div>
 
 
@@ -682,64 +740,6 @@ Whigfield - Whigfield Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEF955A754A9761B98A375D753479544064B1F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766631   (33689) от 19.12.2024
-
-VA - Orientalia - the Best of 2024 (Tibetania Orient) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalico Jak - Pyramid of Light (8:02)
-02. Tibetania - Monte Musa (7:14)
-03. Indiano - Vata (8:19)
-04. Kalico Jak - Sunlight Through the Treetops (9:04)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37ACE153A996BF80D5357BE27032B4C8D6234B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766981   (33451) от 21.12.2024
-
-VA - Melodica 2024 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Coustenoble - The Last Trip (7:44)
-02. Kindrid Souls - Autumnal (6:43)
-03. Florian Gasperini - Everything Looks Better in the Moonlight (8:08)
-04. Soldatov - Cuxta (4:13)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 02:21:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5BB41ABD3D45861E557AB643471F5C704F88D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

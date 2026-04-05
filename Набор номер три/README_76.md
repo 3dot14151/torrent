@@ -1,3 +1,160 @@
+###  Публикация: 980378   (955593) от 29.01.2016
+
+Ad-Aware Free Antivirus+ 11.10.767.8917 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ad-Aware Free Antivirus+ - бесплатный антивирус, использующий технологии Bitdefender, легендарный антишпион Ad-Aware и веб-защиту для обнаружения и блокировки всех видов вредоносных программ и онлайн-угроз. Бесплатный антивирус в реальном времени следит за активными процессами, изменением реестра, сетевой активностью, загрузками и посещаемыми веб-сайтами.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EA703756F4A73950B3883BC816E305B94F30E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980003   (955581) от 29.01.2016
+
+Британских киноцензоров все-таки заставили 10 часов смотреть, как сохнет краска
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955581.jpg" />
+</div>
+
+
+###  Подробнее
+
+В знак протеста против устарелой традиции цензуры кинофильмов британский режиссёр Чарли Лайн (Charlie Lyne) снял фильм… как сохнет краска. Прикол в том, что это многочасовой фильм. По закону цензоры обязаны просмотреть каждую минуту.Цензурой занимается Британский совет по классификации фильмов (British Board of Film Classification, BBFC), бывшее название — Британский (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749214   (955562) от 24.01.2014
+
+Stardock Fences Pro 2.12 [En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fences - программа с помощью которой пользователь может организовать и привести в порядок свой рабочий стол путем группировки иконок в зависимости от их категории (файлы, папки, программы, ссылки, гиперссылки и др.), а также позволяющая скрыть неиспользуемые иконки. Категории можно переименовывать по своему усмотрению. Кроме того Fences позволяет делать скриншоты (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0251920E457D221CBA662BD4783AD5F89912C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980542   (955464) от 29.01.2016
+
+XSplit Broadcaster 2.7.1512.2130 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955464.jpg" />
+</div>
+
+
+###  Подробнее
+
+XSplit Broadcaster - Программа для организации онлайн трансляций. Используется в основном для захвата игр на экране, перекодировку и мгновенную отправку в интернет вещательные сервисы, такие как justin.tv (twitch.tv), own3d.tv, им подобные, а также запись прямо к себе на компьютер.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BC1EF18E79F25955632B11533B4AE47E58D788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979876   (955463) от 29.01.2016
+
+Windows 10 научится читать переписку пользователей
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cortana будет контролировать переписку пользователей
+Голосовой помощник Cortana, появившийся в операционной системе нового поколения Windows 10, получит доступ к электронной переписке владельцев компьютеров и ноутбуков. Информация об этом появилась в официальном блоге, который ведет корпорация Microsoft.Разработчики отмечают, что анализ электронных сообщений нужен (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980495   (955459) от 29.01.2016
+
+Макбет / Macbeth (2015) HDRip [Line]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Холодные поля Шотландии, военный лагерь, всегда готовый переместиться в другое место. Макбет всегда на войне, его жена, недавно потерявшая ребенка, боится потерять еще и мужа. Чтобы удержать его рядом, она начинает свой проект по устранению конкурентов в борьбе за королевскую корону.Производство: Великобритания / США / Франция / Anton Capital Entertainment (ACE), Creative Scotland, DMC Film, Film 4, See-Saw Films, Studio CanalЖанр: Драма, ВоенныйРежиссер: Джастин Курзель / Justin KurzelАктеры: Майкл Фассбендер, Марион Котийяр, Пэдди Консидайн, Шон Харрис, Джек Рейнор, Элизабет Дебики, Дэвид Тьюлис, Росс Андерсон, Дэвид Хейман, Морис РоевзПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:53:03Реклама: Присутствуют голосовые вставки.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37428D070FC79F7DED87DCB577716785B67372B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980315   (955458) от 29.01.2016
 
 Adobe Photoshop Lightroom 6.4 RePack by D!akov [Multi/Ru]
@@ -6,7 +163,7 @@ Adobe Photoshop Lightroom 6.4 RePack by D!akov [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955458.jpg" />
 </div>
 
 
@@ -33,7 +190,7 @@ Resident Evil Zero HD: Remaster / Resident Evil 0 HD: Remaster (2016) [PS3] [JAP
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955457.jpg" />
 </div>
 
 
@@ -59,7 +216,7 @@ Fallout 3: Fate of Wanderer 2.5.1 (2015) Repack/Mod HalferQ
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955453.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ Adobe Premiere Pro CC 2015.2 9.2.0 (41) RePack by D!akov [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955452.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955451.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955308.jpg" />
 </div>
 
 
@@ -165,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955295.jpg" />
 </div>
 
 
@@ -191,7 +348,7 @@ Samsung согласился предустанавливать российск
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955205.jpg" />
 </div>
 
 
@@ -217,7 +374,7 @@ Kerio Control Software Appliance 9.3.4 build 3795 [i386] 1xCD [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955128.jpg" />
 </div>
 
 
@@ -243,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955122.jpg" />
 </div>
 
 
@@ -269,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955091.jpg" />
 </div>
 
 
@@ -295,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954801.jpg" />
 </div>
 
 
@@ -321,7 +478,7 @@ Total Commander 9.0a 64 32 VIM 18 portable by Matros [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954732.jpg" />
 </div>
 
 
@@ -350,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954719.jpg" />
 </div>
 
 
@@ -377,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954717.jpg" />
 </div>
 
 
@@ -403,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954715.jpg" />
 </div>
 
 
@@ -429,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954710.jpg" />
 </div>
 
 
@@ -455,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954708.jpg" />
 </div>
 
 
@@ -481,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954706.jpg" />
 </div>
 
 
@@ -507,172 +664,13 @@ Windows 7 SP1 x86 x64 Plus WPI USB StartSoft 19 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954690.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сборка создана, на базе оригинальных образов ru_Windows7_Ultimate_SP1_x86_dvd_6677463 Final и ru_Windows7_Ultimate_SP1_x64_dvd_677391 Final, по принципу -"Все в одном флаконе". Сборка имеет восемь редакций Windows 7, с разными разрядностями. В ее состав включен и автоустановщик программ, специально подготовленный для операционной системы Windows 7 SP1. Дополнительно, в сборник интегрированн и блок специальных утилит предназначенных для очистки операционной системы от вирусов, разного рода вредоносных программ, а так же для осуществления контроля за состоянием операционной системы и поддержания ее в рабочем состоянии. Запустить этот блок для работы можно с основного окна автоустановщика программ, нажав на кнопку "Utilities For Windows". По окончании установки система, после загрузки рабочего стола и в дальнейшем через 25 сек автоперезагрузки ПК , выходит активированной. Что бы начать пользоваться автоустановщиком программ необходимо, в обязательном порядке, установить драйвера на установленную (   Читать дальше...   )Название программы: Windows 7 SP1 x86 x64 Plus WPI USB StartSoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980714   (954371) от 30.01.2016
-
-В Госдуму внесен законопроект, отменяющий «налог на болванки»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Депутат от фракции ЛДПР  внес в Госдуму законопроект под наименованием «О внесении изменений в часть четвертую Гражданского Кодекса Российской Федерации», который предполагает отмену ряда пунктов, обозначенных в ГК РФ, по сути — пересмотреть существующий порядок выплаты авторских вознаграждений Российскому союзу правообладателей (РСП), возглавляемому Никитой Михалковым.Законопроект (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857048   (954273) от 07.01.2015
-
-Profileschool | Фундаментальная цветокоррекция фотографических изображений (2014) PCRec
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фундаментальная цветокоррекция фотографических изображений — это онлайн семинар, посвященный базовой обработке фотографий, продиктованной естественными причинами.
-На двухдневном онлайн семинаре будут рассмотрены базовые законы зрительного восприятия и методы перенесения впечатления от натуры на снимок этой натуры.Жанр: Цветокоррекция фотоПродолжительность: 07:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50578441BCFE0B80C9CA70EEFFA478AC4958B4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773385   (954269) от 07.01.2015
-
-Autodesk 3ds Max Design 2015 (x64) [Multi] + SP3
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autodesk 3ds Max Design – это полнофункциональное решение для 3D-моделирования, анимации и рендеринга, предназначенное для архитекторов, инженеров, проектировщиков инфраструктуры, дизайнеров и специалистов по визуализации.Язык интерфейса: Английский, Немецкий, Французский...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A3B6B1922C0CFC031D6739D4C5493F2855FFB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749390   (953922) от 25.01.2014
-
-Несносный дед / Jackass Presents: Bad Grandpa (2013) HDRip [H.264] [Unrated Cut]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953922.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 86-летний старикан по имени Ирвинг Зисман путешествует по Америке с необычным компаньоном — восьмилетним «внуком» Билли.
-• По дороге заводной дедушка знакомит впечатлительного Билли с людьми, местами и ситуациями, которые вряд ли укладываются в рамки привычных представлений о воспитании. Парочка столкнется со стриптизерами, разъяренными участниками помпезного детского (   Читать дальше...   )Производство: США | Dickhouse Productions, MTV FilmsЖанр: КомедияРежиссер: Джефф ТреймейнАктеры: Джонни Ноксвил, Джексон Николл, Грег Харрис, Джорджина Кэйтс, Камбер Хейлик, Джилл Килл, Мэдисон Дэвис, Джордж Фонан, Грэси Мерседес, Мэрилинн ЭллейнПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский (Full, SDH, SDH-Colored)Продолжительность: 01:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B18FDECBE2BC28EC0318ABCCA04B5A3D823892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748528   (953921) от 25.01.2014
-
-Голодные игры: И вспыхнет пламя / The Hunger Games: Catching Fire (2013) BDRip [H.264/720p-LQ] [IMAX]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сумев выжить на безжалостных Голодных играх, Китнисс Эвердин и Пит Мелларк возвращаются домой. Но теперь они в еще большей опасности, так как своим отказом играть по правилам на Арене бросили вызов Капитолию. По традиции следующие, юбилейные, Голодные игры должны стать особенными, и в этот раз в них участвуют только победители прошлых лет. Китнисс и Пит вынуждены (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Френсис ЛоуренсАктеры: Дженнифер Лоуренс, Джош Хатчерсон, Сэм Клафлин, Джена Мэлоун, Вуди Харрельсон, Элизабет Бэнкс, Лиам Хемсворт, Дональд Сазерленд, Филип Сеймур Хоффман, Стэнли ТуччиПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 02:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5281828D51E4934E682571BF7A128FD41D721EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980226   (953829) от 30.01.2016
-
-Роскомнадзор: Обход блокировок не противоречит закону
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскомнадзор назвал обходы блокировок законными
-В эфире телеканала «РБК» Вадим Ампелонский, пресс-секретарь Роскомнадзора, прояснил некоторые моменты относительно «вечных блокировок» сайтов. Ампелонский выступал не как частное лицо, а как представитель ведомства, поэтому его слова можно считать официальным заявлением от имени Роскомнадзора.В частности, чиновник рассказал (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

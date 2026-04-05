@@ -1,3 +1,32 @@
+###  Публикация: 1255836   (361785) от 19.10.2018
+
+Defeater - Travels (2008) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blessed Burden (3:04)
+ 02. Everything Went Quiet (2:41)
+ 03. Nameless Streets (3:05)
+ 04. Forgiver Forgetter (2:32)(   Читать дальше...   )Жанр: Melodic HardcoreПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966465C709D36C5C54C74BF77F2C98103403D6D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255840   (361771) от 19.10.2018
 
 Defeater - Empty Days & Sleepless Nights (2011) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore>
@@ -6,7 +35,7 @@ Defeater - Empty Days & Sleepless Nights (2011) [FLAC|Lossless|tracks + .cue] <M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361771.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Rock Sound: Sound Check No. 119 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361693.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Beck - One Foot in the Grave (1994) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361684.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Creye - Creye (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361654.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Kirk Hammett - Portals (2022) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361652.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Stage Dolls - Stage Dolls (1988) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361640.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361634.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Parcels - Parcels (2018) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Funk, Electro>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361631.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Eskimo Callboy - Tekkno (2022) [MP3|320 Kbps] <Post-Hardcore, Metalcore, Electro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361625.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Jane Air - Миелофон (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361616.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Jane Air - Миелофон (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361614.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Coma Divine - Dead End Circle (Digipak) (2011) [FLAC|Lossless]<Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_361547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_361547.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Nothing - Dance on the Blacktop (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361498.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361460.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361380.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Munruthel - ВЕРОломство (2012) [MP3|320 кб/с]<Ambient, Folk Metal,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361334.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ In Flames - Battles (2016) Limited Edition [MP3|320 Kbps] <Modern Metal, Alt.Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361279.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ Spiritual Beggars - 9 Albums, 11CD (1994-2016) [FLAC|Lossless|image + .cue | tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361182.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ Sonata Arctica - Talviyo (2019) Japanese Edition [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361041.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ David Osborne - Songs For Oh-Mah (2019) [MP3|320 Kbps] <Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361033.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Black Sabbath - The Ozzy Osbourne Years (1991) 3 CD Set  [MP3|320 Kbps] <Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361020.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ White Widdow - 5 Альбомов (2010-2018) [MP3|320 кб/с]<Melodic Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361011.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Backstreet Girls - Don't Mess With My Rock'N'Roll (2017) WEB, Voices Of Wonder [
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360933.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Powerman 5000 - New Wave (2017) [MP3|320 Kbps] <Industrial Rock, Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360916.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ Weezer - Pacific Daydream (2017) [MP3|320 Kbps] <Alternative Rock, Power Pop>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360911.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ Weezer - Pacific Daydream (2017) [MP3|320 Kbps] <Alternative Rock, Power Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18DCC86A07DDAE030A1A4BCB5AF771B4C76D3463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177793   (360898) от 26.10.2017
-
-Alice Cooper - Welcome To My Nightmare (1975) Remastered, 2002, Atlantic/Rhino [FLAC|Lossless|image + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To My Nightmare
-02. Devil's Food
-03. The Black Widow
-04. Some Folks(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE34882885F25EE6C9C49796D985F5F1B3BD8A47
 ```
 
 https://mybot314.ru/tekegram_catalog/

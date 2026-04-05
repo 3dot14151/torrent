@@ -1,3 +1,32 @@
+###  Публикация: 960938   (303377) от 30.11.2015
+
+Bangles - Greatest Hits (1990) [FLAC|tracks+.cue]<Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hero Takes a Fall (2:54)
+02. Going Down to Liverpool (3:41)
+03. Manic Monday (3:06)
+04. If She Knew What She Wants (3:50)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DAF2E03292EC5C01FD80683CFA6A44577E4FA07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333558   (303296) от 25.10.2019
 
 Bad Wolves - N.A.T.I.O.N. (2019) [MP3|320 kbps] <Modern Metal, Groove Metal>
@@ -6,7 +35,7 @@ Bad Wolves - N.A.T.I.O.N. (2019) [MP3|320 kbps] <Modern Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303296.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303295.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303290.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Nirvana - Seattle Grunge Years (2019) Compilation [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303286.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Shine On You Crazy Diamond A Tribute To Pink Floyd's Greatest Hits (2018) [
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303279.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303274.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303270.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Gottschalks Rock Classics (2018) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303269.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Placebo - Black Market Music: B-Sides (2015) [MP3|320 кб/с]<Alt. Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303222.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Tarja - From Spirits and Ghosts (Score for a Dark Christmas) (2017) [MP3|320 Kbp
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303216.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Stalker - Shadow Of The Sword (2017) [MP3|320 Kbps] <Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303197.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303133.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Joe Cocker - The Life of a Man (The Ultimate Hits 1968-2013) (2015) 2CD [FLAC|Im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303080.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303076.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ HammerFall - Gates Of Dalhalla (2012) [MP3|320 кб/с]<Heavy/Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303069.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ Iron Maiden - The Book Of Souls: Live Chapter (2017) 2CD [MP3|320 Kbps] <Heavy M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303068.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ Twenty Sixty Six And Then - Reflections! (1972) [FLAC|Lossless]<Progressive, Kra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_303065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_303065.jpg" />
 </div>
 
 
@@ -512,7 +541,7 @@ Green Day - Greatest Hits: God's Favorite Band (2017) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303052.jpg" />
 </div>
 
 
@@ -541,7 +570,7 @@ The Last Ten Seconds Of Life - The Violent Sound (2016) [FLAC|Lossless|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302998.jpg" />
 </div>
 
 
@@ -570,7 +599,7 @@ Joe Cocker - The Life of a Man (The Ultimate Hits 1968-2013) (2015) 2CD [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302939.jpg" />
 </div>
 
 
@@ -599,7 +628,7 @@ Black Sabbath - The End (2017) Live [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302884.jpg" />
 </div>
 
 
@@ -628,7 +657,7 @@ Arida Vortex - Wild Beast Show (2016) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302834.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ Soijl - Endless Elysian Fields (2015) [FLAC|Lossless|image + .cue] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302623.jpg" />
 </div>
 
 
@@ -686,7 +715,7 @@ Soijl - As The Sun Sets On Life (2017) Limited Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302618.jpg" />
 </div>
 
 
@@ -715,7 +744,7 @@ Clouds - Dor (2018) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302617.jpg" />
 </div>
 
 
@@ -729,35 +758,6 @@ Clouds - Dor (2018) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral Doom
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A222EACD975D6E278C25F492920E0A727412A04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260968   (302544) от 11.11.2018
-
-Imagine Dragons - 4 Albums (2012-2018) [MP3|320 Kbps] <Indie Rock, Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Night Visions (2012)
-Smoke + Mirrors (2015)
-Evolve (2017)
-Origins (2018)Жанр: Indie Rock, Alternative Rock, Pop RockПродолжительность: 04:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0315C7F0341B58A30F672E7137D7282BAE39E40F
 ```
 
 https://mybot314.ru/tekegram_catalog/

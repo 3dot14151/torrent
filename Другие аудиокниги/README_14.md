@@ -1,3 +1,56 @@
+###  Публикация: 1022096   (729992) от 01.06.2016
+
+Джонатан Гримвуд | Последний пир (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция, XVIII век. Удивительная судьба ждет сироту Жан-Мари Шарль д’Эмота после случайной встречи, которая переворачивает его жизнь с ног на голову. Сегодня он — бездомный мальчишка, завтра – отважный солдат, а затем – дипломат и шпион, вращающийся в высших кругах версальского общества.
+Но неистовая любовь, политические интриги и захватывающее преддверие Великой (   Читать дальше...   )Жанр: Авантюрный романПродолжительность: 10:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52BEE789FA22FF42EF8A6B382C5D20350CBD9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022105   (729985) от 01.06.2016
+
+Жак Ив Кусто , Джеймс Даген | Живое море (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729985.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1942 году французский исследователь Жак-Ив Кусто вместе с инженером Э. Ганьяном изобрел акваланг. О своей работе до этого изобретения и об исследованиях, выполненных с аквалангом, Ж.-И. Кусто и Ф. Даген рассказывают в книге «В мире безмолвия». Новые конструкции, осуществленные под руководством Ж.-И. Кусто, — «ныряющие блюдца», подводные дома — последующий этап (   Читать дальше...   )Жанр: Путешествия и географияПродолжительность: 12:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B321525417DD75B2EC8697B993873890AB72E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022151   (729885) от 01.06.2016
 
 Пётр Семенов-Тян-Шанский | Путешествие в Тянь-Шань (2014) [MP3]
@@ -6,7 +59,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729885.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729747.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728947.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728945.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728944.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728941.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728939.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728833.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728832.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728830.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728588.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728582.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728013.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727775.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727684.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727593.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727545.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727234.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726449.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726199.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724100.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720574.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720562.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720462.jpg" />
 </div>
 
 
@@ -626,61 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02EA6F349D40F34F6D457121B226C570328D3678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023908   (720447) от 07.06.2016
-
-Дмитрий Мережковский | Данте (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720447.jpg" />
-</div>
-
-
-###  Подробнее
-
-РОМАН О ВЕЛИКОМ ИТАЛЬЯНЦЕ.
-Судьба Данте была трагична. Через восемь лет после смерти поэта кардинал Бертрандо дель Поджетто сжигает его сочинения, хочет откопать и сжечь его кости за «ересь», потому что Данте слыл «колдуном» и потому что «магическое» в нем действительно есть.
-Он и после смерти не вернулся
-В старую Флоренцию свою.(   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 14:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A3EB2CD040E2F45EB30D6B280D8E4BF923B74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023935   (720429) от 07.06.2016
-
-Питер Акройд | Исаак Ньютон (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги поэта и прозаика англичанина Питера Акройда (р. 1949) популярны во всем мире. Он - автор более четырех десятков книг. Значительное место в его творчестве занимают биографии, а один из любимых героев писателя - великий Исаак Ньютон, мыслитель, физик, астроном и математик, чей вклад в естествознание переоценить просто невозможно. "Я пытаюсь придумать новый (   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 05:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042091E363310931C1CB6F16ECD45DBABB7D0733
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1220213   (706088) от 18.04.2018
+
+Варвара Еналь | Пустыня Всадников (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Живые. Эра Драконов».
+Новый цикл «Живые. Эра драконов» является предысторией цикла «Живые» и повествует о приключениях инопланетных подростков до их встречи с юными жителями орбитальной станции МОАГ. Действие происходит в том же мире, но на другой планете.
+
+Мэши всю жизнь прожила в окруженном скалами Третьем Городе. Но однажды она вместе со своим (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E98067A28D11110DE8362DFFDF663B38DCC3F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026195   (706073) от 14.06.2016
 
 Брайан Чик | Тайны и тени (2015) [FB2]
@@ -6,7 +35,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706073.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706062.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706048.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706044.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705863.jpg" />
 </div>
 
 
@@ -141,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705859.jpg" />
 </div>
 
 
@@ -167,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705613.jpg" />
 </div>
 
 
@@ -193,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705409.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705407.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705221.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705217.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705031.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704525.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704510.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704504.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704462.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703966.jpg" />
 </div>
 
 
@@ -461,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703945.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703942.jpg" />
 </div>
 
 
@@ -515,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703939.jpg" />
 </div>
 
 
@@ -541,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703934.jpg" />
 </div>
 
 
@@ -567,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703814.jpg" />
 </div>
 
 
@@ -593,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703703.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703699.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703697.jpg" />
 </div>
 
 
@@ -656,33 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:350B64F2FF59A4596E9A379DDC9322D4052453E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402186   (703683) от 13.08.2020
-
-Нил Гейман | Но молоко, к счастью (2014) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта странная история случилась при совершенно непримечательных обстоятельствах.
-В доме закончилось молоко. Мама в командировке, папа — за главного. Он-то и отправляется за ним в магазин. Но по дороге его похищают… самые настоящие инопланетяне.Жанр: Детская литература/ФантастикаПеревод: Михаил ВизельФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325DEEDD9FC9F4D2CEAF990BCDF8A604E1434FCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1682477   (127332) от 18.12.2023
+
+Windows 7 (3in1) x64 by Updated Edition (07.12.2023) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка создана на базе оригинальных образов:ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774.iso
+ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671.iso
+ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.isoИнтегрированы обновления по 15.11.2023г. с помощью UpdatePack7R2 от Simplix, версия 23.11.15. Присутствует поддержка NVMe и USB3. Присутствует поддержка (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92567E2231DE82A23C529D28EA4C6013EFC134C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684683   (127330) от 18.12.2023
+
+Семейный план / The Family Plan (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн Морган очень разноплановый: преданный муж, любящий отец, успешный продавец автомобилей. А еще он бывший наемный убийца. Когда его настигает прошлое, он вынужден взять ничего не подозревающую семью в уникальное путешествие.Производство: США / Apple Original Films, Skydance MediaЖанр: боевик, комедияРежиссер: Саймон Селлан ДжонсАктеры: Мишель Монахэн, Марк Уолберг, Мэгги Кью, Киран Хайндс, Зои Маргарет Коллетти, Джонатан Койн, Фелиция Пирсон, Саид Тагмауи, Аниса Ниэлл Джонсон, Майлз ДолеакПеревод: Многоголосый профессиональный (NewComers)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Украинские, Английские (Forced, Full, SDH), multisubsПродолжительность: 01:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D7B753F5CAA10EED73B91504590ADC2D80BF9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676763   (127015) от 20.12.2023
 
 Astra Linux Special Edition 1.7.5 [amd64] 2xDVD
@@ -6,7 +60,7 @@ Astra Linux Special Edition 1.7.5 [amd64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127015.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126992.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Kage no Jitsuryokusha ni Naritakute! 2 / The Eminence in Shadow 2 / Восхож
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126851.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126834.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126794.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126707.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126706.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126568.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ Udemy, Иван Петриченко | Полный курс по совреме
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126556.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126531.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126376.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126373.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126156.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126155.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126102.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125959.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125541.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125526.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125405.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ Windows 11 научилась переустанавливать саму себ
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125397.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ HitPaw Video Enhancer x64 1.7.1.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125138.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_125108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_125108.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_124954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_124954.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124835.jpg" />
 </div>
 
 
@@ -624,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9B54194FE897013CCA518A82C66384F78CCDFD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338840   (124623) от 03.01.2024
-
-А. Мерников и др. | Большая энциклопедия для настоящего мужчины. Самое полное руководство (2018) [PDF]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите научиться всему, что должен уметь каждый мужчина, — эта книга для вас. Из нее вы узнаете, как делать ремонт, благоустраивать загородный дом, своими руками создавать мебель и предметы интерьера. Кроме того, вы сможете в два счета почистить кондиционер, поставить палатку, заклеить резиновую лодку и даже умудритесь принести богатый улов или дичь с охоты. (   Читать дальше...   )Жанр: Энциклопедии, умелые рукиИздательство: АСТФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D205D5B9ACD5930B793657D7A1367A472B6A53DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689691   (124498) от 04.01.2024
-
-10 фактов об Айзеке Азимове
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_124498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Айзек Азимов, классик американской фантастической литературы, родился и три года прожил в России. Он тщетно пытался научить американцев выговаривать свою фамилию, издал три тома комментариев к Библии, будучи атеистом, считал ерундой высокий IQ и отказался работать над программой ПРО США ради творческой свободы. В его день рождения, который стал неофициальным Днем (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

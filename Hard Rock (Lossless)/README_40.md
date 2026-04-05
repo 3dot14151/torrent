@@ -1,3 +1,90 @@
+###  Публикация: 1041163   (583413) от 08.08.2016
+
+VA - The Crown Jewels. A Tribute to Queen (2006) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583413.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bohemian Rhapsody  - Grey DeLisle
+2. One Vision - James LaBrie/Bruce Bouillet
+3. Good Old-Fashioned Lover Boy - Jason Mraz
+4. Tie Your Mother Down - Talisman(   Читать дальше...   )Жанр: Melodic Rock, Hard Rock, Heavy MetalПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E0CC589A1469B8F7AA2D46824D10AFE6447218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301692   (583382) от 13.05.2019
+
+Gasoline Stars - Good Looks, Bad Behaviour (2014) [APE|Lossless|image + .cue] <Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Looks, Bad Behaviour
+02. L.O.V.E
+03. Where In Somewhere
+04. Exotic Thrill(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F106FBFDFA7CD012E1B0D3833D977E622801505D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301694   (583323) от 13.05.2019
+
+H.E.A.T. - Into The Great Unknown (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bastard Of Society
+02. Redefined
+03. Shit City
+04. Time On Our Side(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AC12D56087B0F299C552DA68D6FD4FBA7F877C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041507   (582475) от 09.08.2016
 
 Mike Pachelli - Tube Driven (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
@@ -6,7 +93,7 @@ Mike Pachelli - Tube Driven (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Blue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582475.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Nick Simpers Fandango - Slipstreaming & Future Times (1999) [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582464.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Gary Hoey - Dust & Bones (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582432.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Electrified - My World On Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581953.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581516.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Michael Schenker Group - Universal (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580030.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Alistair Terry - Yonge At Heart (2017) [FLAC|Lossless|image + .cue] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579104.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Epic - Like A Phoenix (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579032.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Sarayasign - Throne of Gold (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579023.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Guns N' Roses - Greatest Hits (2004) [FLAC|tracks + .cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578683.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Terry Brock - Back To Eden (2001) [FLAC|Lossless|image + .cue] <Melodic Rock, AO
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578470.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ May Blitz | Bakerloo - 3 albums, 4 CD (1969-1971) [FLAC|Lossless|image + .cue | 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578061.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ The Palth - Palth Fiction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577903.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Royal Thunder - CVI (2012) [FLAC|Lossless]<Stoner Rock/Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576944.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ The Boyscout - My Route 66 (2015) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576660.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ The Defiants - The Defiants (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576634.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ The Lou Gramm Band - The Lou Gramm Band (2009) [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576549.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ Mark Wood - Voodoo Violince (1991) [FLAC|Lossless|image + .cue] <Hard Rock, Inst
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576546.jpg" />
 </div>
 
 
@@ -534,7 +621,7 @@ Andy Timmons - Ear X-tacy 2 (1997) [FLAC|Lossless|tracks + .cue] <Hard Rock, Ins
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576532.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ Badlands - 3 альбома (1989 - 1998) [FLAC|Lossless|image+.cue|tracks+.cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575664.jpg" />
 </div>
 
 
@@ -592,7 +679,7 @@ Diesel - Into The Fire (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574800.jpg" />
 </div>
 
 
@@ -621,7 +708,7 @@ Syndicated Madness - It's Not The End (2022) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572522.jpg" />
 </div>
 
 
@@ -650,7 +737,7 @@ Ancient Door - A Tribute to (Music from) The Elder (2022) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572115.jpg" />
 </div>
 
 
@@ -664,99 +751,6 @@ Ancient Door - A Tribute to (Music from) The Elder (2022) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B41C849CEE4A32C778ED8068BDA89822324E73B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043692   (571071) от 17.08.2016
-
-Karlton Coffin Band - Three Minutes Of Fury (2010) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Company Man (4:39)
-02. Get Your Drink On (3:33)
-03. Man On The Inside (4:10)
-04. Blue Collar (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C742139D1EE4185C6DA4336CD3A9B2C01C4A2204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528082   (571045) от 29.07.2012
-
-Great White - Greatest Hits (2001) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_571045.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stick It
-2. Rock Me
-3. Face The Day (Blues Mix)
-4. Save Your Love
-5. Once Bitten Twice Shy
-6. Wasted Rock Ranger
-7. Mista Bone
-8. The Angel Song
-9. House Of Broken Love (Live)
-    - Recorded Live At Wembley Arena, UK - 12/11/89(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555496   (568912) от 04.06.2022
-
-Caught In Action - Devil's Tango (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New York City (3:53)
-02. Miracle (4:34)
-03. Devil`s Tango (4:05)
-04. Simple Man (4:02)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3AA5D5A9079783552AF2F2CB935A386765D2F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

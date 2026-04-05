@@ -1,3 +1,117 @@
+###  Публикация: 1334527   (294680) от 29.10.2019
+
+Alan Walker - Faded (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Electro, Chillwave, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faded (3:33)
+ 02. Faded - Instrumental (3:34)Жанр: Electro, Chillwave, Nu-DiscoПродолжительность: 00:07:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A5D1CAB97BFD23273ADA87BE6D6BD39C139B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334524   (294663) от 29.10.2019
+
+Alan Walker - Different World (2018) [FLAC|Lossless|tracks + .cue] <Electro, Chillwave, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:16)
+ 02. Lost Control (feat. Sorana) (3:42)
+ 03. I Don't Wanna Go (feat. Julie Bergan) (2:42)
+ 04. Lily (feat. K-391 & Emelie Hollow) (3:16)(   Читать дальше...   )Жанр: Electro, Chillwave, Nu-DiscoПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C23836C84515872A42182FFE15B02908A4F4FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079635   (294537) от 04.12.2016
+
+VA - Glimmer Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero Feedback - Deep in the Rain Forest 6:35
+02. Don Gorda Project - Do That Again 5:53
+03. Enrico Donner - Quote of the Day 5:45
+04. DJ Riquo - Tribalism 5:32(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0048900D85CCDC301872B60D1B483A6CB3F52FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079562   (293898) от 04.12.2016
+
+Boris Brejcha - DJ Mixes Single Tracks (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amisette (9:18)
+02. Fidibus (8:21)
+03. Bebot (8:09)
+04. Black Beauty (7:50)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 03:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8827BB7B81D29F5788CE5FA57D3F8C4539789C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185436   (293744) от 21.11.2017
 
 VA - The Best Of Deepsink Digital Trance Vol 2 (2017) [MP3|320 Kbps] <Trance>
@@ -6,7 +120,7 @@ VA - The Best Of Deepsink Digital Trance Vol 2 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293744.jpg" />
 </div>
 
 
@@ -35,7 +149,7 @@ VA - Best of Trance 2017, Vol. 06 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293743.jpg" />
 </div>
 
 
@@ -64,7 +178,7 @@ VA - Recoverworld Trance Sessions 17.06 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293740.jpg" />
 </div>
 
 
@@ -93,7 +207,7 @@ VA - Chillout Deep House 2017 Vol.1 (Mixed By Gerti Prenjasi) (2017) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293738.jpg" />
 </div>
 
 
@@ -122,7 +236,7 @@ VA - Sliver Recordings: Music Box, Vol.15 (2017) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293613.jpg" />
 </div>
 
 
@@ -151,7 +265,7 @@ VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2018) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293602.jpg" />
 </div>
 
 
@@ -180,7 +294,7 @@ VA - Whore House Loves Tech House (2018) [MP3|320 Kbps] <House, Tech-House, Funk
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293522.jpg" />
 </div>
 
 
@@ -209,7 +323,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 November (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293516.jpg" />
 </div>
 
 
@@ -238,7 +352,7 @@ VA - Trance 2019 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293514.jpg" />
 </div>
 
 
@@ -267,7 +381,7 @@ E-Light - Controversy (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293507.jpg" />
 </div>
 
 
@@ -294,7 +408,7 @@ VA - Pure Trance 7 (Mixed by  Kristina Sky & Solarstone & Lostly) (2018) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293505.jpg" />
 </div>
 
 
@@ -323,7 +437,7 @@ Cherry (UA) - Hello (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293501.jpg" />
 </div>
 
 
@@ -350,7 +464,7 @@ Jacob Singer - Elohim (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293500.jpg" />
 </div>
 
 
@@ -377,7 +491,7 @@ Purple Disco Machine - Soulmatic (2017) [MP3|320 Kbps] <House, Nu Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293477.jpg" />
 </div>
 
 
@@ -406,7 +520,7 @@ VA - Sensual Spa Lounge Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293336.jpg" />
 </div>
 
 
@@ -435,7 +549,7 @@ Digilio Lounge Music - Erotik Lounge & Luxury Chillout (2018) [MP3|320 Kbps] <Ba
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293334.jpg" />
 </div>
 
 
@@ -464,7 +578,7 @@ VA - Fall (Compiled by DJ Zen) (2015) [FLAC|Lossless|WEB-DL|tracks]<Psybient, Do
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293171.jpg" />
 </div>
 
 
@@ -493,7 +607,7 @@ Anthony Baldino - Twelve Twenty Two (2019) MethLab Recordings [FLAC 2.0|48/24|tr
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292899.jpg" />
 </div>
 
 
@@ -522,7 +636,7 @@ VA - Terry Lee Brown jr. - Terry's Cafe vol. 1-14 (1997-2012) [FLAC|Lossless|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292839.jpg" />
 </div>
 
 
@@ -551,7 +665,7 @@ VA - Luxury Chillout Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292221.jpg" />
 </div>
 
 
@@ -580,7 +694,7 @@ VA - Sound of Now Vol.1: Relaxing Chill Out Sounds (2016) [MP3|320 Kbps] <Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292217.jpg" />
 </div>
 
 
@@ -609,7 +723,7 @@ VA - Electronic Downbeat Affairs Vol.1: Melancholic Moods for Smooth Chill Out (
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292214.jpg" />
 </div>
 
 
@@ -623,122 +737,6 @@ VA - Electronic Downbeat Affairs Vol.1: Melancholic Moods for Smooth Chill Out (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F155D557918377AEB56927FE99EFB772FA5C7939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424506   (292202) от 17.11.2020
-
-Stenny - Stress Test (2019) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Breaks>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stress Test (04:28)
- 02. ElasTCT (04:12)
- 03. Adequate Force (06:09)
- 04. Fail Better (Bent Mix) (04:11)Жанр: Breakbeat, BreaksПродолжительность: 00:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777779BC9CE9837992F66C43D7DC07EDF7437379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079753   (292145) от 05.12.2016
-
-VA - Cinematic Chillout Collection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Rising Sun 6:25
-02. Enrico Donner feat. Theresa Thomason - Something New 4:37
-03. Cane Garden Quartet - Sea Jam 5:24
-04. DJ Riquo - Starting Over 5:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D64B440AF975E3A35AEF8185CC0DF02DD798E86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079595   (292140) от 05.12.2016
-
-VA - 5 Years Of Drugstore Records (2016) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MadMal/Rokka Animal - Brutal Style (original mix) 05:33
-02. Kill Eat Ratz - Goosebumps (original mix) 05:15
-03. Victor Bascu - Hello Man (original mix) 06:00
-04. Ralph Le Beat - Mexican Legends (MinimalFlex remix) 06:46(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 03:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074BF7F03527700F6695CFE1D6457FC771263A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079793   (292135) от 05.12.2016
-
-VA - Timeless Desires: Finest Chillout Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillelektro - Punta Roja 5:56
-02. Aqua Mundi - Sudden Inspirations 5:42
-03. Lamar Ensemble - About Yesterday 5:47
-04. Rey Salinero - Conexiones 6:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569CFDA507CF2C213D116833CEAF0D1555DC9B0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

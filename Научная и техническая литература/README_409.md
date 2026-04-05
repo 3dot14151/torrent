@@ -1,134 +1,3 @@
-###  Публикация: 1169742   (402412) от 28.09.2017
-
-И. П. Лотышев | География Краснодарского края (2001) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Региональное учебное пособие для учащихся общеобра­зовательных школ.
-Учебное пособие представляет курс географии Красно­дарского края и является одной из составных частей базового курса географии средней школы.Жанр: ГеографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D8583A685B8191EDE8CF3599A979241E41CB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169754   (402409) от 28.09.2017
-
-С.В. Гаркуша и др. | Вредители и болезни овоще-бахчевых культур и картофеля в Краснодарском крае (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издается в рамках краевой целевой программы «Развитие сельского хозяйства и регулирование рынков сельскохозяйственной продукции, сырья и продовольствия в Краснодарском крае» на 2008-2012 годы по решению отраслевого экспертного научно-технического совета департамента сельского хозяйства и перерабатывающей промышленности Краснодарского края по подпрограмме «Растениеводство», (   Читать дальше...   )Жанр: Сельское хозяйство, Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337F9752B42BD1EE37DB48E2A2091024D809DD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564770   (402260) от 24.10.2012
-
-А.И.Картамышев | Боевые отравляющие вещества [1934] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание боевых отравляющих веществ, последствия применения, санитарное обслуживание, меры защиты.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39280617F52051CCA9B53EDC07D0397AA7E452B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564799   (402254) от 24.10.2012
-
-Хаттори Такусиро | Япония в войне 1941-1945 [2000] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга раскрывает внутреннее содержание, характер действий Вооруженных сил Японии на их пути от победы в Перл-Харборе до подписания акта о безоговорочной капитуляции на американском линкоре "Миссури" в Токийском заливе.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E5A81117DABC06290427D7BC1EAC19FF796954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169557   (402235) от 28.09.2017
-
-Мухаммад Х. Рашид (ред.) | Справочник по силовой электронике (2017) [PDF][En]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Power Electronics Handbook, четвертое издание, объединяет более чем 100-летний опыт работы в специализированных областях энергетики, предлагая полностью переработанное и обновленное руководство для специалистов по силовой электронике. Разработанный для обеспечения наилучших технических и наиболее коммерчески доступных решений, этот справочник берет на себя любые (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E5F79347D70DBC69E1EDB88CEBE07ADD2773845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169760   (402222) от 28.09.2017
 
 В.А. Кортунов | Справочник по лечебному массажу и самомассажу (2017) [FB2, EPUB]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402222.jpg" />
 </div>
 
 
@@ -165,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402208.jpg" />
 </div>
 
 
@@ -193,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402160.jpg" />
 </div>
 
 
@@ -220,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402155.jpg" />
 </div>
 
 
@@ -246,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_401762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_401762.jpg" />
 </div>
 
 
@@ -275,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401728.jpg" />
 </div>
 
 
@@ -301,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401318.jpg" />
 </div>
 
 
@@ -327,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401111.jpg" />
 </div>
 
 
@@ -353,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401015.jpg" />
 </div>
 
 
@@ -379,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400575.jpg" />
 </div>
 
 
@@ -405,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400504.jpg" />
 </div>
 
 
@@ -431,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400375.jpg" />
 </div>
 
 
@@ -457,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400124.jpg" />
 </div>
 
 
@@ -483,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400039.jpg" />
 </div>
 
 
@@ -509,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399818.jpg" />
 </div>
 
 
@@ -537,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399816.jpg" />
 </div>
 
 
@@ -563,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399813.jpg" />
 </div>
 
 
@@ -589,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399811.jpg" />
 </div>
 
 
@@ -615,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399808.jpg" />
 </div>
 
 
@@ -641,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399729.jpg" />
 </div>
 
 
@@ -667,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399725.jpg" />
 </div>
 
 
@@ -678,6 +547,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:217212D275F6420CAAFEF166FC6A4A08589E23C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170377   (399720) от 01.10.2017
+
+Анархизм. Сборник [Том 1] (1907) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача редакции сборника — дать возможность читателю, хотя бы отчасти, познакомиться с основными идеями различных теоретиков анархизма по работам самих представителей последнего. Более всего места уделено вопросу об отношении к государству. Помещенные (с некоторыми несущественными пропусками) очерки Льва Толстого раннее изданы были в Лондоне В. Чертковым. Статья (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DC99C35A344BB0B2F1182489235B3BABC20AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170654   (399628) от 01.10.2017
+
+Юлия Игоревна Андреева | Быть балериной. Частная жизнь танцовщиц Императорского театра (2017) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известная писательница Юлия Андреева открывает перед читателями панораму «царственного» периода русского балета. Пышные гала-представления, закулисные интриги, изматывающие репетиции, моментально ранящие ноги до крови, истории из жизни известнейших балерин: блистательной Анны Павловой, царицы-босоножки Айседоры Дункан, загадочной Матильды Кшесинской.
+Из чего складывался (   Читать дальше...   )Жанр: История хореографии, культурологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FF4E512A4520723357E56A8761374BBF604670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170365   (399625) от 01.10.2017
+
+С. Л. Утченко | Глазами историка (1966) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399625.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора:
+
+Мне хотелось бы предварить знакомство читателя с этой небольшой книжкой по крайней мере двумя замечаниями. Первое — о жанре книги. В ней собраны, за исключением последней статьи, путевые очерки, возникшие на основе непосредственных впечатлений, заметок, кратких записей в дневниках, которые я имел обыкновение вести во время своих поездок. Этим как будто (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A618A04DE7720D2A371D44900A99078C64C4CE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170507   (399624) от 01.10.2017
+
+Т. Гибш, М. Форверг | Введение в марксистскую социальную психологию (1972) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проблемы социальной психологии вызывают все больший интерес не только у философов, социологов, психологов, но и в широких кругах интеллигенции, а также у практиков самых различных сфер деятельности. Настоящая книга западных ученых из ГДР, вышедшая четвертым изданием, представляет собой одну из первых попыток отразить становление марксистской социальной психологии, (   Читать дальше...   )Жанр: История, политология, социология, философия, психология, педагогикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35F325EC18B82A00763CFF62C43A4D6BA758107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170557   (399422) от 01.10.2017
+
+Д.А. Дрбоглав | Учебное пособие по средневековой латыни (1993) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое в нашей стране пособие по средневековой латыни состоит из теоретической части, построенной по принципу последовательного изложения разделов грамматики, и практической части - хрестоматии. Язык, включенный в общую панораму эпохи, предстает как живое, развивающееся явление.
+Для историков-медиевистов и для специализирующихся по классической филологии.Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF2ECE3CC8DD0CEF10CA4A05E8F77994EA6F507
 ```
 
 https://mybot314.ru/tekegram_catalog/

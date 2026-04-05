@@ -1,4 +1,31 @@
 https://t.me/izofen
+###  Публикация: 1863429   (1063891) от 
+
+О моём перерождении в слизь [ТВ-4, часть 1] | Tensei shitara Slime Datta Ken 4th Season Part 1 | That Time I Got Reincarnated as a Slime 4th Season Part 1 [2026, TV, 1 из 24] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063891.jpg" />
+</div>
+
+
+###  Подробнее
+
+После триумфального фестиваля Федерация Джура становится главным экономическим центром мира, но процветание порождает опасную зависть. Пока Римуру укрепляет дипломатические связи, из тени нападают те, кто привык тайно править человечеством — могущественный род Россо.
+В этом противостоянии мечи уступят место коварным финансовым интригам и политическим заговорам. Мариабель (   Читать дальше...   )Производство: Япония / Студия 8bitЖанр: приключения, комедия, фэнтезиРежиссер: Цуда НаокацуЯзык озвучки: Русский (DEEP), (AniStar), (Anilib); ЯпонскийСубтитры: Русские (надписи и полные) / Английские (полные) CrunchyrollПродолжительность: 24 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D24B20882B6C0A527BD0214DE8769A1EDE08FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849851   (1053854) от 11.02.2026
 
 Sousou no Frieren TV-2 | Фрирен, провожающая в последний путь [ТВ-2] | Frieren: Beyond Journey's End 2 [2026, TV, 02 из 10] WEBRip 1080p Raw+Rus
@@ -7,7 +34,7 @@ Sousou no Frieren TV-2 | Фрирен, провожающая в последн�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053854.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053178.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052911.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ Hime-sama "Goumon" no Jikan Desu TV-2 | Время пытки, принцесс�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052898.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052760.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052625.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052568.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052490.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кае не страшно [202
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052178.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ Mato Seihei no Slave 2 | Chained Soldier 2 | Раб спецотряда дем�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051962.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ Omae Gotoki ga Maou ni Kateru to Omou na | Roll Over and Die | Неужели т
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051939.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ Maou no Musume wa Yasashi Sugiru!! | The Demon King`s Daughter Is Too Kind! | Ma
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051836.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051815.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051698.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ Goumon Baito-kun no Nichijou | The Daily Life of a Part-time Torturer | Повс
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051481.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051343.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051122.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku | Sentenced to Be a 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051002.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050833.jpg" />
 </div>
 
 
@@ -510,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046691.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230307.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ Egao no Taenai Shokuba Desu | A Mangaka`s Weirdly Wonderful Workplace | Рабо
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162269.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ Chanto Suenai Kyuuketsuki-chan | Li`l Miss Vampire Can`t Suck Right | Вампи
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128657.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ Kekkon Yubiwa Monogatari II | Легенда свадебных колец 2 | �
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125794.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121579.jpg" />
 </div>
 
 
@@ -653,33 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C454BDD46CEB1588D8E3F88107F8F1D993E43DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822847   (104514) от 08.10.2025
-
-Вечность Югурэ | Towa no Yuugure | Dusk Beyond the End of the World [2025, TV, 1 из 13 + 1 SP] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акира Химегами пробуждается после долгого криогенного сна и попадает мир, который за это время изменился до неузнаваемости. От его родного города остались одни руины, общество теперь возглавляет организация OWEL, а традиционные браки полностью заменила странная система под названием "Элси".
-Пока Акира пытается сообразить, как же ему теперь жить в этом новом (   Читать дальше...   )Производство: Япония / Студия P.A. WorksЖанр: Приключения, романтика, фантастикаРежиссер: Цуда НаокацуЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 14 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC1500BBDFE925AECED5114529510495FA8B3B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

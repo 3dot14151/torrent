@@ -6,7 +6,7 @@ Bungou Stray Dogs (2016) | Великий из бродячих псов [ТВ-2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217339.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bloodivores | Кровопийцы [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217332.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mirai Nikki (2011) | The Future Diary | Дневник будущего [ТВ] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215508.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215020.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Gundam-san | Гандам-сан [2014, TV, 13 из 13] HDTV 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214903.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Souten no Ken: Regenesis 2 | Кулак синих небес: Перерожд�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213784.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Paripi Koumei | Ya Boy Kongming! | Тусовщик Кунмин [2022, TV, 12 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213227.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Healer Girl | Девушки-целительницы [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213209.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ RPG Fudousan / RPG Real Estate / RPG Недвижимость [2022, TV, 12] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213154.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru / Величайший По
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213153.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Shachiku-san wa Youjo Yuurei ni Iyasaretai. | Корпоративная раб�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213134.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Стать наст�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213126.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Date a Live IV / Рандеву с Жизнью 4 [2022, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213112.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic / Госпожа Кагуя: В лю�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213108.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213103.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Komi-san wa, Komyushou Desu. (2022) | Komi Can't Communicate | У Коми пр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213078.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Love Live! Nijigasaki Gakuen School Idol Doukoukai 2 / Love Live! Nijigasaki Hig
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213077.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213059.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Bara Ou no Souretsu | Requiem of the Rose King | Реквием по Корол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213048.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Birdie Wing: Golf Girls Story | Бёрди винг: История гольфи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212988.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212921.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Ultraman Final | Ультрамен 3 [2023, ONA, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210976.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Atasha Kawajiri Kodama Da yo: Dangerous Lifehacker no Tadareta Seikatsu | I'm Ko
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210585.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Majutsushi Orphen Hagure Tabi: Seiiki Hen | Волшебник-воин Орфе
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210082.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Meng Qi Shi Shen | Cinderella Chef 3 | Очаровательная богиня
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208202.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Kanojo, Okarishimasu 2 | Rent-a-Girlfriend 2 | Девушка на час [ТВ-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207935.jpg" />
 </div>
 
 

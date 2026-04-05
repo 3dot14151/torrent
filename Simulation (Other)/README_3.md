@@ -1,3 +1,29 @@
+###  Публикация: 1473498   (1013648) от 29.05.2021
+
+18 Wheels of Steel: American Long Haul (2007) [En] (1.01) License GOG
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваша американская мечта начинается за рулем собственного большого грузовика. Открытые дороги Северной Америки ждут. Вы больше не работаете на кого-либо. Теперь вы владелец собственного бизнеса грузоперевозок и сами принимаете все решения. Выстраивайте свою империю шаг за шагом, чтобы добиться доминирования на дорогах и превзойти конкурентов. Сможете ли вы выдержать (   Читать дальше...   )Тип издания: LicenseРазработчик: SCS SoftwareЖанр: Симулятор, В реальном времени, СовременностьЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C013EA518B6AEA2396EE69A8CA491B6A255C4EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477676   (1010727) от 16.06.2021
 
 Lumberhill (2021) [Ru/Multi] (1.0) License PLAZA
@@ -6,7 +32,7 @@ Lumberhill (2021) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010727.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Lawn Mowing Simulator (2021) [Ru/Multi] (7142717) License Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001672.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Car Mechanic Simulator 2021 (2021) [Ru/Multi] (1.0.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001612.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Cooking Simulator (2019) [Ru/Multi] (2.5.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989644.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Flower (2019) [Ru/Multi] (1.45) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971524.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.7.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963885.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Train Sim World 2020 (2018) [Ru/Multi] (1.0/dlc) Repack Other s [Digital Deluxe 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961709.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Train Sim World: 2020 Edition (2018) [Ru/Multi] (1.0.0.550/dlc) Repack xatab [Di
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956598.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Timber! The Logging Experts (2016) [En/De] (1.0) License PROPHET
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954945.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ World of Subways Vol. 1: New York Underground "The Path" / Метро Нью-Й�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_945960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_945960.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944458.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944454.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Professional Farmer 2017 (2016) [Multi] (1.3) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931883.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Legend of Merchant (2016) [Multi] (1.83) Unofficial SiMPLEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931791.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Thief Simulator (2018) [Ru/Multi] (1.4) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928682.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Masters of The World: Geopolitical Simulator 3 [En] (L) 2013 | SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927883.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Меха
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927190.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Bus Simulator 18 (2018) [Ru/Multi] (1.0/upd13/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909969.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Subway Simulator (2020) [Ru/Multi] (A 2.8.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909950.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Mainlining (2017) [En] (1.0.06.9536) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902568.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Kitaria Fables (2021) [Ru/Multi] (7286275) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896950.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ OPUS: Echo of Starsong (2021) [Multi] (7280057) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896849.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (5.7.c/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889688.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Take On Mars (2017) [En] (1.0) License RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888506.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.754.6956) Repack Valdeni
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885617.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.754.6956) Repack Valdeni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FABECAD974CAB8ABCAEC4C71801AD74836A4544F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363840   (879620) от 06.04.2020
-
-SimAirport (2020) [Ru/Multi] (1.0/upd1/dlc) Repack Other s
-
->>След.
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879620.jpg" />
-</div>
-
-
-###  Подробнее
-
-В SimAirport вам предстоит создать и управлять собственным аэропортом. Международная авиагавань или региональная - решать только вам. Постройте свой терминал, наймите персонал, подписывайте контракты с авиакомпаниями, настройте ежедневное расписание рейсов, настройте доступность запасных ворот, спланируйте и спроектируйте свою инфраструктуру - системы обработки багажа, (   Читать дальше...   )Тип издания: RepackРазработчик: LVGameDev LLCЖанр: Simulator, Strategy, ManageЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBACFCA0180A052920FAAC49B7A38766C19111F
 ```
 
 https://mybot314.ru/tekegram_catalog/

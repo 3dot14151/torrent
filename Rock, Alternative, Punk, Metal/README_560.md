@@ -1,3 +1,90 @@
+###  Публикация: 1561422   (515722) от 04.07.2022
+
+Goatriders - The Magician’s Keep (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Golem (00:07:08)
+02 - Amitte Diem (00:07:42)
+03 - Hound Of The Gods (00:05:24)
+04 - Pitch Black Blues (00:06:06)(   Читать дальше...   )Жанр: Stoner Rock, Garage RockПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9BFAB86AB5E17592A3819AD63CE06567D8126A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561273   (515721) от 04.07.2022
+
+Thursday - War All the Time (Live in Brooklyn) (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Emo>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - For the Workforce, Drowning (00:03:48)
+02 - Between Rupture and Rapture (00:04:10)
+03 - Division St. (00:04:48)
+04 - Signals over the Air (00:04:49)(   Читать дальше...   )Жанр: Post-Hardcore, EmoПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397D5B315060B265AF04C9E80B3BF84A2D15EC6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561276   (515720) от 04.07.2022
+
+The Vaticants - Eastern Sunset (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Moral Bankruptcy (00:04:37)
+02 - Living for Nothing (00:04:39)
+03 - Alley of Brandt (00:04:14)
+04 - Libertalia (00:03:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0790AECC5F483969A1923196A48601DE330FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561385   (515719) от 04.07.2022
 
 Smoke The Light - Ego Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Fuzz Rock>
@@ -6,7 +93,7 @@ Smoke The Light - Ego Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychede
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515719.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Eluveitie - The Early Years (2012) Compilation [MP3|320 кб/с]< Folk, Melodic 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515678.jpg" />
 </div>
 
 
@@ -70,7 +157,7 @@ Spire Of Lazarus - Soaked In The Sands (2022) [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515653.jpg" />
 </div>
 
 
@@ -99,7 +186,7 @@ Relayer - Waiting (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515652.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ The Arc Light Sessions - A Performer's Life (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515651.jpg" />
 </div>
 
 
@@ -157,7 +244,7 @@ Flatline Feedback - Scraps (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515650.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ Streambleed - United in Hatred (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Groove Met
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515649.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515647.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Marco Ragni - Anything you want (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedeli
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515646.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515644.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515643.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ Easy Action - That Makes One (1986) Reissue, Remastered, 2020, Aor Heaven [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515642.jpg" />
 </div>
 
 
@@ -361,7 +448,7 @@ The Dear Hunter - Antimai (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Crossover Progr
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515641.jpg" />
 </div>
 
 
@@ -390,7 +477,7 @@ Devil's Train - Ashes & Bones (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515640.jpg" />
 </div>
 
 
@@ -421,7 +508,7 @@ Sweet Pain - Swallow This (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515636.jpg" />
 </div>
 
 
@@ -450,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515635.jpg" />
 </div>
 
 
@@ -479,7 +566,7 @@ Neverlove - Звуки Сексуса (2022) EP [MP3|320 Kbps] <Alternative Rock
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515593.jpg" />
 </div>
 
 
@@ -508,7 +595,7 @@ Shah - Fire And Brimstone Collection (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515591.jpg" />
 </div>
 
 
@@ -537,7 +624,7 @@ Gorillaz - Gorillaz (2001) 2CD, 20th Anniversary, Deluxe Edition, 2021, Parlopho
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515588.jpg" />
 </div>
 
 
@@ -566,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515586.jpg" />
 </div>
 
 
@@ -595,7 +682,7 @@ Gorillaz - Gorillaz (2001) 5CD, Super Deluxe Edition, 2021, Parlophone [MP3|320 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515577.jpg" />
 </div>
 
 
@@ -624,7 +711,7 @@ Symphonity - Voice from the Silence (2008) Limb Music (Reloaded 2022) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515532.jpg" />
 </div>
 
 
@@ -653,7 +740,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515530.jpg" />
 </div>
 
 
@@ -667,97 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9505AF0A78F5AF9D8C1EFD4AA52CB0A7C12F110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561372   (515529) от 04.07.2022
-
-Boss Keloid - Family The Smiling Thrush LIVE At Foel Studio (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Orang Of Noyn (00:08:56)
-02 - Gentle Clovis (00:06:31)
-03 - Hats The Mandrill (00:06:39)
-04 - Smiling Thrush (00:05:09)(   Читать дальше...   )Жанр: Progressive Sludge MetalПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3DDE5982AA2E6A0CC9E30B47608B8CAEED511F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622274   (515521) от 04.07.2022
-
-AxeWound - Vultures (2012) [FLAC|Lossless]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515521.jpg" />
-</div>
-
-
-###  Подробнее
-
-<<<
-------------------------------------------------------------------------
-01. Vultures
-02. Post Apocalyptic Party
-03. Victim Of The System
-04. Cold
-05. Burn Alive
-06. Exorchrist
-07. Collide
-08. Destroy(   Читать дальше...   )Тип издания: АльбомЖанр: MetalcoreПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76820C050B923E6F03712263922BDAB1A3E18E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535685   (515508) от 17.08.2012
-
-The First International Sex Opera Band - Anita (1969) [MP3|320 кб/с]<Space Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Anita's First Appearance, Part 1
-02 - Anita's First Appearance, Part 2Жанр: Space Rock, Psychedelic RockПродолжительность: 00:30:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

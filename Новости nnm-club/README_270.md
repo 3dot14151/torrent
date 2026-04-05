@@ -1,3 +1,58 @@
+###  Публикация: 470240   (83162) от 19.03.2012
+
+Retro Tape Deck Music Player - Реалистичный mp3 плеер анимированный под ретро кассету [Программа] (ANDROID версии 2.2+)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реалистичный mp3 плеер анимированный под ретро кассету.
+
+Ретро музыкальный плеер полностью анимированный под кассетный магнитофон. Имеет 15 сменных скинов. Лента кассеты показывает фактическое положение трека.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470337   (83132) от 19.03.2012
+
+Соцсети строят свой маленький Интернет: этаж Интернет-магазинов уже готов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виталий Ситницкий из «Инфоротора» представил, к чему приведет развитие социальных сетей через 15 лет. Сценарий включает в себя смерть поисковых систем и отрасли веб-разработок.Дробление приложений соцсетей на отраслевые сегменты неизбежно, глобализация своего «уютненького» Интернета внутри каждой крупной соцсети активно этому способствует. «Уютненькая» соцсеть становится Интернетом в Интернете, где границы на выход охраняются все тщательнее.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 24831   (82978) от 18.03.2012
 
 Большой английский за рулем [Начальный + продвинутый уровни] (Audio 8 CD)
@@ -6,7 +61,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82978.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Borland C++ Builder 6 Build 10.161 Enterprise Edition [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82977.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ Windows 7x64 Ultimate UralSOFT v.3.4.12 ( 2012) [Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82951.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ Resident Evil 4 HD: The Darkness World (RePack) [Ru] 2007 (2011) | Mr. Vansik
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82783.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82751.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ AntiSMS 1.8 [Rus] simplix Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82583.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82576.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82337.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ UralSOFT | Курс по WPI [2011] [ISO]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82164.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ Adobe Audition CS5.5 4.0 Build 1815 Portable by punsh [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81752.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ Comice OS 4 Beta 2 [[i386 + x86_64]] (2xCD)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81495.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ Bandicam 1.7.7.185 [Мульти, есть русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81345.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ Windows XPProSP3 5.1.2600 (x86) g.e.[Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81298.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81093.jpg" />
 </div>
 
 
@@ -380,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80720.jpg" />
 </div>
 
 
@@ -406,7 +461,7 @@ Freevods. Всё покерное видео (обновления по 01.03.20
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80325.jpg" />
 </div>
 
 
@@ -432,7 +487,7 @@ Kaspersky Trial Reset 1.40 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79906.jpg" />
 </div>
 
 
@@ -458,7 +513,7 @@ Deep Black Reloaded [Multi6/+] (L/1.2) 2012 | THETA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79895.jpg" />
 </div>
 
 
@@ -486,7 +541,7 @@ Windows 7 PE x86 by Morphius71rus  [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79700.jpg" />
 </div>
 
 
@@ -512,7 +567,7 @@ Kerish Doctor 2012 4.35 [Мульти, есть русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79659.jpg" />
 </div>
 
 
@@ -542,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79494.jpg" />
 </div>
 
 
@@ -570,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79288.jpg" />
 </div>
 
 
@@ -596,7 +651,7 @@ Microsoft Office 2010 Standard SP1 ru-RU (x86-x64) 14.0.6112.5000 [Только 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79285.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ G-force Platinum 3.7.5 [Русский] система зрительных об
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78684.jpg" />
 </div>
 
 
@@ -631,68 +686,6 @@ G-force Platinum 3.7.5 [Русский] система зрительных об
 
 G-Force Platinum - одна из самых популярных систем зрительных образов (visualizations) от SoundSpectrum. Данный визуализационный плагин имеет огромное количество самых разнообразных настроек, способных удовлетворить самого привередливого пользователя. Также важным достоинством G-Force является поддержка самых популярных медиаплееров.
 Программа отображает миллионы возможных комбинаций различных эффектов в отличном качестве (используется анти-алиасинг), синхронизированных с проигрываемой музыкой. Эффекты легко настраиваются, благодаря огрмоному количеству комбинаций вы никогда не увидите одинаковую картинку. Есть возможность синхронизации с line-in входом, а также использование в качестве скринсейвера!Название программы: G-force PlatinumЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458242   (78675) от 26.02.2012
-
-Специалист | Основы дизайна [2011] PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы стать хорошим дизайнером, мало знать технические особенности различных графических компьютерных пакетов. Для этого необходимо понимать теоретические основы дизайна, его основные правила, уметь их применять.
-
-Хотите научиться работать с цветом, создавать интересные и привлекательные композиции, делать проекты в различных стилях с учётом психологических характеристик заказчика? Всему этому Вы научитесь на курсе «Основы дизайна»! Начните изучать искусство дизайна с него, и он станет основой Вашего успеха!
-
-Преподаватель: Новикова Надежда ГермановнаЖанр: ВидеокурсыПродолжительность: 25:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FACDBA6F3C0197E18D2053968A3A8927CBB1400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457927   (78480) от 25.02.2012
-
-Microsoft Windows 7 Ultimate Ru x64 SP1 WPI Boot by OVGorskiy 19.02.2012
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя ОС: Microsoft® Windows® 7™ Ultimate
-Версия: 6.1.7601 Service Pack 1 Сборка 7601
-Изготовитель ОС: Microsoft Corporation
-Автор сборки: OVGorskiy®
-Тип: X64-based PC
-Язык системы: Русский (Россия)
-Версия = "6.1.7601.17514"Название программы: Microsoft Windows 7 Ultimate Ru x64 SP1 WPI Boot by OVGorskiy 19.02.2012Язык интерфейса: Русский (Россия)
 
 ## Скачать торент
 ```bash

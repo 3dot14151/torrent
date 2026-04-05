@@ -1,3 +1,217 @@
+###  Публикация: 1774514   (30077) от 23.01.2025
+
+Microsoft® Windows® 11 Enterprise LTSC x64 24H2 by OVGorskiy 01.2025  [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30077.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинального образа новой версии операционной системы Windows 11 Enterprise LTSC от Microsoft с дополнительным материалом в 1-м установочном образе. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: накопительные обновления и небольшой набор необходимых приложений. Сборка предназначена для тех, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD4F2281F23F296C838572082D95893DF492DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532802   (30074) от 23.01.2025
+
+Udemy, Bogdan Stashchuk | Docker - Полный курс Docker (2022) WEB-DL [RU]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс посвящен Docker
+Узнайте, КАК работает Docker, и изучите его основные функции НА ПРАКТИКЕ. Это на 90% практический курс с множеством реальных примеров использования Docker
+Узнайте, как создавать различные контейнеры, такие как Node.js, Python, NGINX, busybox, MySQL.
+Мы начнем с установки Docker на ваш компьютер — MacOS, Windows или Linux. В MacOS и Windows (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 06:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F347A2286EB9E81E941BDC9E0EFB36DEB247D3C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123513   (30073) от 23.01.2025
+
+Craft The World (2014) [Ru/Multi] (1.10.005 1/dlc) License GOG (обновляемая)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Craft The World – уникальная стратегия-песочница, объединившая элементы Dungeon Keeper, Terraria и Dwarf Fortress. Исследуйте случайным образом сгенерированный мир, населенный опасными созданиями, стройте гномскую крепость, собирайте ресурсы и создавайте все необходимое снаряжение, оружие и доспехи.Тип издания: LicenseРазработчик: Dekovir EntertainmentЖанр: Strategy (Manage, Busin., Real-time), Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E10CA137589CBB60B356D36B8B88ABC9489AB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774602   (29983) от 24.01.2025
+
+Летим  на Марс всего за 45 дней
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания General Atomics Electromagnetic Systems (GA-EMS) только что достигла важного рубежа, который может изменить будущее освоения космоса.Компания успешно испытала ядерное топливо, которое однажды может радикально сократить время путешествия на Марс и дальше. Испытания показали, что топливо может выдерживать суровые условия ядерного теплового реактора.Другими (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675015   (29968) от 24.01.2025
+
+The Invincible (2023) [Ru/Multi] (1.6.1) License GOG [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29968.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Invincible представляет собой приключенческую игру с видом от первого лица. Проект использует антураж ретрофутуризма и отсылает к космической гонке между США и СССР в 20 веке. Тайтл выполнен в сеттинге атомпанка. Он может понравиться тем, кто любит атмосферу научно-фантастических триллеров. В основу нелинейного сюжета The Invincible лег роман "Непобедимый" (   Читать дальше...   )Тип издания: LicenseРазработчик: Starward IndustriesЖанр: Экшны, Приключение, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий,  Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий,  Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2ABA7F7574E543AD018E02B35E630B13B9574A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774892   (29870) от 25.01.2025
+
+Google оспорил в суде российский штраф в два ундециллиона рублей
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Технологическая корпорация Google оспорила в Международном арбитражном суде в Великобритании российский штраф в 2 ундециллиона рублей, взыскание признано неправомерным, сообщает издание Android Authority.
+Суд охарактеризовал действия России как "согласованную стратегию международного принуждения"."Суд постановил, что Google не обязан платить российский (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775224   (29866) от 25.01.2025
+
+Анора / Anora (2024) WEB-DLRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бруклин. Стриптизерша Анора, предпочитающая имя Эни, знакомится с сыном русского олигарха Ваней, который проводит всё время в вечеринках и развлечениях. Вскоре парень выкупает время Эни на неделю, предлагает слетать в Вегас, а там молодые люди спонтанно женятся. Узнав об этом из газет, родители Вани приходят в ярость и срочно вылетают из России в США, а разобраться (   Читать дальше...   )Производство: США / Cre Film, FilmNation EntertainmentЖанр: драма, мелодрама, комедияРежиссер: Шон БэйкерАктеры: Майки Мэдисон, Марк Эйдельштейн, Юра Борисов, Карен Карагулян, Ваче Товмасян, Алексей Серебряков, Дарья Екамасова, Линдси Нормингтон, Пол ВайсманПеревод: Дублированный, Многоголосый закадровый, АвторскийЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full)Продолжительность: 02:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23215F7C3092DB48C9AB872CF73666797D5DA40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774449   (29864) от 25.01.2025
+
+Launcher for zapret 1.5 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для быстрого запуска утилиты zapret (аналог GoodbyeDPI) для ускорения YouTube, Discord etc. Программа предназначена для удобного запуска утилиты zapret, которая разблокирует ютуб, дискорд и еще кучу всего.
+Утилита zapret более сложный и многофункциональный аналог программы GoodbyeDPI.
+На данный момент пробивает замедление ютуба намного эффективнее, чем (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B53C799A601F5421FD1BD71590346E9AAEE19F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774856   (29858) от 25.01.2025
 
 Крупнейшая сеть в России: бесплатный Wi-Fi доступен на 400 ж/д станциях и вокзалах
@@ -6,7 +220,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29858.jpg" />
 </div>
 
 
@@ -32,7 +246,7 @@ Wondershare Filmora 14.3.2.11147 (x64) Portable by 7997 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29771.jpg" />
 </div>
 
 
@@ -58,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29770.jpg" />
 </div>
 
 
@@ -84,7 +298,7 @@ VPN by Tony — ваш проводник в мир свободного инт�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29769.jpg" />
 </div>
 
 
@@ -112,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29761.jpg" />
 </div>
 
 
@@ -141,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29760.jpg" />
 </div>
 
 
@@ -168,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29759.jpg" />
 </div>
 
 
@@ -196,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29758.jpg" />
 </div>
 
 
@@ -222,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29750.jpg" />
 </div>
 
 
@@ -248,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29657.jpg" />
 </div>
 
 
@@ -274,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29653.jpg" />
 </div>
 
 
@@ -300,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29641.jpg" />
 </div>
 
 
@@ -326,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29620.jpg" />
 </div>
 
 
@@ -353,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29561.jpg" />
 </div>
 
 
@@ -379,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29554.jpg" />
 </div>
 
 
@@ -405,7 +619,7 @@ Launcher for zapret 1.6 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29553.jpg" />
 </div>
 
 
@@ -433,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29550.jpg" />
 </div>
 
 
@@ -462,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29549.jpg" />
 </div>
 
 
@@ -473,217 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAD15D1BAA824E52A41DB0CC2162A66EE2173068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761654   (29548) от 28.01.2025
-
-S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.1.4) Scene Rune [Updates]
-
->>3
->>19
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чернобыльская Зона Отчуждения существенно изменилась после второго взрыва в 2006 году. Жестокие мутанты, смертоносные аномалии и враждующие фракции сделали Зону местом, где очень тяжело выжить. Тем не менее артефакты невероятной ценности привлекали в Зону многих людей, называемых сталкерами. Они проникали в Зону на свой страх и риск, стремясь разбогатеть на этом (   Читать дальше...   )Тип издания: SceneРазработчик: GSC Game WorldЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, УкраинскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8D72D58766D965D8164DDA2269EF8E54A41C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775660   (29450) от 29.01.2025
-
-Nvidia потеряла миллиарды от рыночной стоимости из-за китайского ИИ-стартапа
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт от стартапа, основанного всего два года назад, оказался производительнее почти всех конкурирующих аналогов от американских компаний. DeepSeek требует куда менее мощного оборудования, и его обучение обходится почти в 100 раз дешевле.Новая китайская модель ИИ DeepSeek стала самым скачиваемым приложением в США, обрушила NASDAQ, отправила акции Nvidia в пике. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775038   (29446) от 29.01.2025
-
-Microsoft® Windows® 10 Enterprise x64 LTSC 2021 21H2  by OVGorskiy 01.2025 [RU]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29446.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинального русского образа операционной системы Windows 10 Enterprise (Корпоративная) LTSC x64 (VLSC) от Microsoft с дополнительным материалом в 1 установочном образе (x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: обновления системы,  небольшой набор самых необходимых программ, программа (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652BD303F5DA3EDFB0EC5424B5433E77F54C492E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775871   (29445) от 29.01.2025
-
-Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2024 by Eagle123 (01.2025) [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 v22H2 19045.5371 и Windows 10 Корпоративная LTSC v21H2 19044.5371, включающие в себя 5 редакций x64 с русским и английским интерфейсом и 2 облегченные x64 Lite-редакции, с обновлениями по 01.2025, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C288AD6B03B682879AD45B89E30D32100186BCEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700912   (29443) от 29.01.2025
-
-uTorrent Pack 1.2.3.97 Repack (& Portable) by elchupacabra [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29443.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent Pack (Repack & Portable) - популярный клиент пиринговых p2p-сетей (протокол BitTorrent), который благодаря своей функциональности и небольшому размеру заслуженно является лидером среди программ данной категории.
-К достоинствам µTorrent можно отнести многопоточную загрузку файлов, распределение полосы пропускания, установку ограничения загрузки/раздачи, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1557E1208A156C6F4501470B73B653BA3F6F75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775952   (29341) от 30.01.2025
-
-Launcher for zapret 1.7 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для быстрого запуска утилиты zapret (аналог GoodbyeDPI) для ускорения YouTube, Discord etc. Программа предназначена для удобного запуска утилиты zapret, которая разблокирует ютуб, дискорд и еще кучу всего.
-Утилита zapret более сложный и многофункциональный аналог программы GoodbyeDPI.
-На данный момент пробивает замедление ютуба намного эффективнее, чем (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED42047990281ABBF2D64FE406628F060813394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775767   (29329) от 30.01.2025
-
-YouTube начал показывать зрителям  абсурдно длинные рекламные ролики, которые нельзя пропустить
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользователи  выразили крайнее недовольство новой практикой YouTube, заключающейся в демонстрации невероятно длинных, непропускаемых рекламных роликов пользователям, использующим блокировщики рекламы. Эти рекламные объявления, по свидетельствам пользователей, достигают трёх часов и более, что значительно превышает продолжительность самого видео, которое пользователь (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775753   (29321) от 30.01.2025
-
-В Балтийском море появились пираньи, перегрызающие подводные кабели стран ЕС и НАТО
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Объединённая следственная группы (ОСГ) Эстонии, Финляндии и Швеции завершила расследование серии инцидентов, связанных с повреждением подводных кабелей в Балтийском море в 2024 году.Проведя порядка сотни экспертиз, следователи пришли к сенсационному выводу — по неизвестной причине несколько десятки тысяч пираний мигрировали от побережья Венесуэлы на Балтику, где (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 998694   (868091) от 20.03.2016
+
+Би-2 - #16плюсTour @ Stadium Live (2016) Live [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не умирать молодым
+02. Тёмные небеса
+03. Революция
+04. Дурочка(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741D4961291260CAF69C420EC748035FE060A784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998706   (868074) от 20.03.2016
+
+Panic! At The Disco - Death Of A Bachelor (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victorious
+02. Don't Threaten Me With A Good Time
+03. Hallelujah
+04. Emperor's New Clothes(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C97A7BC174C898F6DCCBB5C156A3BA6AEEE214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497041   (868026) от 20.09.2021
+
+Spiritbox - Eternal Blue (2021) [FLAC|Lossless|tracks + .cue] <Metalcore, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Killer
+02. Hurt You
+03. Yellowjacket (feat. Sam Carter)
+04. The Summit(   Читать дальше...   )Жанр: Metalcore, Progressive MetalПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A87CEBAB47AC99A77B6F19C522553C4C6400D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496992   (867893) от 20.09.2021
+
+Eagles - Legacy (1972-2018) 12xCD, Box Set, Compilation, Remastered, 2018, Warner [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867893.jpg" />
+</div>
+
+
+###  Подробнее
+
+1972 - Eagles
+1973 - Desperado
+1974 - On The Border
+1975 - One Of These Night(   Читать дальше...   )Жанр: RockПродолжительность: 09::41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B598C338F0D0E25DA3BC2AA9C3EFE9CBB96E8F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 188747   (867812) от 02.04.2010
+
+Эдуард Артемьев - Преступление и наказание (2007) [FLAC|Lossless]<Рок Опера>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рок Опера, Полустилистика :)Продолжительность: 02:26:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998063   (867798) от 20.03.2016
 
 Виктор Зинчук - Триумф гитары (2015) Compilation [FLAC|Lossless|image + .cue] <Instrumental Rock>
@@ -6,7 +148,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867798.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ Ruby the RabbitFoot - New as Dew (2014) [MP3|320 кб/с]<Indie Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867745.jpg" />
 </div>
 
 
@@ -64,7 +206,7 @@ The Cars - The Elektra Years 1978-1987 (2016) Reissue, 6CD BoxSet [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867694.jpg" />
 </div>
 
 
@@ -93,7 +235,7 @@ Evanescence - Lost Whispers (2016) [FLAC|Lossless|WEB-DL|tracks] <Metal, Alterna
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867686.jpg" />
 </div>
 
 
@@ -122,7 +264,7 @@ Trail of Tears - Existenita (2007) [FLAC|Lossless|image + .cue] <Gothic Metal, S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867293.jpg" />
 </div>
 
 
@@ -151,7 +293,7 @@ Vampiria - Among Mortals (2000) [FLAC|Lossless|image + .cue] <Melodic Black Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867289.jpg" />
 </div>
 
 
@@ -180,7 +322,7 @@ Trivium - The Crusade (2006) [FLAC|Lossless|image + .cue] <Thrash Metal, Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867285.jpg" />
 </div>
 
 
@@ -209,7 +351,7 @@ Bongtower - 3 Альбома (2019-2020) [MP3|320 Kbps/V2] <Stoner, Doom Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867283.jpg" />
 </div>
 
 
@@ -237,7 +379,7 @@ Cirith Ungol - Forever Black (2020) [MP3|320 Kbps] <Heavy, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867270.jpg" />
 </div>
 
 
@@ -266,7 +408,7 @@ Pholhas - Dead Faces (1973) Reissue CD, 2000, BMG Music Spain, S.A. [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867268.jpg" />
 </div>
 
 
@@ -295,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867254.jpg" />
 </div>
 
 
@@ -321,7 +463,7 @@ Lord Vigo - 4 Albums (2015 - 2020) [MP3|320 Kbps] <Epic Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867201.jpg" />
 </div>
 
 
@@ -350,7 +492,7 @@ Chimpan A - The Empathy Machine (2020) [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867200.jpg" />
 </div>
 
 
@@ -379,7 +521,7 @@ Levandowskiy - Чувства или секс (2020) Single [MP3|320 Kbps] <Alte
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867198.jpg" />
 </div>
 
 
@@ -405,7 +547,7 @@ Existence - When Tomorrow Comes (2016) [MP3|320 кб/с] <Thrash Metal, Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866728.jpg" />
 </div>
 
 
@@ -434,7 +576,7 @@ Mourning Wolf - Duskfallen (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866700.jpg" />
 </div>
 
 
@@ -463,7 +605,7 @@ Dany Lademacher's Wild Romance - Out Of Heaven (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866697.jpg" />
 </div>
 
 
@@ -492,7 +634,7 @@ Unruly Child - Worlds Collide (2010) [MP3|320 кб/с] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866695.jpg" />
 </div>
 
 
@@ -521,7 +663,7 @@ Bonham - Mad Hatter (1992) [FLAC|Lossless|tracks] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866682.jpg" />
 </div>
 
 
@@ -550,7 +692,7 @@ Fierce Atmospheres - The Speed of Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866678.jpg" />
 </div>
 
 
@@ -579,7 +721,7 @@ Necronautical - Slain In The Spirit (2021) [FLAC|Lossless|image + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866673.jpg" />
 </div>
 
 
@@ -593,154 +735,6 @@ Necronautical - Slain In The Spirit (2021) [FLAC|Lossless|image + .cue] <Symphon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FC6D731DA920D95D1EE908C9F700A15F2446FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497110   (866664) от 21.09.2021
-
-Ten Eyed Man - From Beneath A Pallid Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victim 5:01
-02. Rage With Me 4:06
-03. Man In Black 3:37
-04. The New Sun Rises 5:47(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859398E8FA130D2A33C3A4FDD134C132D039B62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497236   (866663) от 21.09.2021
-
-Save The World - One (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleed
-02. Comic Con
-03. In Pieces
-04. Circus Maximus(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9FB10F73C5E9BF7FC2421168FB2F2A5DDFC5A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999034   (866618) от 21.03.2016
-
-The Treatment - Generation Me (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Begin 04:25
-02. The Devil 04:40
-03. Tell Us The Truth 03:23
-04. Generation Me 04:11(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B1CBB6626935C284A10D5A881FD135537451FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497174   (866600) от 21.09.2021
-
-Amorphis - Live At Helsinki Ice Hall (2021) 2xCD [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amorphis — финская англоязычная метал-группа. Группа была основана в 1990 году Яном Рехбергером и Эсой Холопайненом.
-
-Bass – Olli-Pekka Laine
-Crew - Logistics / Merch – Raapale Osolanus(   Читать дальше...   )CD - 1:
-01. The Bee
-02. Heart Of The Giant
-03. Bad Blood(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEEE101B6CAEB5A2AB6D7D083D273AD51697518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497121   (866599) от 21.09.2021
-
-Night Ranger - ATBPO (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming For You
-02. Bring It All Home To Me
-03. Breakout
-04. Hard To Make It Easy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325899B08DE6E5DA2B9B91A319B2137074AC732B
 ```
 
 https://mybot314.ru/tekegram_catalog/

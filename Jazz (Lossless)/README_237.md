@@ -6,7 +6,7 @@ VA - Acid Jazz Classics, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257566.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Acid Jazz Instrumentals Vol. 3 (Jazz Funk Breaks Instrumental Tunes) (2025)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257563.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Jazz For Studying And Working (Instrumental Jazz Vibes) (2025) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257562.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Nu Jazz Gentle Vibes (Soul, Nu Jazz, Smooth Jazz, Dream Pop) (2025) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257560.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ethel Waters - Ethel Waters (1921-1923) (1994) [FLAC|Lossless]<Vocal Jazz, Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257194.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Mary Lou Williams - Mary Lou Williams (1927-1940) (1992) [FLAC|Lossless]<New Orl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257174.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Albert Ammons - Albert Ammons (1936-1946) (1997) [FLAC|Lossless]<Boogie-Woogie>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257172.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Sarah Vaughan - Sarah Vaughan (1946-1947) (1998) [FLAC|Lossless]<Vocal Jazz, Bal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257167.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Bethany & Rufus Roots Quartet - Live a FIP (2009) [FLAC|Lossless]<Folk-Jazz, Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257150.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Fletcher Henderson - Fletcher Henderson and His Orchestra (1937-1938) (1990) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256947.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Louis Armstrong - Gold collections [Lossless]<Jazz> 4CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256462.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Jazzamor - Lucent Touch (2011) [FLAC (tracks+cue)|Lossless]<Acid Jazz, Lounge>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256454.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Bernhard Lackner - Stories From Home (2011) [FLAC|Lossless]<Fusion, Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256271.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Bernd Reiter Quartet feat. Roman Schwaller - Live At The Jazzland-Vienna (2007) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256260.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Gotham (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255940.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Before Doom - Noir (2025) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255680.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Anne Bisson - Be My Lover (2023) Japan [FLAC|Lossless|tracks] <Vocal Jazz, Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255542.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - In a Blue Hour (2006) 2CD, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255449.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Adam Larson - With Love, From New York (2023) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255437.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Hank Jones & Tommy Flanagan - I'm All Smiles (1983) MPS Records [WavPack|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255372.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Cozy Warm Winter: Best Relaxing Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255267.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ VA - Dreamy Lounge & Smooth Jazz Tunes For Pleasant Evening (2023) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255262.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ The Phil Woods Quartet - 'More' Live (1979) 1995, Genes [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254778.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Woody Herman & His Bands - Their Finest Albums (1952 - 1963) 4CD, 2022, Enlighte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254777.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Melani L. Skybell - Through The Years (1998) Self-Released [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254753.jpg" />
 </div>
 
 
@@ -778,7 +778,7 @@ Bemibek - Dziennik Mej Podrozy (1993) [FLAC|Lossless]<Vocal Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253374.jpg" />
 </div>
 
 

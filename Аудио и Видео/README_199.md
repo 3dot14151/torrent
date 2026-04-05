@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367883.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367870.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367851.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367837.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367821.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367797.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367780.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367667.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367510.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367327.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367261.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367167.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366551.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366219.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366035.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366030.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365898.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365635.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Róisín Murphy - Overpowered (2007) [AAC|~328 Kbps] <House, Electro, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365534.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365533.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Moloko - Things to Make and Do (2000) [AAC|~304 Kbps] <House, Electro, Trip Hop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365530.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Róisín Murphy - Hairless Toys (2015) [AAC|~310 Kbps] <Downtempo, Funk / Soul, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365528.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365410.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Moloko - I Am Not a Doctor (1998) [AAC|~288 Kbps] <Downtempo, Dance-pop, Electro
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365405.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Moloko - Sing It Back (1999) [AAC|~288 Kbps] <Deep House, Electro>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365397.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Moloko - Do You Like My Tight Sweater? (1995) [AAC|~292 Kbps] <Downtempo, Dance-
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365392.jpg" />
 </div>
 
 

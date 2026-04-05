@@ -1,3 +1,60 @@
+###  Публикация: 1456278   (1025288) от 21.03.2021
+
+VA - Espectrum II: The Avantroots Dub Techno Compilation (2021) AvantRoots [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Segue - Stepping Up (06:36)
+ 02. Pulshar - Accept Fate (05:53)
+ 03. Sibling - Tunnel Vision feat. Drhamer (06:17)
+ 04. Beat Pharmacy - Hemp Dub (06:37)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Deep TechnoПродолжительность: 01:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72AA362B90FC37871C9562E5CC5EF16F7B7C09A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321792   (1025284) от 21.03.2021
+
+Jon Gaiser | Void | Fraktion  - Discography 20 Releases (2006-2017) M_nus [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Never Works (06:47)
+ 02. Disleb (07:03)
+ 03. Acidrop (05:55)Тип издания: CD, WEBЖанр: Techno/MinimalПродолжительность: 00:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9F51877122E37E20387A9651BE004D3EC6378D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175017   (1025245) от 21.03.2021
 
 D.Å.R.F.D.H.S. (D.A.R.F.D.H.S.) - Discography 13 Releases (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Techno, Ambient, Industrial, Dark Ambient>
@@ -6,7 +63,7 @@ D.Å.R.F.D.H.S. (D.A.R.F.D.H.S.) - Discography 13 Releases (2013-2020) [FLAC|Los
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025245.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025129.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ VA - Electro Workout 2021: Motivation Training Music [MP3|320 Kbps] <Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025095.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ Martin Abrahamsson (Bauri, Deltidseskapism, Stalaktiten Och Mirjam) - Collection
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025089.jpg" />
 </div>
 
 
@@ -122,7 +179,7 @@ Osamu Sato | 佐藤理 - Discography 18 Releases (1983-2020) Sony, Music Mine, L
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025082.jpg" />
 </div>
 
 
@@ -150,7 +207,7 @@ Goldfrapp - Head First (2010) [FLAC|Lossless|tracks + .cue]<Electro, Synth-pop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025025.jpg" />
 </div>
 
 
@@ -179,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024933.jpg" />
 </div>
 
 
@@ -208,7 +265,7 @@ Andy Stott - Discography 23 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024855.jpg" />
 </div>
 
 
@@ -234,7 +291,7 @@ VA - Main Control Board (2010) Lagunamuch Community [FLAC|Lossless|tracks+.cue] 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024785.jpg" />
 </div>
 
 
@@ -263,7 +320,7 @@ Leitstrahl - Chromium Dioxide (2021) [MP3|320 Kbps] <Nu Disco, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024626.jpg" />
 </div>
 
 
@@ -292,7 +349,7 @@ Joi Lau - 3 UR Mind (2021) Klasse Wrecks [FLAC|Lossless|tracks+.cue] <Breakbeat,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024615.jpg" />
 </div>
 
 
@@ -321,7 +378,7 @@ VA - A Call Too Close (2021) Brokntoys [FLAC|Lossless|WEB-DL|tracks] <Electro, E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024612.jpg" />
 </div>
 
 
@@ -350,7 +407,7 @@ VA - A Call Too Close (2021) Brokntoys [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electro
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024604.jpg" />
 </div>
 
 
@@ -379,7 +436,7 @@ John Lemke - Discography 6 Releases (2012-2018) Denovali Records [FLAC|Lossless|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024591.jpg" />
 </div>
 
 
@@ -408,7 +465,7 @@ James Church (Lucidstatic, Pandora's Black Book, Static Logic) - Discography 41 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024512.jpg" />
 </div>
 
 
@@ -437,7 +494,7 @@ VA - Schneeweiss 12 (Presented by Oliver Koletzki) - 2021 [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024436.jpg" />
 </div>
 
 
@@ -466,7 +523,7 @@ VA - Midnight Walk: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024433.jpg" />
 </div>
 
 
@@ -495,7 +552,7 @@ Dunaewsky69 - Discography 13 Releases (2004-2020) Kvitnu, Section 27, DUN69 [FLA
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024359.jpg" />
 </div>
 
 
@@ -524,7 +581,7 @@ Blasterjaxx - Live @ Exclusive Water Tower Set (2021-03-25) [MP3|320 Kbps] <Hard
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024258.jpg" />
 </div>
 
 
@@ -553,7 +610,7 @@ David Guetta - Tomorrowland Friendship Mix (2021-03-25) [MP3|320 Kbps] <Electro 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024254.jpg" />
 </div>
 
 
@@ -582,7 +639,7 @@ Pet Shop Boys - Behaviour (1990) [FLAC|Lossless|tracks + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024240.jpg" />
 </div>
 
 
@@ -611,7 +668,7 @@ Klangstein - Discography 39 Releases (2009-2021) [MP3|320 Kbps] <Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024126.jpg" />
 </div>
 
 
@@ -640,7 +697,7 @@ James Bernard - Unreleased Works 1994-1999 (Volumes 1 & 2) (2021) A Strangely Is
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024077.jpg" />
 </div>
 
 
@@ -669,7 +726,7 @@ Mythos - Discography 12 Releases (1996-2021) [MP3|320 Kbps] <New Age, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023991.jpg" />
 </div>
 
 
@@ -683,61 +740,6 @@ Mythos - Discography 12 Releases (1996-2021) [MP3|320 Kbps] <New Age, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D3DCF54A73F5EAF85FB54E4CB5AF3A1117A33BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151365   (1023947) от 28.03.2021
-
-Taylor Deupree (Human Mesh Dance, Tiny Objects In Space, Deupree, Ando) - Discography (1993-2021) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Techno, Abstract, Minimal, Glitch>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyte (06:47)
- 02. Spine (06:57)
- 03. Optal (07:48)
- 04. Templ (05:08)Тип издания: CD, WebЖанр: Ambient, Experimental, Techno, Abstract, Minimal, Glitch •Продолжительность: 43:40:10 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A535F2820C9D8A533B11CF44A10E48EFADAD496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992695   (1023913) от 28.03.2021
-
-Nils Frahm - Discography 47 Releases (2005-2021) Erased Tapes, Sonic Pieces [FLAC|Lossless|tracks+.cue, tracks] <Modern Classical, Ambient, IDM, Abstract, Contemporary>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O I End (04:50)Тип издания: CD, WebЖанр: Modern Classical, Ambient, IDM, Abstract, Contemporary •Продолжительность: 29:31:18 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0AE522BBAAB39C4C21C65F49A1C62F6E842EFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

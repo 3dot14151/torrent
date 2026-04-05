@@ -6,7 +6,7 @@ Ennio Morricone: Peace Notes - Live in Venice (2008) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761668.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761350.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761241.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chris Norman - THE HITS! From his Smokie and Solo years (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760894.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Mylene Farmer - Avant que l'ombre... A Bercy (2006) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760571.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760321.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760311.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759938.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759697.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Erasure - Berlin Live '2017 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759625.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Lindsey Stirling ft. Lzzy Hale - Shatter Me (2014) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759480.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759392.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Rainbow - The Definitive Review 1975-1979 (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759344.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Rainbow - The Definitive Review 1979-1997 (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759342.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Annie Lennox - An Evening of Nostalgia with Annie Lennox (2015) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759025.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ A MusiCares Tribute to Barbra Streisand (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758984.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Iron Maiden - Rock in Rio (2002) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758972.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758862.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758628.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Coldplay - Higher Power (2021) WEBRip [VP9/1440p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758536.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Official UK Top 40 Video Chart (Febr, 2019) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758347.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Alcatrazz - Parole Denied - Tokyo 2017 (2018) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756832.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ MTV Europe Music Awards - London (2017) UHDTV [H.265/2160p] [4K, SDR, 10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756014.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Metallica: Français pour une nuit 1080(2009) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755711.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755669.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755621.jpg" />
 </div>
 
 

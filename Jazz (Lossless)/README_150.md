@@ -6,7 +6,7 @@ Evan Parker - Time Lapse (2006) Composer Series [FLAC|Lossless|tracks + .cue] <F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555494.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Randy Bachman - Jazz Thing (2004) Ranbach Music [FLAC|Lossless|image + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555492.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Alma Quartet & Henrik Schwarz - CCMYK (2019) [FLAC|Lossless|WEB-DL|tracks] <Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555377.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Slide Hampton & The Jazzmasters - Dedicated To Diz (1993) Telarc Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555376.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Paolo Fresu, Richard Galliano, Jan Lundgren - Mare Nostrum III (2019) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555371.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nils Petter Molvær (Nils Petter Molvaer) - Solid Ether (2000) [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555370.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Eric Alexander & Lin Halliday - Stablemates (1996) Delmark Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555107.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555085.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Jazz For A Summer Day Vol. 2 (Jazz Lounge Vintage Cafe) (2018) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554728.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ray Charles - Essential Original Albums (1959 -1962) 3CD, 2016, Masters Of Music
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554727.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Red Nichols - 1928 - 1929 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554722.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Aaron Goldberg - At the Edge of the World (2018) [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554698.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Horace Tapscott Quintet - The Giant Is Awakened (1969) 2017, Solid Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554517.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tony Bennett - Life Is Beautiful (1975) Reissue, Remastered 2003 [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554253.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Joe Marsala - 1944 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554067.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sonny Rollins - The Solo Album (1985) 1997, Milestone [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554066.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Frank Foster - Leo Rising (1997) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553983.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Joe Albany with Warne Marsh - The Right Combination (1957) 1990, Original Jazz C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553846.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Fay Claassen - Luck Child (2017) Challenge Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553840.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Red Nichols - 1929 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, New Orl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553782.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ David 'Fathead' Newman & Marchel Ivery - Blue Greens & Beans (1990) Remaster, 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553132.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Cannonball Adderley Quintet - Music, You All (1972) 2016, Real Gone Music[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553131.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Fattburger - Time Will Tell (1989) [FLAC|Lossless|image + .cue] <Contemporary Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553128.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Bobby Hutcherson - Un Poco Loco (1980) 1999, Koch Jazz[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553125.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Christopher Hollyday - And I'll Sing Once More (1992) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553123.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Denise Donatelli - Find A Heart (2015) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553120.jpg" />
 </div>
 
 

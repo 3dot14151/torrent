@@ -1,3 +1,56 @@
+###  Публикация: 1855287   (1057977) от 22.02.2026
+
+Последнее дело Вареного (1994) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проработав четыре года, молодой экспедитор Сизухин неожиданно узнает, что под видом перевозок детского питания его фирма занимается контрабандой наркотиков. Решив разобраться в этом деле, он начинает борьбу с мафией и обращается за помощью к профессиональному вору по кличке «Вареный».Производство: Россия / Голос, РоскомкиноЖанр: комедия, криминалРежиссер: Виталий МельниковАктеры: Виктор Степанов, Ольга Машная, Виталий Скворкин, Андрей Ургант, Елена Драпеко, Галина Гудова, Эра Зиганшина, Вера Карпова, Виктор Мелихов, Алла Одинг, Гелий СысоевСубтитры: русскиеПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930940EE3E2833C26ED3B2509FB0FBC065569B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854854   (1057713) от 20.02.2026
+
+Кракен (2025) BDRip [H.264/1080p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский ракетный подводный крейсер специального назначения бесследно исчезает во время секретной миссии в Гренландском море. На его поиски отправляется экипаж под командованием Виктора Воронина, чей старший брат командовал пропавшей субмариной.
+Перед моряками стоит задача любыми силами найти подлодку и не допустить, чтобы новое секретное оружие попало в руки врага. (   Читать дальше...   )Производство: Россия / Студия ТритэЖанр: фантастика, приключения, драмаРежиссер: Николай ЛебедевАктеры: Александр Петров, Алексей Гуськов, Виктор Добронравов, Сергей Гармаш, Диана Пожарская, Антон Риваль, Александр Ратников, Сергей Кемпо, Антон Богданов, Олег ГаасСубтитры: Русские (Full, SDH), Английские, Испанские, ПортугальскиеПродолжительность: 02:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973373FE3C789BF736AABFD994A8FE9A45013AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854855   (1057711) от 20.02.2026
 
 Кракен (2025) BDRip [H.264/720p] [GER Transfer]
@@ -6,7 +59,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057711.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056998.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055995.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055877.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055020.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055017.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055015.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054316.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054255.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053466.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052989.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052934.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052442.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051981.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051977.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051972.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051956.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051920.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051359.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051054.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051048.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050895.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050860.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050779.jpg" />
 </div>
 
 
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C5CD5617D6ABCAB6448F6AC84ADFFF3D531117E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845527   (1050737) от 
-
-День Святого Валентина (2000) DVDRemux
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050737.jpg" />
-</div>
-
-
-###  Подробнее
-
-В день Святого Валентина — праздник всех влюбленных, `примерный` муж, проводив жену в командировку, решает отдохнуть от семейной жизни в обществе длинноногой красавицы и приглашает ее к себе домой. Но в самый разгар любовной идиллии неожиданно возвращается жена…Производство: Россия, Новый одеонЖанр: КомедияРежиссер: Анатолий ЭйрамджанАктеры: Людмила Потапова, Борис Щербаков, Любовь Полищук, Александр Панкратов-Черный, Михаил Кокшенов, Сергей Цигаль, Владимир Екимов, Екатерина Зинченко, Владимир Брежнев, Татьяна АлексееваПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0E18BAE2E3BF6C076FEA293E0EFC8FD42CFA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845409   (1050695) от 31.12.2025
-
-Рельсы (2025) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Амбициозный специалист Андрей получает выгодное предложение в Москве. Он вынужден оставить не только родной город, но и любимую девушку Яну. Влюблённые проводят вместе последний день. Внутренние сомнения Андрея заставляют «сойти с рельс» саму реальность.Производство: Россия / ГильдияЖанр: Короткометражный, фантастика, драмаРежиссер: Максим КуцАктеры: Иван Травин, Вероника КупрееваПродолжительность: 00:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A3C9C1B2447A16C8347D8AE2C90CA613955CD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

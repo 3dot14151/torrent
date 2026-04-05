@@ -1,3 +1,119 @@
+###  Публикация: 1153780   (557081) от 28.07.2017
+
+VA - Sonntags Chiller Vol.4 (Wonderful Lounge and Ambient Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sami Sivananda - Kundalini (Original Mix)  2:46
+02.  L'Art Mystique - Prophets Of The Dawn (Original Mix)  4:59
+03.  Gordon Geco - Age Of Aquarius (Poseidon Continuous Mix)  1:19:53
+04.  Guna Nada Das - Heartbeat (Original Mix)  8:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95DA469038B94C04DA1BCCF84EA0AA4EE0678D6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153787   (557021) от 28.07.2017
+
+VA - Bar Chill out and Lounge Vol.02 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tony Deep Fish - Sand Under My Feet  6:14
+02.  Alice Shelton - Slowmotion Dance  4:17
+03.  Aatoo Cito - Into The Clouds  5:31
+04.  New World Lounge - Riviera  5:48(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3068BF0378F75137428377189E1B5F9EA8D870B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045875   (556986) от 25.08.2016
+
+VA - All I Need Is Chillout (2015) [MP3|320 Kbps] <Downtempo, Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baghira - Way Too Long
+02. Don Gorda Project - Surfing Emotional Waves
+03. Enrico Donner - Don t Be Stranger
+04. Cesar Martinez Ensamble - Moca Formosa(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37258B439959FE8BE010B645C5FE29558C4D26B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046105   (556984) от 25.08.2016
+
+VA - MOMENTS - Chill-Out & Lounge Series, Vol. 7 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capa - People & Places
+02. Derrick - Just To Be
+03. Jane Maximova - Late In The Night
+04. Ingo Herrmann - Lala-Land(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C364592F1E4FE5DA682B9536CC67A15552889F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045881   (556983) от 25.08.2016
 
 VA - Moments - Chill-Out & Lounge Series, Vol. 6 (2015) [MP3|320 Kbps] <Electronic, ChillOut, Lounge>
@@ -6,7 +122,7 @@ VA - Moments - Chill-Out & Lounge Series, Vol. 6 (2015) [MP3|320 Kbps] <Electron
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556983.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Deep Chill Autumn Skies (2015) [MP3|320 Kbps] <Deep House, Chill House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556981.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Dubai Loungers Only For the Riches Vol 5 (Cafe Chill out Edition) (2016) [M
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556979.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Amnesia Ibiza 2016 (Mixed by Mar-T, Hector Couto, Betoko) (2016) 3 CD [MP3|
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556978.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Dubai Loungers Only For the Riches Vol 3 (Cafe Chill out Edition) (2015) [M
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556977.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Missing Persons - Missing in Action (2014) Deluxe Edition [MP3|320 Kbps] <New Wa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556942.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Sensual Deep House (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556923.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Dinka - Tales Of The Sun (2011) 2CD [FLAC|Lossless|tracks + .cue] <Progressive H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556782.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Schneeweiss 8 (Presented by Oliver Koletzki) (2017) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556608.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Centhron - Dystopia (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Ind
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556503.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - House Of Ibiza (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556450.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Holomatrix ‎ - Calling earth (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556448.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Blaqk Audio - Only Things We Love (2019) [FLAC|Lossless|tracks + .cue] <Synth Po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556445.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Armin van Buuren - Feel Again Part 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556428.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Afterlife - Collection 5 Albums (2014-2018) [FLAC|Lossless|WEB-DL|tracks] <Balea
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556375.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Mellow Tunes - A Journey Between Atmosphere And Groove (1997) Legoan [FLAC|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556290.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Gang Gang Dance - Kazuashita (2018) 4AD [FLAC|Lossless|tracks+.cue] <Experimenta
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556289.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Schneeweiss 9 (Presented by Oliver Koletzki) (2018) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556277.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Running Music 2018 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556226.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - EDM Revolution 2019: Best Anthems For Party & Clubbing (2019) [MP3|320 Kbps
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555939.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Ibiza 2019 Deep House (2019) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555935.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ B(if)tek - Sub-Vocal Theme Park (Acid Unravelled) (1996) [FLAC|Lossless|tracks +
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555934.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ B(if)tek - Sub-Vocal Theme Park (Acid Unravelled) (1996) [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBDD38CF3D8FBE77CD0CCF460AA3021306F33EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306098   (555823) от 03.06.2019
-
-VA - Super Strong Summer Deep House Tunes Top 100 (2019) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555823.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hacer Hould - Backdoor 4:10
-002. Grupps - Welcome 4:10
-003. Gino Patricio - Cooper 4:12
-004. Gilbert Nouls - Medford 4:10(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 07:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3439C31898A125452333DD0142CF0D92AC53C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306112   (555814) от 03.06.2019
-
-VA - Ibiza 2019 Borderline Audio (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Sleyer - Drumatic (Original Mix)
-02. Carlo L - Corridor (Original Mix)
-03. Aka R - Storm Is Raging (Original Mix)
-04. Audio Sonus - Deep State (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D180BF9DA7ED71A9F765F4C669A893C08991B45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306320   (555812) от 03.06.2019
-
-VA - On Air Deep & Soulful House Tunes (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Novy - Closer to You (Paul Harris Remix)
-02. Armin Prayd - I Need Your Lovin (Space Terrasse Remake)
-03. Pesos - D'isco (Miqro Deep Mix)
-04. Joey Chicago - Always(   Читать дальше...   )Жанр: HouseПродолжительность: 03:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A22ACDFB245F34AC7861569A3F034605E4731E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306162   (555804) от 03.06.2019
-
-VA - Trance Euphoria Vol.4 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  TrancEye  -  When The Sun Goes Down (Radio Cut)
-02.  DJ Dean & K.Blank feat. Elaine Winter  -  Flashback (Rene Ablaze and Jam da Bass Radio Edit)
-03.  Arcania  -  This Means War (Radio Edit)
-04.  Jay & Symon  -  Aerify (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D26ED15F5BAB5E468103048AF00B38B0095053
 ```
 
 https://mybot314.ru/tekegram_catalog/

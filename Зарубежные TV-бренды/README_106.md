@@ -6,7 +6,7 @@ NGW: Самые мощные челюсти / World's Deadliest Bite (2021) WEBR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215134.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ National Geographic. Взлом системы / Hacking the System (2014) IPTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214854.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214209.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. История Пластика / The Story of Plastic (2019) HDTV [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214168.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Вдоль по Окаванго / Into the Okavango (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214041.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213916.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Люди, которые продали Кубок Мира / The Men
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213393.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213207.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212938.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211932.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG. Разрушительный ураган Сэнди / Superstorm New York: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211820.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ History Channel. В изоляции (Лабрадор) / Alone (2022) WEB-DL [H
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211808.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211586.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ History Channel. В изоляции (Арктика) / Alone (2021) WEB-DL [H.2
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211541.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211376.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ PBS: Nature - Отважный Ирак / Braving Iraq (2010) BDRip [H.264/1080p
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210934.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NG. Затонувшие сокровища нубийских фараонов 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210877.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210231.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NG. В поисках динозавров на Аляске / Hunting Alaskan D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210215.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210196.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210193.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210181.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210155.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ NG. Путь гепарда / The Way Of the Cheetah (2022) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210010.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ NG. Настоящая чёрная пантера / The Real Black Panther (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209976.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209903.jpg" />
 </div>
 
 

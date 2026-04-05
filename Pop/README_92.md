@@ -1,177 +1,3 @@
-###  Публикация: 1205425   (783472) от 10.02.2018
-
-Lipps, Inc. - Mouth To Mouth (1979) Remastered, 2012 [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funkytown (07:50)
-02. All Night Dancing (08:21)
-03. Rock It (05:42)
-04. Power (08:19)Жанр: DiscoПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F532ABAA995CE4A3FDB70D63A7C3314A160C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205289   (783458) от 10.02.2018
-
-Сударушка-style - Формула любви (2017) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Потеряла голову
-02. Осина и клён
-03. Формула любви
-04. Разлука(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA579631C9769A09F3F0D942F8EED6ED1038BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390201   (783400) от 14.06.2020
-
-Sine - Happy Is The Only Way (1977) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Is The Only Way (7:38)
-02. Chimi (6:13)
-03. Just Let Me Do My Thing (6:50)
-04. Keep It Coming (11:53)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA93A55D4F82E6F8F4E695D1321F7A208E21A1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389984   (783392) от 14.06.2020
-
-VA - NOW Pop Icons (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady GaGa - The Edge Of Glory (Radio Edit)
-02. Ellie Goulding - On My Mind
-03. Niall Horan - Slow Hands
-04. Demi Lovato - Cool for the Summer(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA01181EC3CA5871C4599C404B5CE7947CBED97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390040   (783346) от 14.06.2020
-
-VA - 100 Greatest Summer Party Songs 2020 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783346.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dua Lipa - Don't Start Now 3:03
-002. Ofenbach - Rock It 2:26
-003. Lizzo - Juice 3:15
-004. Rita Ora - How To Be Lonely (Bomba Estéreo Remix) 2:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCED67EE3F0872D600714EA9DFF84D4409F0FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390030   (783332) от 14.06.2020
-
-VA - 100 Greatest 60s: Golden Oldies From The Sixtie (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aretha Franklin - Respect (02:27)
-02. Ben E. King - Stand by Me (02:54)
-03. Sam & Dave - Soul Man (02:36)
-04. The Monkees - I'm a Believer (02:45)(   Читать дальше...   )Жанр: PopПродолжительность: 04:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9C698A853AE59792799C7B0F482D0CF63EE7BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205878   (783228) от 11.02.2018
 
 VA - Daniele Baldelli Presents Baia Degli Angeli 1977-1978 (2005,2007) 2CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -180,7 +6,7 @@ VA - Daniele Baldelli Presents Baia Degli Angeli 1977-1978 (2005,2007) 2CD [MP3|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783228.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Noemi - La Luna (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783208.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783025.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ Shake - Shake (1977) LP [MP3|320 Kbps] <Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782961.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ Jose Calvario - The Best Disco In Sound (1977) LP [MP3|320 Kbps] <Instrumental, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782960.jpg" />
 </div>
 
 
@@ -323,7 +149,7 @@ De Lux - More Disco Songs About Love (2018) [MP3|320 Kbps] <Dance-pop, Italo-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782949.jpg" />
 </div>
 
 
@@ -352,7 +178,7 @@ The Glass Family - 2 Albums (1978,1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782946.jpg" />
 </div>
 
 
@@ -381,7 +207,7 @@ Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1990) A
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782945.jpg" />
 </div>
 
 
@@ -410,7 +236,7 @@ Dee D. Jackson - 2 Albums (1978, 1980) LP Mint [MP3|320 Kbps] <Electronic, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782632.jpg" />
 </div>
 
 
@@ -439,7 +265,7 @@ Kongas - 2 Albums (1977,1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Tribal, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782547.jpg" />
 </div>
 
 
@@ -468,7 +294,7 @@ Justine - You`re My Sunshine (2000) Single [MP3|320 Kbps] <Europop>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782520.jpg" />
 </div>
 
 
@@ -497,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782139.jpg" />
 </div>
 
 
@@ -526,7 +352,7 @@ OFF - 2 Albums (1988,1989) CD [MP3|320 Kbps] <Electronic, Pop, New Beat, Synth-p
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782138.jpg" />
 </div>
 
 
@@ -555,7 +381,7 @@ Systems In Blue - Melange Bleu (The 3rd Album) (2017) [FLAC|Lossless|tracks + .c
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782100.jpg" />
 </div>
 
 
@@ -584,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781845.jpg" />
 </div>
 
 
@@ -613,7 +439,7 @@ Bee Gees - Odessa (1969) Box Set Felt Cover 2009 3-CD Reprise Records [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781793.jpg" />
 </div>
 
 
@@ -642,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781732.jpg" />
 </div>
 
 
@@ -671,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781728.jpg" />
 </div>
 
 
@@ -700,7 +526,7 @@ VA - Disco 80's Vol.2 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781713.jpg" />
 </div>
 
 
@@ -729,7 +555,7 @@ VA - Disco 80's Vol.2 (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781676.jpg" />
 </div>
 
 
@@ -743,6 +569,180 @@ VA - Disco 80's Vol.2 (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE6A8A3EF48788F43D31A1A1C9E98EA30493405E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391164   (781418) от 19.06.2020
+
+Black Eyed Peas - Translation (2020) [MP3|320 Kbps] <Pop, Rap>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. RITMO (из фильма «Плохие парни навсегда»)
+2. FEEL THE BEAT
+3. MAMACITA
+4. GIRL LIKE ME(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC2E890BEB7CCA75757462855490238438303CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207047   (781322) от 16.02.2018
+
+Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 L'amas d'chair
+2 Aie
+3 Soirees parisiennes
+4 Toi qui m'ecoutes(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206792   (781313) от 16.02.2018
+
+Nina Zilli - Modern Art (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senza Appartenere
+02. Domani Arrivera (Modern Art)
+03. Ti Amo Mi Uccidi
+04. 1xUnAttimo(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC0270397B50592FFFE42D57B2826FFEE08D7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390980   (781077) от 20.06.2020
+
+I Break Horses - Warnings (2020) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn (09:01)
+ 02. Silence (04:29)
+ 03. l a r m (01:04)
+ 04. I'll Be The Death Of You (04:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7604A3839FCC03B8C69F55407B0D0D33312E9358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391127   (781025) от 20.06.2020
+
+VA - Another Side Of Fancy Part Three (2020) 2CD, Compilation, Remastered [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timerider - Space Iwan (12'' Version) (5:36)
+02. Mozzart - Jasmin China Girl (12'' Version) (6:31)
+03. Grant Miller - (Find My) Tracks In The Snow (12'' Version) (5:07)
+04. G.P. Universe - Let Me Love You (12'' Version) (5:14)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00213A527049B46A73F13651388CF6CDF5F7115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391182   (781010) от 20.06.2020
+
+Black Eyed Peas - Translation (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RITMO (Bad Boys For Life) (feat. J Balvin) (03:34)
+02. FEEL THE BEAT (feat. Maluma) (03:57)
+03. MAMACITA (feat. Ozuna & J. Rey Soul) (04:11)
+04. GIRL LIKE ME (feat. Shakira) (03:42)(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F27E2D8EC2CD2E25759DFB553C2DFDDFC055709
 ```
 
 https://mybot314.ru/tekegram_catalog/

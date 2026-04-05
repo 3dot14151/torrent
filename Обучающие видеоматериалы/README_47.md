@@ -1,3 +1,32 @@
+###  Публикация: 1464777   (1019580) от 23.04.2021
+
+Rachel Andrew | Подборка курсов по вёрстке (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка курсов по вёрстке от Rachel Andrew:
+Rachel Andrew - Browser Compatibility
+Rachel Andrew - CSS Flexbox
+Rachel Andrew - CSS Grid(   Читать дальше...   )Жанр: Программирование, вёрсткаЯзык озвучки: АнглийскийПродолжительность: 03:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6EBC55A510DC09E24F181C16068C0A29DFD8DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464729   (1019544) от 23.04.2021
 
 OTUS, Егор Матешук | Экосистема Hadoop, Spark, Hive (2021) PCRec
@@ -6,7 +35,7 @@ OTUS, Егор Матешук | Экосистема Hadoop, Spark, Hive (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019544.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Udemy, Tannia Suárez | Advanced English Communication, Confidence, and Mindset 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019541.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019478.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ Udemy, Den Lennie и др. | Drone Video Pro 2021 - Shoot Pro Video with Any Dro
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019429.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ Udemy, Joseph Delgadillo и др. | The Complete Full-Stack JavaScript Course!  
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019416.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ Podlodka.io | Podlodka Frontend Crew, сезон #1 (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019222.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019200.jpg" />
 </div>
 
 
@@ -202,7 +231,7 @@ Gumroad, Simon Fuchs | Создание дрона в Blender 2.9 и Substance P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019199.jpg" />
 </div>
 
 
@@ -229,7 +258,7 @@ Udemy, John s Curry | GraphQL Mastery: Getting started with and mastering GraphQ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019074.jpg" />
 </div>
 
 
@@ -257,7 +286,7 @@ Udemy, Brad Traversy | Next.js Dev to Deployment  (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019069.jpg" />
 </div>
 
 
@@ -283,7 +312,7 @@ Talkpython, Sebastian Witowski | Modern Python Projects Course (2021) PCRec [En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019066.jpg" />
 </div>
 
 
@@ -310,7 +339,7 @@ Udemy, Anushka Madusanka | Android Jetpack, Clean Architecture & Testing Masterc
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019060.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ Udemy, Zach LaCourse | Fullstack GoLang React Insanity Volume 2  (2021) PCRec [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019054.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ Talkpython, Michael Kennedy | Full Web Apps with FastAPI Course (2021) PCRec [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019052.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ Udemy, IT Security Academy и др. | Hacking in Practice: Intensive Ethical Hac
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019049.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Cream-Motion | VoluMax v6 3D Photo Animator Tutorial (2021) HDRip [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019038.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Udemy, Kazi Ariyan | Laravel 8 - Система управления школо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019027.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Udemy, Zaid Sabih и др. | Learn Social Engineering From Scratch (2021) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018890.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Udemy, Derek Banas | Python Programming Bootcamp (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018886.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Udemy, Brent Eviston | The Art & Science of Drawing / BASIC SKILLS  (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018884.jpg" />
 </div>
 
 
@@ -550,7 +579,7 @@ DryLabs, Никита Соболев и др. | Устройство и прим
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018874.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ DryLabs, Николай Марков | Python как движущая сила �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018871.jpg" />
 </div>
 
 
@@ -605,7 +634,7 @@ Udemy, Scott Harris | Manga Art School: How to draw Anime and Manga Course (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018861.jpg" />
 </div>
 
 
@@ -631,7 +660,7 @@ OTUS, Алексей Цыкунов | Администратор Linux. Углу
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018840.jpg" />
 </div>
 
 
@@ -660,7 +689,7 @@ Chocofur, Lech Sokolowski | Секреты визуализации интерь
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018521.jpg" />
 </div>
 
 
@@ -674,32 +703,6 @@ Chocofur, Lech Sokolowski | Секреты визуализации интерь
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:828AE92164CB41C71C7DC84E7D67779FF6C23385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466592   (1018340) от 30.04.2021
-
-Дегтярёв Александр | Основы программирования на JavaScript. VueJS (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение курса по основам JavaScript для абсолютных новичков, где основной уклон сделан на библиотеку "VueJS". Уроки имеют минимум теории, и каждый урок строится на задании, которое обучающийся должен выполнить сам, просто посмотрев на текущий код с использованием логического мышления.Жанр: Обучающее видеоПродолжительность: 02:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57C14160CB96623F8728FB1E0DC27625952DC39
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1122782   (793368) от 06.04.2017
+
+top3travel | Путешествие в Лаос (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаос — государство в Юго-Восточной Азии, в центре Индокитайского полуострова. Без выхода на море.Краткая история: В 14-17 веках здесь было государство Лансанг. В 1893 году эти земли перешли во владение Франции и стали частью Французского Индокитая. В 50-х годах 20 века в Северном Лаосе к власти пришли коммунисты, в 1975 году  подчинившие себе Лао.
+Поездка в Лаос может (   Читать дальше...   )Производство: Жанр: Путешествие,видеогидПродолжительность: 05:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:880AADFC2DE809F8E43FCB99D772963223C57A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122747   (793365) от 06.04.2017
 
 top3travel | Самостоятельное путешествие в Мьянма (2015) PCRec
@@ -6,7 +33,7 @@ top3travel | Самостоятельное путешествие в Мьянм
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793365.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ top3travel | Самостоятельное путешествие в Малай
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793315.jpg" />
 </div>
 
 
@@ -63,7 +90,7 @@ top3travel | Путешествие на Филиппины (2014) PCRec
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793313.jpg" />
 </div>
 
 
@@ -92,7 +119,7 @@ top3travel | Путешествие в Камбоджу (2015) PCRec
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793310.jpg" />
 </div>
 
 
@@ -121,7 +148,7 @@ top3travel | Самостоятельное путешествие на Бали
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793252.jpg" />
 </div>
 
 
@@ -150,7 +177,7 @@ top3travel | Самостоятельное путешествие в Таила
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793242.jpg" />
 </div>
 
 
@@ -179,7 +206,7 @@ top3travel | Самостоятельное путешествие на Шри-�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793185.jpg" />
 </div>
 
 
@@ -205,7 +232,7 @@ Udemy | Тестирование ПО. С нуля до Junior QA (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793116.jpg" />
 </div>
 
 
@@ -234,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793094.jpg" />
 </div>
 
 
@@ -262,7 +289,7 @@ Jillian Michaels | Killer Arms and Back (2015) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793092.jpg" />
 </div>
 
 
@@ -288,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793085.jpg" />
 </div>
 
 
@@ -315,7 +342,7 @@ CG Cookie - 2010 Blender Training Series (full parts 1 & 2) [2010, ENG] PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792792.jpg" />
 </div>
 
 
@@ -341,7 +368,7 @@ PhLearn | Lightroom 101-201 (2017) TS [H.264/720p] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792655.jpg" />
 </div>
 
 
@@ -369,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792601.jpg" />
 </div>
 
 
@@ -395,7 +422,7 @@ top3travel | Путешествие во Вьетнам (2015) PCRec
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792417.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ Blender Foundations | Blenderella, Моделирование Персонажа
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792065.jpg" />
 </div>
 
 
@@ -452,7 +479,7 @@ CG Masters | Моделирование и Текстурирование Авт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792059.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792029.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ PhLearn | Photo Editing 101-301 (2017) TS [H.264/720p] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791975.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ Udemy, Santiago Pereira Carrasco | Vector Displacement in Blender (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791951.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ Udemy, Daniel Orchard | Vehicles in Unreal Engine 4 (2020) PCRec [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791950.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791739.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791737.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791736.jpg" />
 </div>
 
 
@@ -669,7 +696,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791734.jpg" />
 </div>
 
 
@@ -683,35 +710,6 @@ GeekUniversity | Факультет информационной безопас�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14ED3B91E961E68CAAF2ACB6F6AF4391CE90331D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510408   (791320) от 16.11.2021
-
-JUG Ru Group | Heisenbug 2021 Moscow. Конференция по тестированию. (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heisenbug 2021 Moscow - большая техническая конференция по тестированию. Несколько десятков докладов о разных видах тестирования, инструментах и многом другом.
-
-5-7 октября состоялся Heisenbug 2021 Moscow.
-(   Читать дальше...   )Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 42:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E11FD2F5891621CC10AFB29593499C4CC1A677C
 ```
 
 https://mybot314.ru/tekegram_catalog/

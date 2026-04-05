@@ -6,7 +6,7 @@ BBC. Тайные агенты Елизаветы I / Elizabeth I's Secret Agent
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439625.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Дикое королевство / Savage Kingdom (2016) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435147.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Первые обитатели Америки / America's First Nati
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435144.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ History Channel. Титаник: Тайна раскрыта / Titanic at 100: M
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435139.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Волчья династия Йеллоустоуна / Yellowstone Wolf D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434953.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Наши невидимые спутники / Bug Brother (2007) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_434704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434704.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC. История Христианства / A History of Christianity (2009) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434606.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433472.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC: История хирургии.  Кровавое начало [5 из 5] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433148.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Discovery: Прежде чем мы покорили Землю / Before We Rule
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432893.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery. Техногеника. Шагающий экскаватор (2016) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432153.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431569.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC Horizon: Человек на Марсе. Экспедиция на крас�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431279.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NGW: Волк против медведя / Wolf vs. Bear (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431043.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG. Пропавшие города Амазонии: Легенда стано�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430738.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NG: Зыбучие пески: невидимая опасность / Danger Qu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430550.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ History Channel: Большая история / Big History (2013) HDTVRip [H.2
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430190.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429345.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429280.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Мыши
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428933.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BBC: Супервулкан / BBC: Supervolcano (2005) HDTV [1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_428639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428639.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Discovery. Взгляд изнутри / Inside West Coast Customs (2017) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427220.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427047.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426998.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ NGW: Дикая природа Аргентины. Безжалостные го
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426880.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ BBC: Новая Европа с Майклом Пэйлином / New Europe Wit
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426662.jpg" />
 </div>
 
 

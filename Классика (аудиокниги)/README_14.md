@@ -1,3 +1,29 @@
+###  Публикация: 1391935   (770631) от 23.06.2020
+
+Петер Хандке | Нет желаний – нет счастья (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Нет желаний - нет счастья" - знаковая автобиографическая повесть нобелевского лауреата Петера Хандке, написанная в 1970-е годы. Ее основная мысль - человек не может жить без сколько-нибудь значимой цели; бессмысленное, бездуховное существование противно человеческой природе; сознание, замкнутое в кругу монотонных бытовых действий, не позволяет человеку (   Читать дальше...   )Жанр: КлассикаПродолжительность: 01:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F6421CFB453CCE7C7B175771DEFE8706A140C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016681   (769550) от 15.05.2016
 
 Лев Толстой | В чем моя вера (2016) [MP3]
@@ -6,7 +32,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769550.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768427.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766862.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766562.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766343.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766257.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765744.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765600.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765138.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765072.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764800.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764388.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763838.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761910.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760433.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759831.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759726.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759712.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758612.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758159.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757786.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757630.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756157.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755844.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755817.jpg" />
 </div>
 
 
@@ -651,33 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5FCBE7852E5F9CE910BB5977C1E2E3F6A6DB4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781463   (755764) от 28.04.2014
-
-Шарлотта Бронте | Джейн Эйр (2013) [MP3, Любовь Поволоцкая]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755764.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Джейн Эйр" - это особая книга. Невероятное количество девушек тайком роняли свои слезы на страницы с романа о юной гувернантке - хрупкой, но верной убеждениям и стойкой к невзгодам, которая всеже, после долгих испытаний, была со своим любимым.
-Шарлотта Бронте практически впервые в литературе нашла в себе смелось столь искренне и страстно, так правдиво (   Читать дальше...   )Жанр: КлассикаИздательство: АудиокнигаПродолжительность: 19:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B54A4BE1A267EC815FC556159D68F0E20A37E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

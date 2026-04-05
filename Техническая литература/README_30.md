@@ -1,3 +1,56 @@
+###  Публикация: 1644830   (209576) от 06.07.2023
+
+И.Ф. Шаповалов | Справочник по расчету электрических сетей (1986) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Систематизированы данные по разработке электроснабжения и расчету электрических нагрузок для жилых и общественных зданий, а также промышленных предприятий. Содержатся сведения о способах прокладки проводов, кабелей, троллеев, шинопроводов, по выбору силовых трансформаторов, комплектных электротехнических устройств, электрооборудования.
+Дополнен схемами электроснабжения (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: БудiвельникФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4634294887CA9B3CA8B34B1D2436B8C3FFAE3C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644934   (209500) от 07.07.2023
+
+Н.М. Эмануэль, А.Л. Бучаченко | Химическая физика молекулярного разрушения и стабилизация полимеров (1988) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209500.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии рассмотрена теория процессов молекулярного разрушения полимеров под действием тепла, кислорода, света, механических напряжении, электрических полей, обсуждены химические и структурно-физические принципы стабилизации твердых полимеров, полимерных расплавов и растворов, сформулированы принципы выбора стабилизаторов и прогнозирования сроков службы полимерных (   Читать дальше...   )Жанр: ХимияИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC477B144FA462AF39983BE45F6F2EB34A04BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645632   (209345) от 10.07.2023
 
 И. Пригожин, Д. Кондепуди | Современная термодинамика. От тепловых двигателей до диссипативных структур (2002) [PDF]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209345.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208706.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208353.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207770.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207017.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203344.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201674.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201448.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200744.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200306.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200083.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200030.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198966.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198931.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198669.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198181.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197752.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196438.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196386.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195645.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194295.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192056.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191754.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191752.jpg" />
 </div>
 
 
@@ -627,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22F8FB0BB07C16E6F7F0577C4372421483ECDF2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588484   (191257) от 05.11.2022
-
-В.В.Трояновский | Ремонт часов (1961) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191257.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются вопросы устройства и ремонта основных типов часов и часовых механизмов, выпускаемых отечественной промышленностью, изложены отдельные теоретические вопросы, связанные с конструкцией и работой часовых механизмов, а также указан принцип организации производства по ремонту часов. Книга «Ремонт часов» предназначена для лиц, занимающихся ремонтом (   Читать дальше...   )Жанр: Учебной пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4E1E1D1D0E0C56089193E2EAE4C79F0CCEF002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658853   (190840) от 09.09.2023
-
-Подборка технической литературы и документов по отопительному оборудованию (2015) [PDF, DOC, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка технической литературы и документов по системам отопления и отопительному оборудованию, актуальностью примерно на 2015 год.
-
-Материалы предоставленныеЖанр: ОтоплениеИздательство: РазличныеФормат: PDF, DOC, DJVUКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C87DFCE1F16C840B9358F64B34EA677371C810
 ```
 
 https://mybot314.ru/tekegram_catalog/

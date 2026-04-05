@@ -6,7 +6,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732431.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731220.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729501.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729121.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723732.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722226.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717162.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710298.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_710295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_710295.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709259.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705387.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704400.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702486.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702296.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701340.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698371.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696627.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696602.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691797.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691285.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689883.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687893.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687111.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683511.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680037.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678710.jpg" />
 </div>
 
 

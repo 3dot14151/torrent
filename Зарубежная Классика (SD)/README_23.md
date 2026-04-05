@@ -1,3 +1,56 @@
+###  Публикация: 763916   (879483) от 09.03.2014
+
+Анна Каренина / Anna Karenina (1918) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жена видного сановника Каренина, Анна, становится любовницей графа Вронского. Когда Вронский охладевает к ней, Анна находит смерть под колесами поезда. По роману графа Льва Толстого.Производство: Венгрия, Hungária FilmgyárЖанр: Драма, экранизация, немое киноРежиссер: Мартон ГарашАктеры: Ирен Варшаньи, Дежё Кертес, Эмиль Феньвешши, Дьюла Маргиттаи, Енё Балашша, Шандор Вираньи, Вильма Лакош, Карола Гарди, Sandy Igalits, Шари АльмашиПеревод: Немой с интертитрамиСубтитры: Венгерские интертитры, русские отдельным файломПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7167C2078FDF4626083E42CDF60F1306BACA16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098355   (879380) от 15.02.2017
+
+Склока / La zizanie (1978) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой Луи Де Фюнеса владеет фабрикой по производству оборудования для контроля за загрязнениями окружающей среды, которая сама же ее и загрязняет. Его жена Бернадетт обожает выращивать цветы.
+Когда муж решает расширить свою фабрику за счет собственных владений, в том числе и цветников жены, Бернадетт начинает агитационную кампанию против него.Производство: Франция / Les Films Christian Fechner, Simar FilmsЖанр: КомедияРежиссер: Клод ЗидиАктеры: Луи де Фюнес, Анни Жирардо, Морис Риш, Жан-Жак Моро, Женевьев Фонтанель, Жак Франсуа, Жорж Стаке, Марио Давид, Даниэль Буланже, Таня ЛоперПеревод: Многоголосый закадровый х3Субтитры: ОтсутствуютПродолжительность: 01:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C21347DE82B1E36E3DE0BB330DC4E31C22C5FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995774   (879213) от 14.03.2016
 
 Поддержи своего стрелка / Support Your Local Gunfighter (1971) DVDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879213.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878744.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877839.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877798.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877787.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877712.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877231.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877202.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877150.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877104.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876838.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876397.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_876259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_876259.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875806.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875703.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875118.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874685.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874676.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874467.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874457.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872703.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872594.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872485.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872294.jpg" />
 </div>
 
 
@@ -621,59 +674,6 @@ XVII век. Инквизиция держит в страхе Европу. И 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BE01E71A4D6C9CBEC115F0C0394EEF02AE956E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371833   (872214) от 10.04.2020
-
-Дьявол и десять заповедей / Le Diable et les dix commandements / The Devil and the Ten Commandments (1962) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872214.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дьявол и десять заповедей» — французский фильм Жюльена Дювивье 1962 года, состоящий из семи эпизодов-новелл, в которых снялись в главных ролях Фернандель, Луи де Фюнес, Ален Делон и другие звёзды французского кино.
-Перед нами – каталог человеческих слабостей, искушений, тщетных надежд, гордыни, а также – простоты, которая отнюдь не хуже воровства. Банально, но в (   Читать дальше...   )Производство: Франция, Италия /  Filmsonor S.A., Incei Film, Mondex Films, ProcinexЖанр: Комедия, драмаРежиссер: Жюльен ДювивьеАктеры: Мишель Симон, Ален Делон, Луи де Фюнес, Мишлин Прель, Шарль Азнавур, Жан-Клод Бриали, Фернандель, Мэл Феррер, Лино Вентура,  Клод Дофэн, Гастон Модо, Француаза АрнульПеревод: Дублированный, многоголосый профессиональный, двухголосый профессиональныйСубтитры: отсутствуютПродолжительность: 02:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B820A2CE5692B748003CB56FE052213A056268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994335   (871869) от 18.03.2016
-
-Ради нескольких долларов / Per pochi dollari ancora (1966) DVDRip [H.264] [АVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нахрапистые северяне уже вовсю теснят по всем фронтам южан, общая победа предрешена, но война ещё не окончена. Одного из пленённых южан, которого сыграл героический Джулиано Джемма, просят в качестве проводника довести двух северян до форта Юма.Производство: Италия, Франция, Испания / poca Films S.A., Fida Cinematografica, Les Productions Jacques RoitfeldЖанр: Вестерн, ВоенныйРежиссер: Джорджио ФеррониАктеры: Джулиано Джемма, Дэн Вадис, Софи Домье, Жак Серна, Нелло Паццафини, Хосе Кальво, Анхель дель Позо, Жак Эрлен, Андреа Босич, Антонио Молино РохоПеревод: Авторский (М.Иванов)Субтитры: ОтсутствуютПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96238E85CA5A20EB27526CFFDB01FC2007015BB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

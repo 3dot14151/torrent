@@ -1,3 +1,55 @@
+###  Публикация: 1074542   (335202) от 20.11.2016
+
+PROMT Professional 12 Build 12.0.52 + Dictionaries Collection [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335202.jpg" />
+</div>
+
+
+###  Подробнее
+
+PROMT Professional 12 – переводчик и словарь для малого и среднего бизнеса. Программа позволяет быстро и качественно перевести деловой документ, сайт, письмо или сообщение от партнера. При этом гарантируется сохранение конфиденциальности переводимой информации.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1044D6B46081E57DE2761783611586E02B8AF248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419433   (335075) от 30.10.2020
+
+Путину пожаловались на абсурдную возрастную маркировку книг
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_335075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава комитета Госдумы по культуре Елена Ямпольская на заседании президентского совета по культуре и искусству пожаловалась Владимиру Путину на излишнюю возрастную маркировку литературы.Она заявила, что существующие ограничения "уже не первый год" мешают книготорговле, театру, кинематографу, а также музеям и библиотекам.В качестве примера депутат привела (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 698795   (335027) от 26.11.2013
 
 Подпольная империя / Boardwalk Empire (2013) HDTVRip 720p (Сезон 4 (полный) / Серии 1-12 из 12) Amedia
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335027.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_335018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_335018.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ SlimJet 2.0.0.1 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334973.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Nvidia DriverPack v.457.09 RePack by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334912.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Unified Remote Full v3.10.4 [En/Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334760.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334684.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334683.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334536.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ ACDSee Ultimate 9.1 Build 580 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334524.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Advanced Archive Password Recovery Professional 4.54 [Multi / Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_334517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334517.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ EVE Online: Parallax / Параллакс (2007) [Ru/Multi] (1.0/13.1.976307) Li
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334516.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_334494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334494.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334288.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334286.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ NNMClub client v1.02 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334084.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ The Evil Within 2 (2017) [Ru/En] (1.05/dlc) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334040.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334036.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_333485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_333485.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_333256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_333256.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ Call of Duty: Ghosts / Зов долга: Призраки (2013) [Ru/En] (3.15.
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333230.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333229.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ JetBrains WebStorm 11.0 Build #WS-143.381 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333188.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Planetbase (2015) [Ru/Multi] (1.0.6B1) Repack Elektra
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333184.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333182.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ The Siger Studio’s SIGERSHADERS V-Ray Material Presets Pro - это объём
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D94411FF2E15F5BA9ADA070644E5B171FD0FE848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331192   (332986) от 14.10.2019
-
-Windows 10 1903 24in1 (x86/x64) +/- Office 2019 by Eagle123 (10.2019) [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка содержит в себе ISO-образ с Windows 10 1903 18362.418, включающий в себя 8 русских и 8 английских редакций, основанный на оригинальных образах, с интегрированными обновлениями по 10.2019, системными библиотеками для 32-битного (x86) и для 64-битного (x64) ядра, с возможностью выбора опций установки и автоустановкой драйверов и программ. А также есть (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFE1D9B05E062D8F5D28BA2360E123368ADE353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579786   (332969) от 29.09.2022
-
-Очередное достижение: 5000 релизов от kosatka!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_332969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 5000 релизов от kosatka!Маленькие радости, на волнах "Безымянного радио клуба"...
-Уважаемые одноклубники!Рад сообщить Вам о возможности поздравить нашего товарища, модератора, рипера, релизера и просто хорошего человека -(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Discovery: Новый Мир. Мегаполис будущего / Discovery: N
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954529.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954527.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 4
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954492.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954430.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ NGW. Дикая природа Португалии / Wild Portugal (2019) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952119.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952103.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BBC: Планеты. Сатурн / Nova: The Planets: Saturn (2019) IPTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952060.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ BBC: Саймон Шама о Рембрандте: Шедевры послед�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951812.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951806.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 5
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951245.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ PBS Nature. Бегемоты - жизнь в воде / Hippos: Africa's River G
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950628.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949024.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948540.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948487.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947725.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946651.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ BBC: Бессмертный Египет с Джоанн Флетчер / Immort
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945668.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945350.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ BBC: Планеты. Ледяные миры / Nova: The Planets: Ice Worlds (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944947.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ NG. Игры разума / Brain Games (2014) SATRip [сезон 3, серии 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942475.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941201.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940905.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939860.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Discovery. Розетта: столкновение с кометой (В пог
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939207.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ NGW. Акулы-каннибалы / Cannibal Sharks (2019) HDTVRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936203.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ NGW. Гигантские змеи. Удавы / Monster Constrictors (2019) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936193.jpg" />
 </div>
 
 

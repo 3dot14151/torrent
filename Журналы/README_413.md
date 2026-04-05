@@ -1,3 +1,133 @@
+###  Публикация: 1180600   (340138) от 04.11.2017
+
+Газета | 1001 совет и секрет. Спецвыпуск №10. 1001 Рецепт домашних блюд (октябрь 2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный выпуск журнала "1001 совет и секрет", посвящен кулинарии. На страницах этого выпуска - рецепты домашних блюд. Рецепты - легкие салаты, аппетитные закуски, наваристые супы, ароматное горячее, любимые запеканки, домашняя выпечка, красивые десерты. Готовить по этим рецептам легко: они не подведут и начинающих хозяек, тем более что продукты, используемые (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3273EC48A2B31DCA2EF90EE9CF0638DD52B8C1AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180611   (340136) от 04.11.2017
+
+Журнал | Авиация и космонавтика: вчера, сегодня, завтра №3 (март 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328EE3974440E424B70BD8E279D9EA16C1AD2343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180613   (340135) от 04.11.2017
+
+Журнал | Авиация и космонавтика: вчера, сегодня, завтра №4 (апрель 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE91E9A555C64D7C3973F74EDBE5D45541B018D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180621   (340133) от 04.11.2017
+
+Журнал | Авиация и космонавтика: вчера, сегодня, завтра №6 (июнь 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8D0AB3195586C01D5E453B551B3F9AD89E22C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180601   (340029) от 04.11.2017
+
+Журнал | InfoCity №10 (120) (октябрь 2017) [PDF] [Ru,Az]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340029.jpg" />
+</div>
+
+
+###  Подробнее
+
+InfoCity - Азербайджанский ежемесячный журнал о технике и технологиях выпускается с ноября 2007 г. На страницах журнала InfoCity вы найдете информацию о компьютерах, технике и новых технологиях. Штат журналистов тщательно набирается из лиц, уже публиковавшихся на данную тематику, с высшим техническим и экономическим образованием или имевших опыт работы в маркетинговых (   Читать дальше...   )Жанр: Компьютерные журналыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C014DE0AF6C0174D33C68214BFCA4A7CC7CC6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180633   (340025) от 04.11.2017
 
 Журнал | Авиация и космонавтика: вчера, сегодня, завтра №5 (май 2017) [PDF]
@@ -6,7 +136,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340025.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339790.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338717.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338610.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338609.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338592.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338445.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338438.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338301.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338275.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338061.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338056.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338049.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338048.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338017.jpg" />
 </div>
 
 
@@ -401,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338015.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338013.jpg" />
 </div>
 
 
@@ -456,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338012.jpg" />
 </div>
 
 
@@ -483,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338009.jpg" />
 </div>
 
 
@@ -510,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338005.jpg" />
 </div>
 
 
@@ -536,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338003.jpg" />
 </div>
 
 
@@ -550,139 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6CAC9F901F86AD4237D2F71C259BC21EF935536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181061   (337999) от 05.11.2017
-
-Журнал | Le Figaro Histoire [French] №34 (октябрь-ноябрь 2017) [PDF] [Fr]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Waterloo: La chute de l'Aigle. Fouche et Tallerand rnenent le ball.
-La secrets de la Bataille.
-La tragedie des Sent-Jours.
-La crise de L'Empire Roman.(   Читать дальше...   )Жанр: Исторический журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C5B135DEC21A07F0326D523FF4DE9080B23744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 726845   (337949) от 25.11.2013
-
-Подшивка журналов | HolzWerken №20-25 (2010) [PDF] [De]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание адресовано тем, кто любит столярничать и плотничать. Обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража - в каждом очередном или специальном выпуске. Периодичность выхода (с 2007 года) - 6 раз в год.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734ECF5E83636D168C0202E28A3DE8E83B58D3B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 726787   (337937) от 25.11.2013
-
-Подшивка журналов | HolzWerken №8-13 (2008) [PDF] [De]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание адресовано тем, кто любит столярничать и плотничать. Обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража - в каждом очередном или специальном выпуске. Периодичность выхода (с 2007 года) - 6 раз в год.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F701AF2FB5EBD59212A541C9CFD0F2D24C268FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581430   (337931) от 27.11.2012
-
-Журнал | Forbes [Россия] №12 (декабрь 2012) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337931.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Forbes" является главным деловым журналом в мире, успех журнал получил благодаря своим дерзким расследованиям в мире бизнеса и справедливым оценкам событий. "Forbes" пишет об историях успеха и поражений предпринимателей, новых идеях для бизнеса и инвестиций, а также публикует ежегодные авторитетные рейтинги. Частично удалена реклама.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFAFE1E2D6AC59190A484D5CAAE010109392F0E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581699   (337922) от 27.11.2012
-
-Журнал | National Geographic [Россия] №12 (декабрь 2012) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337922.jpg" />
-</div>
-
-
-###  Подробнее
-
-"National Geographic" - уникальный научно-популярный географический журнал, официальное издание американского Национального географического общества - публикует беспрецедентные и эксклюзивные материалы об истории, археологии, науке и культуре. Ядро журнала одинаково для всех стран, что делает "National Geographic" по-настоящему общемировым изданием.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58A589466FF48A939F4F690FB83EF7265CB7C63
 ```
 
 https://mybot314.ru/tekegram_catalog/

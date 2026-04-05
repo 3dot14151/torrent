@@ -1,3 +1,32 @@
+###  Публикация: 1749442   (2007) от 19.09.2025
+
+I Prevail - Studio Albums (5 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-hardcore, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2007.jpg" />
+</div>
+
+
+###  Подробнее
+
+I Prevail — американская метал-группа, созданная в Саутфилд, штат Мичиган, в 2014 году.2014 - Heart Vs. Mind (EP)
+2016 - Lifelines
+2019 - Trauma
+2022 - True Power(   Читать дальше...   )Жанр: Post-hardcore, MetalcoreПродолжительность: 03:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB6C047AEBE1A3FEA74794078084A9B767B0ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747622   (1995) от 19.09.2025
 
 Novembers Doom - Studio Albums (12 releases) (1995-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
@@ -6,7 +35,7 @@ Novembers Doom - Studio Albums (12 releases) (1995-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1995.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Ravager (Germany) - Studio Albums (4 releases) (2017-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1988.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Sins Of Omission - Studio Albums (2 releases) (1999-2001) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1950.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Lolita (Edith "Ditta" Einzinger) - Sailor, Sailor And Lolita's Greatest Hits (19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1586.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Imminence - Studio Albums (8 releases) (2013-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1469.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Malevolence - Studio Albums (4 releases) (2013-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1412.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ The Crown (ex-Crown of Thorns) - Studio Albums (12 releases) (1995-2024) hand ma
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1410.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Elkie Brooks - Pearls (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1284.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Thy Art Is Murder - Studio Albums (7 releases) (2008-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1123.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ VEXED - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1120.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ Rage - Studio Albums (31 releases) (1985-2025) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_864.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ Paradox - Studio Albums (9 releases) (1987-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_858.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Vildhjarta - Studio Albums (5 releases) (2009-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_763.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Revocation (ex-Cryptic Warning) - Studio Albums (11 releases) (2005-2025) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_615.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ Mors Principium Est - Studio Albums (9 releases) (2003-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_591.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Manowar - Studio Albums (19 releases) (1982-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Motörhead (Motorhead) - Studio Albums (23 releases) (1977-2015) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ Between the Buried and Me (BTBAM) - Studio Albums (18 releases) (2002-2025) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Dario Mollo projects (Crossbones, EZoo, The Cage, Twilight Road, Voodoo Hill) - 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Arabs In Aspic - Studio Albums (8 releases) (2003-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Siege Of Power - Studio Albums (2 releases) (2018-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ NG: V3: суперпушка Гитлера / Building Hitler's Supergun / Hitle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729520.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Как строилась Британия / How We Built Britain (2007) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729513.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Цивилизации / Civilisations (2018) BDRemux [H.264/1080p] (сез
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729456.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729224.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Схватка тигров / Clash of Tigers (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728773.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Почему? Вопросы мироздания. Природа н�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728711.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Animal Planet: Вторжение / Intruders (2017) HDTV [H.264/1080i] (сер�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728648.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728637.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC. Horizon. Что же такое один градус? / Horizon. What is O
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728590.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728547.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728540.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728527.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC. Барокко! От собора св.Петра до собора св.П
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728464.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Discovery. Почему? Вопросы мироздания. Как дейст�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728458.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728296.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Discovery: Почему? Вопросы мироздания. Можем ли м
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727531.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NG: Тайны Тутанхамона / Ultimate Tutankhamun (2013) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727436.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NG: Марс и SpaceX / Mars: Inside SpaceX (2018) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727420.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727418.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ National Geographic. Больше чем фокусы с Ди Эм Си / Beyond
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727323.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BBC: Тайны вселенной: Великие ученые своими с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727316.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ National Geographic. Больше чем фокусы с Ди Эм Си / Beyond
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727205.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727072.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ NG: Гибель Викингов / Viking Apocalypse (2011) SATRip
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726233.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726176.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NG. Реальность или фантастика? Корабли-призр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726168.jpg" />
 </div>
 
 

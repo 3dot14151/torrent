@@ -1,3 +1,108 @@
+###  Публикация: 1292562   (644322) от 30.03.2019
+
+Boogiepop wa Warawanai | Boogiepop and Others | Бугипоп никогда не смеётся [ТВ-2] [2019, TV, 18 из 18] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует городская легенда об ангеле смерти, который освобождает людей от боли. Имя ему Бугипоп, и легенда не врёт. Когда волна непонятных исчезновений девушек захлёстывает академию Щиньё, полиция и администрация предполагают, что имеют дело с беглянками, но Наги Кирима так не считает. Что-то таинственное и отвратительное происходит вокруг — но Бугипоп ли тому (   Читать дальше...   )Производство: Студия Madhouse Studios / マッドハウスЖанр: мистика, драмаРежиссер: Нацумэ СингоЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: русские надписи, неотключаемые.Продолжительность: 18 эпизодов по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A729C69BAB2F2EBAF2B3CBADA9D5AB8956A2990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292553   (644321) от 30.03.2019
+
+Kishuku Gakkou no Juliet | Boarding School Juliet | Джульетта из школы-интерната [2018, TV, 12 эп.] BDRip HEVC 10-bit 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школа-интернат Далии — обычное учебное заведение с не совсем обычным укладом, ибо ученики поступают в неё из двух враждующих между собой стран и проживают в отдельных общежитиях, именуемых «Чёрные псы» и «Белые кошки». Две главенствующие над общежитиями семьи — Инудзука и Персия — ненавидят друг друга, однако среди постоянных потасовок расцветают настоящие чувства (   Читать дальше...   )Производство: Студия Liden Films / ライデンフィルムЖанр: комедия, романтикаРежиссер: Такуно СэйкиПеревод: (AniLibria), (RisensTeam) - внутри контейнераЯзык озвучки: Русский
+TV-1 (AniDub), (KANSAI), (SovetRomantica), - внешними файламиЯзык субтитров: Русский, English, Français, Español, Italiano, German, Português, Korean, ChineseПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C11B8241A8FD41C7CCEE9C34A19305F5CC4B346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275568   (644319) от 30.03.2019
+
+Mahou Shoujo Tokushusen Asuka | Аска: Волшебница специального назначения | Magical Girl Spec Ops Asuka [2019, TV, 12 из 12] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды на Землю вторглись Дисас — таинственные существа, явившиеся из страны мёртвых. Человеческое оружие было против них практически неэффективно, поэтому даже лучшие солдаты мира не смогли остановить монстров. Но тогда на пути чудовищ встали 11 земных девочек из разных стран мира (включая Россию), получивших волшебную силу. С обычным оружием и сильной магией они (   Читать дальше...   )Производство: Япония, студия Liden FilmsЖанр: Боевик, Драма, Сверхъестественный, УжасыРежиссер: Ямамото ХидэёЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: русские надписи, неотключаемые.Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3946C5B721768A0F0E4D55D49BA973715CD43C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523393   (640360) от 05.04.2022
+
+Контратака женщины-полицейского | Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod [2022, TV, 13 из 13] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маи Кавай работает в полиции, и это занятие ей не очень-то по душе. Служба ей порядком осточертела. Но когда она решает уйти, судьба подбрасывает приятный сюрприз: новой начальницей в отделении становится Сэйко Фуджи — женщина, удивительная во всех отношениях, настоящий пример для подражания! Проработав какое-то время под ее руководством, Кавай понимает: кажется, (   Читать дальше...   )Жанр: Комедия, повседневность, сэйнэнРежиссер: Сато ЮдзоЯзык озвучки: Русский двухголосый, закадровыйСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C7566827184AFCC57A774D6D9E5D7171A098AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907273   (637003) от 12.06.2015
 
 Bakuretsu Tenshi / Burst Angel / Ангелы Смерти [2004, TV, 24 + 1 эп.] BDRip 1080p raw+eng+rus
@@ -6,7 +111,7 @@ Bakuretsu Tenshi / Burst Angel / Ангелы Смерти [2004, TV, 24 + 1 э�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637003.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь небесных до�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622262.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Shikioriori / Flavors of Youth / Вкусы Молодости [2018, MV] WEB-DL
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619930.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ Kimi no Suizou wo Tabetai | Kimi no Suizou o Tabetai | I Want to Eat Your Pancre
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618258.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ Kagami no Kojou | Lonely Castle in the Mirror | Одинокий замок в �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617303.jpg" />
 </div>
 
 
@@ -142,7 +247,7 @@ Ookami to Koushinryou | Spice and Wolf | Волчица и пряности [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604192.jpg" />
 </div>
 
 
@@ -168,7 +273,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. +1 OVA] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603025.jpg" />
 </div>
 
 
@@ -194,7 +299,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601819.jpg" />
 </div>
 
 
@@ -220,7 +325,7 @@ Mecha-ude | Mechanical Arms | Механические руки [2018, ONA] WEBR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601519.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593034.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591992.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ Cowboy Bebop | Ковбой Бибоп [1998, TV, 26 эп.] BDRip 1080p Hi10p ra
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587492.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | ЦубаКума! | Наша служа�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586889.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ Tonari no Kaibutsu-kun | My Little Monster | Монстр за соседней 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585914.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ No Game No Life: Zero | Нет игры - нет жизни: Начало [2018,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579961.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ Shinpi no Sekai El Hazard | El Hazard - The Magnificent World | Удивител
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575541.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ Harmagedon | Genma Taisen | Ghenma Wars | Great War with Genma | Хармаге�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557217.jpg" />
 </div>
 
 
@@ -459,7 +564,7 @@ Killing Bites [TV-1] | Смертельный укус [2018, TV, 12 из 12] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556161.jpg" />
 </div>
 
 
@@ -487,7 +592,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554283.jpg" />
 </div>
 
 
@@ -514,7 +619,7 @@ Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554282.jpg" />
 </div>
 
 
@@ -541,7 +646,7 @@ Ginga Eiyuu Densetsu: Aratanaru Tatakai no Overture | Legend of Galactic Heroes 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551699.jpg" />
 </div>
 
 
@@ -568,7 +673,7 @@ Sanzoku no Musume Ronja / Ronja the Robber's Daughter / Ронья, дочь р�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546643.jpg" />
 </div>
 
 
@@ -579,110 +684,6 @@ Sanzoku no Musume Ronja / Ronja the Robber's Daughter / Ронья, дочь р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4768590811A0D7FCEB7495F630BA0C4C30BB9E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 696397   (539589) от 03.09.2013
-
-Omoide Poroporo / Only Yesterday / Ещё вчера [1991, MV] BDRip Hi10P 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония восьмидесятых годов прошлого века. Таэко - одинокая молодая женщина из Токио, типичная служащая в крупной компании, вертящаяся в бешеном ритме столичной жизни. Когда она отправилась в отпуск на ферму своей старшей замужней сестры, переехавшей к мужу в сельскую глубинку, и погрузилась в неспешные деревенские будни, на Таэко нахлынула волна ярких воспоминаний (   Читать дальше...   )Жанр: Романтика, драма, школаРежиссер: Такахата ИсаоПеревод: RUSCICOОзвучка: RUSCICOПродолжительность: 118 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4ED2370A74EA008C137DE88C1CB98971813F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543850   (533281) от 19.06.2022
-
-Тусовщик Кунмин | Paripi Koumei | Ya Boy Kongming! [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военный стратег Кунми́н оставался верен своему делу до конца. Он выигрывал битву за битвой, используя всю силу своего ума. Но, естественно, нельзя наслаждаться чем-то вечно, поэтому битвы и интриги надоели и Кунми́ну. На смертном одре он мечтает о спокойствии и счастье в следующей жизни. И каково же было его удивление, когда он попал в современный Токио, (   Читать дальше...   )Производство: Япония / Студия P.A. Works, Dr. MovieЖанр: КомедияРежиссер: Хомма ОсамуЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1E6F40B4901CCC3B5A0E40085271DEA076054A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295073   (531946) от 04.07.2019
-
-One Punch Man (2019) / Ванпанчмен [ТВ-2] [2019, TV, 12 ep] WEB-DL 1080p Rus
-
->>След.
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что можно сделать за один удар? Можно, к примеру, нарубить парочку дровишек для костра, или забить гвоздь в стул, на котором будет сидеть твой хороший друг, или же одним хорошеньким ударом можно вынести ворота замка, в котором томится принцесса под охраной дракона, тем самым спасти её. Наш главный герой - не принц, чья задача победить большого дракона, хотя он способен (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Сакурай ТикараЯзык озвучки: РусскийСубтитры: ASS, Встроенные, НадписиФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A667879DD8BCABE6C3DC1120E648DDBE53CEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542952   (527626) от 23.06.2022
-
-Девушка-целитель | Целительница | Healer Girl [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история про девочек, которые учатся лечить от болезней с помощью песен. И пока мы тут у себя мажем разбитые коленки йодом, а при проблемах посерьёзнее едим таблеточки, в очередной альтернативной Японии научились использовать силу голоса.Производство: Япония / Студия Studio 3HzЖанр: Музыкальный, повседневность, приключенияРежиссер: Ириэ ЯсухироЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV)Субтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF57D457EF87F3B2418A64C7BC381D39D03293A
 ```
 
 https://mybot314.ru/tekegram_catalog/

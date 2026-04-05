@@ -1,3 +1,81 @@
+###  Публикация: 1836187   (252470) от 09.11.2025
+
+Star Crafter (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра про выживание в космосе с крафтом, добычей ресурсов, постройкой баз и звездных систем. Стройте ракеты, чтобы создавать планеты и Кольца Дайсона, добывайте ресурсы и создавайте сложные материалы, занимайтесь терраформированием, балансируйте энергопотребление, выращивайте еду и многое другое, чтобы превратить звездную систему во что-то прекрасное.Тип издания: RepackРазработчик: Tbjbu2Жанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2BA101318ADDEDFC9335D4FE081703771AE0D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836119   (252286) от 08.11.2025
+
+Machinika Museum (2021) [Ru/Multi] (1.22051101) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследователь? Если вам нравится решать хитроумные задачи и открывать запертые двери, эта работа для вас. Machinika Museum предлагает исследовать особое место. В далеком будущем технические артефакты инопланетных цивилизаций встречаются буквально на каждом шагу, особенно в музее, посвященном их изучению. Ваша задача – получать подобные устройства и придумывать способы (   Читать дальше...   )Тип издания: LicenseРазработчик: Littlefield StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448167CACE4EFD7258CC0755AC9A25A7D79201CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609568   (252113) от 21.05.2023
+
+The Quarry (2022) [Ru/Multi] (Build 11105655/dlc) Repack Other s [Deluxe Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252113.jpg" />
+</div>
+
+
+###  Подробнее
+
+После заката солнца в последний день летнего лагеря вожатые «Хэкеттс Куори» устраивают вечеринку. Никаких детей. Никаких взрослых. Никаких правил. Но события быстро принимают зловещий оборот. Их беззаботные планы нарушают мрачные охотники, перепачканные в крови, и куда более жуткие создания — и ночь веселья становится ночью ужасов. Дружеские перепалки и флирт уступают (   Читать дальше...   )Тип издания: RepackРазработчик: Supermassive GamesЖанр: Adventure (Horror), Interactive Movie, QTEЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1928C22940FEFB02FBB0B46A154EB5199D34F2CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635517   (252023) от 26.05.2023
 
 Star Trek: Resurgence (2023) [Multi] (1.0) Repack DjDI
@@ -6,7 +84,7 @@ Star Trek: Resurgence (2023) [Multi] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252023.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ TUNIC (2022) [Ru/Multi] (1.0-t1513-b45) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251852.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251765.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Sojourn (2020) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251240.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250678.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Nine Sols (2024) [Ru/Multi] (202511032357.953572b8.0) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250586.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249369.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Morrok (2023) [Ru/Multi] (Build 11369620) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247798.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ A Light in the Dark / Yeguang (2018) [Ru/Multi] (1.2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247761.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Beautiful Desolation (2020) [Ru/Multi] (1.0.7.3 C) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247674.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247671.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Captain (2021) [Multi] (1.1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247662.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247447.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247405.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Daydream: Forgotten Sorrow (2023) [Ru/Multi] (1.2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247373.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Layers of Fear (2023) [Ru/Multi] (1.2.2.rb95581) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247371.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Dave the Diver (2023) [Multi] (u1.0.0.933) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247288.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Bookwalker: Thief of Tales (2023) [Ru/Multi] (23.6.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247273.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ RiME (2017) [Ru/En] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247061.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246990.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246786.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Kujlevka / Кужлевка (2023) [Ru/En] (20230620) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246740.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246723.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CABB4D38A7D31C9D029DD8F30B37CC9E5A221C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833750   (246321) от 02.11.2025
-
-SKYHILL (2015) [Ru/Multi] (1.1.20) Repack Necros
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой бизнесмен Перри Джейсон приезжает в город, чтобы совершить крайне выгодную сделку. Нет сомнений в том, что скоро разбогатеет. Перри решает пожить на всю катушку и снимает пентхаус в самом роскошном отеле в городе. Тем более эта чертова война с Конфедерацией наконец-то заканчивается! Но по прибытию в номер происходит ужасное…Тип издания: RepackРазработчик: MandragoraЖанр: Приключенческие игры, Инди, СимуляторыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230229DF37DC99C7089B8B3CC1962D3029C2DBE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833186   (246247) от 01.11.2025
-
-Resident Evil (Biohazard) HD Remaster (2020) [Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Признанная классика жанра ужасов снова с нами! Встречайте обновленное издание игры Resident Evil в формате HD. В 1998 году для расследования странных убийств в окрестности города Раккун-сити направлен отряд особого назначения. На бойцов нападает стая кровожадных псов-мутантов, и они пытаются спастись в усадьбе неподалеку. Но и там все пропитано запахом смерти. Боеприпасов (   Читать дальше...   )Тип издания: LicenseРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54EBB633B7E5E8449E59F3EEEA9E8999F6EBACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833032   (246192) от 31.10.2025
-
-Hollowbody (2024) [Ru/Multi] (2.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hollowbody бросает вас с головой в мрачный мир техно-нуара. Представьте себе короткий рассказ, но вы управляете главным героем, перемещающимся по разрушающемуся мегаполису, городу-призраку некогда бурлящего города. Забудьте о причудливой графике и зажигательной музыке, это всего лишь рассказ об окружающей среде. Пустынные улицы и заброшенные здания говорят о многом, (   Читать дальше...   )Тип издания: RepackРазработчик: Headware GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Португальский и другиеЯзык интерфейса: Русский, Английский, Испанский, Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A387651F894B48B708FE50A43FE3D0B56EE996B
 ```
 
 https://mybot314.ru/tekegram_catalog/

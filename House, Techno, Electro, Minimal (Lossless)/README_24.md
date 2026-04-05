@@ -1,3 +1,32 @@
+###  Публикация: 1277857   (775085) от 22.01.2019
+
+VA - Sports Megamix 2019.1 (2019) [FLAC|Lossless|tracks] <Funky, Club House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775085.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Klaas - Get Down
+02. DeeJay A.N.D.Y. Feat. Pit Bailay - Only You 2K18 (Trash Gordon Remix Edit)
+03. Marc Kiss, Sawo & Crystal Rock - Feels Good (Original Radio Edit)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 03:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302BD394B6B936D1BA1619BFD44F3DEE1E8CF030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212973   (774452) от 14.03.2018
 
 Prince of Denmark - 8 (2016) Forum [FLAC|Lossless|Vinyl|tracks] <Dub Techno, Techno, Ambient>
@@ -6,7 +35,7 @@ Prince of Denmark - 8 (2016) Forum [FLAC|Lossless|Vinyl|tracks] <Dub Techno, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774452.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Ness - Moving Through Illusions (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774319.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Scam. - Reminiscence (2018) Monolith Records [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773356.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Chilled House Session 9 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Club Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773348.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Fitness & Jogging Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Electro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773293.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ KlubbHeads - 5 Albums , 12 Compilations (1996 - 2004) [FLAC|Lossless]<House, Pum
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773111.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Cajmere - Wheels Of Steel Vol.1 (1998) [FLAC|Lossless|tracks + .cue] <Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769770.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Soukie & Windish - Loom (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769683.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Viill & Aura Minimum - Full Harvest (2020) Modern Nature [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769385.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Soul Button - Phantom Existence (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769105.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Soul Button - Phantom Existence (Remix Edition) (2020) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768487.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ VA - Experimenta (1994) A13 [FLAC|Lossless|tracks+.cue] <Electro, IDM, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767857.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Royal Gigolos - California Dreamin' (2004) [FLAC|Lossless|tracks + .cue] <House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767678.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Audub - Discography 4 Releases (2013-2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766593.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ VA - Recline Music: The Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766329.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ VA - Anjunadeep. The Remixes 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766102.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Kohl - Learned Ethics / Imposed Ethics (2018) Umor-Rex [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765810.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ VA - Sounds Of Instruments_02 (Mixed by Navid Tahernia) (2006) Compilation [FLAC
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765463.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ VA - Sounds Of Instruments_01 (Mixed by Hiroshi Watanabe) (2005) Mixed, Compilat
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765461.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Occult - Axum (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764975.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ VA - Anjunadeep In Miami 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Progres
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764926.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ GusGus - Lies Are More Flexible (2018) Soyuz Music [FLAC|Lossless|tracks + .cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764901.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Saturne - Trace Elements (2017) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Techno,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764142.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ S.O.N.S - Shin-Okubo One Night Stand (2018) [FLAC|Lossless|Vinyl|tracks] <Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764141.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ G.R.I.T. - KALMADS E.P. (2018) Exalt Records [FLAC|Lossless|Vinyl|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764140.jpg" />
 </div>
 
 
@@ -711,35 +740,6 @@ G.R.I.T. - KALMADS E.P. (2018) Exalt Records [FLAC|Lossless|Vinyl|tracks] <Dub T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58BABD869E302DA773F841BF2B95D540FB278FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214511   (764056) от 22.03.2018
-
-The Other People Place - Lifestyles Of The Laptop Cafe (2001) Warp Records [FLAC|Lossless|tracks+.cue] <Electro, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye Contact (05:30)
- 02. It's Your Love (07:31)
- 03. Moonlight Rendezvous (07:07)
- 04. You Said You Want Me (04:24)(   Читать дальше...   )Жанр: Electro, DowntempoПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2F8D43DECF46B9FAF2A3A748E553C592FE9905
 ```
 
 https://mybot314.ru/tekegram_catalog/

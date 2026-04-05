@@ -1,3 +1,61 @@
+###  Публикация: 688671   (969168) от 17.01.2016
+
+John Askew - 2 Albums , 10 Compilations (2005 - 2015) [FLAC|Lossless|CD-WEB|tracks/image+.cue]<Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beirut (3:34)
+02. Nothing Left Between Us (feat. Senadee) (6:26)
+03. Blue (6:14)
+04. 667 (feat. Activa) (5:07)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8ECB8A349B2B35F472547D043FE38C62FFEBF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 817967   (969166) от 17.01.2016
+
+Traxtorm records - Hardcore Italia podcast 1-106 (2011-2016) (обновляемая)[MP3|128 кб/с]<Hardcore>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01) Koozah - Stand up
+02) DJ Mad Dog - Rewind #TiH (Xcite remix)
+03) Piecemaker - Brutal deluxe
+04) Alien T feat. MC Alee - Our light #TiH(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB97AECF3805D96F0F01EABC295F44CFA689B160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616778   (968850) от 15.02.2013
 
 VA - The Cult of Lounge (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - The Cult of Lounge (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968850.jpg" />
 </div>
 
 
@@ -41,7 +99,7 @@ Chill Out Allstars - Sunset Lounge Classics (2013) [MP3|320 кб/с]<Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968849.jpg" />
 </div>
 
 
@@ -76,7 +134,7 @@ Lenzman - Golden Age (2016) EP [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968806.jpg" />
 </div>
 
 
@@ -105,7 +163,7 @@ VA - Planet Dream Vol. 1 (1998) 2CD [FLAC|Lossless|tracks + .cue] <Trance, Euro 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968760.jpg" />
 </div>
 
 
@@ -134,7 +192,7 @@ Tell - Discography 6 Releases (2014-2018) [FLAC|Lossless|tracks] <Deep House, Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968696.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ Soulware - All That Binds Us - Rua (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Down
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968628.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ VA - Ambient Diary (One, Two, Three) (1997-2000) Elektrolux [FLAC|Lossless|track
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968566.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ Iszoloscope - Discography 18 Releases (2001-2019) Ant-Zen [FLAC|Lossless|tracks+
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968505.jpg" />
 </div>
 
 
@@ -250,7 +308,7 @@ DJ S.I.D.R. - Keep It Ob'ecore Podcast # 1-20 (2013-2015) [MP3|320 кб/с]<Happ
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967662.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ Rupesh Cartel - Death With Soft Names (2005) [FLAC|Lossless|image + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967500.jpg" />
 </div>
 
 
@@ -307,7 +365,7 @@ VA - Live @ Transcend 7th Birthday, Club Reina London, United Kingdom 2020-02-01
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967433.jpg" />
 </div>
 
 
@@ -336,7 +394,7 @@ VA - House Chill Hop for Lovers (The Best Erotic Sound For Dance Floors) (2020) 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967423.jpg" />
 </div>
 
 
@@ -365,7 +423,7 @@ P. Laoss | P.Laoss - Discography 7 Releases (2009-2014) Hizou, Somnia, Pronounce
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967417.jpg" />
 </div>
 
 
@@ -394,7 +452,7 @@ La Roux - Supervision (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967316.jpg" />
 </div>
 
 
@@ -423,7 +481,7 @@ VA - Euphonic 300 (Compiled and mixed by Kyau & Albert) (2019) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967312.jpg" />
 </div>
 
 
@@ -452,7 +510,7 @@ VA - Bodybuilding 2020: 100 Motivational Tracks [MP3|320 Kbps] <Melodic House, T
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967309.jpg" />
 </div>
 
 
@@ -481,7 +539,7 @@ Pet Shop Boys - Monkey Business (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967236.jpg" />
 </div>
 
 
@@ -510,7 +568,7 @@ Textural Being - Discography 14 Releases (2010-2016) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967174.jpg" />
 </div>
 
 
@@ -539,7 +597,7 @@ Alampa - Paranoia (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967138.jpg" />
 </div>
 
 
@@ -568,7 +626,7 @@ Plaster - Discography 12 Releases (2011-2019) [FLAC|Lossless|tracks+.cue, tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967124.jpg" />
 </div>
 
 
@@ -595,7 +653,7 @@ Banks - Goddess (2014) Deluxe Version [FLAC|Lossless|tracks + .cue] <Electronic,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966722.jpg" />
 </div>
 
 
@@ -624,7 +682,7 @@ Scooter - No time to chill (1998) [FLAC|Lossless|image + .cue] <Rave, Happy Hard
 >>Hardstyle, Jumpstyle, Hardcore (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966469.jpg" />
 </div>
 
 
@@ -653,7 +711,7 @@ Rupesh Cartel - Mainland (2005) 2CD, Limited Edition [FLAC|Lossless|image + .cue
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966285.jpg" />
 </div>
 
 
@@ -682,7 +740,7 @@ Aidan Baker & Gareth Davis - Invisible Cities II (2020) [FLAC|Lossless|Web-DL|tr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966281.jpg" />
 </div>
 
 
@@ -696,63 +754,6 @@ Aidan Baker & Gareth Davis - Invisible Cities II (2020) [FLAC|Lossless|Web-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3AFCAAA5A0F87E7AD5421E88509B68559A9A053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359084   (966133) от 10.02.2020
-
-VA - Erotica Vol. 5 (Most Erotic Chillout & Smooth Jazz Tunes) (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Peter Pearson - A Dream in Your Eyes (Original Mix)
-02 Michael e - It's Like Floating (Original Mix)
-03 La Estación Del Mar - A Sax in the City (Original Mix)
-04 Mo'jardo - The Way She Moves (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1BC246164A1F0432E482872A22B9BED78BB96F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977278   (965547) от 21.01.2016
-
-VA - Ministry Of Sound: The Annual 2008 (2007) 3CD [FLAC|Lossless|tracks + .cue] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cut Up Boys - Shine (a cappella) vs. The Creeps (Get on the Dancefloor) (Vandalism remix) (Booty Luv vs. Freaks) (6:14)
-02. The Cut Up Boys - Let Me Think About It (a cappella) vs. The Creeps (Ida Corr vs. Fedde Le Grand vs. Camille Jones vs. Fedde Le Grand) (5:16)
-03. The Cut Up Boys - Rapture (a cappella) vs. Love on My Mind (feat. Amanda Wilson) (iiO vs. (   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A26BD8878D73EEEC4455610404697A8FEC3545
 ```
 
 https://mybot314.ru/tekegram_catalog/

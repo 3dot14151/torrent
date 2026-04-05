@@ -1,3 +1,30 @@
+###  Публикация: 1119237   (806730) от 28.03.2017
+
+Самиздат | Раскраски по цифрам (2016) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраски по цифрам(номерам) для детей - это изображение разделенное на пронумерованные области, каждую из которых следует закрасить  соответствующим цветом. Раскраски по цифрам(номерам) помогут вашему ребенку в игровой форме с пользой провести время развивая у него внимательность и усидчивость.
+Многие оценят их по достоинству.Жанр: РаскраскаФормат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D942B9589A5DEB79F333DFC0757351A0085F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119145   (806727) от 28.03.2017
 
 Самиздат | Раскраски Маша и Медведь (2016) [JPG]
@@ -6,7 +33,7 @@
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806727.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806725.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806650.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806649.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806646.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806563.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806534.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806517.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806514.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806389.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806342.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806314.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806313.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806310.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806252.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806244.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806210.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806208.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806202.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806197.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806183.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806154.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806142.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806105.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806052.jpg" />
 </div>
 
 
@@ -652,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1FFCE8AAFE8820CE7461F0C97280A38038231AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505237   (806018) от 26.10.2021
-
-О.В. Узорова, Е.А. Нефёдова | 3000 задач и примеров по математике: 2-3 классы (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806018.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены, задачи и примеры на все основные разделы математики, предусмотренные программой начальной школы.
-Выполняя задания из этого сборника, учащиеся не только овладевают вычислительными навыками, арифметическими действиями, но и ознакомятся с разнообразием окружающего мира: явлениями природы, животным и растительным миром, историей своей страны, достижениями (   Читать дальше...   )Жанр: Обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6538C328C141E3D1D2A68BA440F822A6BD6A88F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1862258   (1063259) от 
+
+Военная приемка. ОКБ им А. Люльки. Двигатели для истребителей (29.03.2026) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот выпуск «Военной приемки» посвящен конструкторскому бюро, где был создан первый отечественный турбореактивный мотор ТР-1. В наше время именно здесь спроектирован, собран и испытан двигатель для самого современного российского истребителя Су-57 под названием АЛ-41Ф, названный, как и все двигатели этого КБ, в честь его основателя. Аббревиатура АЛ расшифровывается (   Читать дальше...   )Производство: Россия | «Красный Квадрат»Жанр: Документальный, техника, вооружениеРежиссер: Иван ЧигвинцевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8711C3DB5020893A3BEE0461D444D47269869EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860781   (1062130) от 
 
 Военная приемка. Подводный флот России. 120 лет (22.03.2026) WEBRip [H.264/1080p]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062130.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061213.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060422.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050181.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049500.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039264.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037935.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029973.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028510.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025445.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022790.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022511.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021589.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017899.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012836.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012833.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012832.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012798.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012760.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012696.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012625.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012478.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003045.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000419.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983289.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8845091D56388228238AB91BFA159AE94D95EDBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972217   (983282) от 05.01.2016
-
-Неудержимый МАКС. Городской спецназ (2015) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный проект, о героях нашего времени. Обычно они остаются за кадром. Но неудержимый Макс познакомиться с ними ближе, чем кто-либо. Вы увидите, как проходит подготовка настоящих бойцов в спецподразделениях России. Посмотрим, под силу ли подобные нагрузки профессиональному спортсмену и офицеру запаса Максу Гришину! У него может и не получиться, но одно ясно - (   Читать дальше...   )Телекомпания: Т24Жанр: ТелепередачаПродолжительность: 00:26:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C00E7BB4F76C3F6C40531EC8F53B0A45513FA6CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

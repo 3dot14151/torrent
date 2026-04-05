@@ -1,3 +1,29 @@
+###  Публикация: 292154   (793008) от 06.04.2017
+
+Дух времени 3: Следующий шаг / Zeitgeist 3: Moving Forward (2011) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793008.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме рассматривается вопрос необходимости выхода из существующей социально-экономической системы. Раскрываемая в фильме тема выходит за пределы вопросов культурного релятивизма и традиционной идеологии, и для обозначения основных точек эмпирической взаимосвязи человечества и природы, экстраполирует неизменные ценности естественных законов на новую парадигму устойчивого (   Читать дальше...   )Жанр: документальныйРежиссер: Питер ДжозефАктеры: Адриан Боуйер, Колин Кэмпбелл, Эштон Клайн, Жак Фреско, Jeremy J. Gilbert, James Gilligan, Питер Джозеф, Макс Кейсер, Джон МакМартриПеревод: Профессиональный одноголосый закадровыйПродолжительность: 02:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FABDC597A988B1BE67D46A7F1B58A45E25CAF23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123030   (793007) от 06.04.2017
 
 Navitel / Навител Навигатор v9.8.2 RePack для карт релиза Q1-2017 [Ru/En]
@@ -6,7 +32,7 @@ Navitel / Навител Навигатор v9.8.2 RePack для карт рел
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793007.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792721.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792692.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Adobe Photoshop CC 2018 (19.1.0) x86-x64 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792590.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792300.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ BELOFF 2020.05 [Ru] (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792279.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Apple купит "Теслу", в Великобритании наступит 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792011.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Darkwood (2017) [Ru/Mult] (1.2) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791887.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ UltraISO Premium Edition 9.7.1.3519 Retail [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791885.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Windows 11 Pro x64 21Н2 (build 22000.318) by ivandubskoj 11.11.2021 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791865.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791861.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ T-FLEX CAD 16.0.32.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791473.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791406.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791347.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791270.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791227.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791225.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_790922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_790922.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ DayZ (2018) [Ru/Multi] (1.0.15) License DARKSiDERS
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790821.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790781.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Windows 7 Enterprise SP1 x64 Elgujakviso Edition (v.28.01.18) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790226.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790224.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Adobe Photoshop CC 2019 20.0.2.22488 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790181.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790178.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790177.jpg" />
 </div>
 
 
@@ -651,35 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B51F4B3A996D2F87ACA68154B691754E4B25461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510324   (790110) от 18.11.2021
-
-Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.318]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru-ru_windows_11_business_editions_version_21h2_updated_october_2021_x64_dvd_aeafe964
-Удалены все модерн приложения кроме Edge, Магазина, Калькулятора и Paint
-Windows-Defender (По умолчанию выключен. Добавлен пункт Вкл./Выкл. в контекстном меню пуск)(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B9EDAC9508A261767B466FF77B273CE993B2ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

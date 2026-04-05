@@ -1,3 +1,32 @@
+###  Публикация: 1808337   (10463) от 24.07.2025
+
+Ozzy Osbourne - Mama I'm Coming Home (1991) (EP) [WavPack|32/192|image + .cue|Vinyl-Rip] <Heavy Metal,Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10463.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Mama I'm Coming Home
+A2 - Don't Blame Me
+B1 - I Don't Know
+B2 - Crazy TrainЖанр: Heavy Metal, Hard RockПродолжительность: 00:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEE261A8FD5E9582F196EB53920B48627D4E821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808390   (10399) от 25.07.2025
 
 Ozzy Osbourne - 10 студийных альбомов (1980-2020) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Hard rock, heavy metal>
@@ -6,7 +35,7 @@ Ozzy Osbourne - 10 студийных альбомов (1980-2020) [DSD 128|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10399.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Alice Cooper - Studio Albums (11 releases) (2000-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10175.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10012.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ Yello - 12 студийных альбомов (1983-2020) [DSD 128|tracks, imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10007.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ VA - Evangelion Finally (2020) [FLAC 2.0|48/24|image +.cue|MC-Rip] <J-pop, Synth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9951.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Chris Rea - Collection (1979-2017) [DSD 128|tracks|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9859.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Chilly - Collection (1978-1982) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9777.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Boney M. - Collection (1976-1984) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9767.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Supermax - Collection (1977-1990) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Disc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9547.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9424.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Pink Floyd - Collection (+Solo) (1967-2018) [DSD 128|tracks, image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9276.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Frank Sinatra - The Collection 1953-1962, Original Master Recording, MFSL Box (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9258.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Chaos Magic (Caterina Nix & Timo Tolkki project) - Studio Albums (4 releases) (2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8892.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Evanescence - Дискография (11 releases) (1998-2025) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8865.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Presto Ballet - Studio Albums (7 releases) (2005-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8784.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Motograter - Studio Albums (4 releases) (2000-2017) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8707.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Livin' Blues - Blue Breeze (1976) 1978 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8517.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Leah - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8441.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ My Dying Bride - A Map Of All Our Failures (2012)[FLAC|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8383.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8350.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Dragony - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8248.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ DragonForce (& Marc Hudson) - Studio Albums (11 releases) (2003-2024) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8231.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ VA - Absolute New Hits 5 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8106.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Rave The Reqviem - Studio Albums (5 releases) (2014-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8044.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ A-Z (Ray Alder, Mark Zonder (Fates Warning)) - Studio Albums (2 releases) (2022-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7999.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ A-Z - проект Рэя Алдера и Марка Зондера, участ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D35C4026A560D39D6FAB5A289F0452106F74B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812333   (7836) от 14.08.2025
-
-Herman Frank - Studio Albums (5 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герман Франк — немецкий музыкант, гитарист, продюсер, известен своим участием в рок-группе Accept.2009 - Loyal To None
-2012 - Right In The Guts
-2016 - The Devil Rides Out
-2019 - Fight The FearЖанр: Heavy MetalПродолжительность: 05:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C943394C97F4DCDBFDFA5366DA7452CE81E08A17
 ```
 
 https://mybot314.ru/tekegram_catalog/

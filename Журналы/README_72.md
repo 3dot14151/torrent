@@ -1,3 +1,109 @@
+###  Публикация: 630969   (924771) от 17.03.2013
+
+Журнал | Maxim [Украина] №4 (апрель 2013) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D703AC3722C5551A2E93000DD88B792F76D7863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095719   (924538) от 21.01.2017
+
+Журнал | Ступени оракула №1 (2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание предлагает разнообразие точек зрения — от фантастических предположений до научных теорий, оставляя выбор за читателем. Мнения профессионалов и свидетельства очевидцев, факты, феномены, версии. Журнал, открывающий мир!
+Собственный скан.Жанр: Эзотерика, мистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52C26D78601EE7241F4AE1A482D238A001DC42A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987984   (924510) от 18.02.2016
+
+Журнал | Самобранка №1 (57) (февраль 2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любая хозяйка скажет, что большая часть семейного бюджета уходит на продукты питания. Особенно в условиях постоянного роста цен и прочих экономических катаклизмов. Поэтому сейчас особенно важно пересмотреть все статьи расходов, чтобы и дом был «полной чашей», и «золотой запас» не иссякал...Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D62FAE216064257388375EA5F0496A1993030BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095686   (924456) от 21.01.2017
+
+Журнал | Сад. Огород. Цветник №1 (166) (январь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробное описание самых популярных садовых и овощных культур, проверенные практикой приемы повышения урожая, рекомендации лучших специалистов по уходу за растениями, самые прекрасные цветы - от посадки до срезки - всё это на страницах журнала.
+Собственный скан.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD47FDBD3B76FF5CF484C3EEFE3672EBBBB2B609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095680   (924452) от 21.01.2017
 
 Журнал | Дачный спец №1 (январь 2017) [PDF]
@@ -6,7 +112,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924452.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924419.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924415.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924387.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924384.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924376.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924343.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924341.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924339.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924295.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924294.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924245.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924206.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924195.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924191.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924108.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924095.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923991.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923934.jpg" />
 </div>
 
 
@@ -509,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923916.jpg" />
 </div>
 
 
@@ -535,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923820.jpg" />
 </div>
 
 
@@ -561,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923811.jpg" />
 </div>
 
 
@@ -572,112 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAD00148A1D895213FB8C2E800CC8ABB2AE79938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987743   (923758) от 18.02.2016
-
-Журнал | Chip [Россия] №3 (март 2016) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CFF0EFD1CD2C4257DEB359F19273C0D0DEFE4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288220   (923708) от 28.01.2011
-
-Журнал | Foto & Video №2 февраль [2011] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Foto & Video - журнал рассчитан на самый широкий круг читателей, включая продвинутых фотолюбителей, профессиональных фотографов, а также тех, кто только вступает в увлекательный мир фотографии. Каждый номер — это портфолио нового фотографа со своим особенным видением.
-Журнал Foto&Video является единственным в России представителем Европейской ассоциации журналов по аудио-, видео- и фототехнике EISA . Каждый год журналы-представители EISA определяют лучшие модели фото-, видео- и аудиотехники.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A8F408C33482AADBA4F0E600F0EE734310A425E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863743   (923671) от 27.01.2015
-
-Журнал | Men's Fitness [Россия] №12-1 (декабрь 2014 - январь 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Men’s Fitness – журнал энергичных людей, живущих в стремительном потоке современной жизни и умеющих получать от этой жизни удовольствие. Это журнал спортивных людей, любящих действие и заботящихся о своей внешности и здоровье. Ваш успех зависит не только от обстоятельств, но и от того как вы готовы к ним. В журнале вы найдете рекомендации и материалы по всем пунктам, (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895839358AA27FF09344BE261A487DB94CB69F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288231   (923624) от 28.01.2011
-
-Журнал | What HI-FI? Звук и Видео №1 (январь 2011) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923624.jpg" />
-</div>
-
-
-###  Подробнее
-
-«What Hi-Fi? Звук и Видео» – русскоязычная лицензионная версия популярного британского журнала «What Hi-Fi? Sound and Vision». Благодаря тщательной работе на протяжении четверть века и объективной позиции издание приобрело авторитет и доверие потребителей и производителей во всем мире.
-Журнал является спутником покупателя качественной аудио-, видео-, Hi-Fi-техники (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF049CDCAE0ADEA6200AA83D986FB98D3ACBB657
 ```
 
 https://mybot314.ru/tekegram_catalog/

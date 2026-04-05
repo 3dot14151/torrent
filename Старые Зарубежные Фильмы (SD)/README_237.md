@@ -1,3 +1,133 @@
+###  Публикация: 1812221   (7907) от 14.08.2025
+
+Сезар и Розали / Cesar et Rosalie (1972) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разведённая художница Розали живёт вместе с богатым торговцем Сезаром, с которым её связывают спокойные и стабильные отношения. Неожиданно Розали встречает бывшего любовника Давида, разрушившего её брак. Розали потрясена его появлением, так как еще влюблена в него. Сезар, искренне привязанный к Розали, не желает терять её и решается на неординарный шаг - приглашает (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ) / Fildebroc, Mega Film, Paramount-Orion FilmproduktionЖанр: мелодрама, комедияРежиссер: Клод СотеАктеры: Ив Монтан, Роми Шнайдер, Сами Фрей, Бернар Ле Кок, Ева-Мария Мейнеке, Анри-Жак Юэ, Изабель Юппер, Гизела Хан, Бетти Беккерс, Эрве Санд, Жак Дери, Пиппо Мериси, Карло Нелл, Анри Куте, Марсель ГассукПеревод: дублированный (Мосфильм), профессиональный многоголосый (ТВЦ; СВ Дубль; DVD Магия)Язык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6460FC3BCACF477D5E1741648783DB2181DE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812532   (7748) от 15.08.2025
+
+Приговорённые к пожизненному / Condenados a vivir (1972) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солдат и его дочь везут семь заключённых в тюрьму. Все заключённые прикованы цепью друг к другу. В бою с бандитами они теряют повозку и лошадей. Теперь их ждёт долгий и трудный путь через высокие снежные горы.Производство: Испания, Италия / Films Triunfo S.A.Жанр: триллер, криминал, вестернРежиссер: Хоакин Луис Ромеро МарчентАктеры: Клаудио Ундари, Эмма Коэн, Альберто Дальбес, Антонио Ирансо, Мануэль Техада, Рикардо Диас, Хосе Мануэль Мартин, Карлос Ромеро Марчент, Рафаэль Эрнандес, Эдуардо КальвоПеревод: Одноголосый любительскийЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDAA2AA96FC280D4BBF77E64E81B13A2C9BBF25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812371   (7741) от 15.08.2025
+
+Убийство случайное и преднамеренное / Mord und Totschlag (1967) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мария убивает своего возлюбленного его же пистолетом, когда он пытается избить её. Вместо того чтобы сообщить о случившемся в полицию, Мария нанимает двух мужчин, которые помогают ей спрятать тело. И в обоих влюбляется...Производство: Германия (ФРГ) / Rob Houwer ProductionsЖанр: драма, криминалРежиссер: Фолькер ШлёндорфАктеры: Анита Палленберг, Ханс Петер Халльвакс, Манфред Фисшбек, Вернер Энке, Йоханнес Бузалски, Курт Бюлау, Леонтина Дрейхардт, Вилли Харландер, Ренате Хертл, Ангела ХиллебрехПеревод: любительский одноголосый (Мика Бондарик)Язык озвучки: русский, немецкийСубтитры: английскиеПродолжительность: 01:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F903F9BC7310B8458E3E97E46D369E2304EBCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812553   (7740) от 15.08.2025
+
+Длинный, короткий, кот / Il lungo, il corto, il gatto (1967) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богатая вдова воображает, что дух её покойного мужа вселился в сиамского кота и приказывает слугам обращаться с ним как с бывшим хозяином и исполнять все его прихоти.Производство: Италия / FilmarpaЖанр: комедияРежиссер: Лучио ФульчиАктеры: Франко Франки, Чиччо Инграссия, Айви Хольцер, Джуси Распани Дандоло, Ивано Стацциоли, Даниэле Варгас, Джули Менар, Эльза Ваззолер, Джанни Агус, Энцо Ла ТорреПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, итальянскийСубтитры: Русские, английскиеПродолжительность: 01:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BEFA57DF403B90BD40256CAD33FEB7057721AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812745   (7522) от 16.08.2025
+
+Мы не ангелы / We're No Angels (1989) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время Великой депрессии. Два мелких мошенника, вопреки своему желанию сбежавшие из тюрьмы вместе с матёрым уголовником, пробираются к границе с Канадой. В приграничном городке расположен монастырь. И главные герои, скрывшись от опасного коллеги, пользуются случаем, чтобы выдать себя за давно ожидаемого священника и его помощника. Монахи местного монастыря отправляются (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: комедия, криминалРежиссер: Нил ДжорданАктеры: Роберт Де Ниро, Шон Пенн, Деми Мур, Хойт Экстон, Бруно Кёрби, Рэй МакЭнэлли, Джеймс Руссо, Уоллес Шон, Джон С. Райлли, Джей Бразо, Элизабет Лоуренс, Билл Мердок, Фрэнк Ч. Тёрнер, Мэттью Уолкер, Шила МегиллПеревод: профессиональный многоголосый (НТВ+), профессиональный двухголосый (Премьер Видео Фильм), авторский (Юрий Живов; Андрей Гаврилов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98302F3EA346FFF94909F237F230BB1562C47D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813071   (7257) от 17.08.2025
 
 Две англичанки и континент / Les Deux anglaises et le continent (1971) BDRip [H.264] [MVO] [Режиссёрская версия]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7257.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7015.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6667.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6554.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6476.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6342.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6315.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6296.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6120.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5980.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5882.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5788.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5721.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5711.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5603.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5564.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5492.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5484.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5422.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4938.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4934.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:610A21B864223835543B0D38EE20EAC143ACE16D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815885   (4821) от 01.09.2025
-
-Мастер кунг-фу / Маленькая любовь / Kung-fu master! / Le petit amour (1988) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэри-Джейн — англичанка, живущая во Франции, мать одиночка, воспитывающая двух дочерей. Однажды на вечеринке, которую устроила её старшая дочь Люси, она знакомится с четырнадцатилетним Жульеном. Парень учится вместе с её дочерью, и если раньше Жульен всё свободное время проводил в салоне видеоигр, то теперь он всё чаще и чаще стал встречаться с Мэри-Джейн...Производство: Франция / Ciné Tamaris, La Sept CinémaЖанр: драма, мелодрамаРежиссер: Аньес ВардаАктеры: Джейн Биркин, Матьё Деми, Шарлотта Генсбур, Лу Дуайон, Гари Шекшак, Сирил Уплен, Фрэнк Лорен, Оурельен Эрман, Джереми Ланц, Тома БенсаидПеревод: профессиональный двухголосый (SDI Media), любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (Владимир Даль / problem2000), английскиеПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F564A31B977DB850C6433858BB222949E753ECB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816050   (4529) от 03.09.2025
-
-Жанна Дильман, набережная Коммерции 23, Брюссель 1080 / Jeanne Dielman, 23, quai du Commerce, 1080 Bruxelles (1975) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4529.jpg" />
-</div>
-
-
-###  Подробнее
-
-День молодой вдовы Жанны Дильман расписан по минутам: накормить и отправить сына в школу, сходить на почту и за продуктами, приготовить обед, посидеть с соседским младенцем... И так до обязательного вечернего променада и сна. В промежутках между варкой картошки и уборкой она, к тому же, принимает в спальне клиентов-мужчин. И всё, казалось бы, идёт по плану, пока (   Читать дальше...   )Производство: Бельгия, Франция / Ministère de la Culture Française de BelgiqueParadise Films, Unité TroisЖанр: драмаРежиссер: Шанталь АкерманАктеры: Дельфин Сейриг, Жан Декорт, Анри Сторк, Жак Дониоль-Валькроз, Ив Бикаль, Шанталь АкерманПеревод: любительский одноголосый (Олег Воротилин)Язык озвучки: русский, французскийСубтитры: русские (Nosoglotka), английскиеПродолжительность: 03:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471BC915124F00F3D7B0CBBC10904F3382338F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816056   (4499) от 04.09.2025
-
-Я, ты, он, она / Je tu il elle (1975) BDRip [H.264] [FR / RU Sub]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4499.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Я» — это женщина, добровольно запершаяся в комнате. «Ты» — это сценарий. «Он» — водитель грузовика. «Она» — подруга... На протяжении месяца женщина пытается разобраться с разрывом отношений. Она запирается в комнате, ест только сахарный песок, дважды перекрашивает стены, избавляется от мебели, пишет и переписывает письмо к любовнице. Весь сахар съеден. Она голодна (   Читать дальше...   )Производство: Франция, Бельгия / French Ministry of Foreign Affairs, Paradise FilmsЖанр: драма, эротикаРежиссер: Шанталь АкерманАктеры: Шанталь Акерман, Нильс Ареструп, Клер ВаусьонПеревод: субтитрамиЯзык озвучки: французскийСубтитры: русские (badsteel), английскиеПродолжительность: 01:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D0FB4ACC78C2754F533778081F6E261E3A2AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816319   (4496) от 04.09.2025
-
-Девушки-рабыни из бесконечности / Slave Girls from Beyond Infinity (1987) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две сестры Дария и Тиса на спасательном шаттле, сбегают с межгалактического рабовладельческого корабля. На радаре они обнаружили незнакомую планету, однако приземление прошло не совсем гладко, их корабль упал в море. После крушения девушки попадают в странный замок находящийся в самом сердце джунглей, где их радушно встречает отшельник по имени Зед и его два верных (   Читать дальше...   )Производство: США / Beyond Infinity, Titan ProductionsЖанр: ужасы, фантастика, боевик, триллер, комедия, приключенияРежиссер: Кен ДиксонАктеры: Элизабет Кайтан, Синди Бил, Дон Скрибнер, Бринк Стивенс, Карл Хорнер, Кирк Грейвз, Рэндольф Роблинг, Бад Грейвз, Джеффри Бланчард, Майк КуперПеревод: Двуголосый профессиональный, одноголосый любительскийЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44249613A19FFA87AD7BB254E57D505A4B1E5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816348   (4425) от 04.09.2025
-
-Опасное пробуждение / Wake in Fright (1970) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам одноимённого романа Кеннета Кука (1961)... Джон Грант работает учителем в глухой провинции. Дождавшись, наконец, вожделенного отпуска, он по пути в Сидней проезжает через небольшой городок. То что должно было быть разовой невинной ночевкой, оборачивается путешествием сначала по злачным местам, а затем вовсе затяжным погружением в провинциальное (   Читать дальше...   )Производство: Австралия, США, Великобритания / Group W, NLT, NLT ProductionsЖанр: драмаРежиссер: Тед КотчеффАктеры: Дональд Плезенс, Гари Бонд, Чипс Рафферти, Сильвия Кэй, Джек Томпсон, Питер Уиттл, Аль Томас, Джон Майллон, Джон Армстронг, Слим ДеГрейПеревод: авторский (Михаил Яроцкий), любительский одноголосый (allecs2010)Язык озвучки: русский, английскийСубтитры: русские (Тимофей Стекольщук), английскиеПродолжительность: 01:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD0190AEC78547D120D1C37F562D561131AF466
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,86 @@
+###  Публикация: 544411   (251928) от 30.05.2023
+
+Scanner 2.13 Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scanner - программа для анализа содержимого жестких дисков, CD/DVD, дискет и других носителей. Сначала показывает в виде наглядной диаграммы все папки и файлы, находящиеся в корне анализируемого диска, допуская после этого продвижение вглубь для получения сведений о содержимом подпапок, а также отображает информацию о файлах и папках.
+
+Scanner позволяет быстро удалить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B2BF6C36C72B4DBBE953072AAECF7F937459C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835685   (251690) от 07.11.2025
+
+Advanced Renamer 4.19 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced Renamer - довольно популярная программа для массового переименования, а также систематизации файлов в операционной системе Windows. В новых версиях данной утилиты была реализована поддержка новых тегов при работе с разными форматами файлов, например мультимедиа, были переработаны методы отвечающие за образование имен файлов.
+
+Advanced Renamer имеет достаточно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343A333DF25BC5F1D61CFFD442AC481975FA0DC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835444   (250852) от 06.11.2025
+
+OneCommander Pro 3.103.0.0 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250852.jpg" />
+</div>
+
+
+###  Подробнее
+
+OneCommander V3 — это современный файловый менеджер для Windows 10 и Windows 11. Особенности включают вкладки, браузеры с двумя панелями, навигацию по столбцам, встроенный предварительный просмотр, систему тем, цветовые теги и многое другое. Он бесплатен для домашнего использования и не содержит рекламы.
+Эта программа не пытается быть просто более привлекательным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FE5A515BD3823933B8D9701A5B2BE2BC039340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835138   (250579) от 05.11.2025
 
 Total Commander 11.56 LitePack & PowerPack + Portable 2025.11 by SamLab [Multi/Ru]
@@ -6,7 +89,7 @@ Total Commander 11.56 LitePack & PowerPack + Portable 2025.11 by SamLab [Multi/R
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250579.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ Directory Opus 13.19 Build 9399 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246358.jpg" />
 </div>
 
 
@@ -58,7 +141,7 @@ WinRAR 7.20 Beta 1 [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246198.jpg" />
 </div>
 
 
@@ -84,7 +167,7 @@ WinRAR 7.20 beta 1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246157.jpg" />
 </div>
 
 
@@ -110,7 +193,7 @@ File Viewer Plus 6.1.0.60 [Multi]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230243.jpg" />
 </div>
 
 
@@ -138,7 +221,7 @@ PerigeeCopy 1.7 [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204953.jpg" />
 </div>
 
 
@@ -164,7 +247,7 @@ FileOptimizer 16.30.2781 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198376.jpg" />
 </div>
 
 
@@ -191,7 +274,7 @@ Files 2.5.10 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196416.jpg" />
 </div>
 
 
@@ -217,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196309.jpg" />
 </div>
 
 
@@ -244,7 +327,7 @@ Far Manager 3.0.6575 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193414.jpg" />
 </div>
 
 
@@ -270,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186161.jpg" />
 </div>
 
 
@@ -296,7 +379,7 @@ Double Commander 1.1.29 gamma + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173392.jpg" />
 </div>
 
 
@@ -322,7 +405,7 @@ ASCOMP F-Rename Pro 2.102 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152503.jpg" />
 </div>
 
 
@@ -348,7 +431,7 @@ OneCommander Pro 3.102.0.0 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125942.jpg" />
 </div>
 
 
@@ -375,7 +458,7 @@ Advanced Renamer 4.17 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91253.jpg" />
 </div>
 
 
@@ -402,7 +485,7 @@ FileOptimizer 16.60.2819 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60878.jpg" />
 </div>
 
 
@@ -429,7 +512,7 @@ WinNc 10.7.5.0 (x64) Portable by FC Portables [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55558.jpg" />
 </div>
 
 
@@ -455,7 +538,7 @@ Far Manager 3.0.6565 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52140.jpg" />
 </div>
 
 
@@ -481,7 +564,7 @@ Rename Expert 5.31.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45044.jpg" />
 </div>
 
 
@@ -507,7 +590,7 @@ ReNamer Pro 7.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41607.jpg" />
 </div>
 
 
@@ -533,7 +616,7 @@ ReNamer Pro 7.6 + Standalone (Portable) [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41591.jpg" />
 </div>
 
 
@@ -559,7 +642,7 @@ Bandizip 7.36 Build 68355 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41516.jpg" />
 </div>
 
 
@@ -585,7 +668,7 @@ FreeCommander XE 2025 donor v920 x64 & public v921 x32 + portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32442.jpg" />
 </div>
 
 
@@ -596,84 +679,6 @@ FreeCommander XE - это довольно-таки удобный в работ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F27A412FB73C969E37CE4472F18C6B2712885DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779156   (27999) от 11.02.2025
-
-Bandizip Pro-Ent 7.37 Build 69087 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandizip — программа для работы с архивами. Данное средство сможет вполне стать основным программным обеспечением на компьютере для создания архивов или для распаковки сжатых файлов наиболее популярных форматов, так как представленный архиватор действительно простой, легкий, достаточно шустрый и распространяется совершенно бесплатно (кроме расширенного функционала). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285DF45C1E70D07453E99A143DBD578DD97D5986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786332   (24128) от 20.03.2025
-
-Total Commander 11.51 LitePack & PowerPack + Portable 2025.3 by SamLab [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ACA6943E2C110824F2CB67F08D29A896376BACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791631   (21413) от 14.04.2025
-
-PeaZip 10.4.0 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21413.jpg" />
-</div>
-
-
-###  Подробнее
-
-PeaZip — бесплатный архиватор и графическая оболочка для других архиваторов. С помощью PeaZip можно осуществлять шифрование данных, создание многотомных архивов, работу с несколькими архивами одновременно, экспорт задания в виде командной строки, установку фильтров на содержимое архива. PeaZip поддерживает собственный формат архивов Pea (с поддержкой сжатия, многотомных (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878DB1409D2E89004A36F9F3A81EA8F8D5637623
 ```
 
 https://mybot314.ru/tekegram_catalog/

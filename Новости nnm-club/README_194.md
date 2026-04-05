@@ -1,3 +1,58 @@
+###  Публикация: 1392112   (357330) от 20.10.2020
+
+Обои - Landscape  [JPG]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тематика обоев: Windows 10 интересное
+Количество: 1910   (30.08.2020)
+
+Обновляемая раздачаФормат: JPGРазрешение файлов: 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED42964324889BB28BB3EE26026BF96A77A22AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601663   (357279) от 31.10.2015
+
+Метод Фрейда (1-12 серии из 12) (2012) [720p] HDTVRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357279.jpg" />
+</div>
+
+
+###  Подробнее
+
+В следственный отдел прокуратуры введен специальный консультант, гражданский человек Роман Фрейдин, психолог по образованию. Его появление обусловлено необходимостью применения нетрадиционных методов борьбы с преступностью. В молодости Фрейдин объездил всю Россию и Европу, общался с людьми самых разных профессий – от квалифицированных психоаналитиков до народных (   Читать дальше...   )Жанр: детективРежиссер: Михаил ВайнбергАктеры: Иван Охлобыстин, Наталия Антонова, Елена Николаева, Павел Прилучный, Артур Ваха, Алексей Гришин, Александр Кузнецов, Наталья Рычкова, Алла Подчуфарова, Маргарита Быстрякова, Яна Чигир, Анна Каменкова, Денис Старков, Азамат Нигманов, Александр Воробьёв, Вячеслав Яковлев, Виктор Маркин, Юрий БорисовСубтитры: отсутствуютФормат: MKVПродолжительность: серия ~ 00:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 154944   (357059) от 25.11.2009
 
 Волчок (2009) DVDRip
@@ -6,7 +61,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_357059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357059.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_356851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_356851.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ Call of Duty: Black Ops II - Digital Deluxe Edition [Ru] (Steam-Rip/1.0.0.1) 201
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356847.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_356533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_356533.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Call of Duty: Black Ops (2010) [Ru] (1.0) License R.G. Игроманы
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_356524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_356524.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_356308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_356308.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356272.jpg" />
 </div>
 
 
@@ -196,7 +251,7 @@ FIFA 17 (2016) [PS3] [EUR] 3.41/3.55/4.21 [License / 1.03] [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356067.jpg" />
 </div>
 
 
@@ -222,7 +277,7 @@ BioShock 2 Remastered (2016) [Ru] (1.0.122864/upd3) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355810.jpg" />
 </div>
 
 
@@ -248,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355809.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_355491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_355491.jpg" />
 </div>
 
 
@@ -300,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_355458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_355458.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355127.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ Battle Carnival (2016) [Ru] (26.10.17) License OBT
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355118.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355004.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354937.jpg" />
 </div>
 
 
@@ -431,7 +486,7 @@ Win 8 PE x86x64 Universal by Xemom1 (30.10.15) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354920.jpg" />
 </div>
 
 
@@ -457,7 +512,7 @@ Avira Internet Security 2013 13.0.0.521 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354485.jpg" />
 </div>
 
 
@@ -485,7 +540,7 @@ ESET Smart Security 6.0.304.4 Final [Украинский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354483.jpg" />
 </div>
 
 
@@ -513,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354343.jpg" />
 </div>
 
 
@@ -539,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354332.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ Windows 7 Ultimate SP1 RU x86 - The DNA7 Project v.1.6 [русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354330.jpg" />
 </div>
 
 
@@ -592,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353794.jpg" />
 </div>
 
 
@@ -621,7 +676,7 @@ Astute Graphics Plug-ins Bundle for Adobe Illustrator CC 1.1.6 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353623.jpg" />
 </div>
 
 
@@ -634,58 +689,6 @@ Astute Graphics Plug-ins Bundle for Adobe Illustrator CC 1.1.6 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:529817ED9367EDC522AC28BF32A1BF27922851AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071956   (353619) от 12.11.2016
-
-Adobe Photoshop CC 2017.0.0 2016.10.12.r.53 (x64) RePack by Pooshock [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F729039EF9BFCCE8F825C9BF07D5FF326BC56E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070455   (353612) от 12.11.2016
-
-Navitel / Навител Навигатор v9.7.1950 RePack by Hymen [Ru/Мульти] для карт релиза Q3-2016 v9.7.1950 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка сборок от Hymen.Тип издания: ПираткаРелиз состоялся: 04.11.16Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 и вышеЯзык интерфейса: Мульти / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B4EE5117D5D075B8731E502E45D09E040183CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

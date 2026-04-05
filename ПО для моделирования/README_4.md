@@ -1,3 +1,84 @@
+###  Публикация: 1254609   (372642) от 14.10.2018
+
+AwesomeBump V5.1 Portable 5.1 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372642.jpg" />
+</div>
+
+
+###  Подробнее
+
+AwesomeBump - это программа с открытым кодом созданная для генерирования текстурных карт нормалей, высот, отражений, а также АО из простого изображения. Так как весь процесс осуществляется на 99% с помощью GPU процессоров видеокарты, результаты можно получить очень быстро, а все параметры можно менять практически "на лету".
+Генератор был создан как альтернатива (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A7D6E055F02A84C1BDE5846B11414C1E91D75F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178313   (357503) от 27.10.2017
+
+Phoenix FD 3.04.00 for 3ds max 2013-2018 [En]
+
+>>След.
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Phoenix Fluid Dynamics — это плагин для моделирования и рендеринга газообразных состояний (огня и дыма) в Autodesk 3ds Max.
+Мощное средство для быстрого расчета и моделирования огня и дыма в 3ds Max, его основное отличие от других программных продуктов подобного рода — феноменальная скорость расчета и реалистичность моделируемых процессов. Также стоит отметить полную (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742D31DDF619610036A55EC10911827618E3842E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178062   (355262) от 28.10.2017
+
+NVIDIA Mental Ray v.3.14.3.31 for Maya 2017 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение для визуализации NVIDIA® mental ray® помогает помогает создавать реалистичные изображения превосходного качества. Оно объединяет в себе физически корректную симуляцию освещения с полной программируемостью.
+Это позволяет профессионалам создавать любые визуальные эффекты. Mental ray используется профессионалами, работающими в отрасли более 25 (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CA2104E04C5BE180044B24C1CF6487DC0A32E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419408   (339460) от 28.10.2020
 
 Substance Alchemist 2020.3.0 (2.3.0) Build 70 [Multi]
@@ -6,7 +87,7 @@ Substance Alchemist 2020.3.0 (2.3.0) Build 70 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339460.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ CrazyBump 1.22 RePack by Serka [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309061.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Next Limit RealFlow 10.5.3.0189 + Plugins [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308917.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ MAGIX 3D Maker 7.0.0.482 RePack by 78Sergey [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289642.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ GSG HDRI Studio  for Cinema4d 2.148 (Обновление от 2018-05-09) [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287110.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ Marvelous Designer 9 Enterprise 5.1.311.44087 Portable by Deodatto [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275552.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ The Foundry Katana 3.2v2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273537.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ The Foundry Mari 4.6v1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273370.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ Ashampoo Home Design 5.0.0 Portable by Deodatto [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265203.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ CLO Enterprise 3.2.45 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264341.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ Exoside QuadRemesher 1.01 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262811.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ AMS Ландшафтный Дизайн 3D 11.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260906.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260789.jpg" />
 </div>
 
 
@@ -349,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259774.jpg" />
 </div>
 
 
@@ -375,7 +456,7 @@ Marvelous Designer Enterprise 2025.2.81 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257764.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ AMS Мой Дом 3D 4.15 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256665.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ V-Ray 6.00.03 for SketchUp 2019-2023 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252198.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ SpeedTree Modeler v9.1.1 Cinema Edition Win x64 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234893.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ Terragen Professional 4.5.71 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231414.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ Adobe Substance 3D Sampler 3.3.1 Build 1866 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230614.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ Nitro4D NitroCap v1.55 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227164.jpg" />
 </div>
 
 
@@ -561,7 +642,7 @@ SpeedTree Cinema v8.4.2 + Game Engines UE4/Unity/Indie v8.4.2/Clarisse v8.4.1 [E
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219123.jpg" />
 </div>
 
 
@@ -589,7 +670,7 @@ Adobe Substance 3D Painter 9.0.0 build 2585 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215102.jpg" />
 </div>
 
 
@@ -600,84 +681,6 @@ Adobe Substance 3D Painter 9.0.0 build 2585 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF3AC6154D9785C0F34162117C86C4ABE65FA5B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557429   (213330) от 15.06.2022
-
-Adobe Substance 3D Stager 1.2.1 [Multi]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Substance 3D Stager – данный цифровой продукт представляет собой одну из самых передовых и технических усовершенствованных платформ, которая предназначена для разработки трехмерных сцен. Программа способна организовать выполнение профессионального проектирования любой сложности, где на выходе Вы получите очень качественный и детально проработанный результат.Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651E85C5E749394176FF18C2F7B52E71B0D8BBCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831817   (212202) от 29.10.2025
-
-Chaos Vantage 3.0.2 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рендерите самые сложные сцены V-Ray 3D в режиме трассировки лучей в реальном времени. С Chaos® Vantage нет необходимости в трудоемких преобразованиях. Просто перетащите всю сцену V-Ray в Vantage и приступайте к работе. Быстро создавайте высококачественные визуализации или предварительные визуализации для архитектуры, кинопроизводства, автомобилестроения и т. д.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85905318BB16C02F09C69F3584266E98987F2617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640792   (211106) от 19.06.2023
-
-ColorCorrect for 3ds Max 1 - 2024 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211106.jpg" />
-</div>
-
-
-###  Подробнее
-
-ColorCorrect - это шейдер для коррекции цвета. В отличие от одноимённого, встроенного шейдера "Color Correct" имеет значительно больше настроек.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FE4DF1ECF92E82415FAAADB70B9E6DDF7E4352
 ```
 
 https://mybot314.ru/tekegram_catalog/

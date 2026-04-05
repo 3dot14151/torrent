@@ -1,3 +1,61 @@
+###  Публикация: 1782664   (69904) от 02.03.2025
+
+VA - Progressive Trance Awakening, Vol. 03 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soundtoys - Around You (Original Mix) [6:22]
+02. John Grand - Four4 (Extended Mix) [5:53]
+03. AaYmin - By Your Light (For Saylee) (Original Mix) [3:00]
+04. A.L.Y.S. - Bounty (Extended Mix) [5:48](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D310D80A1FEEBBF9AFB1F05685A3A3B0C9710F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783288   (69833) от 05.03.2025
+
+VA - SaberWave Best Of 4 Years (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vladislav Vasilchuk - The direction of trance (Original Mix) [7:17]
+02. Alex Fibonacci - Damaged (Original Mix) [6:01]
+03. Feali & Alënushka - Time (Original Mix) [6:54]
+04. MLiFe - Reflection (Original Mix) [6:12](   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3EB9FCC24336A56A0D4EAFDD4D179777B28754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783290   (69818) от 05.03.2025
 
 VA - Elliptical Sun Miami Sampler 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -6,7 +64,7 @@ VA - Elliptical Sun Miami Sampler 2025 (2025) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69818.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Vocal Trance Collection Vol. 3 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69780.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - The Sound of 2025, Chapter 2: Madrid (Night Mix) (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69756.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - 25 Years Of Anjuna Mixed By Darren Tate (2025) [MP3|320 Kbps] <Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69516.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - The World Series Of Trance, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69356.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Ablazing Spring Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69216.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - 40 Years Techno Club (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69185.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Trance Horizons, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69160.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - History Of Trance Vol. 2 - Classic Hit Collection (2025) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69075.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - History Of Trance - The Classic Hit Collection (2023) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69074.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Trance Horizons, Vol. 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68933.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Uplifting Only Top 15: March 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68930.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Exhibition: Raw - Mixed by Ben Lost (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68819.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Amsterdam Session 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68687.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Trance Top 100, Vol. 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68675.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Redux Selection, Vol. 4 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68578.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - 25 Years Of Anjuna Mixed By Nourey (2025) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68427.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Budapest Session 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68334.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - The Sound of 2025, Chapter 3: London (Night Mix) (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68324.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Vocal Trance Legends - Esmee Bor Stotijn (2025) [MP3|320 Kbps] <Trance, Voc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68184.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Nothing But... Trancetopia, Vol. 24 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68141.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 09 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68140.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Top 14 January 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68076.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - The Sound of 2025, Chapter 3: London (Sunset Mix) (2025) [MP3|320 Kbps] <Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68043.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - The Sound of 2025, Chapter 3: London (Sunset Mix) (2025) [MP3|320 Kbps] <Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FA02FA28DA13D10337230658444002BAA82BA35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790735   (68018) от 10.04.2025
-
-VA - Trance Fusion, Vol. 09 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ICARUS PROJECT - Echoes Of The Maelstrom (Radio Edit) [4:07]
-02. Chris Krystal - Guilty Art (Radio Edit) [4:31]
-03. Michael ACE & Gabasso - Stellar (Radio Edit) [2:48]
-04. DJ John Bastian - In Search Of A Purpose (Radio Edit) [4:04](   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB99702291B919B194AAE7963667AF33514D0246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792607   (67682) от 19.04.2025
-
-VA - Trancespotting Vol.10 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diago - Sequentia (Original Mix) (03:15)
-02. Guava Project - New Horizons (Original Mix) (03:59)
-03. MakeFlame & DJ Frost - Acid Rain 303 (Original Mix) (04:58)
-04. Rene Ablaze, Fischer & Miethig - Follow Me (Original Mix) (02:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE331B397ACEE4379F2D13BBA0D89A28277FEF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

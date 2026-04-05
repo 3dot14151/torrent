@@ -1,3 +1,32 @@
+###  Публикация: 1648389   (230883) от 24.07.2023
+
+Johnny Booth - Moments Elsewhere (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Chaotic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2040 [00:01:28]
+02. Collapse in the Key of Fireworks [00:02:54]
+03. Full Tilt [00:04:39]
+04. The Ladder [00:04:19](   Читать дальше...   )Жанр: Metalcore, Chaotic HardcoreПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DEC76BDA55A68B2CE7EF2372149B8615E21609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648378   (230866) от 24.07.2023
 
 Ravenchild - Caves Of Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
@@ -6,7 +35,7 @@ Ravenchild - Caves Of Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230866.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Mystfall - Celestial Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230854.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Nocturna - Daughters Of The Night (2022) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230839.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Matteo Mancuso - The Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230835.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Cerebral Invasion - A Story Of Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230834.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Revolution Saints - Eagle Flight (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230832.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Birds of Prey - Sulfur & Semen (2008) [FLAC|Lossless|image + .cue] <Death, Sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230829.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sonic Taboo - Kind of Venom (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Psych, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230823.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ BlackSun Horizon - Who Will Live to Tell the Tale (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230814.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Noltem - Illusions In The Wake (2021) [FLAC|Lossless|WEB-DL|tracks] <Atmospherci
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230810.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Voidfallen - The Atlas of Spiritual Apocalypse (2021) [MP3|320 Kbps] <Melodic De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230795.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Ankhagram - ReANKHarnation (2006) Reissue, 2014, Satanarsa Records [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230786.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ ssshhhiiittt! - rawlove (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Psyched
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230784.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Edu Falaschi - The Glory Of The Sacred Truth (2018) EP, Japan Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230780.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Red Hot Chili Peppers - Return of the Dream Canteen (2022) [MP3|320 Kbps] <Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230775.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Crazy Space Gun - Тройничок (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230770.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Coventrate - Roots of All Evil (2019) [FLAC|Lossless|image + .cue] <Speed, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230769.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Legba - Oscuro (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-rock, blues>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230768.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230757.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Inteam - Точёный пик (2023) [MP3|320 Kbps] <Comedy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230734.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Badfinger - 14 Albums, 21CD (1969-2018) [FLAC|Lossless|image + .cue | tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230700.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ From Ashes to New - Blackout (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rap
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230692.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Meddle Reimagined - A Tribute To Pink Floyd (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230653.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Foo Fighters - But Here We Are (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock,
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230623.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Eloy - Echoes From The Past (2023) [FLAC|Lossless|image + .cue] <Krautrock, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230622.jpg" />
 </div>
 
 
@@ -716,36 +745,6 @@ Eloy - Echoes From The Past (2023) [FLAC|Lossless|image + .cue] <Krautrock, Psyc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF635EE6975535FCC5349B4B03D56824D10CB104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648916   (230503) от 25.07.2023
-
-Greg Lake - The Anthology - A Musical Journey (2020) 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грег Лейк - британский бас-гитарист, гитарист, вокалист, автор песен и продюсер, наиболее известный как участник King Crimson и супергруппы Emerson, Lake & Palmer.
-Лейка считают одним из крупнейших талантов британской сцены прогрессивного рока и в качестве автора, и в качестве исполнителя. У него характерный тембр голоса и свой стиль игры на гитаре. Его музыкальный (   Читать дальше...   )Disc One:
-01. King Crimson - Peace - A Beginning (1970)
-02. The Shame - Don't Go 'way Little Girl (Single Mix) (1967)
-03. The Shy Limbs - Love (Single Mix) (1969)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:25:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADC69F1B2B4C24942EE5F93F1FB8314BA269D7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

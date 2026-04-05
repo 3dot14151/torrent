@@ -1,134 +1,3 @@
-###  Публикация: 1735881   (50458) от 10.07.2024
-
-М.В. Никольский | Shahed-136 и другие БПЛА Ирана. Ударные и разведывательные беспилотники (2023) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беспилотные летательные аппараты (БПЛА) занимают исключительно важное место в структуре вооруженных сил Ирана и Корпуса стражей Исламской революции, а такого значения беспилотникам не придается даже в США и Израиле. Эта книга впервые во всех подробностях рассказывает обо всех типах иранских БПЛА самолетного типа и их богатом опыте боевого применения. Большая часть (   Читать дальше...   )Жанр: Учебно-справочное пособиеИздательство: Яуза-ПрессФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C74F27678783728FD1484AEF432FC6A51F53160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735844   (50434) от 10.07.2024
-
-Н.К. Никифоров | Электронная аппаратура. Основные материалы и технологии микро- и наноэлектроники (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются материалы и технологии, наиболее широко применяемые в микро- и наноэлектронике, изготовлении микросхем, микромодулей и блоков электронной аппаратуры.
-Для студентов электротехнических и радиотехнических специальностей и специалистов, занимающихся разработкой радиоэлектронной и силовой электронной аппаратуры.Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9548C6B07BFCFDB407A14AE9E715131108F093BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733729   (50406) от 11.07.2024
-
-Книжная серия | Математическая библиотечка (1962 - 1974) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50406.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Математическая библиотечка» — серия из 8 книг издаваемая с 1962 по 1974 год. Книги рассчитаны на любителей математики, не имеющих специального математического образования.Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC4EE5487E0019B75855FB68252D57A7E9677CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736259   (50385) от 11.07.2024
-
-Б.Н. Кутузов, Г.А. Нишпал | Технология и безопасность изготовления и применения взрывчатых веществ на горных предприятиях (2004) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены классификация и характеристики промышленных взрывчатых веществ (ВВ), изготавливаемых на горных предприятиях. Дана характеристика компонентов, изложены технологии приготовления и применения сухих гранулированных и водосодержащих взрывчатых веществ. Описано оборудование для приготовления и применения этих ВВ. Приведены сведения о ВВ, полученных из утилизированных (   Читать дальше...   )Жанр: Учебники и учебные пособия для вузовИздательство: Московский государственный горный университетФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E0A2B00654B977F498899EEEA8A26177CED2102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736065   (50350) от 11.07.2024
-
-Ю.Б. Румер, М.С. Рывкин | Теория относительности (1960) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50350.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей книге изложены основные положения и результаты теории относительности, а также важнейшие ее приложения (квантовая теория света, некоторые вопросы теории ускорителей, энергетика ядерных реакций и т.д.). Авторы стремились рассматривать сложные проблемы теории относительности исходя из широко известных элементарных процессов и законов физики (упругий и неупругий (   Читать дальше...   )Жанр: ФизикаИздательство: УчпедгизФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB6CF4D343814AC511C3531307BB2B85594C141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736064   (50334) от 11.07.2024
 
 Б.В. Иоффе | Рефрактометрические методы химии (1974) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50334.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50333.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50293.jpg" />
 </div>
 
 
@@ -218,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50263.jpg" />
 </div>
 
 
@@ -247,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50245.jpg" />
 </div>
 
 
@@ -273,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50061.jpg" />
 </div>
 
 
@@ -299,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50043.jpg" />
 </div>
 
 
@@ -326,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50028.jpg" />
 </div>
 
 
@@ -352,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50010.jpg" />
 </div>
 
 
@@ -380,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50009.jpg" />
 </div>
 
 
@@ -407,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49939.jpg" />
 </div>
 
 
@@ -434,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49759.jpg" />
 </div>
 
 
@@ -460,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49589.jpg" />
 </div>
 
 
@@ -486,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49556.jpg" />
 </div>
 
 
@@ -512,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49516.jpg" />
 </div>
 
 
@@ -538,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49440.jpg" />
 </div>
 
 
@@ -565,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49396.jpg" />
 </div>
 
 
@@ -591,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49395.jpg" />
 </div>
 
 
@@ -617,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49345.jpg" />
 </div>
 
 
@@ -644,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49315.jpg" />
 </div>
 
 
@@ -670,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49313.jpg" />
 </div>
 
 
@@ -681,6 +550,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9FB2976475319A3470C7B2B6D85280439167DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738240   (49305) от 21.07.2024
+
+Джон Бергер | Искусство видеть (2012) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49305.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Искусство видеть» Джона Бергера – это одна из самых обсуждаемых и влиятельных книг об искусстве, когда либо изданных в мире. Она написана по мотивам знаменитого фильма BBC и впервые была опубликована вслед за его премьерным показом в 1972 году. В том же году критик Sunday Times писал: «Бергер не просто открывает нам глаза на то, как мы видим произведения изобразительного (   Читать дальше...   )Жанр: изобразительное искусство, культурология, психология творчестваПеревод: Eвгения ШрагаИздательство: Вимбо, КлаудберриФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426B11D6C687EC67F40996120FCD9A10B42BF7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737805   (49274) от 22.07.2024
+
+Б. Дженсен, Ч. Фридман | Готов ко всему. Навыки и приемы, которые спасут вам жизнь (2024) [FB2]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш личный гид по выживанию в непредсказуемом мире! Никто не застрахован от внезапных угроз и вызовов судьбы, но только вам решать: слепо верить в лучшее или взять ситуацию под контроль.
+
+Рекомендации и практические советы из этой книги научат вас: распознавать потенциальные угрозы и избегать их в привычной жизни, путешествиях и информационном пространстве; управлять (   Читать дальше...   )Жанр: РуководстваИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64E2E607DCDCF59DACBB99B19368F5CE904244E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738298   (49251) от 22.07.2024
+
+Д. Волнухина | Библия электрика. ПУЭ, ПОТЭЭ, ПТЭЭП [10-е издание] (2023) [PDF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное, единственное на рынке издание: содержит актуальные тексты ПУЭ, ПОТЭЭ, ПТЭЭП с последними изменениями и дополнениями. В этой книге - все нормативы и правила, необходимые в работе сотрудникам организаций, занятых техническим обслуживанием электроустановок, выполняющих строительные, монтажные, наладочные и ремонтные работы.
+10-е издание.Жанр: Прочие законы, кодексы и комментарииИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:137FCBA114EEE0DD74171457212C8B5274D77C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399557   (49227) от 22.07.2024
+
+Ольга Шестова, Лев Иноземцев | 30 нобелевских премий. Открытия, изменившие медицину (2020) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая известная и почётная в мире премия — Нобелевская — ежегодно присуждается за выдающиеся научные исследования, революционные изобретения, вклад в культуру или развитие общества. В этой книге речь пойдёт о лауреатах премии по физиологии или медицине. На момент написания книги вручено 210 премий 219 лауреатам. Из них мы отобрали 30 — тех, чьи работы широко используются, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Альпина нон-фикшнФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE2A560EDE538F935E2254CB62FEA28B62FCDB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738631   (49117) от 23.07.2024
+
+Т. Кармацкий | Висцералка. Техника самомассажа для восстановления организма. Самая полезная книга про живот (2024) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая полезная книга возвращается! У кошек, собак и маленьких детей животы мягкие и абсолютно безболезненные — им даже приятно, когда их щупают. И у вас когда-то был такой же, но со временем — в силу тех или иных конкретных причин — живот становится более напряженным, и это отражается на продолжительности жизни, вашей эффективности и внешнем виде! Только представьте, (   Читать дальше...   )Жанр: Медицина и здоровьеИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3473BB2539E98AF9BC7FA9CEE6A15A764FDE38
 ```
 
 https://mybot314.ru/tekegram_catalog/

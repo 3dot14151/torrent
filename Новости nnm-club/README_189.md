@@ -1,3 +1,55 @@
+###  Публикация: 1574377   (374678) от 10.09.2022
+
+Земля. Перезагрузка / Chong qi di qiu (2021) WEB-DL [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за климатических изменений земля начинает превращаться в огромную пустыню. Чтобы избежать глобальной катастрофы ведущие учёные разрабатывают препарат, способствующий ускоренному размножению растительных клеток, не подозревая что превращают безобидные растения в опасных хищников.Производство: КитайЖанр: фантастика, боевикРежиссер: Линь ЧжэньчжаоАктеры: Мики Хэ, Чжан Минцань, Ло Ми, Мишель Е, Юй Жунгуан, Ли Нин, Номэнь Ээрдэни, Ли ЖосиПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 01:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C8DA0E59AEE4E5CECEA5944FB34B14C2C23655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575203   (374677) от 10.09.2022
+
+Тор: Любовь и гром / Thor: Love and Thunder (2022) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейн Фостер берет на себя обязанности Бога-громовержца и становится обладательницей молота Мьёльнира.Производство: Австралия, США, Fox Studios Australia, Marvel Studios Inc., Walt Disney PicturesЖанр: фантастика, фэнтези, боевик, мелодрама, комедия, приключенияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Натали Портман, Кристиан Бэйл, Тесса Томпсон, Тайка Вайтити,  Рассел Кроу, Джейми Александер, Крис Пратт, Дэйв Батиста, Карен ГилланПеревод: Многоголосый профессиональный (NewComers)Субтитры: Русские, АнглийскиеПродолжительность: 01:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9BC37CDCE817A53E13A84F78C3456ECD884CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254123   (374610) от 13.10.2018
 
 Зарядное устройство заставило iPhone забронировать президентский номер
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_374610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_374610.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Microsoft предоставила Linux-сообществу открытый �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_374607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_374607.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374250.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Dr.Web Security Space 11.0.0.10191 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374132.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Microsoft Office 2013-2016 C2R Install 4.8 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374102.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ EasyBCD 2.3.0.207 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374094.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Acronis True Image 2020 Build 21400 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373973.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_373701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_373701.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373565.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373564.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Windows 7 sp1 x64 Plus Office Release by StartSoft 01-2020 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373523.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_372969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372969.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Parallels Desktop 6.0. ( 11826.611899 от 26 октября 2010 ) [Eng]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_372935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372935.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ Unlocker 1.9.2 Final RePack by Alker [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372686.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372678.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_372478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372478.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ MacDrive Pro 9 [Eng]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_372341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372341.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ Udemy, Dzianis Matveyenka | Spring (2022) WEB-DL [RU]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372299.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_372247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372247.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_372208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_372208.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372116.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ Two Point Hospital (2018) [Ru/Multi] (1.6.22002) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372109.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_371878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_371878.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ AusLogics BoostSpeed 8.1.0.0 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371844.jpg" />
 </div>
 
 
@@ -632,65 +684,6 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB01169D14CF31BEAD4DB62546761D7BA62FB0C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950222   (371840) от 25.10.2015
-
-SpyHunter 4.20.9.4533 RePack (& Portable) by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371840.jpg" />
-</div>
-
-
-###  Подробнее
-
-SpyHunter - мощная утилита, которая в режиме реального времени очищает ОС от программ-шпионов, кейлоггеров, резидентных вирусов и при необходимости удаляет следы оставленные ими. Проверяет запущенные процессы, ключи реестра, элементы ActiveX. Имеет весьма дружественный интерфейс, благодаря которому, предельно проста в работе, а внушительная база сигнатур не позволит (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F112FDD263E3781D2515907C4490B36B8B5A8EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 153530   (371773) от 18.11.2009
-
-Adobe Premiere Pro CS4 4.2.020 [Multilingual]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro CS4 представляет собой обновленную версию получившего множество наград набора инструментов для нелинейного видеомонтажа.
-
-Пакет Adobe After Effects CS4 Professional предлагает все необходимое для создания визуальных спецэффектов и компоновки видео-продукции, предназначенной для публикации на DVD-носителях или web-сайтах, а также для воспроизведения на мобильных устройствах. А приложение Adobe Soundbooth CS3, адресованное профессиональным и начинающим звукорежиссерам, позволит решать широкий спектр задач, связанных с обработкой аудиоданных.
-
-Расширенная интеграция с другими продуктами Adobe.
-Multicam - работа с несколькими камерами, теперь это возможно быстро и легко. Можно одновременно просматривать несколько треков и переключаться между ними в реальном времени. Синхронизация клипов осуществляется на базе timecode.
-Профессиональная цветовая коррекция - можно использовать как primary так и secondary инструменты цветового исправления. Возможна замена цвета, коррекция ошибок экспозиции и т.д.
-DVD (   Читать дальше...   )Язык интерфейса: Multilingual + русский, только для версии 4.0.0
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

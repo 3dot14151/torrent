@@ -6,7 +6,7 @@ VA - I-Robots - Italo Electro Disco Underground Classics (2004) CD [MP3|320 Kbps
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551787.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - New Italo Disco: Reloaded Hits & New Songs (2018) [MP3|320 Kbps] <Disco, Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551476.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Star 80 New Generation Vol. 1 (2015) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551473.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rudy - Just Take My Body (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550626.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Constellation Orchestra - Perfect Love Affair (1978) Reissue CD, Italy & C, 2013
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550617.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Extended Version & Remix, Vol. 1 - The Sound of Italo Disco (2016) [MP3|320
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547312.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Brian Bennett - Voyage (A Journey Into Discoid Funk) (1978) LP [MP3|320 Kbps] <E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545736.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Musique - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Disco, Funk-Soul>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544854.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Extended Version & Remix, Vol. 2 The Sound of Italo Disco (2016) [MP3|320 K
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544798.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - Italo Dance Rimini (2016) [MP3|320 Kbps] <Disco, Italo Dance, House>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544797.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Extended Version & Remix, Vol. 3 - The Sound of Italo Disco (2016) [MP3|320
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544791.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Chocolat's - 3 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544522.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Italo Disco Romantique Vol. 1 (Extended Romantique Mixes) (2018) [MP3|320 K
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544517.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Extended Version & Remix, Vol. 5 The Sound of Italo Disco (2016) [MP3|320 K
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543760.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Den Harrow - ForeveR (The Album) By Eurokrimen (2017) [MP3|256 Kbps] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542778.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Time - Prime Time (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542433.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Carrara - 2 Albums (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541894.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Vicki Sue Robinson - Half And Half (1978) Remastered /2011, Sony/ [MP3|320 кб/
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541206.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sheila & B. Devotion - 2 Albums (1977, 1980) LP [MP3|320 Kbps] <Electronic, Funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540671.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Blackwell - Boogie Down (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539074.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Limelight - Special Love - Re-Tubed (2018) 2CD, Special Edition [MP3|320 Kbps] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538982.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - New Italo Disco Top 25 Compilation Vol.9 (2018) [MP3|320 Kbps] <Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538873.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Charlie Mike Sierra - On The Moon (1977) LP [MP3|320 Kbps] <Electronic, Disco, A
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536577.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ The Freedom Machine - 2 Albums (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535705.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Midnight Magic - Do It 'N Dance (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533654.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - The Sound Of Indie Dance Vol.12 (2018) [MP3|320 Kbps] <Indie Dance, NuDisco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533352.jpg" />
 </div>
 
 

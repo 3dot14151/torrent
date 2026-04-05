@@ -1,3 +1,31 @@
+###  Публикация: 1060440   (454617) от 07.10.2016
+
+Zuzka Light | ZCUT Power Strength Series (2013) DVDRip [H.264] [EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454617.jpg" />
+</div>
+
+
+###  Подробнее
+
+ZCUT Power Strength Series это 12 новых высокоинтенсивных жиросжигающих тренировок.
+
+Эти тренировки являются динамически структурированными, чтобы обеспечить функциональную силу, сделать сухопарое телосложение. В комплекте идут 30, 60 и 90-дневные календари.Производство: СШАЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 03:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99019FB2D6C53E37A88C92BECAB74FAE6A06D940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162872   (454417) от 03.09.2017
 
 Lynda.com | CSS: Styling Forms (2012) PCRec [H.264]
@@ -6,7 +34,7 @@ Lynda.com | CSS: Styling Forms (2012) PCRec [H.264]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454417.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454149.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ Groove3, Эрик Кинл | Creating Game Audio with Pro Tools (2015) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453506.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ Artstation, Aleksandr Kirilenko | Becoming An Expert In Marvelous Designer (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452920.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452685.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452154.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451296.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450753.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450568.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ Bob Harper | Inside Out Method - Pure Burn Super Strength (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450497.jpg" />
 </div>
 
 
@@ -275,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449858.jpg" />
 </div>
 
 
@@ -301,7 +329,7 @@ CG Forge, Tyler Bay | Destruction I - RBD simulation (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449401.jpg" />
 </div>
 
 
@@ -328,7 +356,7 @@ Entagma, Moritz Schwind | Mograph Liquids: Controlling FLIP Fluids Via Curve For
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449285.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ Entagma, Moritz Schwind | Axiom Solver: Dissolving Logo (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449252.jpg" />
 </div>
 
 
@@ -380,7 +408,7 @@ Udemy, Hardy Fowler | Line Art Master (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449101.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ Masterclass, Will Wright | Will Wright Teaches Game Design and Theory (2018) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449098.jpg" />
 </div>
 
 
@@ -434,7 +462,7 @@ David Luong | Intro to Digital Matte Painting (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448885.jpg" />
 </div>
 
 
@@ -460,7 +488,7 @@ Paul Katami | KettleBell Kombos (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448711.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ The Gnomon Workshop, Aaron Sims | Real-Time Filmmaking in Unreal Engine 5 — TH
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448606.jpg" />
 </div>
 
 
@@ -514,7 +542,7 @@ Profileschool | Мастер-класс Смешанный Свет. Практ�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448469.jpg" />
 </div>
 
 
@@ -540,7 +568,7 @@ Paul Katami | KettleBell Drills Workout (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448089.jpg" />
 </div>
 
 
@@ -567,7 +595,7 @@ Lynda.com | Основы программирования: объектно-ор
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447755.jpg" />
 </div>
 
 
@@ -595,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447551.jpg" />
 </div>
 
 
@@ -624,7 +652,7 @@ Will Wallace | Разрушение дома / Destruction Training with Thinkin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447226.jpg" />
 </div>
 
 
@@ -651,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447026.jpg" />
 </div>
 
 
@@ -663,32 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:898B3F7F868B467089054F108117BB5F456392DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569993   (446987) от 15.08.2022
-
-SideFX, Paul Esteves | Vellum Nodes (2021) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите 10 различных Vellum нод, которые можно использовать для настройки симуляций ткани, волос, grains и soft body в Houdini. Познакомьтесь с различными типами симуляций, которые вы можете создать, а затем изучите констрейнты и параметры, с помощью которых можно контролировать результаты. Работать с Vellum может быть очень интересно, и понимание этих нод откроет (   Читать дальше...   )Производство: SideFXЖанр: Houdini 18.5Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:103FFA2500ADB58C9CB906AC04345D4EB56E018D
 ```
 
 https://mybot314.ru/tekegram_catalog/

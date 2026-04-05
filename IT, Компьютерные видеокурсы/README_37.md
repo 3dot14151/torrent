@@ -1,29 +1,3 @@
-###  Публикация: 1009710   (805112) от 23.04.2016
-
-Андрей Кудлай | Создание каталога товаров с помощью PHP, MySQL и jQuery (2015) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Вашему вниманию курс по созданию каталога товаров с помощью PHP, MySQL и jQuery. Это огромный по объему курс, в котором не просто решается какая-то конкретная задача, но в котором практически в режиме онлайн мы будем создавать собственный движок с нуля. Написанный в курсе по созданию каталога товаров с помощью PHP, MySQL и jQuery движок, можно будет (   Читать дальше...   )Производство: WebforMyselfЖанр: PHP, MySql, jQueryПродолжительность: 32:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70678A84B269EC7272A47587B19EC0488492CB09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198765   (803993) от 13.01.2018
 
 Клабпрофи | Суперкомпьютер за один день (2017) CamRip, PCRec  [H.264/720p-LQ]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803993.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803870.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Udemy, Oleksandr Heiets | React JS с нуля и до создания полн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803863.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Stepik, Никита Шультайс | Пакет SQL курсов (2021) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803858.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802857.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ Udemy | PHP 5.5 Zend Certification (OOP) (2016) PCRec [H.264/720p-LQ] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802472.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ Udemy | PHP 5.5 Zend Certification - PHP Security (2016) PCRec [H.264/720p-LQ] [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802464.jpg" />
 </div>
 
 
@@ -222,7 +196,7 @@ Particular Software, Udi Dahan | Advanced Distributed Systems Design (2021) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800825.jpg" />
 </div>
 
 
@@ -248,7 +222,7 @@ Itproger | Полное изучение языка Python (2018) PCRec [H.264/1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800523.jpg" />
 </div>
 
 
@@ -274,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799464.jpg" />
 </div>
 
 
@@ -300,7 +274,7 @@ Udemy | Основы SQL: SELECT, JOIN, DML, DDL, TCL, DCL (2020) PCRec [H.264/7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797692.jpg" />
 </div>
 
 
@@ -326,7 +300,7 @@ ProfIT | Node.js Express: Создаём веб-приложение быстр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797229.jpg" />
 </div>
 
 
@@ -354,7 +328,7 @@ JUG Ru Group | Joker 2021. Международная Java-конференци�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796666.jpg" />
 </div>
 
 
@@ -382,7 +356,7 @@ ITVDN, Юрий Боцман | .NET Developer (2021) WEB-DL [AD]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796620.jpg" />
 </div>
 
 
@@ -410,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796485.jpg" />
 </div>
 
 
@@ -436,7 +410,7 @@ Udemy | Машинное обучение: нейросети и глубоко�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796482.jpg" />
 </div>
 
 
@@ -462,7 +436,7 @@ Udemy | Data Science на Python 3 с нуля (2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796480.jpg" />
 </div>
 
 
@@ -491,7 +465,7 @@ Udemy | Веб разработка - с нуля до профессионал�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796475.jpg" />
 </div>
 
 
@@ -519,7 +493,7 @@ Skillbox | Профессия С# разработчик (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796469.jpg" />
 </div>
 
 
@@ -546,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796003.jpg" />
 </div>
 
 
@@ -572,7 +546,7 @@ Javabegin | Новый пошаговый курс Angular + Java/Spring + Hiber
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795747.jpg" />
 </div>
 
 
@@ -600,7 +574,7 @@ ITVDN | SQL Практикум (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795145.jpg" />
 </div>
 
 
@@ -626,7 +600,7 @@ ITVDN | Основы использования Git (2016) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795132.jpg" />
 </div>
 
 
@@ -652,7 +626,7 @@ Udemy | Машинное обучение: кластеризация и кла�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795105.jpg" />
 </div>
 
 
@@ -678,7 +652,7 @@ javascript.ru | Интенсив по TypeScript (2020) PCRec [H.264/900p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795096.jpg" />
 </div>
 
 
@@ -689,6 +663,32 @@ TypeScript увеличивает эффективность и надёжнос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE5276CD28573DE04F08022CF6546077AC4AAE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508963   (794536) от 12.11.2021
+
+Skillbox, Артём Кожуховский | Базы данных для разработчиков (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь использовать, проектировать и оптимизировать базы данных и эффективно работать с ними через код. Сможете улучшать производительность приложений и подбирать подходящие базы под требования бизнеса.Производство: SkillboxЖанр: ПрограммированиеПродолжительность: 21:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52090AC034087CC0A05861514E24B115FBBAC903
 ```
 
 https://mybot314.ru/tekegram_catalog/

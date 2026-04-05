@@ -1,133 +1,3 @@
-###  Публикация: 58221   (1029424) от 23.02.2021
-
-Г.Роледер | Онанизм (1927) [DJVU]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полезна тем, кому интересно всё о сексологии, невропатологии, психологии человека и немного медицине. Представляет и исторический интерес.Жанр: Медицина, психология, история медициныФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77113DA1B1253B1B11FFAE68E79CEE6392BE283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623294   (1029369) от 01.04.2023
-
-В.И. Медведев | Особенности объектно-ориентированного программирования на C++/CLI, C# и Java (2010) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Излагаются основные понятия и методика разработки объектно-ориентированных программ на языках C++/CLI, C# и Java (J#). Изложение сопровождается многочисленными примерами законченных программ. Программы поясняются диаграммами языка UML. Особое внимание акцентировано на наиболее сложных для понимания делегатах, событиях, уведомлениях, потоках и их синхронизации. Параллельное (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5639E64128E4D63FB092DA89E2B7D69C8AA694C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450031   (1029303) от 24.02.2021
-
-Венди Джелберт | От скетчей к акварельному рисунку (2020) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как поймать ускользающий момент и передать свои впечатления на картине? Книга художницы и преподавателя Венди Джелберт поможет совершить первые шаги и расскажет, как улучшить технику выполнения эскизов и создать свою первую настоящую картину. Вы узнаете, как максимально эффективно использовать скетчбук, выстраивать композицию, передавать текстуры и изображать людей. (   Читать дальше...   )Жанр: РисованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5AFBBAC171E52EC95C69D7EFF11ABF5CA6BDCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414363   (1029259) от 24.02.2021
-
-Книжная серия | «История в одном томе» [29 книг] (2015-2021) [FB2, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги авторитетных мировых историков о наиболее значимых исторических событиях и периодах.Жанр: Биографии и мемуары, Военное дело / спецслужбы, История Средних веков, Новейшая история, Научно-популярная литература, Общая историяФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76BB833485072AD13F370827EE06F29B41EBBC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450255   (1029181) от 25.02.2021
-
-В.В. Миронов | Электрооборудование судов и его эксплуатация (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029181.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издании рассмотрены вопросы современного состояния электрооборудования судов и тенденции его развития.  Содержит основы теории, описание устройства и анализ эксплуатационных свойств различных видов судового электрооборудования. Значительное место отведено практическим вопросам, связанным со специфическими условиями работы судового электрооборудования, его технического (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F772B080896DD815E01FA85A957832051E16D398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450204   (1029144) от 25.02.2021
 
 А.А. Цветков | Теория и практика бизнес-анализа в ИТ [2 тома] (2019, 2020) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029144.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029132.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029106.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029008.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029005.jpg" />
 </div>
 
 
@@ -267,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028874.jpg" />
 </div>
 
 
@@ -293,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028688.jpg" />
 </div>
 
 
@@ -319,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028673.jpg" />
 </div>
 
 
@@ -345,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028669.jpg" />
 </div>
 
 
@@ -371,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028667.jpg" />
 </div>
 
 
@@ -397,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028646.jpg" />
 </div>
 
 
@@ -423,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028430.jpg" />
 </div>
 
 
@@ -449,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028314.jpg" />
 </div>
 
 
@@ -475,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028200.jpg" />
 </div>
 
 
@@ -502,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028035.jpg" />
 </div>
 
 
@@ -528,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028032.jpg" />
 </div>
 
 
@@ -554,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027866.jpg" />
 </div>
 
 
@@ -581,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027494.jpg" />
 </div>
 
 
@@ -608,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026917.jpg" />
 </div>
 
 
@@ -634,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026850.jpg" />
 </div>
 
 
@@ -660,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026729.jpg" />
 </div>
 
 
@@ -671,6 +541,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9D1FD258C56681CC8D524222701D129CB2D76CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453662   (1026716) от 12.03.2021
+
+Д.А. Бухтияров, А.П. Горбачев | Многоэлементные директорные антенны с возбудителями дипольного вида (2020) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа посвящена проектированию директорных антенн, которые могут быть использованы как отдельно установленные самостоятельные антенны, так и как новая элементная база активных фазированных антенных решеток. Основой этих антенн являются возбудители дипольного вида, питаемые либо на удаленных концах, либо одном удаленном и одном смежном конце. При этом только один (   Читать дальше...   )Жанр: Антенны, радиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB9173E8E24F253D42B3EB5FBCE9CAABA5D5EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454035   (1026581) от 13.03.2021
+
+В.Ф. Гузик и др. | Сети и телекоммуникации (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие охватывает вопросы лекционного курса дисциплины «Сети и телекоммуникации».  Основной материал учебного пособия посвящен архитектуре современных компьютерных сетей и средств телекоммуникаций, также рассматриваются: классификация компьютерных сетей; особенности реализации физической среды передачи данных; методы доступа к среде передачи данных и современные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282920FC49B75753C131E96A9E062A7455AE33D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454130   (1026577) от 13.03.2021
+
+Андрей Буровский | Холокост. Были и небыли (2010) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свобода слова всегда была для Запада чем-то вроде дешевых стеклянных бус, на которые можно выменивать несметные богатства у простодушных дикарей-аборигенов, но которые не станешь носить у себя дома. Громогласно распинаясь о «свободе прессы» и навязывая ее другим, Запад в то же время беспощадно преследует собственных инакомыслящих. Так, в большинстве европейских стран (   Читать дальше...   )Жанр: историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6C605E9760928E264D011B94300EF56BFD7FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454068   (1026569) от 13.03.2021
+
+С.А. Плотников и др. | Математическое моделирование систем управления (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие посвящено основам теории управления и математического моделирования. Представлены шесть лабораторных работ с последовательно увеличивающейся сложностью, начиная от исследования устойчивости линейных систем управления, заканчивая исследованием устойчивости систем управления с запаздываниями. Пособие предназначено для студентов, обучающихся по направлениям (   Читать дальше...   )Жанр: Теория управления, математическое моделированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8862900E1DC9FCDADF0F97B5AC24C9D442F70ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454100   (1026554) от 13.03.2021
+
+И.Ю. Сахаров и др. | Физико-химические и взрывчатые свойства аммиачной селитры (2016) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены физико-химические свойства аммиачной селитры, технические требования к различным маркам аммиачной селитры и её взрывчатые свойства в составах промышленных взрывчатых веществ.Приведены стандартизованные методики изучения и анализа физико-химических свойств и методы определения взрывчатых свойств аммиачной селитры в составах взрывчатых веществ.
+Предназначено (   Читать дальше...   )Жанр: Химия, физикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1EDD75C7F36AD89723AC14BDA2EB1395B1E37E
 ```
 
 https://mybot314.ru/tekegram_catalog/

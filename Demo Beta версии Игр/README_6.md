@@ -6,7 +6,7 @@ REVERSE SIDE / ОБРАТНАЯ СТОРОНА (2015) [Ru/En] (1.0.2.6.F) SteamR
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336557.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Salt (2015) [En] (1.6) Repack Hazestalker [Early Acsess]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336548.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ In Silence (2020) [Ru/Multi] (0.43) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332196.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bus World (2022) [Ru/Multi] (Build 9649353) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326967.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Stranded Deep (2015) [En] (0.50.01) SteamRip R.G. Игроманы
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313620.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Agony (2017) [Multi] (Demo) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291207.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Thick Air (2016) [Ru/En] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281976.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Visage (2018) [Ru/Multi] (2.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278333.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Off-Road Paradise: Trial 4x4 (2016) [En/Es] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276742.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Coma 2: Vicious Sisters (2019) [Ru/Multi] (0.2.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274326.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BIOS (2016) [Ru/Multi] (0.32) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273117.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (19835777) Repack Necros [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261692.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Kingdoms Reborn (2020) [Ru/Multi] (0.250) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260826.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Critter Cove (2024) [Ru/Multi] (0.6 build 269) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260757.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Fatal Claw (2025) [Ru/Multi] (0.9.81) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257799.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Last Starship (2023) [Ru/Multi] (18a) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256789.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Last Caretaker (2025) [Ru/Multi] (0.5.0.581804) Repack Other s [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255638.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ PARANOIA PLACE (2023) [Multi] (0.48) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255431.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Scouring (2025) [Ru/Multi] (02.11.25) Repack R.G. Freedom [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250345.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Cisco Aspire (L / Beta) [En] 2011
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248970.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Outbreak Island (2025) [Ru/Multi] (Build 20575035/dlc) Repack Other s [Supporter
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246246.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ RICE Repetitive Indie Combat Experience (2023) [En] (24) License GOG [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234149.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Darkest Dungeon (2015) [En] (Build 12102) Repack NIK220V
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223255.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Exoplanet: First Contact (2016) [En] (0.15.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219469.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ The Forest (2014) [En] (0.51b) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219448.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ The Black Ice (2025) [Ru/Multi] (1.0) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213448.jpg" />
 </div>
 
 

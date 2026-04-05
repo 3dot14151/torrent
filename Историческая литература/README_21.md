@@ -1,30 +1,3 @@
-###  Публикация: 1107573   (866471) от 23.02.2017
-
-Л.Д. Троцкий | Вопросы культурной работы (1924) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая брошюра составлена из речей и статей посвящённых вопросам так называемого культурного фронта. Далеко не все вопросы этого порядка нашли здесь отражение. Затронутые вопросы ни в каком смысле не исчерпаны. Но если что и оправдывает издание настоящего сборника, так это единство точки зрения.
-Для нас вопрос идёт о поднятиии культурного уровня рабочих и крестьянских (   Читать дальше...   )Жанр: история, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF76AA2A80A15EE54F675674E396E68F1D6D4E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107809   (866468) от 23.02.2017
 
 Л.Д. Троцкий | Новая экономическая политика Советской России и перспективы мировой революции (1923) [DJVU]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866468.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866370.jpg" />
 </div>
 
 
@@ -85,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866363.jpg" />
 </div>
 
 
@@ -111,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866359.jpg" />
 </div>
 
 
@@ -137,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866107.jpg" />
 </div>
 
 
@@ -163,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865312.jpg" />
 </div>
 
 
@@ -189,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864622.jpg" />
 </div>
 
 
@@ -215,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864573.jpg" />
 </div>
 
 
@@ -241,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864535.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863751.jpg" />
 </div>
 
 
@@ -293,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862947.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862351.jpg" />
 </div>
 
 
@@ -345,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862319.jpg" />
 </div>
 
 
@@ -372,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859313.jpg" />
 </div>
 
 
@@ -398,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859121.jpg" />
 </div>
 
 
@@ -424,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859098.jpg" />
 </div>
 
 
@@ -450,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858788.jpg" />
 </div>
 
 
@@ -476,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857763.jpg" />
 </div>
 
 
@@ -502,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856661.jpg" />
 </div>
 
 
@@ -528,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855719.jpg" />
 </div>
 
 
@@ -554,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855608.jpg" />
 </div>
 
 
@@ -580,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855601.jpg" />
 </div>
 
 
@@ -606,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855558.jpg" />
 </div>
 
 
@@ -632,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855450.jpg" />
 </div>
 
 
@@ -658,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853895.jpg" />
 </div>
 
 
@@ -672,6 +645,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43527BB995CA089FBFDCF1A1F486EC440E2083AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001271   (853893) от 28.03.2016
+
+А. М. Гиндин | Как большевики национализировали частные банки (1962) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди ошибок, определивших неудачу Парижской коммуны — этой первой в истории попытки установления диктатуры пролетариата, — К. Маркс назвал отказ от захвата Парижского банка. Власть трудящихся испытывала финансовые затруднения. Не хватало денег на заработную плату, на оплату ряда мероприятий. А под рукой, в подвалах банка лежали миллионы. Парижские трудящиеся, проявившие (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4992EEEBEE1709F48BA3B008FE584986150775A
 ```
 
 https://mybot314.ru/tekegram_catalog/

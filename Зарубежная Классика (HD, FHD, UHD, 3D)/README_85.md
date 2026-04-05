@@ -1,3 +1,108 @@
+###  Публикация: 1346221   (164108) от 18.12.2019
+
+Ва-банк II, или Ответный удар / Vabank II, czyli riposta (1984) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Май 1936 года. Мошенник Крамер, получивший 8 лет по обвинению в грабеже собственного банка, который инсценировали Квинто и его друзья, сбегает из тюрьмы. Скрыться он может только в Швейцарии, где у него еще остались немалые деньги. Но прежде он хочет отомстить своему ненавистному врагу медвежатнику Квинто. Реванш почти удается. Но неистощимый на выдумку Квинто снова (   Читать дальше...   )Производство: Польша / Zespol Filmowy "Kadr"Жанр: Комедия, КриминалРежиссер: Юлиуш МахульскийАктеры: Ян Махульский, Леонард Петрашак, Витольд Пыркош, Бронислав Вроцлавский, Эва Шикульска, Марек Вальчевский, Беата Тышкевич, Яцек Хмельник, Кжиштоф КершновскиПеревод: Дублированный, профессиональный многоголосыйСубтитры: Русские, английскиеПродолжительность: 01:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6347BD1178F56669E611B559229E79D4B5BDF921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344021   (164075) от 18.12.2019
+
+Большие гонки / The Great Race (1965) BDRip [H.265/1080p] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало ХХ века. Знаменитый испытатель, рыцарь без страха и упрека, всегда с иголочки одетый во все белое, Лесли по прозвищу Великий организует беспрецедентный автопробег Нью-Йорк-Париж. Завистливый и злобный изобретатель профессор Фэйт со своим верным слугой Максом принимает вызов Лесли. Он готов на все, лишь бы тот не добрался до финиша живым.Производство: США / Warner Bros., Patricia, Jalem ProductionsЖанр: мелодрама, комедия, приключения, семейный, спортРежиссер: Блейк ЭдвардсАктеры: Джек Леммон, Тони Кёртис, Натали Вуд, Питер Фальк, Кинэн Уинн, Артур О’Коннелл, Вивиан Вэнс, Дороти Провайн, Ларри Сторч, Росс МартинПеревод: Дублированный, многоголосый закадровыйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, английскиеПродолжительность: 02:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7386A76E0E72411F5E0CBFEA32CEA505F0DC36F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597440   (163751) от 17.12.2022
+
+Горец / Highlander (1986) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit] [Director's Cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коннор Маклауд — шотландец, который в 1536 году был сражен в битве, но мистическим образом воскрес, и родной клан изгнал его. Учителем Маклауда стал испанский дворянин, объяснивший, что он принадлежит к бессмертной расе воинов, которых можно лишить жизни, лишь обезглавив мечом…
+Сражение между Маклаудом и его вечным врагом Курганом, начавшееся в Шотландии XVI века, (   Читать дальше...   )Производство: Великобритания, США / Davis-Panzer Productions, Highlander Productions Limited, Thorn EMI Screen EntertainmentЖанр: фэнтези, боевик, приключенияРежиссер: Рассел МалкэйАктеры: Кристофер Ламберт, Роксанна Харт, Клэнси Браун, Шон Коннери, Бети Эдни, Алан Норт, Джон Полито, Шила Гиш, Хью Куарши, Кристофер МалкольмПеревод: Многоголосый профессиональныйЯзык озвучки: русский, украинский, английскийСубтитры: Русский (PGS), Английский (PGS)Продолжительность: 01:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45E7665D215F8BCEF716C5CEE643F99C9471904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111295   (163686) от 02.11.2023
+
+Афера Томаса Крауна / The Thomas Crown Affair (1968) BDRip [H.265/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бостонский миллионер Томас Краун разрабатывает план гениального ограбления банка, считая, что всё сойдёт ему с рук. Уставший быть частью истеблишмента, он надеется провернуть дельце и улететь в Рио. Эрвин Вивер — один из банды грабителей, которые ни разу не встречались с Крауном, организовавшим ограбление без единой зацепки. Краун кладёт три миллиона украденных долларов (   Читать дальше...   )Производство: США / Simkoe, Solar Productions, The Mirisch CorporationЖанр: триллер, драма, мелодрама, криминалРежиссер: Норман ДжуисонАктеры: Стив МакКуин, Фэй Данауэй, Пол Бурк, Джек Уэстон, Бифф МакГуайр, Эддисон Пауэлл, Астрид Хирен, Гордон Пинсент, Яфет Котто, Сидни АрмусПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B7B297F74E6886E9BDB1DF08FE2393527BCA40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673402   (163192) от 03.11.2023
 
 Возвращение Белого Клыка / Il Ritorno di Zanna Bianca (1974) BDRip [H.264/720p]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163192.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162832.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162652.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162193.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161826.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161772.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161142.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161110.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160346.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160172.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160073.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159811.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159705.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159298.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159293.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158902.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158358.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157488.jpg" />
 </div>
 
 
@@ -479,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157484.jpg" />
 </div>
 
 
@@ -505,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156972.jpg" />
 </div>
 
 
@@ -531,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156845.jpg" />
 </div>
 
 
@@ -557,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156764.jpg" />
 </div>
 
 
@@ -568,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F014CE82F1037354FEEDD54CE30E7D77B25A4CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344042   (156494) от 20.12.2019
-
-Близкие контакты третьей степени / Close Encounters of the Third Kind (1977) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сбои в подаче электроэнергии, возвращение из ниоткуда самолетов, исчезнувших в 1945 году, обескураживают ученых. Наименее скептичные люди науки расценивают эти явления, как прямое доказательство существования разумной инопланетной формы жизни. Выехавший на повреждение электрик Рой Нери встретился с настоящим НЛО: автомобиль, в котором ехал Рой, попал под мощный пучок (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, EMI Films Ltd., Julia Phillips and Michael Phillips ProductionsЖанр: фантастика, драма, приключенияРежиссер: Стивен СпилбергАктеры: Ричард Дрейфусс, Франсуа Трюффо, Тери Гарр, Мелинда Диллон, Боб Бэлабан, Дж. Патрик МакНамара, Уоррен Дж. Кеммерлинг, Робертс Блоссом, Филип Доддс, Кэри ГуффиПеревод: Дублированный, многоголосый закадровый, одноголосый авторскийСубтитры: русские (полные), английские (форс., полные)Продолжительность: 02:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542A9512CB045BECED78BA84A8D483CFA3C57F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965159   (156286) от 23.12.2015
-
-Кабинетный гарнитур / Desk Set (1957) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Банни Уотсон возглавляет информационно-аналитический отдел Федеральной вещательной телекомпании. Ее сотрудницы вполне квалифицированно могут дать ответы на самые разные вопросы, опираясь на собственную память. Но тут специалист в области повышения производительности труда Ричард Самнер по поручению президента телесети собирается внедрить в отдел Бани электронную (   Читать дальше...   )Производство: США, Twentieth Century Fox Film CorporationЖанр: Мелодрама, КомедияРежиссер: Уолтер ЛэнгАктеры: Спенсер Трэйси, Кэтрин Хепберн, Гиг Янг, Джоан Блонделл, Дина Мэрилл, Сью Рэндолл, Нева Паттерсон, Гарри Эллерб, Николас Джой, Дайан ЙоргенсПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C0BFE7C678A132F993D75B84669BF50694DF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968238   (156175) от 23.12.2015
-
-Ворон / The Raven (1963) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожилой маг Эрасмус Крэйвен, скорбящий вдовец, скучает дома в компании своей очаровательной дочки. Привычное семейное спокойствие нарушается появлением ворона, вернее, другого волшебника в образе ворона, который самым бесцеремонным образом требует сначала вина, а потом — чтобы его срочно превратили обратно в человека, а именно, в волшебника Адольфуса Бэдлоу.
-Превращение (   Читать дальше...   )Производство: США, Alta Vista ProductionsЖанр: Ужасы, Фэнтези, КомедияРежиссер: Роджер КорманАктеры: Винсент Прайс, Петер Лорре, Борис Карлофф, Хэйзел Корт, Олив Старгесс, Джек Николсон, Конни Уоллес, Уильям Баскин, Аарон Саксон, Джон ДиркесПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5EBBABDE2F996D0BDD0B5AE06D554182C66C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968374   (155752) от 23.12.2015
-
-Странные захватчики / Strange Invaders (1983) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор-энтомолог колумбийского университета Чарльз Биглоу остается вместе со своей дочерью Элизабет, пока его бывшая жена Маргарет отправилась на похороны своей матери в город Centerville. Но когда она в назначенный срок не вернулась, Чарльз решает отправиться на ее поиски. Он прибывает в городок и с удивлением обнаруживает, что все его жители одеваются и ведут (   Читать дальше...   )Производство: США, EMI Films, Lone Wolf McQuade AssociatesЖанр: Фантастика, Ужасы, ДетективРежиссер: Майкл ЛофлинАктеры: Пол Ле Мэт, Нэнси Аллен, Дайана Скаруид, Майкл Лернер, Луиз Флетчер, Уоллес Шон, Фиона Льюис, Кеннет Тоби, Джун Локхарт, Чарльз Лэйн, Бобби Пикетт, Томас Копаче, Марк Годдар, Джек КелерПеревод: Многоголосый закадровыйПродолжительность: 01:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CAC9918284976CEAC3CA298725F00CEED54C06
 ```
 
 https://mybot314.ru/tekegram_catalog/

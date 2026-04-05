@@ -6,7 +6,7 @@ Cisdem AppCrypt 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240363.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Movist Pro 2.10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240330.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Mia for Gmail 2.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240325.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Yate 6.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240297.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Aiseesoft Mac FoneTrans 9.1.66 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240289.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Luminar Neo 1.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240281.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Text Scanner - PDF & Document 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240277.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Wondershare UniConverter for Mac 14.2.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240255.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ AYVY 1.12.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240247.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ PullTube 1.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240246.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Batteries 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240242.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ EazyDraw 10.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240233.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Book Track - Library Manager 2.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240227.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ EtreCheck Pro 6.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240217.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Name Mangler 3 v3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240208.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Pixelmator Classic 3.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240204.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Calca 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240196.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ iReal Pro 2020.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240189.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ RazorSQL 9.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240166.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Permute 3 v3.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240155.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ GraphicConverter 11 v11.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240153.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Dropzone 4 Pro v4.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240147.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Acorn 7 v7.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240146.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Smultron 12 v12.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240139.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ GraphicConverter 11 v11.6.3 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240137.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ GrandTotal 7 v7.0.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240129.jpg" />
 </div>
 
 

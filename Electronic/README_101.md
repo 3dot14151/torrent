@@ -1,3 +1,61 @@
+###  Публикация: 1109004   (861072) от 26.02.2017
+
+VA - Proper Vibes (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Huf - Rise to It (05:58)
+02. Edemin - Jungl (03:49)
+03. Luck Bravo - Liberty (05:10)
+04. Richi Giges - With Chocolate (04:36)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E8DDA41F2B345C1F464DC96D2275C39CB00B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108903   (861071) от 26.02.2017
+
+VA - Sirup Deep Anthems Dubai (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861071.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nora En Pure - Lake Arrowhead - Radio Mix 3:36
+002. Sons Of Maria - Chimera - Radio Mix 4:07
+003. Kyle Watson - Sink Deep 3:35
+004. Croatia Squad - Do It Again - Radio Mix 3:20(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36910875697E9AC3FB00D4D38F68C3C1150CA540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108471   (861001) от 26.02.2017
 
 VA - Easy Sun Lounger, Born to Be Cool Chillin, Vol.3 (Finest Chill Out Lounge & Ambient Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Easy Sun Lounger, Born to Be Cool Chillin, Vol.3 (Finest Chill Out Lounge &
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861001.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Don't Let Daddy Know - Amsterdam (The Official 2017 Compilation) (2017) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860998.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Banco De Gaia - The 9th Of Nine Hearts (2016) [MP3|320 Kbps] <Electronic, Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860934.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Chill Fashion Vol.9 (Berlin Fashion Lounge Chill House And Young Grooves) (
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860912.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Gydra - Unhinged (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860909.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Best Of Disco Balls Records 2018, Pt. 1 (2019) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860616.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Best Of Disco Balls Records 2018, Pt. 2 (2019) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860615.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Best Of 5 Years Of Disco Balls Records, Pt. 3 (2019) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860614.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Tim Dash - Afterlight 001 (2020) unmixed [MP3|320 Kbps] <Deep Techno, Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860499.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Psychedelic Selections Vol 005 (Compiled by Khromata) (2020) [FLAC|Lossless
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860488.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Freedom Fighters - Era (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860486.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Body Building Music Hits 2020 Fitness Session (2020) [MP3|320 Kbps] <Progre
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860485.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Black Hole Trance Music 04-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860375.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Marc Hartman - Walk the Ocean (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listeni
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860067.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Dimitri Vegas & Like Mike - Tomorrowland Friendship Mix (2021-09-16) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859660.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Dreaming Of Sunset: Chillout Selection (2017) [MP3|320 Kbps] <Downtempo, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859217.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Modern Art Of Easy Listening Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859214.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Ron Trent - Prescription: Word, Sound & Power (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859164.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Erotic House (Erotic And Sensual Selection House Music) (2020) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858917.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ V.A. - The Buddha Moon, Vol. 1:  A Magic Soundtrack To Chill & Relax (2020) [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858912.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Baby Erotic Lounge (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858797.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Home Workout (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858671.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Paul van Dyk - Escape Reality (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Down
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858361.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Carpenter Brut - BLOOD MACHINES OST (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dar
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858350.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Carpenter Brut - BLOOD MACHINES OST (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2508EBCC50248DF8949E7E6FC3A52A62A7452063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000595   (857639) от 26.03.2016
-
-VA - Poolside Chillhouse (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet - 2Night [05:51]
-02. Michael Ruland - Spectre (Lounge Version) [05:13]
-03. Simplex Sensus - That Buzz [05:55]
-04. Aba Abas - Dance with Her Tonight [05:52](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2042E7A2AEE8E170245420E3C2D45F9AE3C2213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000597   (857638) от 26.03.2016
-
-VA - Endless Summer (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lesamoor, Oscar Remington - And if I (ft Bibi Provence) [05:08]
-02. Claudio Iacono - Birds Journey [04:21]
-03. Booggee - Ulisses (ft Sol Abad) [03:17]
-04. IndySoul - Winter Interlude [12:22](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8928A318DCDFE078D962865802C68E1178DB9BE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

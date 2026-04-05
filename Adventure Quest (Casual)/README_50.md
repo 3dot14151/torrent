@@ -6,7 +6,7 @@ Spirits of Mystery 12: Whisper of the Past (2018) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264961.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Red Comrades 3: Return of Alaska. Reloaded / Петька и Василий Ив
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264929.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Whispered Secrets 10: Dreadful Beauty / Нашептанные секреты 10
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264571.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fairy Godmother Stories: Cinderella (2019) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264269.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dreadful Tales 2: The Fire Within / Жуткие истории 2: Огонь в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263911.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Lost Grimoires 3: The Forgotten Well / Утерянные гримуары 3: З
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263731.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Lost Grimoires 3: The Forgotten Well / Утерянные Гримуары 3: З
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263334.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dark Tales 16: Edgar Allan Poe's. Ligeia / Тёмные истории 16: Эд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263233.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mystery Case Files 20: Black Crown (2019) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262892.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dark City: London / Мрачный Город: Лондон (2017) [Ru] (1.0) Un
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262702.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Dark Tales 12: Edgar Allan Poe's Morella / Темные истории 12: Эд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262207.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Mystery Case Files 28: House That Love Built (2025) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261630.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Chivalry Quest: Sword and Flame (2025) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261319.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tesla's Tower - The Wardenclyffe Mystery / Башня Теслы. Тайна В�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261277.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Haunted Hotel II: Believe the Lies / Проклятый отель 2. Паути
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259962.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Spirit Walkers - Curse of the Cypress Witch (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258867.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Tesla's Tower - The Wardenclyffe Mystery (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258820.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Dead City / Город мертвых (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258643.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Flux Family Secrets: The Rabbit Hole / Секреты семьи Флакс 2. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258601.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Final Cut: Death on the Silver Screen. Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258567.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sandman / Истории шёпотом: Песочный человек (P) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258353.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Reflections of Life 15: A Shattered Heart (2025) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258023.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Amazing Adventures 5: Riddle of the Two Knights (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257242.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Inspector Magnusson: Murder on the Titanic / Инспектор Магнуссо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256977.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Lady Mabel Mysteries: Death on Board / Тайны леди Мейбл: Смер�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256819.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Edge of Reality 10: Island of Shadows / Край реальности 10: Ост
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256817.jpg" />
 </div>
 
 

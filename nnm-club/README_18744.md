@@ -1,25 +1,22 @@
-###  Публикация: 1193374   (262148) от 21.12.2017
+###  Публикация: 1341253   (262604) от 27.11.2019
 
-Warfect - Depicting The Macabre (2009) [APE|Lossless|image + .cue] <Thrash Metal>
+Журнал | Школа гастронома №1 (316) (2020) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Creation 03:38
-02. Heathen Reigns 04:19
-03. Depicting the Macabre 03:39
-04. Symbol of Submission 03:32(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:18
+Журнал для тех, кто любит готовить. В каждом номере - множество полезной и интересной информации: советы и тонкости приготовления блюд от известных шеф-поваров, кондитеров, кулинарных блогеров; практическая информация о продуктах, которые используются в рецептах, а также о приправах, гарнирах и напитках, которые с ними идеально сочетаются. Мастер-классы сопровождаются (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECC8A22FDD39CCE1C434985F9DC1535863217210
+magnet:?xt=urn:btih:C6F4EBE2F7458519691A8BFF176C0FAAAF35063A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193424   (262147) от 21.12.2017
+###  Публикация: 1341242   (262603) от 27.11.2019
 
-VA - Best of Afterworld (2017) [MP3|320 Kbps] <Trance>
+Журнал | Школа гастронома. Коллекция рецептов №10 (252) (2019) [PDF]
 
->>Electronic
->>Trance
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262603.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Men-D - Vine napoi (Original Mix)
-02. Eric Maes - Circular Time (Original Mix)
-03. Zirenz, Men-D - Valhalla (Original Mix)
-04. NRGFactory - Behind the Light (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:28
+Журнал для тех, кто любит готовить. В каждом номере - множество полезной и интересной информации: советы и тонкости приготовления блюд от известных шеф-поваров, кондитеров, кулинарных блогеров; практическая информация о продуктах, которые используются в рецептах, а также о приправах, гарнирах и напитках, которые с ними идеально сочетаются. Мастер-классы сопровождаются (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCAD17359A3EFB3621687EDEDC2BF658A701BE71
+magnet:?xt=urn:btih:C1D8E1CE2CF8A4B978567A0C43A5B857F9302C14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193604   (262146) от 21.12.2017
+###  Публикация: 1341239   (262602) от 27.11.2019
 
-VA - Subculture - The Singles (2017) [MP3|320 Kbps] <Trance>
+Журнал | Школа гастронома. Коллекция рецептов №7 (249) (2019) [PDF]
 
->>Electronic
->>Trance
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262602.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paul Denton – Curtain Call (Original Mix)
-02. Bryan Kearney – Adrenaline (Original Mix)
-03. Craig Connelly & Jessica Lawrence – How Can I (John O'Callaghan Extended Remix)
-04. Cold Blue – Once in Time (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:35
+Журнал для тех, кто любит готовить. В каждом номере - множество полезной и интересной информации: советы и тонкости приготовления блюд от известных шеф-поваров, кондитеров, кулинарных блогеров; практическая информация о продуктах, которые используются в рецептах, а также о приправах, гарнирах и напитках, которые с ними идеально сочетаются. Мастер-классы сопровождаются (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B367CC838795F3C17E4F07C1BEFD36F781BF608C
+magnet:?xt=urn:btih:EB52A905F00DDF22D5EA534BE11165888A66D064
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,86 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193390   (262145) от 21.12.2017
+###  Публикация: 1341361   (262601) от 27.11.2019
 
-Hellwitch - Syzygial Miscreancy (1990) Remastered, 2017 [FLAC|Lossless|image + .cue] <Technical Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ascent
-02. Nosferatu
-03. Viral Exogence
-04. Sentient Transmography(   Читать дальше...   )Жанр: Technical Death Metal, Thrash MetalПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4772CBA5298481479B7F4C099303BC2F7895013A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193612   (262144) от 21.12.2017
-
-VA - The Best Of Suanda Base (Mixed by Ahmed Helmy) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mantra, Ruslan Radriges & Lucid Blue – Take Me Higher (Club Mix)
-02. Nathia Kate, Robin Vane & Russian Dolls – Always (Ruslan Radriges Remix)
-03. Twin View – Bubblegun (Ruslan Radriges Remix)
-04. UltraNova – V1! Rotate! (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C223810CDFFECA6125D47B5DAAC1A8D40FDBF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193586   (262143) от 21.12.2017
-
-VA - DJ Box - Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House>
+Opera GX 64.0.3417.139 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paul Oakenfold – Deep Space (Original Mix)
-02. Freejak & Martay M'Kenzy – Out of Breath feat. Martay M'Kenzy (Extended Mix)
-03. Tilt & Ruby Turner – Deeper in Love feat. Ruby Turner (Original Mix)
-04. Cory Enemy & Chris Bushnell – Keep It Coming (Club Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:32:41
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AA806BED85E36EE1E14667D0CAFF560A8017577
+magnet:?xt=urn:btih:ABA448DF22DEAC1601225E84E4FE679B0292A970
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193311   (262142) от 21.12.2017
+###  Публикация: 1341360   (262600) от 27.11.2019
 
-Warfect - Exoneration Denied (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Журнал | Библиотека журнала "Самая mini. Приготовь" №06 Новогодние рецепты.  Десерты и выпечка (декабрь 2019) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Exoneration Denied
-02. Drone Wars
-03. Filled with Hate
-04. Inflammatory(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:36
+Ежемесячный кулинарный журнал. В каждом номере - мастер-классы и рецепты от шеф-поваров известных ресторанов и читателей. Рецепты несложные и доступны. Используя их, вы сможете порадовать и удивить своих близких. Все подобрано так, чтобы было вкусно и полезно. А представленные фотографии готовых блюд на страницах журнала помогут вам правильно и красиво оформить стол. (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56D97880F7600466AF09ED3A7ADB2FDAB14F27D8
+magnet:?xt=urn:btih:3A19ECA8A747DB35DED57C8CD60E499782508D6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,57 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193432   (262141) от 21.12.2017
+###  Публикация: 1341367   (262599) от 27.11.2019
 
-VA - Christmas Trance 2018 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Numark - Story of A Little Elf (Original Mix)
-02. CJ Stereogun - Margarita's Heart (Original Mix)
-03. Dreaman - Justice (Original Mix)
-04. Emotion Love - Secrets of Life (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6962085561412A43B360AD64B89966EC5CA9CBD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193430   (262140) от 21.12.2017
-
-afarOne - Lucen (2012) Karlrecords [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, Modern Classical, Ambient>
+YouTube By Click Premium 2.2.120 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Apart (05:10)
-02. Due (06:07)
-03. Naked Icon (06:55)
-04. El Sueno De La Razon (05:47)(   Читать дальше...   )Жанр: IDM, Leftfield, Modern Classical, AmbientПродолжительность: 00:46:49
+YouTube By Click - отличный и удобный в использовании загрузчик видео роликов из популярнейшего портала YouTube. Кроме этого хостингового ресурса, поддерживается также скачивание файлов из Facebook, Vimeo, Dailymotion и других сайтов. Разработчики постарались сделать это приложение максимально комфортным в работе. Для того, чтобы скачать интересующий Вас ролик, нужно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FC13E3EB1162345F338F9CE9A97DD9EC058DEBB
+magnet:?xt=urn:btih:774021AD9A9D63C617DD77774ECE1EB82C6D2DBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +154,78 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193428   (262139) от 21.12.2017
+###  Публикация: 1341384   (262598) от 27.11.2019
 
-Andrea Belfi - Ore (2017) Float [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Minimal, Contemporary Jazz, Downtempo>
+Лариса Суркова | Ребенок от 3 до 7 лет. Интенсивное воспитание (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суркова Лариса - мама 4 детей, а также кандидат психологических наук и практикующий психолог, ведущая в Instagram. Занимается вопросами детской и семейной психологии.
+Ваш ребенок подрос, он уже говорит, читает, активно познает мир, и вам кажется, что он уже большой и самостоятельный? Поверьте, это не так! Ему по-прежнему нужна ваша помощь, поддержка и защита. В это (   Читать дальше...   )Жанр: Детская психология, воспитание детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A17E1CE572CCFF25A56177D043FE24C9DBEA7E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341339   (262597) от 27.11.2019
+
+Журнал | Библиотека журнала "Самая mini. Приготовь" №01 Новогодние рецепты. Любимые салаты (декабрь 2019) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячный кулинарный журнал. В каждом номере - мастер-классы и рецепты от шеф-поваров известных ресторанов и читателей. Рецепты несложные и доступны. Используя их, вы сможете порадовать и удивить своих близких. Все подобрано так, чтобы было вкусно и полезно. А представленные фотографии готовых блюд на страницах журнала помогут вам правильно и красиво оформить стол.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4863CD0F47830CDD3FA83417191AE68BB2B50E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341325   (262596) от 27.11.2019
+
+Any Video Converter Ultimate 6.3.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anticline (10:01)
- 02. Iso (05:58)
- 03. Lead (05:54)
- 04. Ton (12:21)(   Читать дальше...   )Жанр: Ambient, Experimental, Minimal, Contemporary Jazz, DowntempoПродолжительность: 00:41:55
+Any Video Converter Ultimate - предоставляет пользователям DVD риппер все-в-одном, конвертер видео и создание DVD, который поможет вам преобразовывать DVD во все популярные видео форматы, включая MP4, AVI, RM, RMVB, QT, MOV, 3GP, 3G2, FLV, MPEG-1, MPEG-2, DVR-MS, VOB, MKV, ASF, DivX, OGM в MP4, AVI, WMV, 3GP, 3G2, FLV, MPG и SWF с быстрой скоростью преобразования (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79477BC85C7EF4497A0C80E451F4508FF1B17651
+magnet:?xt=urn:btih:2EA5F055B90F0149D268E8D090D9AA52BB1A54FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +233,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193377   (262138) от 21.12.2017
+###  Публикация: 1341165   (262595) от 27.11.2019
 
-Warfect - Scavengers (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Лана Ланитова | Милкино счастье (2018) [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262595.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Purveyors of Cadavers
-02. Reptile
-03. Anatomy of Evil
-04. Watchtowers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:44
+Действие романа происходит в России, в конце 19 века.
+
+Впервые ОН увидел ЕЁ на выпускном экзамене в гимназии. Увидел и вспомнил. Увидел и полюбил. Любовь, страсть, эксперименты с чувственностью. Похоть, попирающая законы морали и здравый смысл. И море нежности друг к другу. Была ли эта встреча первой в их жизни?Жанр: Эротическая литератураПродолжительность: 16:14:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CB85A2C4F69E41EE21748AE7E19E990072FF281
+magnet:?xt=urn:btih:93731F44FDB60F729DD6EA679D3EAFA0756542A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,57 +261,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193409   (262137) от 21.12.2017
+###  Публикация: 1341160   (262594) от 27.11.2019
 
-B.E.N.T. - Eleven (2001) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit The Road
-02. Evil Greazer
-03. Brain Trust
-04. Nightscape(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04E921B630489EC5C0B1E52F7F7F97304070B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193425   (262136) от 21.12.2017
-
-Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
+VA - 100 Greatest Karaoke Songs (2019) [MP3|320 Kbps] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Make You Believe In Love (03:33)
-02. Please Don't Go (03:23)
-03. Next To Me (03:00)
-04. One Flight Away (03:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:13
+001. Kylie Minogue - Can't Get You Out Of My Head 3:51
+002. Prince - Kiss 3:46
+003. A-Ha - Take On Me 3:45
+004. Aretha Franklin - Respect 2:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:21:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB8CA82D49E75404ADD82A2D0A0554EA3279648E
+magnet:?xt=urn:btih:870C9F117595CA9E409BBCB977DDF55A24EA2136
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +290,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193444   (262135) от 21.12.2017
+###  Публикация: 1341297   (262593) от 27.11.2019
 
-Broken Thoughts - Keju Luo (昆明市) - Discography 8 Releases (2011-2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Modern Classical, Ambient, Drone, Minimal>
+Анастасия Скрипкина | Праздничная кухня и украшение блюд с пошаговыми фотографиями (2012) [PDF]
 
->>Electronic
->>IDM (Lossless)
+>>Разное (категория книг)
+>>Кулинария
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Subatomic Days (05:00)
- 02. Losslessness (05:00)
- 03. Douglas Firs (05:00)
- 04. The Primal Forces Of Nature (05:00)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Experimental, Modern Classical, Ambient, Drone, Minimal •Продолжительность: 00:35:00
+Анастасия Скрипкина – самый популярный кулинар в Интернете. Ее первая книга «Лучшие рецепты Анастасии Скрипкиной» мгновенно стала бестселлером. И это неудивительно. Ведь ее рецепты с пошаговыми иллюстрациями понятны и доступны, а готовить по ним – одно удовольствие!
+С книгой Анастасии Скрипкиной накрыть праздничный стол на самую большую и взыскательную компанию не (   Читать дальше...   )Жанр: Кулинария, РецептыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9527964DBDC05DFBA26031B0C70535C34C0D52AF
+magnet:?xt=urn:btih:78EC76812D66C1AEC9F7FB04AFDDAC5ACB7460AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +317,298 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193455   (262134) от 21.12.2017
+###  Публикация: 1341183   (262592) от 27.11.2019
 
-Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+И.В. Ященко (ред.) | ЕГЭ 2020. Математика. Профильный уровень. 10 вариантов. Типовые тестовые задания от разработчиков ЕГЭ (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы пособия — ведущие специалисты, принимающие непосредственное участие в разработке методических материалов для подготовки к выполнению контрольных измерительных материалов ЕГЭ.
+Книга содержит 10 вариантов комплектов типовых тестовых заданий по математике, составленных с учетом всех особенностей и требований Единого государственного экзамена по математике базового (   Читать дальше...   )Жанр: ЕГЭ, математикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39849AC4E1AA0BA512E9B3DB4F3CF9736C466A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341243   (262591) от 27.11.2019
+
+Журнал | Школа гастронома. Коллекция рецептов №1 (253) (2020) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто любит готовить. В каждом номере - множество полезной и интересной информации: советы и тонкости приготовления блюд от известных шеф-поваров, кондитеров, кулинарных блогеров; практическая информация о продуктах, которые используются в рецептах, а также о приправах, гарнирах и напитках, которые с ними идеально сочетаются. Мастер-классы сопровождаются (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700ED6A52BD629D4E8EEF90C61B44906D901590A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341299   (262590) от 27.11.2019
+
+Р. Майзингер | История банкнот: тайны бумажных денег (2010) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекционирование банкнот, или бонистику, можно смело назвать массовым увлечением. Ему отдают свое свободное время и душу миллионы людей на планете. И если представить, сколько усилий и средств вкладывается коллекционерами-любителями и профессионалами в это интереснейшее хобби, то станет очевидным, что в банкнотах заключен огромный научно-познавательный потенциал. (   Читать дальше...   )Жанр: БонистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF314454407CF9DBEB99D8B887788FF59814752B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341186   (262589) от 27.11.2019
+
+Debian GNU/Linux 10.2.0 + nonfree Buster [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опубликовано второе корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 67 обновлений с устранением проблем со стабильностью и 49 обновлений с устранением уязвимостей.
+
+Из изменений в Debian 10.2 можно отметить обновление до свежих стабильных версий пакетов flatpak, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F538B4A9509D39B0671A993D8983E7A89A99ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341196   (262588) от 27.11.2019
+
+VA - 100 Greatest Best Songs Ever (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262588.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Prince & The Revolution - Purple Rain 8:41
+002. Clean Bandit feat. Sean Paul & Anne-Marie - Rockabye 4:10
+003. Mark Morrison - Return Of The Mack 3:31
+004. Coldplay - Yellow 4:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5F84E29502D37B03F3D100E4D871A654F13669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341258   (262587) от 27.11.2019
+
+Живая вода (2019) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тренер по фигурному катанию Ольга, ссорится с мужем Александром, который, решив сделать сюрприз семейству, зовет их переехать из европейского городка на ферму в деревню. Он уезжает один и погибает при загадочных обстоятельствах. Ольга решает выяснить, действительно ли ее муж утонул в озере или это было преднамеренное убийство. Начиная новую жизнь на ферме, Ольга (   Читать дальше...   )Производство: Украина | «Украинская продакшн студия»Жанр: детектив, драмаРежиссер: Анастасия Походенко-МатешкоАктеры: Ольга Павловец, Виктор Логинов, Радмила Щёголева, Валентин Касьян, Максим Родионов, Нина Антонова, Мария Заныборщ, Борислав Борисенко, Анна ИвановаЯзык озвучки: русскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257F33743B890FF8AF66BC71DB41AA69331F5BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341327   (262586) от 27.11.2019
+
+Peter Green’s Fleetwood Mac - Live At The BBC (1967-71,1995) (2019) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Grey Mare (Green) – 2:52
+02. Sweet Home Chicago (Johnson) – 3:08
+03. Baby Please Set a Date (McCoy) – 2:58
+04. Blues with a Feeling (Jacobs) – 2:54(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4288CA9E6AE2A192D66F514387AD9E984CB35973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341252   (262585) от 27.11.2019
+
+Paul McCartney - Home Tonight / In A Hurry (2019) Single [FLAC|24/96|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home Tonight
+02. In A HurryЖанр: Classic RockПродолжительность: 07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4705F4CD7E10E76518489CF3C905C875D06AA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341200   (262584) от 27.11.2019
+
+Щегол / The Goldfinch (2019) WEB-DL [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262584.jpg" />
+</div>
+
+
+###  Подробнее
+
+История юного Теодора Деккера, потерявшего мать во время теракта в Метрополитен-музее. Чудом оставшись в живых после взрыва, Тео получает от умирающего старика редкую картину кисти Карела Фабрициуса и кольцо. С этого момента начинается его погружение в подпольный мир искусства.Производство: США / Amazon Studios, Color Force, Warner BrothersЖанр: ДрамаРежиссер: Джон КраулиАктеры: Энсел Элгорт, Оакс Фигли, Анайрин Барнард, Финн Вулфард, Сара Полсон, Люк Уилсон, Джеффри Райт, Николь Кидман, Уилла Фицджералд, Эшли КаммингсПеревод: Дублированный (iTunes)Субтитры: Russian (forced, full), Ukrainian (forced), English (full close caption)Продолжительность: 02:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7886DFCEC1C0743691CF7001ADCC4C95992C6E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341337   (262583) от 27.11.2019
+
+Wise Care 365 Pro DC 26.11.2019 5.4.4.540 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE3FD06ECAFDDE190EDA321A4AA862BD46C658E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341155   (262582) от 27.11.2019
+
+Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks] <Synthpop, Indie Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262582.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. La Verità (05:02)
-02. Luomo Nero (04:28)
-03. Canzone Contro La Paura (03:44)
-04. Lamezia Milano (03:53)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:35
+01. So Heavy I Fell Through the Earth (Art Mix) (06:08)
+02. Darkseid (ft. 潘PAN) (3:44)
+03. Delete Forever (03:57)
+04. Violence (ft. i_o) (03:40)(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 00:44:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4ACB198147C457E1AFB24F337D5B511C425599C
+magnet:?xt=urn:btih:476B759E690C53AED5E2372F8E3EA15ECE179B45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,310 +616,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193297   (262133) от 21.12.2017
+###  Публикация: 1341098   (262581) от 27.11.2019
 
-VA - Capriccio All’italiana: Italian Hit Parade Vol.22 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+The Sound Of Love - Enigmatic Love (2018) [MP3|320 Kbps] <New age, Enigmatic, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigmatic Love (04:17)
+02. Everything Ends (03:05)
+03. For you (04:33)
+04. Giorgia's temptation (vocal edit) (03:45)(   Читать дальше...   )Жанр: New age, Enigmatic, EthnicПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FB440BA006D1A0D151FA8B8EA4E2E1B29D3B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341271   (262580) от 27.11.2019
+
+Вовка в Тридевятом царстве (1965) WEB-DLRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил-был мальчик Вовка. И хотелось ему пожить так, чтобы ничего не делать. Вот однажды он попал в Тридевятое царство, где живет Золотая рыбка, которая все желания исполняет, и еще Двое из ларца, и много чудес разных. Да только оказалось, что Золотая рыбка без труда не ловится, а Двое из ларца все путают. И понял Вовка, что лучше всё делать самому.Производство: СССР, СоюзмультфильмЖанр: Рисованная анимация, Детский, МультфильмРежиссер: Борис СтепанцевСубтитры: отсутствуютПродолжительность: 00:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4D6297EDFE3422D889F4C5ADE490FA9DDB4B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341305   (262579) от 27.11.2019
+
+Ashampoo UnInstaller 9.00.00 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Al Bano & Romina Power  -  Il Ballo Del Qua Qua  2:50
-02.  Pupo  -  Vita Da Artista  3:19
-03.  Toto Cutugno  -  Solo Noi  4:07
-04.  Umberto Tozzi  -  Tu Piccolo  4:44(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:15
+Ashampoo UnInstaller 9 — это ваша подушка безопасности, которая поможет полностью и без остатков удалить программы. Вам решать, что будет уничтожено, а что останется на вашем компьютере! Программа тщательно контролирует каждую установку, чтобы полностью удалить все файлы устанавливаемой программы при необходимости в будущем. Даже неконтролируемые установки могут (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FBE19C4C8B4815332E7B3D826AEA34CBF8C7DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193338   (262132) от 21.12.2017
-
-VA - Capriccio All’italiana: Italian Hit Parade Vol.24 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tony Dallara  -  Come Prima  2:05
-02.  Schola Cantorum  -  Il Calendario  2:31
-03.  Pupo  -  La Vita E Molto Di Piu  3:15
-04.  Riccardo Fogli  -  Malinconia  4:01(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA5A56E4AC0F06439C86160EA3DA701214177CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193396   (262131) от 21.12.2017
-
-Журнал | Жилая среда №10 (142) (ноябрь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все об интерьерном дизайне: от международных выставок до реализованных проектов петербургских архитекторов. Средства реализации идей: товары, материалы, технологии.Жанр: Дизайн интерьеровФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498749DBF897C4418A8E67788A0232EF5683C23E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193466   (262130) от 21.12.2017
-
-Сергий Нилус | Святыня под спудом (2005) [FB2, EPUB, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ПравославиеФормат: FB2, EPUB, PDF (для Букридеров Amazon Kindle, Sony Reader и др.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10D52B4966D2DDFE85944DD52E27530D4F8BEA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193531   (262129) от 21.12.2017
-
-Beegie Adair & Friends - Christmas & Cocktails (2011) Green Hill Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Vocal Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beegie Adair - Let It Snow, Let It Snow, Let It Snow (2:57)
-02. Denis Solee - Winter Wonderland (3:58)
-03. Beegie Adair & Jaimee Paul - Jingle Bells/Jolly Old St. Nicholas (3:22)
-04. Lori Mechem (feat. Jack Jezzro) - White Christmas (4:04)(   Читать дальше...   )Жанр: Mainstream Jazz, Vocal Jazz, ChristmasПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B72F823BDCCF57BB43E73EB1A87AAC2363C003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193324   (262128) от 21.12.2017
-
-VA - Capriccio All’italiana: Italian Hit Parade Vol.23 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Al Bano & Romina Power  -  Libertа  4:21
-02.  Patrizio Puanne  -  You're My World (il Mio Mondo)  3:06
-03.  Bobby Solo  -  Zingara  2:43
-04.  Fausto Leali  -  Ci Sei Solo Tu (I've Been Loving You Too Long)  3:50(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D51E1F7EEE9797741ABF596E0D54ED740F0386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193304   (262127) от 21.12.2017
-
-Radiation Romeos - Radiation Romeos (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radiation Romeos
-02. Ocean Drive
-03. Bad Bad Company
-04. Mystic Mountain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F18DE7175418F436C92BC743B2FB7770CD3DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193457   (262126) от 21.12.2017
-
-VA - Capriccio All’italiana: Italian Hit Parade Vol.26 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Raffaella Carra'  -  A Far L'Amore Comincia Tu  2:42
-02.  Carmelo Pagano  -  L'Amore Se Ne Va  2:52
-03.  Umberto Tozzi  -  Notte Chiara  4:15
-04.  Gianni Morandi  -  Se Non Avessi Piu Di Te  2:55(   Читать дальше...   )Жанр: PopПродолжительность: 02:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644F8D2EF2ABFFE4711051AAE71EDB12BAD4C3C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193539   (262125) от 21.12.2017
-
-Журнал | Дарья. Биография №13 (декабрь 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
-Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11256D4E4073F5EA0CBB779F691EFF8B5FDB56D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193478   (262124) от 21.12.2017
-
-File Cabinet Pro 5.4.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262124.jpg" />
-</div>
-
-
-###  Подробнее
-
-File Cabinet Pro  - менеджер документов из строки меню
-Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. File Cabinet Pro является универсальным и очень простым в использовании приложением.
-
-Приложение File Cabinet Pro поставляется со встроенным текстовым редактором, вьювером изображений и PDF файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2017Разработчик: Writes for All Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6901A6C3E185194E4A3DF5A87BE6D0783A608D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193253   (262123) от 21.12.2017
-
-VA - Capriccio All’italiana: Italian Hit Parade Vol.21 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Al Bano & Romina Power  -  Che Angelo Sei (Amore Mio)  3:39
-02.  Tiziano Ferro  -  La Differenza Tra Me E Te  3:52
-03.  Sandro Giacobbe  -  Tu Non Cambiare Mai  4:06
-04.  Umberto Tozzi  -  Stella Stai  4:21(   Читать дальше...   )Жанр: PopПродолжительность: 02:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7A2C296B152F779135767AC4A6CAAAEE94AEAA
+magnet:?xt=urn:btih:06F70680AF92F22E030E8ECF467C4CA11914DE09
 ```
 
 https://mybot314.ru/tekegram_catalog/

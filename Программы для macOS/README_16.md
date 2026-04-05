@@ -1,3 +1,56 @@
+###  Публикация: 1487275   (1003858) от 04.08.2021
+
+MHT Viewer 3.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003858.jpg" />
+</div>
+
+
+###  Подробнее
+
+MHT Viewer - это простое приложение для просмотра / чтения документов MHT (MHTML / MIME HTML).Тип издания: macOS SoftwareРелиз состоялся: 15.11.2020Разработчик: Langui.netПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BDDED1AC8829C0A39ADCAA9914ACE84DCB2E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350266   (1003599) от 05.01.2020
+
+Ghostnote 2 v2.2.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghostnote — заметки, привязанные к файлам, папкам, программам и веб-сайтам
+Ghostnote — приложение для OS X, которое позволяет привязывать заметки к файлам, папкам, программам и веб-сайтам. Например, если заметка набирается в тот момент, когда на экране выделен определенный файл, то введенный текст будет появляться всегда, когда пользователь еще раз щелкнет на этот (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Thomas PetersenПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDEAB0F2C2C6688C1B94292D014663216CB4EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350322   (1003491) от 05.01.2020
 
 Typeface 2 v2.6.4 [En]
@@ -6,7 +59,7 @@ Typeface 2 v2.6.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003491.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ Enolsoft PDF Converter with OCR 6.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002508.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ Enolsoft PDF to Word with OCR 6.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002481.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ Enolsoft PDF Creator 4.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002470.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ Cheetah3D 7 v7.4.2 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002465.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ Divvy 1.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002436.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ ACD Systems Canvas Draw 6.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002427.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ BusyContacts 1.4.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002260.jpg" />
 </div>
 
 
@@ -226,7 +279,7 @@ Wimoweh 1.1.68 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002257.jpg" />
 </div>
 
 
@@ -252,7 +305,7 @@ vGuru - Video Player 1.6.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002178.jpg" />
 </div>
 
 
@@ -278,7 +331,7 @@ Adobe Zii 2020 5.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001907.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ MathWorks MATLAB R2019b 9.7.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001827.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ Colorful Folders - Easy to use and design folder 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001676.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ Data Recovery Essential Pro 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001649.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ ChronoSync 4.9.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001646.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ Hot Door CADtools v.12.1.1 and Control Plug-ins v1.7 ONLY for Adobe Illustrator 
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001540.jpg" />
 </div>
 
 
@@ -437,7 +490,7 @@ Paintstorm Studio 2.43 (build 120120) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001249.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ Adobe Zii 2020 - Universal Patcher v5.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000908.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ Omni Remover 3 v3.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000903.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ EverWeb 3 v3.1.7 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000891.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ Adobe Zii 2020 - Universal Patcher v5.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000853.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ Perian 1.2.3 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000106.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ Snapseed 1.2.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997678.jpg" />
 </div>
 
 
@@ -622,7 +675,7 @@ Alarm Clock Pro 9.5.2 [Eng]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996833.jpg" />
 </div>
 
 
@@ -635,63 +688,6 @@ Alarm Clock Pro 9.5.2 [Eng]
 -	может открыть файл или гиперссылку
 -	поддерживает запуск событий посредством AppleScript
 -	пингует (   Читать дальше...   )Название программы: Alarm Clock ProТип издания: Mac OS X SoftwareЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603777   (996650) от 16.01.2013
-
-iSonics 1.2.0 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996650.jpg" />
-</div>
-
-
-###  Подробнее
-
-iSonics позволяет выполнить лёгкую конвертацию аудиофайлов и CD-дисков во все популярные аудиоформаты - MP3, MP2, AAC, FLAC, ALAC, WMA, OGG Vorbis, AC3 и WAV.  Для кодеков - MP3, FLAC и AC3 используются расширенные опции настройки.
-Приложение работает с  мета-данными файлов, возможно их редактирование и автоматическая загрузка обложек музыкальных альбомов.
-Возможен импорт аудио с компакт-дисков с конвертацией в любой аудиоформат с включением загруженных из Интернета мета-данных
-Импортирует конвертированные аудиофайлы в iTunes
-Использует метаданные для создания структурированных имён каталогов и файловНазвание программы: iSonicsТип издания: Mac OS X SoftwareЯзык интерфейса: Multi, русского нет
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605291   (995712) от 19.01.2013
-
-Nik Software HDR Efex Pro 2.003 [Eng]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995712.jpg" />
-</div>
-
-
-###  Подробнее
-
-HDR Efex Pro 2 - вторая версия плагина HDR Efex Pro для Photoshop. Он служит отличным дополнением к стандартному набору средств для работы с HDR в графическом редакторе от Adobe. Также HDR Efex Pro может работать как дополнение к Lightroom или Aperture.
-С помощью данного модуля можно всего несколькими щелчками мыши превратить любительский снимок в произведение искусства. Эта программа позволяет создавать разнообразные художественные эффекты с использованием технологии HDR. Плагин дает возможность управлять цветопередачей изображения локально, настраивая процесс tone mapping отдельно, в разных точках фотографии.Название программы: Nik Software HDR Efex ProРелиз состоялся: сентябрь 2012Тип издания: MacOS X softwareЯзык интерфейса: Eng
 
 ## Скачать торент
 ```bash

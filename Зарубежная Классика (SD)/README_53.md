@@ -1,3 +1,56 @@
+###  Публикация: 800559   (632650) от 03.07.2014
+
+Жандарм на отдыхе / Le gendarme en balade (1970) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всему приходит конец. Начальство сочло наших героев слишком старыми и отправило их на заслуженный отдых. Это трагический момент в жизни такого мужественного офицера как сержант Крюшо. Запершись в роскошном замке своей жены, он предается унынию. Приезд бывшего начальника Жербера выводит его из спячки. Они собирают своих подчиненных, надевают любимую жандармскую форму (   Читать дальше...   )Производство: Франция, ИталияЖанр: КомедияРежиссер: Жан ЖироАктеры: Луи де Фюнес, Жан Лефевр, Ги Гроссо, Мишель Модо, Николь Вервиль, Франс Румилли, Ив Венсан, Кристиан Марен, Клод Жансак, Мишель Галабрю, Сара Франкетти, Уго ФангареджиПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDDAFE64B3FC356B6249B0B6820DD72362C3EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 218766   (632636) от 14.07.2010
+
+Большая прогулка / La grande vadrouille (1966) [H.264] HD-DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небо над Парижем, 1942 год. Английский бомбардировщик, выполняющий важное задание, подбит немцами. Летчики покидают горящую машину, договариваясь встретиться через некоторое время в турецкой бане. Один из них приземляется на крыше дома, где работает парижский маляр Огюстен Буве.
+Другой падает на крышу Гранд-Опера и прячется вместе с парашютом в апартаментах главного дирижера. А командир экипажа сэр Реджинальд «приводняется» в зоопарке - в пруду с тюленями. И как только англичане попадают в Париж, начинаются совершенно невероятные приключенияЖанр: комедия, военныйРежиссер: Жерар Ури / Gérard OuryВ ролях: Бурвиль (Augustin Bouvet), Луи де Фюнес (Stanislas LeFort), Клаудио Брук (Peter Cunningham), Андреа Паризи (Soeur Marie-Odile / Sister Marie-Odile), Колетт Броссе (Germaine), Майк Маршалл (Alan MacIntosh), Мари Марке (Mère Supérieure), Пьер Бертен (Le grand-père de Juliette - propriétaire du guignol), Бенно Штерценбах (Major Achbach), Мари Дюбуа (Juliette), Терри-Томас (Sir Reginald), Зигхардт Рупп (Lt. Stuermer)Перевод: Оригинальный, Профессиональный (советское дублирование чищенный), Профессиональный (многоголосый, закадровый), Профессиональный (советское дублирование)Формат: Matroska
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C0A3CBA45BA30604A72D031C20D660C82DA743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032683   (632165) от 14.07.2016
 
 Скарамуш / Scaramouche (1952) DVDRip [H.264]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632165.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631280.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630870.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630856.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630497.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630298.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629873.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629621.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629459.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629235.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629220.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628855.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628591.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628285.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627685.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627618.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627466.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627397.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627379.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626979.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626961.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626952.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626937.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626688.jpg" />
 </div>
 
 
@@ -624,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:064D8FDF8C3DE6C24E9A1CCEB5C8E3CACF0A0B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035721   (626381) от 17.07.2016
-
-Золотое путешествие Синдбада / The Golden Voyage of Sinbad (1973) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626381.jpg" />
-</div>
-
-
-###  Подробнее
-
-О подвигах знаменитого морехода и искателя приключений Востока Синдбада сложено немало легенд. Перед вами — самая удивительная и захватывающая из них. В ней Синдбад становится обладателем золотой пластинки, загадку которой он жаждет разгадать.На пути к цели герой и его команда встретит множество опасностей: шестирукую живую статую и одноглазого кентавра. Жестокие (   Читать дальше...   )Производство: СШАЖанр: Приключения, Фэнтези, СемейныйРежиссер: Гордон ХесслерАктеры: Джон Филлип Лоу, Кэролайн Манро, Том Бейкер, Дуглас Уилмер, Мартин Шоу, Курт Кристиан, Грегуар Аслан, Альдо Самбрелл, Такис Эммануель, Дэвид Гарфилд, Фердинандо Поджи, Роберт Ритти, Роберт ШоуПеревод: ДублированныйПродолжительность: 01:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33BC53353292D35626F1713B36D09E482ECC1293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228697   (626166) от 06.06.2018
-
-Долгое жаркое лето / The Long, Hot Summer (1958) BDRip [H.264] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ньюман стал звездой, сыграв чужака, мастера на все руки, взбудоражившего покой в семье патриарха-южанина, привыкшего к беспрекословному повиновению. Он решил задержаться в этом маленьком южном городке и жениться на дочери Уэллса.Производство: США / Jerry Wald ProductionsЖанр: ДрамаРежиссер: Мартин РиттАктеры: Пол Ньюман, Джоэнн Вудворд, Энтони Франчоза, Орсон Уэллс, Ли Ремик, Анджела Лэнсбери, Ричард Андерсон, Сара Маршалл, Мэйбл Альбертсон, Дж. Пэт О’МэллиПеревод: Профессиональный (многоголосый закадровый)Субтитры: Русские, английскиеПродолжительность: 01:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7363BFE3E990EA0EF48E55F9EDE67B18422CB4AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

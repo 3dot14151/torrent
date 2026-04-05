@@ -1,3 +1,60 @@
+###  Публикация: 603777   (996650) от 16.01.2013
+
+iSonics 1.2.0 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996650.jpg" />
+</div>
+
+
+###  Подробнее
+
+iSonics позволяет выполнить лёгкую конвертацию аудиофайлов и CD-дисков во все популярные аудиоформаты - MP3, MP2, AAC, FLAC, ALAC, WMA, OGG Vorbis, AC3 и WAV.  Для кодеков - MP3, FLAC и AC3 используются расширенные опции настройки.
+Приложение работает с  мета-данными файлов, возможно их редактирование и автоматическая загрузка обложек музыкальных альбомов.
+Возможен импорт аудио с компакт-дисков с конвертацией в любой аудиоформат с включением загруженных из Интернета мета-данных
+Импортирует конвертированные аудиофайлы в iTunes
+Использует метаданные для создания структурированных имён каталогов и файловНазвание программы: iSonicsТип издания: Mac OS X SoftwareЯзык интерфейса: Multi, русского нет
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605291   (995712) от 19.01.2013
+
+Nik Software HDR Efex Pro 2.003 [Eng]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995712.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDR Efex Pro 2 - вторая версия плагина HDR Efex Pro для Photoshop. Он служит отличным дополнением к стандартному набору средств для работы с HDR в графическом редакторе от Adobe. Также HDR Efex Pro может работать как дополнение к Lightroom или Aperture.
+С помощью данного модуля можно всего несколькими щелчками мыши превратить любительский снимок в произведение искусства. Эта программа позволяет создавать разнообразные художественные эффекты с использованием технологии HDR. Плагин дает возможность управлять цветопередачей изображения локально, настраивая процесс tone mapping отдельно, в разных точках фотографии.Название программы: Nik Software HDR Efex ProРелиз состоялся: сентябрь 2012Тип издания: MacOS X softwareЯзык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606955   (994635) от 22.01.2013
 
 Dynamic Photo HDR 5.2.0 [Eng]
@@ -6,7 +63,7 @@ Dynamic Photo HDR 5.2.0 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994635.jpg" />
 </div>
 
 
@@ -34,7 +91,7 @@ PreSonus Studio One Pro 2.5 [Eng]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993866.jpg" />
 </div>
 
 
@@ -60,7 +117,7 @@ Ortelius 2 v2.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993323.jpg" />
 </div>
 
 
@@ -86,7 +143,7 @@ ClearDisk 2.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993321.jpg" />
 </div>
 
 
@@ -115,7 +172,7 @@ Logicly 1.11.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993319.jpg" />
 </div>
 
 
@@ -144,7 +201,7 @@ iClock Pro 5.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993292.jpg" />
 </div>
 
 
@@ -170,7 +227,7 @@ iCash 7.8.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993290.jpg" />
 </div>
 
 
@@ -196,7 +253,7 @@ Adobe Photoshop Elements 2020 v18.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993109.jpg" />
 </div>
 
 
@@ -222,7 +279,7 @@ Adobe Premiere Elements 2020 v18.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993083.jpg" />
 </div>
 
 
@@ -248,7 +305,7 @@ Apple iWork - Pages 8.1, Numbers 6.0, Keynote 9.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992998.jpg" />
 </div>
 
 
@@ -274,7 +331,7 @@ Artpaper: new daily wallpapers 3.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991911.jpg" />
 </div>
 
 
@@ -300,7 +357,7 @@ Easy Translator 15.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991870.jpg" />
 </div>
 
 
@@ -328,7 +385,7 @@ EndNote X9 v9.3.2 (build 15235) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991748.jpg" />
 </div>
 
 
@@ -355,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991445.jpg" />
 </div>
 
 
@@ -385,7 +442,7 @@ Paintbrush 2.1.1 [ENG]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989962.jpg" />
 </div>
 
 
@@ -415,7 +472,7 @@ iSkysoft DVD Creator 6.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989943.jpg" />
 </div>
 
 
@@ -443,7 +500,7 @@ Duplicate File Remover PRO 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989733.jpg" />
 </div>
 
 
@@ -470,7 +527,7 @@ Chamonix 1.1 - CHM-viewer [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989136.jpg" />
 </div>
 
 
@@ -497,7 +554,7 @@ Better Blocker 2020.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989055.jpg" />
 </div>
 
 
@@ -524,7 +581,7 @@ Mac Screen Recorder 2.0.30 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989002.jpg" />
 </div>
 
 
@@ -550,7 +607,7 @@ BlueHarvest 7 v7.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988993.jpg" />
 </div>
 
 
@@ -578,7 +635,7 @@ Axure RP Pro 6.5.0.3048 [Eng]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987726.jpg" />
 </div>
 
 
@@ -604,7 +661,7 @@ Graphic 3.0.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987242.jpg" />
 </div>
 
 
@@ -633,7 +690,7 @@ JetBrains WebStorm 11.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987091.jpg" />
 </div>
 
 
@@ -644,60 +701,6 @@ JetBrains WebStorm  — мощный инструмент для разрабо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44A3259B4A9B54A6FCFF4C354D073F5F0444D470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354742   (986992) от 23.01.2020
-
-Luminar 3  v3.2.0 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
-
-Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и д.р.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39965091F8468DBC93D78B52C21E79FF9F64260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354792   (986822) от 23.01.2020
-
-JRiver Media Center 26 v26.0.18 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986822.jpg" />
-</div>
-
-
-###  Подробнее
-
-J.River Media Center - мощный мультимедийный центр, объединяющий в себе работу с музыкой, видео и фотографиями. Проигрывает большинство популярных аудио и видео форматов, включая MP3, аудио CD (поддерживает CDDB) и DVD, может преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты (убирая при этом помехи и шумы), а также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: JRiver, Inc.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBE0155EB36523309731CF2ADECD9A4FE059068
 ```
 
 https://mybot314.ru/tekegram_catalog/

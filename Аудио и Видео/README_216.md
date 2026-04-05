@@ -6,7 +6,7 @@
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303917.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303123.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303100.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303091.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303056.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302734.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Iron Angel - Emerald Eyes (2020) [AAC|~345 Kbps] <Speed Metal, Thrash>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302622.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - Purple Sky Lounge: Chillout Your Mind (2020) [AAC|~334 Kbps] <Downtempo, Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302621.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - My Garden Lounge: Chillout Your Mind (2020) [AAC|~336 Kbps] <Downtempo, Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302620.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - On the Beach Lounge: Chillout Your Mind (2020) [AAC|~332 Kbps] <Downtempo, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302616.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Trip to Paris Lounge: Chillout Your Mind (2020) [AAC|~320 Kbps] <Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302615.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Sweet & Tender Lounge: Chillout Your Mind (2020) [AAC|~309 Kbps] <Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302614.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Happy Moments Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302613.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Black Coffee Lounge: Chillout Your Mind (2020) [AAC|~326 Kbps] <Downtempo, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302414.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302200.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ VA - Midnight Flight Lounge: Chillout Your Mind (2020) [AAC|~322 Kbps] <Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302194.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302081.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301897.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301884.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301092.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301088.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301033.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301024.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300840.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300564.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Brian Eno - Film Music 1976 ~ 2020 (2020) [AAC|~299 Kbps] <Score, Alternative, E
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300245.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1065297   (419549) от 23.10.2016
+
+VA - Power Of Silence, Vol. 1 (Relaxing & Powerful Chill Out Tunes) (2016) [MP3|320 Kbps] <Dance, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Egor Grushin - Summer
+02. Peter Pearson - I Can Hear The Summer
+03. Mich Gerber - Harmatan
+04. Luis Hermandez - Summer In The City(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A93ADA1018EF5D638DAED7816250A5AE835848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065467   (419543) от 23.10.2016
+
+VA - I Love Lounge Music Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicola Giunta - Arp Noir
+02. Ordinary People - Perturbation
+03. DJ Tabu - Song for Malala
+04. Katia B - Are You Sleeping?(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5458066D06466C9949BE2567F3BE8A50C0ADA416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065462   (419393) от 23.10.2016
+
+VA - Moments Of House Music Vol.5 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benix - Kaneohe - Original Mix
+02. Silvestre M. - In My Head - Original Mix
+03. Andrez - In Your Afterglow - Matter Remix
+04. SummerMarian - Volcano - Ri Za Remix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B92DD1DC0C1E725B1D1AB9DB08E7D00DBCDD51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065625   (419343) от 23.10.2016
+
+VA - Unfinished Business Vol. 4 (Compiled & Mixed by Luke Solomon) (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Electronica>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419343.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Luke Solomon - Unfinished Business Vol 4 (continuous mix Pt 1) (01:11:01)
+2. Luke Solomon - Unfinished Business Vol 4 (continuous mix Pt 2) (01:17:51)
+3. Honey Dijon - Houze (feat Seven Davis Jr - Deetron extended remix) (07:59)
+4. Eli Escobar - Chaka Khan (05:30)(   Читать дальше...   )Жанр: House, ElectronicaПродолжительность: 06:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574A4AA0848C4E65A482BC0AE9E33AC0D991947E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065303   (419338) от 23.10.2016
 
 VA - Ministry Of Sound - Chilled House Winter (unmixed tracks) (2016) [MP3|320 Kbps] <House>
@@ -6,7 +122,7 @@ VA - Ministry Of Sound - Chilled House Winter (unmixed tracks) (2016) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419338.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ JODA - JODA (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, House, New Wave, Ind
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419333.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ ATB - Live @ Amsterdam Dance Event (2016) [MP3|256 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418930.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Sonique - Hear My Cry (2000) [FLAC|Lossless]<Trance, Euro House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418845.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ Cosmo & Tom - Rich in Paradise 'Going Back To My Roots' (1998) Maxi-Single [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418033.jpg" />
 </div>
 
 
@@ -157,7 +273,7 @@ Mosquito Headz - El Ritmo (1998) Maxi-Single, Promo [MP3|320 Kbps] <Trance, Hard
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417937.jpg" />
 </div>
 
 
@@ -186,7 +302,7 @@ VA - Technoszene Funf (2018) Raumangst Rec [FLAC|Lossless|WEB-DL|tracks] <Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417936.jpg" />
 </div>
 
 
@@ -214,7 +330,7 @@ VA - Ori Uplift & W!SS - Uplifting Only 294 (2018) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417855.jpg" />
 </div>
 
 
@@ -243,7 +359,7 @@ VA - Future Sound Of Egypt 550 - A World Beyond (Mixed by Aly & Fila & John 00 F
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417853.jpg" />
 </div>
 
 
@@ -272,7 +388,7 @@ VA - Mega Power Lifting 70S Hits Workout Compilation (2018) [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417847.jpg" />
 </div>
 
 
@@ -301,7 +417,7 @@ Yello - Point (2020) [FLAC|24/48|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417829.jpg" />
 </div>
 
 
@@ -330,7 +446,7 @@ VA - Future Sound Of Egypt 550 - A World Beyond (Mixed by Aly & Fila & John 00 F
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417767.jpg" />
 </div>
 
 
@@ -359,7 +475,7 @@ Nomenklatür (Nomenklatur) - Discography 13 Releases (2005-2018) [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417760.jpg" />
 </div>
 
 
@@ -388,7 +504,7 @@ Faithless - 2.0 (Remixes & Hits) (2015) 2CD [FLAC|image+.cue]<House, Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417739.jpg" />
 </div>
 
 
@@ -417,7 +533,7 @@ VA - Soulful House (Twisted Remixes & Disco Sounds) (2012) [MP3|320 кб/с]<Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417242.jpg" />
 </div>
 
 
@@ -452,7 +568,7 @@ VA - Chill Lounge del Mar Vol.4: Ibiza Beach Chilled Out Sessions (Mixed by Matt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417053.jpg" />
 </div>
 
 
@@ -481,7 +597,7 @@ Quivver - Response (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417047.jpg" />
 </div>
 
 
@@ -509,7 +625,7 @@ Armin Van Buuren - Embrace Remix EP #2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416803.jpg" />
 </div>
 
 
@@ -538,7 +654,7 @@ Armin Van Buuren - Embrace Remix EP #1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416488.jpg" />
 </div>
 
 
@@ -567,7 +683,7 @@ Aleksey Litunov - 25 Ultra Uplifting Trance (2020) [MP3|320 Kbps] <Trance, Uplif
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416182.jpg" />
 </div>
 
 
@@ -596,7 +712,7 @@ The Bhaktas - Modified (2016) Altar Records [FLAC|Lossless|WEB-DL|24Bit|tracks] 
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416175.jpg" />
 </div>
 
 
@@ -625,7 +741,7 @@ VA - Chillin' In Venice (Autumn Holiday 2015 Sampler) (2015) [MP3|320 кб/с]<D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416137.jpg" />
 </div>
 
 
@@ -639,119 +755,6 @@ VA - Chillin' In Venice (Autumn Holiday 2015 Sampler) (2015) [MP3|320 кб/с]<D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC19BD3123AB9F10D6E74854A45446B079BD3335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710508   (415933) от 14.10.2013
-
-Avicii - True (2013) [FLAC|Lossless|tracks + .cue]<House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wake Me Up   (4:07)
-02.  You Make Me   (3:53)
-03.  Hey Brother   (4:15)
-04.  Addicted To You   (2:28)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A9868FF8A214EA264F02A195993747E4D583E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947970   (415728) от 18.10.2015
-
-VA - 50 Vocal Trance Hits (2015) [MP3|320 кб/с]<Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UCast & Susana - To Another Day (Radio Edit) (03:57)
-02. Beat Service & Ana Criado - An Autumn Tale (Kaimo K Radio Edit) (04:20)
-03. ReOrder & Katty Heath - Love Again (Radio Edit) (03:44)
-04. Dan Chase & Cynthia Hall - Life Won't Let Us Fall (Radio Edit) (04:27)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17DCCBB7FDF7775AAAB728A118810DED8ACD597D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251643   (415604) от 02.10.2018
-
-VA - Only Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Liquide - New Dawn (Radio Mix)
-02. Fischer & Miethig - Rush Night 2014 (Mindsoundscapes Radio Cut)
-03. Aural Project - Fine Tune (Radio Cut)
-04. Boki & Met - Midnight Sun (Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D41A1472DDA5B37CB8CCBBFA6A66D0F313AE2E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753281   (415380) от 30.09.2020
-
-Tom Day - Discography 38 releases (2011-2020) [FLAC|Lossless|WEB-DL]<Ambient, Modern Classical, Downtempo, House, Broken Beat>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southerly (04:45)Жанр: Ambient, Modern Classical, Downtempo, House, Broken Beat •Продолжительность: 10:13:21 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8976C4D106D4F0A935C8D7500D93F72F962F941
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1120699   (696359) от 11.05.2017
+
+Пора Приключений (Время Приключений) / Adventure Time (2010-2012) BDRip [H.264/1080p] (Сезон: 1-3, Серии: 1-39 из 39) [EN, RU Sub] [Обновляемая]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пора Приключений - американский анимационный сериал, созданный Пендлтоном Вордом. Сериал повествует о необыкновенных и весёлых приключениях двух лучших друзей: мальчика Финна и его собаки Джейка. Действие сериала происходит в волшебной стране Ууу. Финн - 13-летний мальчик, который обожает путешествовать и спасать принцесс из лап ужасных монстров и злодеев, населяющих (   Читать дальше...   )Жанр: Рисованная анимация, Приключения, КомедияРежиссер: Ларри ЛэйчлитерПерсонажи: Jeremy Shada - Finn the Human, John DiMaggio - Jake the Dog, Hynden Walch - Princess Bubblegum, Niki Yang - Lady Rainicorn, Tom Kenny - The Ice King, Olivia Olson - Marceline the Vampire QueenПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (отдельным файлом), перевод Павел Самойлов aka TanisПродолжительность: ~00:22:00 х Серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC217B44C1443217E0EF590944A21D82C6104FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533497   (695516) от 01.03.2022
+
+Южный Парк / South Park Uncensored (2021) WEBRip [H.264/1080p] (Сезон 24, Серии 1-4 из 4) Paramount
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Южный Парк / South Park — американский мультсериал, созданный Мэттом Стоуном и Треем Паркером. Иногда название переводится также как «Саут-Парк» или «Саус-Парк». Выпускается кабельным телеканалом Comedy Central с 1997 года. Основу сюжета составляют приключения четырёх мальчиков и их друзей, живущих в маленьком городке Саут-Парк, штат Колорадо. Сериал высмеивает недостатки (   Читать дальше...   )Производство: США, Braniff, Comedy Central, Comedy PartnersЖанр: Комедия, Рисованная анимация, Для взрослыхРежиссер: Трей Паркер, Эрик Сточ, Мэтт СтоунПеревод: Дублированный (Paramount)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BC2C3ACA211E926C9C797E943B0098058AF4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 795670   (689771) от 12.06.2014
 
 Школа вампиров / Die schule der kleinen vampire (2006-2008) WEB-DLRip (Сезон 01-03, Серии 01-78 из 78)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689771.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686026.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683332.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681939.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681787.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679199.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679189.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677785.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675949.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_674603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_674603.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674459.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674307.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674069.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673739.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673387.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672023.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671960.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671918.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671914.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671907.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671883.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671243.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671124.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670622.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:309AF2B61961D19F931D89DA1078AAC8094B45EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115428   (670520) от 24.05.2017
-
-Самурай Джек / Samurai Jack (2017) WEB-DL [H.264/720p] (Сезон 5, серии 1-10 из 10)
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670520.jpg" />
-</div>
-
-
-###  Подробнее
-
-История самурая продолжается. И она еще далека от завершения. Коварный злой колдун по имени Аку отправил мужественного воина из древних времен в далекое будущее. Ему тяжело в этом мире, но приходится адаптироваться и учиться выживать. И благодаря своему внутреннему моральному кодексу он становится храбрым героем. Тем более, что только ему одному и под силу защитить (   Читать дальше...   )Производство: СШАЖанр: Приключения, Фантастика, ТриллерРежиссер: Генндий ТартаковскийПерсонажи: Самурай Джек, Аку и др.Перевод: Многоголосый закадровый, любительскийОзвучка: Студия Drunk Tank, NewComers, Saint-Sound TVСубтитры: Русские, АнглийскиеПродолжительность: 10x 00:22:30Реклама: Нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859544CD9830E2DDB426EE0D82D28D1952271448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115423   (670427) от 24.05.2017
-
-Самурай Джек / Samurai Jack (2017) WEB-DL [H.264/1080p-LQ] (Сезон 5, серии 1-10 из 10)
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670427.jpg" />
-</div>
-
-
-###  Подробнее
-
-История самурая продолжается. И она еще далека от завершения. Коварный злой колдун по имени Аку отправил мужественного воина из древних времен в далекое будущее. Ему тяжело в этом мире, но приходится адаптироваться и учиться выживать. И благодаря своему внутреннему моральному кодексу он становится храбрым героем. Тем более, что только ему одному и под силу защитить (   Читать дальше...   )Производство: СШАЖанр: Приключения, Фантастика, ТриллерРежиссер: Генндий ТартаковскийПерсонажи: Самурай Джек, Аку и др.Перевод: Многоголосый закадровый, любительскийОзвучка: Студия Drunk Tank, NewComers, Saint-Sound TVСубтитры: Русские, АнглийскиеПродолжительность: 10x 00:22:30Реклама: Нет
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C51104A4385FE8EE9423E9D771FF41A55E47E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

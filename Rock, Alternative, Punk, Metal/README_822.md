@@ -1,3 +1,32 @@
+###  Публикация: 1624063   (242978) от 04.04.2023
+
+Uburen - And the Mountains Weep (2019) [FLAC|Lossless|WEB-DL|tracks] <Black, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Oskoreia (04:17)
+02 - Remembrance (05:20)
+03 - Entrance to Valhalla (04:12)
+04 - Fimbul (05:04)(   Читать дальше...   )Жанр: Black, Viking MetalПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5607CD8211D244B4639AC4073C1A323ABD926F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614708   (242972) от 23.02.2023
 
 Dawn Of Destiny - Of Silence (2022) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +35,7 @@ Dawn Of Destiny - Of Silence (2022) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242972.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dosser - Violent Picture / Violent Sound (2023) [MP3|320 Kbps] <Alternative, Pos
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242964.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242954.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bone Knife - Death Looks Good On You (2023) [FLAC|Lossless|WEB-DL|tracks] <Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242946.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Ad Infinitum - Chapter III: Downfall (2023) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242942.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Faithxtractor - Contempt for a Failed Dimension (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242939.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Hollenthon - Domus Mundi (1999) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242936.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Winter In Eden - Court of Conscience (2014) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242933.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Life's Addiction - Inner Shade (1997) [MP3|320 Kbps] <Alternative Rock, Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242931.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Uburen - Usurp the Throne (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Viking Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242923.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Merlock - Onward Strides Colossus (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242920.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Thengill - Katla (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242915.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242910.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Hvstle Hype - Лето V (2022) [MP3|320 Kbps] <Nu-Metal, Modern Metal, Metalcor
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242908.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Dawn of Solace - Waves (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242906.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Cosmic Debris - Cosmic Debris (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242887.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Cry Of Dawn - Anthropocene (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242858.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Self Deception - You Are Only As Sick As Your Secrets (2023) [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242851.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242850.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The Used - Toxic Positivity (2023) [MP3|320 Kbps] <Alternative Rock, Post-Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242839.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Andy Qunta - Legend In A Loungeroom (2021) 2xCD [FLAC|Lossless|image + .cue] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242837.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Sweet And Lynch - Heart & Sacrifice (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242833.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Dиверсант - Ненависть и отчаяние (2022) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242831.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Celtic Hills - Huldufolk (2022) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242824.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242821.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E550EEA818DA31410F2541DCF596BB9B1FBC4DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634156   (242814) от 19.05.2023
-
-Neal Schon - Journey Through Time (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Leave You (8:10)
-02. Look into the Future (8:35)
-03. Kohoutek (7:50)
-04. Daydream (5:44)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 02:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F89F20E8C03DC577836A214B3677381729A5ED7
 ```
 
 https://mybot314.ru/tekegram_catalog/

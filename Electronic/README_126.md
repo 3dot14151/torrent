@@ -1,3 +1,61 @@
+###  Публикация: 1189452   (800294) от 17.01.2018
+
+Culprate - Unity Project, Pt. 1, 2, 3 (2017-2018) Open Outlets [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Experimental, Drum & Bass>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Culprate & Quok - Aqueous (04:20)
+ 02. Culprate, Keota & Sophie Meiers - Mechanic Heartbeat (03:30)
+ 03. Culprate & Protostar - Duality (04:35)
+ 04. Culprate & Bloom - Aurora (03:59)(   Читать дальше...   )Тип издания: WEB •Жанр: Downtempo/Dubstep/ExperimentalПродолжительность: 00:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6FA0650C2F3CAEC2DF35783C6219D687F4EC47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282114   (799989) от 23.05.2020
+
+Tesla Boy - Collection 6 Releases (2010-2020) [FLAC|Lossless|tracks + .cue, tracks] <Synthpop, New Wave, House>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eintrag (0:18)
+02. Абьюзер (4:09)
+03. Музыка моя (4:45)
+04. Почаще (5:10)(   Читать дальше...   )Жанр: Synthpop, New Wave, House |Продолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AA970DD8B430AFCC325ADCDCADD9CA45064DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273644   (799894) от 02.01.2019
 
 VA - Suanda Music Year Mix 2018 (Mixed by Roman Messer) (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Dance>
@@ -6,7 +64,7 @@ VA - Suanda Music Year Mix 2018 (Mixed by Roman Messer) (2018) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799894.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Cafe del Mar - Cafe del Mar Dreams X (2018) [MP3|320 Kbps] <Lounge, Chill Out>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799780.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - We Chill Series: Top Tracks of 100 % Relaxing Cafe / Bar / Lounge / Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799778.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Paul Kalkbrenner - Parts of Life (2018) [FLAC|Lossless|tracks + .cue] <Electroni
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799776.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ ScAnDroid Experiment's - Rhythms of Nature (2019) Авторская разда�
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799766.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Vinyl Lounge Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799680.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Soft Chill House Beach Lounge Vol.2 (2017) [MP3|320 Kbps] <Chillhouse, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799677.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Dark Room Erotica Jazz Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799671.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Spring Workout Music 40 Dance Hits & 1 Megamix (2017) [MP3|320 Kbps] <Funky
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799654.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Goodbye 2018 - The Selection Of The Year (2018) [MP3|320 Kbps] <Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799447.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Cholosus - Way Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799409.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - The Best Of Suanda Base 2018: Mixed by Michael Milov (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799404.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Psychedelic Goa Trance 2019: Best of Top 40 Electronic Dance Acid Techno Ha
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799346.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Relaxing Beach Chillout Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799260.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Trance Spring Essentials (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799259.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Chillout Summer Session Ibiza Lounge (2017) [MP3|320 Kbps] <Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799252.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Sexy Deep House (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799251.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Chillout April 2017 (Top 10 Best Of Collections) (2017) [MP3|320 Kbps] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799248.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Chill Pilates Music: 15 Cool Chill Out Tracks for Pilates and Yoga (2017) [
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799245.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Chillout April 2017  (Top 10 Spring Relaxing Chill Out and Lounge Music) [M
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799239.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Level Lounge (The Best Selection Of Vip Chill Music) (2017) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799237.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Sexy Deep House Tunes Vol.4 (Fantastic Groovy & Melodic Deep House) (2017) 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799231.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Matt Bukovski - Live @ Pacha Poznań, Poland (2021-10-23) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799167.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Maurice West - Live @ Stedelijk Museum (ADE) (2021-10-15) [MP3|320 Kbps] <House,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799163.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Maurice West - Live @ Stedelijk Museum (ADE) (2021-10-15) [MP3|320 Kbps] <House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88E88F7E142754AEAAC79220BC31432ECCBB0E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506270   (799132) от 02.11.2021
-
-Tiësto - Musical Freedom Radio October (2021-10-16) [MP3|320 Kbps] <Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto & Karol G - Don't Be Shy
-02. Kiko Franco & Bruno Be - Friday Night (It's Not Right)
-03. Mr. Belt & Wezol ft. Yasmin Jane - Broken Moonlight
-04. KREAM & Millean. ft. Bemende - What You've Done To Me(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FEBD48A557495DA48C3DF79955608130343C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506967   (799101) от 02.11.2021
-
-VA - A Day to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Apres Sun (Original Mix) (4:06)
-02. Chris le Blanc - Melville Sings the Blues (Album Mix) (3:34)
-03. Living Room - A Cup of Jazz (Original Mix) (3:42)
-04. Pier-O - Cocktail Tune (4:46)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7655D6EBA24E057F8F188AA17E29E9C13FA942DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

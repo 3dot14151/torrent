@@ -1,3 +1,214 @@
+###  Публикация: 1756959   (39255) от 26.10.2024
+
+Российских разработчиков Linux лишили руководящих статусов
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грег Кроа-Хартман (Greg Kroah-Hartman), отвечающий за поддержку стабильной ветки ядра Linux, внёс изменение в список мэйнейнеров подсистем ядра Linux, в результате которого были удалены 11 сопровождающих, предположительно работающих в российских компаниях. В качестве причины удаления упомянуто лишь "выполнение различных требований комплаенса" (various compliance (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757156   (39247) от 26.10.2024
+
+Windows 11 20in1 24H2 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2024.10.25 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39247.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 редакций Windows 11 (русские и английские) с обновлениями по октябрь 2024, основанных на оригинальном русском дистрибутиве и интегрированными системными библиотеками
++5 таких же редакций со встроенным MS Office LTSC 2024 Pro Plus (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED7ED7C06DA06EE6794C89567149402C8D44D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558024   (39246) от 26.10.2024
+
+Старик / The Old Man (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-7 из 7) LostFilm, HDRezka
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн Чейз (Джефф Бриджес) — вдовец из Вермонта, который живет с двумя ротвейлерами в тихом уединении и время от времени общается по телефону со своей дочерью. Когда в его доме появляется ватага киллеров, становится очевидно, что Дэн — больше, чем обычный пенсионер с регулярными визитами к врачу и нерегулярным сном. Оказывается, в 1980-х он был оперативником ЦРУ в (   Читать дальше...   )Производство: США / 20th Television, Fox 21 Television Studios, Fresh Bacon Media, Littlefield Company, The Littlefield Co.Жанр: боевик, триллер, драмаРежиссер: Джон Уоттс, Джет Уилкинсон, Зетна ФуэнтесАктеры: Джефф Бриджес, Педж Вахдат, Джон Литгоу, Нур Разуки, Э.Дж. Бонилья, Алиа Шокат, Гбенга Акиннагбе, Билл Хек, Фаран Таир, Этан РэйнсПеревод: Профессиональный многоголосый (LostFilm, HDRezka)Язык озвучки: Русский, английскийСубтитры: русские (forced, Full), английские (Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF5CDA6A9C21061E533366ACCBB8208E9E5C3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444823   (39245) от 26.10.2024
+
+Все мои друзья мертвы / Wszyscy moi przyjaciele nie zyja (2020) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедия в стиле "Американского пирога" повествует об улётной вечеринке польских студентов, которая кончается загадочной гибелью практически всех участников. Детективам, прибывшим на место преступления на следующий день, предстоит изучить кровавые следы прошлой ночи и по крупицам распутать цепь событий, приведших к кровавой трагедии.Производство: Польша / Aurum FilmЖанр: Драма, комедия, криминалРежиссер: Ян БельцлАктеры: Михал Мейер, Адам Воронович, Юлия Венява-Наркевич, Адам Турчик, Никодем Розбицкий, Моника Кшивковская, Шимон Рошак, Михал Сикорский, Адам Бобик, Матеуш Венцлавек, Яссин ФадельПеревод: Дублированный (Netflix)Субтитры: Русские (Forced,full), английские (Full)Продолжительность: 01:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E698A0EE1A0088C3A2D45102838FB102DFA708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756978   (39237) от 26.10.2024
+
+Образец авиадвигателя — демонстратора ПД-35 прошел первый этап испытаний
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опытный образец авиадвигателя — демонстратора технологий ПД-35 успешно завершил первый этап испытаний. Об этом сообщили ТАСС в одном из предприятий, участвующих в разработке двигателя.«Двигатель показал устойчивую работу в соответствии с заданными параметрами и готовится к следующим этапам испытаний», — отметили в предприятии.Разработка двигателя ПД-35 началась летом (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757041   (39154) от 27.10.2024
+
+Роскомнадзор усиливает борьбу с VPN, а чиновники тратят бюджет на платный VPN
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39154.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России уже заблокировано 197 VPN-сервисов Роскомнадзором.  Блокировка VPN-сервисов является приоритетным направлением для ведомства.На этом фоне, весьма необычно выглядит интерес госорганов к закупке VPN-сервисов. Неужели чиновники хотят пользоваться большей свободой, чем большинство обычных граждан?С начала 2024 года государственные структуры резко увеличили свои (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756458   (39146) от 27.10.2024
+
+Одинокие волки / Wolfs (2024) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окружной прокурор Маргарет оказывается в весьма щекотливой ситуации: она находится в номере элитного отеля, одежда в крови, в спальне труп молодого человека, с которым она познакомилась нынешним вечером. Судорожно перебирая номера в телефонной книжке, Маргарет находит контакт человека, который «решает проблемы». Вскоре появляется профессиональный чистильщик, который (   Читать дальше...   )Производство: Великобритания, США / Apple Studios, Plan B Entertainment, Smoke HouseЖанр: комедия, криминал, боевикРежиссер: Джон УоттсАктеры: Джордж Клуни, Брэд Питт, Остин Абрамс, Эми Райан, Пурна Джаганнатхан, Златко Бурич, Владимир Сизов, Donut McGunigle, Sergio Cota Jr., Alfred ChouПеревод: Дублированный, многоголосый, двуголосый, авторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45A5B91D3424A962745AD543B92D7E857824B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757061   (39143) от 27.10.2024
+
+Launcher for zapret 1.3 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для быстрого запуска утилиты zapret (аналог GoodbyeDPI) для ускорения YouTube, Discord etc. Программа предназначена для удобного запуска утилиты zapret, которая разблокирует ютуб, дискорд и еще кучу всего.
+Утилита zapret более сложный и многофункциональный аналог программы GoodbyeDPI.
+На данный момент пробивает замедление ютуба намного эффективнее, чем (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C31610D64954E3B41D5E7D38E225C6487C1D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747255   (39142) от 27.10.2024
 
 Комбинация (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
@@ -6,7 +217,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39142.jpg" />
 </div>
 
 
@@ -32,7 +243,7 @@ Windows 11 24H2 + LTSC (x64) 28in1 +/- Office 2024 by Eagle123 (10.2024) [Ru/En]
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39141.jpg" />
 </div>
 
 
@@ -58,7 +269,7 @@ Windows 10 Pro 22H2 19045.5011 x64 by SanLex [Lightweight] [Ru/En] (2024.10.23)
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39140.jpg" />
 </div>
 
 
@@ -86,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39052.jpg" />
 </div>
 
 
@@ -113,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39047.jpg" />
 </div>
 
 
@@ -140,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39042.jpg" />
 </div>
 
 
@@ -166,7 +377,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2033 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39038.jpg" />
 </div>
 
 
@@ -195,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39035.jpg" />
 </div>
 
 
@@ -221,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38962.jpg" />
 </div>
 
 
@@ -247,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38950.jpg" />
 </div>
 
 
@@ -273,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38881.jpg" />
 </div>
 
 
@@ -300,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38876.jpg" />
 </div>
 
 
@@ -326,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38768.jpg" />
 </div>
 
 
@@ -352,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38765.jpg" />
 </div>
 
 
@@ -378,7 +589,7 @@ Windows 10 PRO 22H2 19045.3324 (х64) remaked as Windows 7/Windows Vista by wind
 >>16
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38763.jpg" />
 </div>
 
 
@@ -404,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38762.jpg" />
 </div>
 
 
@@ -430,7 +641,7 @@ Volkswagen планирует закрыть треть своих заводо�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38744.jpg" />
 </div>
 
 
@@ -457,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38674.jpg" />
 </div>
 
 
@@ -468,218 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757938   (38666) от 01.11.2024
-
-Лучшие фильмы ужасов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы ужасов
-Жанр ужасов один из классических в кинематографе. Он появился на заре его становления вместе с комедиями и его сразу оценили любители пощекотать себе нервы. С тех пор на смену актерам в костюмах монстров и чудовищ пришли спецэффекты и компьютерная графика, которую легко спутать с реальностью и зрители готовы платить за билет в кинотеатр, чтобы получить (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757629   (38539) от 02.11.2024
-
-ООН: Из-за трансгендеров женщины лишились 890 медалей в 29 различных видах спорта
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщины-спортсменки уступили почти 900 медалей своим соперницам-трансгендерам, соревнующимся с ними в женских спортивных категориях, говорится в шокирующем докладе Организации Объединенных Наций.В исследовании под названием «Насилие в отношении женщин и девочек в спорте» говорится, что более 600 спортсменок потерпели поражение на различных соревнованиях от соперниц, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758457   (38468) от 03.11.2024
-
-Конец эпохи: NVIDIA заменит Intel в индексе Dow Jones
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Intel была одной из двух технологических акций (вторая была Microsoft), которые присоединились к Dow Jones Industrial Average во время пузыря доткомов 90-х. Однако хроническая неэффективность имеет последствия. Производителя микросхем Nvidia с 8 ноября включат в индекс Уолл-стрит Dow Jones Industrial Average заменив компанию Intel.Акции Nvidia в 2024 году выросли (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756791   (38450) от 03.11.2024
-
-Наследники. Дар крови (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-12 из 12)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38450.jpg" />
-</div>
-
-
-###  Подробнее
-
-После нападения на хранилище артефактов дочь могущественного мага Надя исчезает. Её муж Роман уверен, что супруга погибла, поэтому сам воспитывает дочек и сына. Спустя время дети открывают в себе сверхъестественные силы, что не нравится магам, особенно сестре Нади — оперативнице из Отдела магической безопасности Вере. Жёсткая и бескомпромиссная девушка и её правая (   Читать дальше...   )Производство: Россия / Pick Up FilmsЖанр: фэнтезиРежиссер: Антон Федотов, Александр БабаевАктеры: Маша Кошина, Артем Кошман, Полина Айнутдинова, Екатерина Вилкова, Оксана Акиньшина, Елена Подкаминская, Антон Васильев, Дмитрий Чеботарёв, Кристина Корбут, Антон КузнецовСубтитры: отсутствуютПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BA25F4600524A5D0575CB1B52B0284D23D7597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758397   (38449) от 03.11.2024
-
-Апокалипсис Z: Начало конца / Apocalypse Z: El principio del fin / Apocalypse Z: The Beginning of the End (2024) WEB-DL [H.264/1080p] [DVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38449.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Апокалипсис Z: Начало конца» — это захватывающий постапокалиптический триллер, основанный на романе Мануэля Лурейро. Действие фильма разворачивается в наши дни, когда мир внезапно охвачен смертельной эпидемией, превращающей людей в зомби. В центре сюжета — адвокат из небольшого испанского города, который неожиданно оказывается одним из немногих выживших.Производство: Испания / Nostromo PicturesЖанр: боевик, ужасы, фантастика, триллерРежиссер: Карлес ТорренсАктеры: Берта Васкес, Ирия дель Рио, Франсиско Ортис, Хесус Льоверас, Alberto Ladrón de Guevara, Sergio CrespoПеревод: Двуголосый любительский (KerobTV)Язык озвучки: Русский, ИспанскийСубтитры: Русские, Английские, Испанские (SDH)Продолжительность: 01:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B082661E18BD5B63E63E376494D2FFA26B371BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758716   (38352) от 04.11.2024
-
-Amnezia VPN удалена из AppStore по требованию РКН
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друзья! 
-У нас плохие новости.
-Буквально пару часов назад мы получили сообщение от Apple, что они по требованию Роскомнадзора удаляют наше приложение Amnezia VPN из AppStore.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758526   (38350) от 04.11.2024
-
-Mail.ru отменила бесплатные вечные 100 ГБ для первых пользователей «Облако Mail.ru»
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38350.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце октября 2024 года компания Mail (принадлежит VK) предупредила клиентов, что отменяет бесплатные вечные 100 ГБ для первых пользователей «Облако Mail.ru» спустя 11 лет старта проекта.Бесплатный тариф на 100 ГБ хранилища, который сервис «Облако Mail» предоставлял бета-тестерам при запуске в 2013 году, прекратит действие 11 ноября 2024 года. Об этом событии в (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431251   (38344) от 04.11.2024
-
-Cyberpunk 2077 (2020) [Ru/En] (1.63 HotFix/dlc) Repack West4it
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk 2077 — приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках устройства, позволяющего обрести бессмертие.Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: Adventure, Action, RPG, 3D, 3rd Person, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F76BEDF4AA91FCB7B6003442DBA8362E5F4B2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1110562   (558358) от 12.07.2018
+
+Викинг (2016) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раннее Средневековье. Время тяжелых мечей и темных законов крови. Правящий род в раздоре. Вина за случайную смерть брата легла на Великого Князя. По закону мстить ему должен младший брат — бастард. За отказ убивать он заплатит всем, что у него было, потому что «для мира нужно больше мечей, чем для войны»…Производство: Россия, Дирекция КиноЖанр: Драма, ИсторияРежиссер: Андрей КравчукАктеры: Данила Козловский, Светлана Ходченкова, Максим Суханов, Игорь Петренко, Андрей Смоляков, Владимир Епифанцев, Александра Бортич, Кирилл Плетнёв, Александр Устюгов, Ростислав БершауэрПеревод: Не требуется (русский) iTunesПродолжительность: 02:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E9434142B8590D78E100129CE7F1B75710D872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556626   (557872) от 10.06.2022
+
+Бодибилдер (2022) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс – знаменитый бодибилдер, мечтающий стать чемпионом планеты, по состоянию здоровья вынужден уйти из спорта. Его жизнь катится под откос. Случайно он знакомится с врачом скорой помощи Виктором, который когда-то по заказу Минобороны разработал уникальное лекарство, позволяющее не только лечить самые страшные заболевания, но и усиливать все возможности человеческого (   Читать дальше...   )Производство: Россия, Yellow, Black & WhiteЖанр: триллер, спортРежиссер: Андрей ГрачевАктеры: Денис Семенихин, Михаил Горевой, Виктория Полторак, Владимир Епифанцев, Дарья Повереннова, Сергей Чонишвили, Максим ЛинниковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1115177BDCD78AECB575F7DE46B678DD3FE0A212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045598   (557582) от 24.08.2016
 
 Resonic Player 0.7.6b build 1267 + Portable [En]
@@ -6,7 +58,7 @@ Resonic Player 0.7.6b build 1267 + Portable [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557582.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557546.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557545.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ LEGO Worlds (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557544.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Windows Self-Healing Tool не исправляет проблемы с Windows 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_557436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_557436.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557417.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Acronis True Image 2017 20.0.5534 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557414.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ CG Boost, Martin Klekner | Master 3D Environments in Blender 2.9 [Chapters 1-16]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556851.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556850.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_556819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_556819.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556750.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_556680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_556680.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556648.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556641.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_556545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_556545.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_556536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_556536.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556319.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Legacy of Kain Аnthology (1999-2003) [Ru/Multi] License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556157.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556152.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556151.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555995.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555949.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ Ancestors Legacy (2018) [Ru/Multi] (63593/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555696.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555695.jpg" />
 </div>
 
 
@@ -621,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:006B9D4A6D7C23662AF5AF9553A7A773C812B074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306318   (555593) от 04.06.2019
-
-Ubuntu Desktop 18.04.2 LTS [amd64] 1xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ubuntu - свободная операционная система семейства Linux. Об Ubuntu слышал наверное каждый пользователь компьютеров. Ubuntu поставляется в двух редакциях: Ubuntu Desktop и Ubuntu Server.
-Версия Desktop ориентирована на обычных пользователей, а вот Server - на сервера (это облегчённая версия системы, существенными отличиями которой являются повышенная стабильность (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6241993E43FCCB99C169D38F8E192CA67247431C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306397   (555498) от 05.06.2019
-
-Garmin: Дороги России Топо 6.30 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карты «Дороги России. РФ. ТОПО.» уникальны тем, что совмещают в себе три отдельных продукта. Во-первых, это карты дорог с адресной маршрутизацией и поиском, во-вторых, это топографические карты с высотами и типами растительности, в-третьих, это карты глубин внутренних водоемов с навигационной информацией и водной инфраструктурой. В карты включено полное покрытие (   Читать дальше...   )Тип издания: разблокированные картыРелиз состоялся: 21.05.2019Разработчик: GarminПоддерживаемая ОС: 6.30Жанр: НавигацияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4791BC5AFD598AB23B871C6E5B33AE8D37DA53
 ```
 
 https://mybot314.ru/tekegram_catalog/

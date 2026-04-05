@@ -1,3 +1,55 @@
+###  Публикация: 1856407   (1058889) от 28.02.2026
+
+Final Fantasy VIII (8) - Remastered (2019) [Multi] (1.0.3) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война уже на пороге. Республика Гальбадия, попавшая под влияние чародейки Эдеи, собирает огромную армию для нападения на другие страны. Скволл и другие члены элитной организации наемников SeeD объединяются с партизанкой Риноа, чтобы противостоять тирании Гальбадии и помешать Эдее воплотить в жизнь свою истинную цель. Эта игра является ремастером Final Fantasy VIII (   Читать дальше...   )Тип издания: LicenseРазработчик: Square EnixЖанр: Ролевые игрыЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27FEC9EF84BC637F6D43A7242001E9391CBA0089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856426   (1058861) от 28.02.2026
+
+Final Fantasy III (3) (2014) [Multi] (1.0) License GOG [3D Remake]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Японская ролевая игра Final Fantasy III сочетает в себе компоненты двух предыдущих частей франшизы, привнося дополнительные нюансы. В центре сценария находится группа молодых ребят, которые были поглощены Кристаллом Света. Именно он дает им уникальные нечеловеческие способности и призывает вернуться, чтобы вернуть мировой баланс.Тип издания: LicenseРазработчик: Square EnixЖанр: Ролевые игрыЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453A9510BA4A7E39A67001FE5FC4EE429EE6B23A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856279   (1058663) от 27.02.2026
 
 Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack dixen18 [Royal Edition]
@@ -6,7 +58,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7/dlc) Repack dixen18 [Royal Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058663.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (1.2/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057970.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057862.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack Other s [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057573.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack FitGirl [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057555.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Diablo II (2): Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Repack seleZen [Inf
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057554.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Diablo II: Resurrected (2021) [Ru/Multi] (3.0.91636/dlc) Scene Rune [Infernal Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057181.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.4(1)) Repack Let'sРlay [Supporter Bun
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057179.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.7.404.504czj3/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057016.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Other s [Collectors Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057014.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack FitGirl [Collectors Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057013.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ The Elder Scrolls V: Skyrim - Enderal: Forgotten Stories (2019) [Ru/En] (2.1.4.2
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056654.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Vagrus: The Riven Realms (2020) [Ru/Multi] (1.2.80.0211V/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056620.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Back to the Dawn (2023) [Ru/Multi] (2.0.0.30-RC/dlc) Repack Let'sРlay [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056375.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Nioh (2017) [Ru/Multi] (1.24.8/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055945.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Nioh 2 (2021) [Ru/Multi] (1.28.8/dlc) Repack Let'sРlay [The Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055938.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Flowstone Saga (2024) [Multi] ((163f) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055827.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Cosplayer’s Quest (2026) [Multi] (1.0.1/dlc) License GOG [16+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055826.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Ephemeral / 蜉蝣之国的囚徒 (2026) [Multi] (Build 21423814) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055808.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055670.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Three Kingdoms Mushouden (2025) [Ru/Multi] (2.4.8/dlc) Repack FitGirl [Digital D
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055513.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Lords of Ravage (2025) [Ru/Multi] (1.0-1-27) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055295.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Disco Elysium (2019) [Ru/Multi] (Build a0a063ab) Repack FitGirl [The Final Cut B
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054836.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Let'sРlay [Collectors
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054519.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ ANNO: Mutationem (2022) [Ru/Multi] (1.2.00.00/dlc) Repack Let'sРlay [Collectors
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ED7030495E37A71457BF80688E3E34E3CF9C361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850153   (1054312) от 26.01.2026
-
-Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.006/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Fantasy VII Remake Intergrade – улучшенная и расширенная версия высоко оцененной критиками и удостоившейся нескольких наград Final Fantasy VII Remake. Используя мако, живую кровь планеты, в своих мако-реакторах, Shinra Electric Power Company захватила контроль над целым миром. Разнородная группа идеалистов, известная, как Avalanche, осталась одним из последних (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F939BDB5C31941EA63874D26FB019D7640931C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849521   (1053830) от 23.01.2026
-
-DuneCrawl (2026) [Ru/Multi] (1.02) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053830.jpg" />
-</div>
-
-
-###  Подробнее
-
-DuneCrawl - это игра в жанре экшен-приключение с открытым миром, где вы и до трех друзей исследуете песчаные моря на гигантском Крабовом Краулере. Сражайтесь с вассалами с баночными головами, выживайте среди орд диких насекомых, исследуйте острова-оазисы и погружайтесь в коварные подземелья, чтобы помочь своим соплеменникам Поллой одержать победу в войне против вторжения (   Читать дальше...   )Тип издания: RepackРазработчик: AlientrapЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33BC4B9431544500C019B65F018548B590F1BFFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1705154   (63778) от 07.03.2024
+
+Идеальные дни / Perfect Days (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63778.jpg" />
+</div>
+
+
+###  Подробнее
+
+День Хираямы начинается с ухода за ростками клёнов, позже он высадит их в парке. На рассвете он садится в свой фургон, включает кассетный плеер и отправляется на работу: Хираяма — уборщик туалетов в Токио. За пределами упорядоченных будней он наслаждается музыкой Лу Рида и Патти Смит, книгами из местной лавки и деревьями, которые он снимает на плёночный Olympus. (   Читать дальше...   )Производство: Япония, Германия / Master Mind, Wenders ImagesЖанр: драмаРежиссер: Вим ВендерсАктеры: Кодзи Якусё, Ариса Накано, Токио Эмото, Томокадзу Миура, Юрико Кавасаки, Юми Асо, Аои Ямада, Аои Ёсида, Ацуси Фукадзава, Масахиро КомотоПеревод: Дублированный (Велес)Язык озвучки: Русский, японскийСубтитры: русские (Gyarandu), английские (Forced, Full, SDH), испанские (латиноамериканский)Продолжительность: 02:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775B992A520600E05AD82E9F1982BA26AC448B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705611   (63525) от 09.03.2024
+
+Луна / Deo mun / The Moon (2023) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63525.jpg" />
+</div>
+
+
+###  Подробнее
+
+2029 год. Пять лет назад Южная Корея пыталась отправить экспедицию на Луну, но ракета взорвалась вскоре после старта, поэтому на новую миссию возлагаются большие надежды. Уже выведенный на окололунную орбиту космический корабль попадает под действие сильного солнечного ветра, происходит утечка топлива и взрыв, в результате которого погибают два из трёх членов экипажа. (   Читать дальше...   )Производство: Корея Южная / BLAAD Studios, CJ EntertainmentЖанр: фантастика, драма, триллерРежиссер: Ким Ён-хваАктеры: Соль Гён-гу, То Гён-су, Ким Хи-э, Пак Пён-ын, Чо Хан-чхоль, Чхве Бён-мо, Хон Сын-хи, Чхве Джон-у, Брэд Литтл, Пол де ХэвиллэндПеревод: Дублированный, Многоголосый профессиональныйЯзык озвучки: русский, корейскийСубтитры: русские (Forced, Full), английскиеПродолжительность: 02:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD741601D81AEBC06F11BB61AECF3EA23F41507E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706038   (63325) от 11.03.2024
+
+Контрабандистки / Milsu / Smugglers (2023) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63325.jpg" />
+</div>
+
+
+###  Подробнее
+
+1970-е, прибрежный городок Кунчхон. Решив поднимать со дна нелегальные грузы, группа ныряльщиц вскоре привлекает внимание начальника местной таможни. Тот устраивает облаву, во время которой происходит ужасный несчастный случай, пойманные девушки получают сроки, и только Чо Чхун-джа умудряется сбежать. Два года спустя, промышляя контрабандой Сеуле, Чхун-джа попадает (   Читать дальше...   )Производство: Южная Корея / Next Entertainment World, Filmmaker R&KЖанр: Боевик, криминал, комедияРежиссер: Рю Сын-ванАктеры: Ким Хе-су, Ём Джон-а, Чо Ин-сон, Ко Мин-щи, Пак Чон-мин, Ким Джон-су, Ким Джэ-хва, Пак Кён-хе, Ли Джин-хи, Ли До-гунПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, КорейскийСубтитры: Английские (SDH)Продолжительность: 02:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5C3BE6414B52A56C7085B3D25A4DD6047787CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706040   (63322) от 11.03.2024
+
+Контрабандистки / Milsu / Smugglers(2023) BDRip [H.265/1080p] [10-Bit] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1970-е, прибрежный городок Кунчхон. Решив поднимать со дна нелегальные грузы, группа ныряльщиц вскоре привлекает внимание начальника местной таможни. Тот устраивает облаву, во время которой происходит ужасный несчастный случай, пойманные девушки получают сроки, и только Чо Чхун-джа умудряется сбежать. Два года спустя, промышляя контрабандой Сеуле, Чхун-джа попадает (   Читать дальше...   )Производство: Южная Корея / Next Entertainment World, Filmmaker R&KЖанр: Боевик, криминал, комедияРежиссер: Рю Сын-ванАктеры: Ким Хе-су, Ём Джон-а, Чо Ин-сон, Ко Мин-щи, Пак Чон-мин, Ким Джон-су, Ким Джэ-хва, Пак Кён-хе, Ли Джин-хи, Ли До-гунПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, КорейскийСубтитры: АнглийскиеПродолжительность: 02:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5013CA4187DE4F300D492BA74330F186DE9E2F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706332   (63251) от 12.03.2024
+
+Пустоши / Hwangya / Badland Hunters (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три года назад мощное землетрясение превратило Сеул в развалины. Засуха и отсутствие чистой воды делают и без того непростое существование практически невыносимым — правда, ходят слухи, что где-то посреди руин стоит целехонький дом, где люди живут в достатке и даже принимают душ. Здоровяка Нам-сана не особо интересовали эти россказни, пока 18-летнюю Су-на, в которую (   Читать дальше...   )Производство: Корея Южная / Climax Studio, Lotte EntertainmentЖанр: боевик, фантастикаРежиссер: Хо Мён-хэнАктеры: Ма Дон-сок, Ли Хи-джун, Ли Джун-ён, Но Джон-и, Ан Джи-хе, Чан Ён-нам, Пак Чи-хун, Сон Бён-сук, Пак Сан-хун, Ан Сон-бонПеревод: Многоголосый профессиональный (Jaskier, DublikTV), двуголосый профессиональный (ViruseProject), авторский (Ю.Сербин)Язык озвучки: Русский, корейскийСубтитры: Русские, английские (forced, full, SDH), корейские (SDH)Продолжительность: 01:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E2C511D7A50E2CDA48A39D0389BDEF3E53685A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706726   (63047) от 14.03.2024
+
+Объект преследования / Taget / Don't Buy the Seller (2023) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переехав в новую квартиру, Су-хён через сайт объявлений покупает подержанную стиральную машину, которая оказывается нерабочей. Обнаружив, что аккаунт продавца уже удалён, девушка обращается в полицию, а затем вычисляет мошенника по похожим объявлениям и пишет обличающие комментарии, чем вызывает гнев и становится объектом его преследования.Производство: Корея Южная / Megabox Plus M, Studio PieonaЖанр: триллер, детектив, криминалРежиссер: Пак Хи-гонАктеры: Щин Хе-сон, Ким Сон-гюн, Лим Сон-джэ, Лим Чхоль-су, Ли Джу-ён, Кым Сэ-рок, Кан Тхэ-о, Но Ён-хак, Ким Гван-хён, Чо Ён-джунПеревод: Дублированный (Akimbo Production)Язык озвучки: Русский, корейскийСубтитры: Русские (Forced, Full), английские, корейские (Full, SDH)Продолжительность: 01:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34ACEC4095D1187A9673C0FEDB08502BD3DBAEF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706765   (63016) от 14.03.2024
 
 Меня зовут Ро Ги-ван / Ro Giwan / Ro Gi Wan / My Name Is Loh Kiwan (2024) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63016.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63015.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62784.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62169.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61988.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61926.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61044.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60871.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60753.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60540.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60302.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60234.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60171.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59741.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59707.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59667.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59506.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59183.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59128.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59126.jpg" />
 </div>
 
 
@@ -511,163 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C4658FC590463809D87A9981D816DC3213E18E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717640   (58993) от 21.04.2024
-
-Магнум 578 / 578: Phat dan cua ke dien / 578 Magnum (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дальнобойщик и отец-одиночка души не чает в маленькой дочери и берет её с собой в рейсы, но однажды девочку похищает неизвестный и совершат над ней непотребные действия. Пытаясь наказать отморозка, разъяренный отец выясняет, что за тем стоит влиятельная преступная группировка.Производство: Вьетнам / Tuvan PicturesЖанр: боевик, криминалРежиссер: Дунг Луонг ДиньАктеры: Jessica Minh Anh, Anh Tuan Hac Martial Art, Александр Нгуен, Хоанг Фук Нгуен, H'Hen Niê, Nguyen Lam Thao Tam, Ha Van HieuПеревод: ДублированныйЯзык озвучки: Русский, ВьетнамскийСубтитры: отсутствуютПродолжительность: 01:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC170A53EFD08A21C8FD1D0D95D1B4273A62337C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718338   (58675) от 24.04.2024
-
-Мой Хатико / Zhong quan ba gong / Hachiko (2023) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чунцин, начало 2000-х годов. Во время поездки за город с коллегами немолодой университетский преподаватель Чэнь подбирает на дороге грязного и испуганного щенка. Никто не соглашается взять пёсика себе, поэтому мужчине приходится втихаря принести его домой, хотя супруга терпеть не может собак. Пообещав, что найдёт щенку новый дом, Чэнь тем не менее отказывает всем (   Читать дальше...   )Производство: Китай / iQIYI PicturesЖанр: драмаРежиссер: Сюй АнАктеры: Фэн Сяоган, Хуан Сюн, Да Хуан, Джоан Чэнь, Бай Цзюйган, Эпонин Хуан, Цянь Бо, Ян Бо, Хуан Сяоцзюй, Хуан ДоуПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские, НемецкиеПродолжительность: 02:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A30A61F66B0287A129A5B06A5CDECFA01481FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718735   (58495) от 26.04.2024
-
-Городской охотник / Shiti Hanta / City Hunter (2024) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на манге “Цукаса Ходзо”. Главный герой - Рё Саеба, мастер стрельбы и плейбой. Он объединяется с сестрой своего умершего партнера, чтобы расследовать ее смерть.Производство: Япония / Horipro Inc., Netflix Studios, Office ShirousЖанр: боевик, мелодрама, комедия, криминал, детективРежиссер: Юити СатоАктеры: Рёхэй Судзуки, Мисато Морита, Масанобу Андо, Фумино Кимура, Асука Ханамура, Исао Хасидзумэ, Тэтта Сугимото, Аямэ Мисаки, Такая Сакода, Моэми КатаямаПеревод: Двуголосый любительский (Zetflix)Язык озвучки: Русский, Японский, АнглийскийСубтитры: Русские, Украинские, Японские (forced, full, SDH), Английские (forced, full, SDH)Продолжительность: 01:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9588F49E0FD4779C2655DDD5B94416F5D3F57121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719468   (58179) от 29.04.2024
-
-Ужас Амитивилля: Мотель призраков / Losmen Melati / Motel Melati (2023) WEB-DL [H.264/1080p] [звук с TS]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Остров Ява, 1997 год. В поисках ночлега путешественники оказываются в проклятом отеле, хозяйка которого жаждет заполучить души новых постояльцев.Производство: Индонезия / Infinite StudiosЖанр: ужасыРежиссер: Майк Уилуэн, Билли КристианАктеры: Александра Готтардо, Кики Нарендра, Сэмюэл Панджэйтан, Фэнди Кристиан, Эна Пасарибу, Дви Сасоно, Джордан Омар, Абирама Путра, Адинда Бретон, Бима СенаПеревод: Дублированный (Paragraph Media) звук с TSЯзык озвучки: Русский, ИндонезийскийСубтитры: АнглийскиеПродолжительность: 01:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA25C5DE71810767E9C4AD70CA5F91F1B2BDBD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719689   (58101) от 30.04.2024
-
-Проклятие. Зов могилы / Pamyo / Exhuma (2024) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатая семья из Лос-Анджелеса узнаёт, что страдает от проклятия рода и духа разгневанного предка. Два шамана, эксперт по фэн-шуй и сотрудник похоронной фирмы объединяются, чтобы разобраться в серии загадочных событий. Однако ритуал, требующий раскопок могилы, приводит к ужасным последствиям, и ситуация выходит из-под контроля.Производство: Южная Корея / MCMC, Pinetown Production, ShowboxЖанр: ужасыРежиссер: Чан Джэ-хёнАктеры: Чхве Мин-сик, Ким Го-ын, Ли До-хён, Ю Хэ-джин, Чон Джин-гиПеревод: Многоголосый любительский (DubLikTV)Язык озвучки: Русский, корейскийСубтитры: КитайскиеПродолжительность: 02:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F8DC9BD45ABC0C0B35FDF83F02D530892FBCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719633   (58023) от 30.04.2024
-
-Рожденный защищать / Zhong hua ying xiong / Born to Defend (1986) WEB-DL [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец Второй мировой войны. Молодой китайский паренек возвращается после войны с японцами в родной город, чтобы разыскать армейского друга. Он узнает, что местным жителям, после того, как в город вошли американцы, живется не многим лучше, чем под японцами.
-Американские солдаты ведут себя как настоящие захватчики, обращаясь с китайцами как с людьми второго сорта, (   Читать дальше...   )Производство: Гонконг, Китай / Sil-Metropole OrganisationЖанр: боевик, военныйРежиссер: Джет ЛиАктеры: Джет Ли, Кит Энтони, Чэнь Каймин, Чо Вин, Кэм Кларк, Джон ДеМита, Питер Дойл, Фань Дунъюй, Zhanghe Gao, Джессика ГиПеревод: Многоголосый профессиональный (R5, Матч! ТВ)Язык озвучки: русский, китайский, английскийСубтитры: русские, китайские, английскиеПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A917A2D4BC544B1ACC3F78A273565638F10CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

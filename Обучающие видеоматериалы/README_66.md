@@ -1,3 +1,30 @@
+###  Публикация: 278573   (957535) от 05.01.2011
+
+Academia / Академия (2 сезон) [2010] SATRip
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957535.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 30 августа в вечернем эфире телеканала «Культура» – продолжение уникального просветительского проекта «ACADEMIA», вызвавшего большой интерес телезрителей в прошлом телевизионном сезоне.
+«ACADEMIA» – это публичные телевизионные лекции ведущих отечественных ученых, достижения и авторитет которых признаны во всем мире. В новом телевизионном сезоне зрителей ожидает (   Читать дальше...   )Жанр: Цикл лекцийПродолжительность: 36 выпусков х ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F394773B1E52C2E63A3974EC04EDE3FD8A361FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979991   (957221) от 28.01.2016
 
 Bill Inman | Учимся рисовать Мальвы. Масло. (2015) WEB-DL [H.264/1080p]
@@ -6,7 +33,7 @@ Bill Inman | Учимся рисовать Мальвы. Масло. (2015) WEB-
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957221.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957220.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956910.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956843.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956817.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956807.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955681.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954369.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ Convert Monster | Тренды интернет-маркетинга 2016 год
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953945.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ The silent scream / Безмолвный крик [1984] VHSRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953619.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ Paul Katami | P90X Live - Lower  Upper Strength Workout (2016) HDTVRip [H.264/10
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953606.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953005.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ Power Music Group RX | Boot (2016) HDTVRip [H.264/720, 1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951706.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951353.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951192.jpg" />
 </div>
 
 
@@ -408,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951111.jpg" />
 </div>
 
 
@@ -435,7 +462,7 @@ Lynda.com | Успешный проект за 12 шагов! (2014) PCRec [H.26
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950953.jpg" />
 </div>
 
 
@@ -462,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950651.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950113.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949247.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ javascript.ru | Курс по Node.JS (2018-2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949117.jpg" />
 </div>
 
 
@@ -573,7 +600,7 @@ OTUS | Python для начинающих программистов (2018) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949026.jpg" />
 </div>
 
 
@@ -599,7 +626,7 @@ OTUS | Python QA Engineer (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949018.jpg" />
 </div>
 
 
@@ -627,7 +654,7 @@ Sсоtt Sоnnоn | 6 Dеgrее Flоw (2014) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948527.jpg" />
 </div>
 
 
@@ -653,7 +680,7 @@ Udemy | Миграция на Exchange Server 2016 (2016) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947830.jpg" />
 </div>
 
 
@@ -664,32 +691,6 @@ Udemy | Миграция на Exchange Server 2016 (2016) PCRec [H.264]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56D5061232C643BAC8C199652DCAB5709EFA3A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981879   (947796) от 03.02.2016
-
-PhLearn | A Dark Force Photoshop/Тёмная сила Photoshop. Части 1 - 3 из 3 (2015) PCRec [H.264/1080p]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта легенда пришла к нам из глубин космоса… Много световых лет назад из далёкой-далёкой Галактики… Вы можете представить себе, как выглядели тогда эти далёкие миры? Какие животные и жители её населяли? Как они жили? Какие существа там разрывали своими криками жуткую тёмную ночь? И была ли там ночь? Тёмная Сила – это суперкурс по Photoshop, который поможет вам путешествовать (   Читать дальше...   )Жанр: ВидеоурокиПродолжительность: 04:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010DD1A7DC74E1A5F0D5FE074F2E1F232B52E66B
 ```
 
 https://mybot314.ru/tekegram_catalog/

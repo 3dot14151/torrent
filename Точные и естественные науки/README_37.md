@@ -1,3 +1,81 @@
+###  Публикация: 1682620   (131457) от 07.12.2023
+
+П. Коттерилл | Водородная хрупкость металлов (1963) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131457.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге даётся обзор литературы по водородной хрупкости металлов.Жанр: ФизикаИздательство: МеталлургиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6A25592C7BBC307DE0B3CE159A4822F8878A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682612   (131433) от 07.12.2023
+
+И. Крамер, Л. Демер | Влияние среды на механические свойства металлов (1964) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра представляет собой обзор литературных данных по влиянию тонких металлических, окисных и подобны им плёнок, а также явлений поверхностной адсорбции в растворах, содержащих поверхностно-активные вещества, или в электролитах на свойства металлов при испытаниях на растяжение, изгиб, ползучесть, усталость, на величину упругого последействия и внутреннего трения (   Читать дальше...   )Жанр: ФизикаИздательство: МеталлургияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEFD0210181754CEFD9871A78EF3394ABB92E742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682727   (131094) от 08.12.2023
+
+П. Хагенмюллер (ред.) | Препаративные методы в химии твердого тела (1976) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга относится к известной оксфордской серии «Успехи химии твердого состояния» и посвящена вопросам приготовления твердых веществ и материалов. Содержание ее можно условно разделить на две группы: к одной относятся обзоры, посвященные какому-либо препаративному методу, универсальному для приготовления различных классов веществ, к другой — описание приготовления (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8553D9FEAB2532DC0BA07B4AAA7F829CA0482E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682623   (131042) от 08.12.2023
 
 А. Келли, Р. Никлсон | Дисперсионное твердение (1966) [PDF]
@@ -6,7 +84,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131042.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128560.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127648.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ J.R. Waldram | The Theory of Thermodynamics (1987) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125867.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123601.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121490.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121488.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121201.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120851.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120832.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119566.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119507.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118960.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118888.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118628.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116737.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116730.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116705.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116700.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116576.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116561.jpg" />
 </div>
 
 
@@ -566,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116535.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116041.jpg" />
 </div>
 
 
@@ -603,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5DBD6E049553FF5FB29ACCE17BD720AF6828416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703575   (115033) от 29.02.2024
-
-И.М. Хайс, К. Мацек | Хроматография на бумаге (1962) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитальный труд охватывает почти все основные классы органических соединений. Весьма подробно и с большим знанием дела рассматривается вопрос о рациональном выборе систем растворителей, о самой технике процесса хроматографирования и о возможных причинах искажения формы пятен, появления двойных пятен и других помех и артефактов.Жанр: ХимияИздательство: Издательство иностранной литературыФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6673FE7576601A3B8092C86BC9589317217C5451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704355   (114353) от 04.03.2024
-
-С. Бенсон | Основы химической кинетики (1964) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114353.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первой части книги рассматриваются вопросы формальной кинетики простых реакций (порядок реакции, константа скорости, кинетические уравнения различных порядков), математические характеристики сложных кинетических систем и экспериментальные характеристики простых и сложных кинетических систем. Вторая часть имеет вспомогательный характер — она посвящена статистическим (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D221E91C8FE1F91B26E56C9C92C48C31BD76C581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710106   (112762) от 26.03.2024
-
-Книжная серия | Очерки по истории геологических знаний (1953 - 2022) [PDF, DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советское и российское серийное академическое научное издание на русском языке по истории геологии. Серия основана в Институте геологических наук АН СССР, издаётся с 1953 года, первый ответственный редактор - В. В. Тихомиров.Жанр: ГеологияИздательство: НаукаФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81250E3039CBB3CA38C47BCA96E0214CEC98B9BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

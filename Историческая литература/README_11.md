@@ -1,29 +1,3 @@
-###  Публикация: 974721   (975794) от 12.01.2016
-
-И. Стоун | Закулисная история войны в Корее (1953) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корейская война, бесспорно, является одним из важнейших событий нашего времени. Из всех современных событий она получила, пожалуй, наиболее широкую гласность. Но огромный поток широко рекламируемых сообщений, поступающий по всем каналам самых совершенных современных средств связи, дает американскому народу лишь одностороннее освещение событий, преподносит ему только (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144C645FCB439B8BF6206EF5B369026D726CF1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974745   (975792) от 12.01.2016
 
 М. Горев | Голод (1922) [DJVU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975792.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975639.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975631.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975625.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973085.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972178.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970937.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970935.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970631.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970558.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970409.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969787.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969775.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969749.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969718.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969714.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969659.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968690.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968688.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968678.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967179.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966770.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966764.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966137.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966064.jpg" />
 </div>
 
 
@@ -679,6 +653,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6281BAFB2370F46F81ED01F240805CC24E23244B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977379   (965766) от 21.01.2016
+
+С. Вишнев | Экономические ресурсы Германии. Экономическая база Германии в новой Европейской войне (1940) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая империалистическая война в Европе имеет свой «экономический фронт», значение которого исключительно велико. Воюющие стороны, мобилизуя все свои военно-производственные ресурсы, одновременно стремятся посредством блокады и экономической войны ослабить хозяйственную базу противника. Это показывает возросшую роль экономических факторов в современной войне и значение (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90EC5105B1173D260D7138B4BCE7261E51AAEFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,216 @@
+###  Публикация: 789027   (522209) от 16.08.2015
+
+The Incredible Adventures of Van Helsing II / Van Helsing 2: Смерти вопреки (2014) [Ru/Multi] (1.3.4/dlc) SteamRip Let'sРlay
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Могучий и таинственный Ван Хельсинг возвращается во второй части своих приключений. Вы думаете, что уже достаточно изучили закоулки Старой Борговии? Но судьба готовит новый поворот и заносит нашего героя еще глубже в богом забытые районы готического города. Забудьте о всех своих былых свершениях и подвигах — здесь, посреди темного карнавала, наводненного ужасами (   Читать дальше...   )Тип издания: SteamRipРазработчик: Neocore GamesЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Венгерский, Польский, ПортугальскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Венгерский, Польский, Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FCAC6DAA74C8D253B7C70B9B077EFBC0082272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928392   (522207) от 16.08.2015
+
+Battlefield Hardline (2015) [Ru/En] (1.07.15.00/dlc) Repack R.G. Механики [Digital Deluxe Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто давно мечтает попробовать себя в роли мафиози или полицейского, сможет воплотить мечту в жизнь в Battlefield™ Hardline. Игроков ждут непревзойденные сетевые режимы Battlefield и захватывающий сюжет в сеттинге, напоминающем о современных криминальных драмах. Battlefield™ Hardline станет вашим новым полем криминальных разборок.Тип издания: RepackРазработчик: Visceral Games и EA DICEЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63123CAF618567BC96B529A050C846DE52CA8B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928241   (522206) от 16.08.2015
+
+OS X 10.10.5 Installer USB for Win (14F27)
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раздача предназначена для создания установочной флешки OS X 10.10.5 с использованием ресурсов ОС Windows.
+Для создания образа установщика применена программа инсталлятора Install OS X Yosemite.app из AppStore.
+В качестве бутлоадера использована UniBeast 5.2.0
+Программа MultiBeast 7.4.1 для установки драйверов и загрузчика в комплекте раздачи.(   Читать дальше...   )Язык интерфейса: Русский/Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60780B8E1AE80A791285374D78EF583922197B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928441   (522205) от 16.08.2015
+
+Сборка iGO Primo 9.6.29.483387 [Ru/Multi] - программа автонавигации
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522205.jpg" />
+</div>
+
+
+###  Подробнее
+
+iGo Primo - программа спутниковой GPS-навигации, которая создаётся компанией NNG (ранее — Nav’N'Go) из Венгрии. На рынке доступны версии под Windows CE, Windows Mobile, Apple iOS и, с недавнего времени, под Android. В программе используется картография HERE, Navteq, TomTom, а также локальных разработчиков. iGO предлагает высококачественные (offline) карты для удобной (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 31.01.2015Разработчик: NNGПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979638C65B9378EAA1279D6EF9A77AADF51B9CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313228   (521973) от 11.07.2019
+
+Debian GNU/Linux 10.0 + nonfree Buster [amd64] 4xDVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521973.jpg" />
+</div>
+
+
+###  Подробнее
+
+После двух лет разработки состоялся релиз Debian GNU/Linux 10.0 (Buster), доступный для десяти официально поддерживаемых архитектур: Intel IA-32/x86 (i686), AMD64 / x86-64, ARM EABI (armel), 64-bit ARM (arm64), ARMv7 (armhf), MIPS (mips, mipsel, mips64el), PowerPC 64 (ppc64el) и IBM System z (s390x). Обновления для Debian 10 будут выпускаться в течение 5 лет.
+
+В (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FEB5211830F781B34640FA03E2647B61C4EA01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313883   (521955) от 11.07.2019
+
+Total War: THREE KINGDOMS (2019) [Ru/En] (1.1.0/dlc) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total War: THREE KINGDOMS — эта игра из популярнейшей стратегической серии посвящена легендарному военному конфликту в древнем Китае. Вас ждет эпоха легендарных героев и традиционное для Total War сочетание эпических сражений в реальном времени и глубоко проработанной пошаговой кампании.Тип издания: LicenseРазработчик: CREATIVE ASSEMBLY, Feral Interactive (Mac), Feral Interactive (Linux)Жанр: Strategy (RTS, TBS), 3DЯзык озвучки: Русский (отдельно), АнглийскийЯзык субтитров: Русский (отдельно), АнглийскийЯзык интерфейса: Русский (отдельно), Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E8F92C265AAA67E900BBAEEBFD15DA86E7E5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313868   (521948) от 11.07.2019
+
+Office Tab Enterprise 14.00 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office Tab Enterprise новая версия небольшой, но очень полезной утилиты. Принцип работы Office Tab относительно прост, но от этого не менее эффективен – окна открытых документов отображаются в интерфейсе офисных приложений, как вкладки открытых страниц в современных браузерах. Утилита Office Tab устраняет один из немногих недостатков пакета Microsoft Office – отсутствие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EABD04C4CDEE0A81065AE34E5766A3B3579FB6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313876   (521947) от 11.07.2019
+
+Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.11727.20244 (2019.07) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, SharePoint (   Читать дальше...   )Язык интерфейса: русский, английский, украинский + языковые пакеты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4DE2886A2E61B062D2869134FA66F256FBCE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240730   (521908) от 15.08.2018
 
 В США сравнили американского и советского Винни-Пуха
@@ -6,7 +219,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_521908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_521908.jpg" />
 </div>
 
 
@@ -32,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521858.jpg" />
 </div>
 
 
@@ -59,7 +272,7 @@ Diablo & Hellfire (1997) [Ru/Multi] (1.00, 1.09) Repack Raf-9600
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521799.jpg" />
 </div>
 
 
@@ -85,7 +298,7 @@ Acronis True Image 2016 19.0.5518 Final [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521252.jpg" />
 </div>
 
 
@@ -111,7 +324,7 @@ Hearts Of Space - радиошоу космической музыки - Вып�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521238.jpg" />
 </div>
 
 
@@ -137,7 +350,7 @@ Windows 10 продолжает шпионить за пользователем
 >>15
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_521230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_521230.jpg" />
 </div>
 
 
@@ -164,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521228.jpg" />
 </div>
 
 
@@ -190,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_520928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_520928.jpg" />
 </div>
 
 
@@ -216,7 +429,7 @@ ReCore (2016) [Ru/Multi] (1.1.7468.2) License CODEX [Definitive Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520842.jpg" />
 </div>
 
 
@@ -242,7 +455,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520838.jpg" />
 </div>
 
 
@@ -268,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520834.jpg" />
 </div>
 
 
@@ -296,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_520832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_520832.jpg" />
 </div>
 
 
@@ -322,7 +535,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 15.08.18 [Ru
 >>16
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520831.jpg" />
 </div>
 
 
@@ -349,7 +562,7 @@ DLL-files.com Fixer   v2.7.72.2315 Portable  [Multi+Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520728.jpg" />
 </div>
 
 
@@ -375,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520709.jpg" />
 </div>
 
 
@@ -401,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520682.jpg" />
 </div>
 
 
@@ -427,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520645.jpg" />
 </div>
 
 
@@ -453,7 +666,7 @@ Advanced SystemCare Pro 8.4.0.811 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520187.jpg" />
 </div>
 
 
@@ -464,215 +677,6 @@ Advanced SystemCare - программный пакет, содержащий м
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B5C4150F639B3A7345B5ED66E369E0E5C395580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926765   (520186) от 18.08.2015
-
-The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/En] (1.0.8.2/dlc) Repack xatab
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520186.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Ведьмак: Дикая Охота" — это ролевая игра нового поколения с глубоким сюжетом, действие которой происходит в открытом мире. Огромная и потрясающе красивая игровая вселенная заставит игрока принимать непростые решения, каждое из которых будет иметь свои последствия. В "Ведьмаке" вы играете за Геральта из Ривии — профессионального убийцу чудовищ, (   Читать дальше...   )Тип издания: RepackРазработчик: CD Projekt REDЖанр: RPG / AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F97CA6DE0CECC5115C258134EC890E1E20997E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928737   (520185) от 18.08.2015
-
-Мордекай / Mortdecai (2015) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает историю чудаковатого лорда Чарли Мордекая и его длинноногой жены. Чарли проворачивает аферы в сфере искусства, пытаясь раздобыть полотно Гойи. По легенде на обратной стороне полотна записан код доступа к ячейке с нацистским золотом. В ходе погони за картиной, Чарли придется встретиться и с итальянской мафией, и со злобными российскими спецслужбами, (   Читать дальше...   )Производство: США, Infinitum Nihil Production, Mad Chance Productions, Mort Productions, Odd Lot EntertainmentЖанр: Боевик, Мелодрама, Комедия, ДетективРежиссер: Дэвид КеппАктеры: Джонни Депп, Гвинет Пэлтроу, Пол Беттани, Эван МакГрегор, Оливия Манн, Джонатон Пасвольски, Майкл Калкин, Ульрих Томсен, Алек Утгофф, Роб де Гроот, Гай Бернет, Джефф Голдблюм, Антти Хакала, Пол Уайтхаус, Норма АталлаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2873571C4827C88B43B443FE511493704F5F1F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928851   (520184) от 18.08.2015
-
-Полицейская тачка / Cop Car (2015) WEB-DL [H.264/1080p-LQ] [VO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два 10-летних мальчишки находят заброшенный полицейский автомобиль и решают присвоить его себе. Обычная детская игра начинает приобретать пугающие черты после того, как шериф небольшого городка отправляется на поиски своей пропавшей машины.Производство: США, Audax Films, End Cue, Park PicturesЖанр: ТриллерРежиссер: Джон УоттсАктеры: Кевин Бейкон, Джеймс Фридсон-Джексон, Хэйс Уэллфорд, Камрин Менхейм, Ши Уигхэм, Кэтлин Бентли, Джозеф ОливейраПеревод: Одноголосый закадровый, любительский (Paul Bunyan)Язык субтитров: АнглийскийПродолжительность: 01:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1328B7CDD9FC3F808BDFB4CFEF33B48BFB528C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928822   (520183) от 18.08.2015
-
-S.T.A.L.K.E.R. Зов Припяти - Пространственная аномалия (2015) [Ru] (1.001/upd4) Repack/Mod SeregA-Lus
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пространственная аномалия познакомит игроков с новой историей о наёмнике по прозвищу Зверь, который по странному стечению обстоятельств попадает, в не менее странное место, в последствии названное пространственной аномалией. Update 4 - финальное обновление модификации, закончит историю Зверя и раскроет все тайны, что не удалось раскрыть в предыдущих версиях игры.Тип издания: Repack / ModРазработчик: PROFFESIONALЖанр: Action (Shooter) / Add-on / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812AC36EB8583B22208AFB6A0A0E4CE3F599A5E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 825011   (520182) от 18.08.2015
-
-Gauntlet (2014) [Ru/En] (2.1/dlc) SteamRip Let'sPlay [Slayer Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gauntlet — это классическая игра в жанре «рогалика», возвращающаяся в новом обличье. Возьмите на себя управление одним из 4-х различных героев и отправляйтесь в подземелье, под завязку набитое монстрами. Отличительной особенностью геймплея являются уровни, генерируемые случайным образом. Сражайтесь с ордами врагов в одиночку или с друзьями ради славы и сокровищ. (   Читать дальше...   )Тип издания: SteamRipРазработчик: Arrowhead Game StudiosЖанр: Action / RPGЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB7EA8861782CF0A32418967A768C435011795B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929113   (520181) от 18.08.2015
-
-Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 08.2015 by OVGorskiy® 1DVD [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520181.jpg" />
-</div>
-
-
-###  Подробнее
-
-обновленные оригинальные русские образы ОС Windows 7 от Microsoft разных редакций и разрядностей. Образ содержит в себе 9 редакций ОС на 1 DVD (x86 и x64). Включает в себя "чистые" не модифицированные образы ОС Windows 7 Starter x86, Home Basic x86/x64, Home Premium x86/x64, Professional x86/x64, Ultimate x86/x64, собранные в один образ стандартными средствами (   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93341BB80860D739982EC0B8C17DC190B150E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241390   (519956) от 17.08.2018
-
-Минцифры одобрило инициативу c декриминализацией лайков и репостов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_519956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Речь идет об законопроектах депутатов Шаргунова и Журавлева, которые предлагают перевести ст.282 из уголовной плоскости в административную, оставив «уголовку» только за возбуждение ненависти с применением насилия, использованием служебного положения или организованной группой.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819042   (519911) от 13.07.2019
-
-CherryPlayer 2.5.9 + Portable [Multi/Ru] (авторская раздача)
-
->>3
->>15
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519911.jpg" />
-</div>
-
-
-###  Подробнее
-
-CherryPlayer - это бесплатный плеер с простым понятным и интуитивным интерфейсом для воспроизведения всех типов аудио/видео контента как из локальных хранилищ, так и по сети и из Интернета. В плеере интегрированы такие сервисы, как ВКонтакте, YouTube, Twitch и другие. Дистрибутив поставки включает в себя все последние версии кодеков, поэтому их наличие на компьютере (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:818FB12894FEA895B235E8C4794B0CE249380132
 ```
 
 https://mybot314.ru/tekegram_catalog/

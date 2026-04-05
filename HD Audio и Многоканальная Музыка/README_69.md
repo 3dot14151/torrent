@@ -1,32 +1,3 @@
-###  Публикация: 1670413   (172141) от 20.10.2023
-
-Devin Townsend - Empath (2019) [FLAC|24/192|image + .cue|Vinyl-Rip]  <Progressive Metal, Rock, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172141.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Castaway (02:31)
-A2. Genesis (06:04)
-A3. Spirits Will Collide (04:39)
-A4. Evermore (05:38)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AFE24B0DCB9D65823CD955A39D14FE5CEAB547D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670318   (172136) от 20.10.2023
 
 Oxymorrons - Melanin Punk (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore>
@@ -35,7 +6,7 @@ Oxymorrons - Melanin Punk (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172136.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Roger Whittaker - Love Will Be Our Home (1989) [FLAC 2.0|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172120.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Pet Shop Boys - Relentless (1993) Remaster, 2023, Rhino [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172096.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Devin Townsend - Snuggles (Beautiful Dream) (2021) [FLAC|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171948.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Duff McKagan - Lighthouse (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171943.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Devin Townsend - The Puzzle (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progres
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171940.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Savage - Glory Riders (2023) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171909.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Tom Petty & The Heartbreakers - Mojo (2010) Remaster, 2023, Reprise [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171894.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ blink-182 - One More Time... (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-pun
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171868.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Evian Christ - Revanchist (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experime
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171756.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Lost Girls - Selvutsletter (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171754.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Sparkle Division - Foxy (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171752.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Rival Sons - Studio Albums (9 releases) (2009-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171743.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Mick Foster & Tony Allen - The Worlds Of Mick Foster & Tony Allen (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171738.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Afterbirth - In But Not Of (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Technic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171596.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Brand New - Studio Albums (5 releases) (2001-2017) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171583.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ RuPaul - Essential Christmas (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171560.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Beartooth - The Surface (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171527.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Lynch Mob - Babylon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171514.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171506.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ Martin Solveig - Back To Life (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Danc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171420.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Death - Human (1991) Reissue 2021, Relapse Records [FLAC|24/96|tracks|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171235.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Gorefest (& The 11th Hour) - Studio Albums (9 releases) (1991-2012) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171225.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Rykarda Parasol - Tuesday Morning (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171220.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Pattern-Seeking Animals - Spooky Action at a Distance (2023) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171072.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Pattern-Seeking Animals - Spooky Action at a Distance (2023) [FLAC 24/48|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF1B09FCD22C47429973896FD1614067FFF1DAAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671941   (171058) от 26.10.2023
+
+Dokken - Heaven Comes Down (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fugitive (3:57)
+02. Gypsy (4:19)
+03. Is It Me Or You? (4:23)
+04. Just Like A Rose (4:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393EC4CC4FE3860A61A86BC0877E97A86B9B82E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

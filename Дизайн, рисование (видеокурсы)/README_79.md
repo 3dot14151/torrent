@@ -1,3 +1,61 @@
+###  Публикация: 1665809   (181125) от 01.10.2023
+
+Stepik, Askarov Workshop | Рисунок карандашом - построение лица шаг за шагом (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чему вы научитесь
+- Как строить голову с разных ракурсов
+- Как строить плоскости головы, чтобы создать трехмерный эффект
+- Понимание правил освещения, чтобы ваш рисунок выглядел реалистично(   Читать дальше...   )Производство: StepikЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:53:06Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E68FDB4C33E6F6C01C688B4A1FBCE94CEBE3F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665824   (181115) от 01.10.2023
+
+Udemy, VFX 3D Pro | PolyModeling in Houdini (2019) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181115.jpg" />
+</div>
+
+
+###  Подробнее
+
+- Добро пожаловать, на этом курсе вы научитесь моделированию в Houdini, Полимоделированию.
+- Обычное моделирование, которое вы могли бы выполнять в 3dsMax, Maya, Blender или Cinema4d.
+- Хорошей новостью является то, что в Houdini вы получите более сильные инструменты и гораздо более интеллектуальный подход, который сэкономит ваше время.
+- Мы позаимствуем возможности (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 02:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28DD983B99E932282A3B799532BFCA99157EEB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665586   (181084) от 01.10.2023
 
 OF3D Academy, Ander Alencar | Masterviz (2023) WEB-DL [EN]
@@ -6,7 +64,7 @@ OF3D Academy, Ander Alencar | Masterviz (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181084.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Skillbox, Евгений Тонконогий | Иллюстрация на iPad
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181043.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Kalyakin School, Максим Калякин | Дизайн персонажей
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180693.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Gumroad, FlyCat | Cyberpunk Style Girl Blender Modeling (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180687.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180660.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ CG Cookie, Chris Kuhn | Риггинг транспорта в Blender 2.6 / Rig
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180635.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma Про-уро
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180626.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ CG Cookie, Louis du Mont | Создание анимированного жут�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180617.jpg" />
 </div>
 
 
@@ -232,7 +290,7 @@ CG Cookie, Wayne Dixon | Управление камерой в Blender 2.83 и 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180616.jpg" />
 </div>
 
 
@@ -259,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180592.jpg" />
 </div>
 
 
@@ -287,7 +345,7 @@ Dream&Draw, Анастасия Козлова | Клуб "Мечтай и рис
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180574.jpg" />
 </div>
 
 
@@ -316,7 +374,7 @@ FlippedNormals, Emiel Sleegers | Создание научно-фантасти�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180466.jpg" />
 </div>
 
 
@@ -342,7 +400,7 @@ CG Cookie, Kent Trammell | Искусство скульптинга в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179843.jpg" />
 </div>
 
 
@@ -368,7 +426,7 @@ CG Cookie, Kent Trammell | Моделирование реалистичных �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179743.jpg" />
 </div>
 
 
@@ -395,7 +453,7 @@ FlippedNormals, Chunck Trafagander | Создание тримов для игр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179607.jpg" />
 </div>
 
 
@@ -423,7 +481,7 @@ Enterclass, Татьяна Анисимова | Натюрморт с фрукт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179501.jpg" />
 </div>
 
 
@@ -452,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179470.jpg" />
 </div>
 
 
@@ -479,7 +537,7 @@ Enterclass, Сергей Курбатов | Зеленый цвет в пейз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179377.jpg" />
 </div>
 
 
@@ -506,7 +564,7 @@ education.iyaaar | Марафон стикеров. Тариф мужские (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179337.jpg" />
 </div>
 
 
@@ -535,7 +593,7 @@ Max Twain | Workshop - Создание серии артов в нейросе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179221.jpg" />
 </div>
 
 
@@ -564,7 +622,7 @@ CG Cookie, Kent Trammell | Рендеринг и финишная анимаци
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178140.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ CG Cookie, Wayne Dixon | Учебный лагерь по анимации в Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178103.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ Lynda, David Andrade | Создание законченной анимации 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178061.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Udemy, Creativity Unleashed | Blender Environments Megacourse: Create 3D Environ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176398.jpg" />
 </div>
 
 
@@ -654,59 +712,6 @@ Udemy, Creativity Unleashed | Blender Environments Megacourse: Create 3D Environ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAA5AAE05B1D45F8D1D787143A988B159D530EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594770   (176384) от 03.12.2022
-
-Arrimus | Arrimus Ultimate 3D Modeling Course (2022) WEB-DL [EN / EN Sub]
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176384.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this course you will learn how to work with polygon, sculpting, and CAD programs to get the best of all worlds. There is a strong emphasis on using the strongest aspects of all programs to get the most out of your 3D design experience. You will learn to work at a good level in 3D Studio Max, Blender, Zbrush, and Plasticity. You will learn how how sculpt in Zbrush (   Читать дальше...   )Жанр: ВидеоурокЯзык озвучки: EnglishПродолжительность: 68:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F303CE27B6214702D3278034D200BE465BB99601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595142   (175781) от 04.12.2022
-
-Udemy, Cov Phillips | Ultimate 3D Environment Animation Course - Blender (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полное руководство по созданию фотореалистичных окружений с использованием Blender, Substance Painter, SpeedTree и Resolve.
-Курс разработан как для опытных, так и для начинающих 3D-художников, я расскажу вам обо всех шагах, которые я предпринял при создании своего самого амбициозного рендера... это включает в себя моделирование, текстурирование, освещение, создание (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 13:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8985128AEA0687912DAC97346E239D9D0CB43D41
 ```
 
 https://mybot314.ru/tekegram_catalog/

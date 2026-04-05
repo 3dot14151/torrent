@@ -1,3 +1,31 @@
+###  Публикация: 1689921   (124346) от 04.01.2024
+
+Уильям Шекспир | Комедия ошибок. Бесплодные усилия любви (2007) [MP3, Геннадий Бортников, Олег Борисов и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
+Представляем вниманию слушателей (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияИздательство: СиДиКом, Элитайл, ГостелерадиофондПродолжительность: 04:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD1FB422EEAAA421E44959BA52A412BD7132DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689952   (124344) от 04.01.2024
 
 Уильям Шекспир | Конец - делу венец (2018) [MP3, Герман Энтин, Алексей Шейнин и др.]
@@ -6,7 +34,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124344.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124342.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124340.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124339.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124333.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124332.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124279.jpg" />
 </div>
 
 
@@ -201,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124274.jpg" />
 </div>
 
 
@@ -229,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124247.jpg" />
 </div>
 
 
@@ -256,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124234.jpg" />
 </div>
 
 
@@ -284,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124179.jpg" />
 </div>
 
 
@@ -311,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124106.jpg" />
 </div>
 
 
@@ -337,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124103.jpg" />
 </div>
 
 
@@ -366,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124045.jpg" />
 </div>
 
 
@@ -393,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124041.jpg" />
 </div>
 
 
@@ -420,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124036.jpg" />
 </div>
 
 
@@ -447,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124035.jpg" />
 </div>
 
 
@@ -475,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124027.jpg" />
 </div>
 
 
@@ -502,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124004.jpg" />
 </div>
 
 
@@ -529,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124003.jpg" />
 </div>
 
 
@@ -555,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124002.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124000.jpg" />
 </div>
 
 
@@ -609,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123995.jpg" />
 </div>
 
 
@@ -635,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123993.jpg" />
 </div>
 
 
@@ -662,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123990.jpg" />
 </div>
 
 
@@ -673,34 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:328457EDF07CFAE00A0D8CCC8B25689B9975C011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278271   (123971) от 07.01.2024
-
-Ги де Мопассан | Монт-Ориоль (2014) [MP3, Юрий Заборовский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ги де Мопассан (1850–1893) – один из самых популярных французских писателей конца XIX века. Он написал более 300 новелл.
-«Монт-Ориоль» это третий роман Ги де Мопассана, опубликованный в 1887 году.
-В основе произведения лежит история любви между Христианой Андермат и Полем Бретиньи. Христиана, 21-летняя девушка – дочь маркиза де Равенеля, замужем за богатым еврейским (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 10:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6A8F29CE9CBCEBD6A5333D44AAAB8AB67F0DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

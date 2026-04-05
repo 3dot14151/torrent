@@ -1,3 +1,56 @@
+###  Публикация: 1257214   (347048) от 25.10.2018
+
+Lynda.com | Photoshop CC 2019 Essential Training: The Basics (2018) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите основные функции Photoshop CC 2019. Этот курс охватывает ключевые понятия, которые должны знать все пользователи Photoshop независимо от того, как они используют программу.Производство: Lynda.comЖанр: Photoshop, Обучающее видеоПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 04:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4552A8193EE4FF6411138C96F7C9EE710E22392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418630   (346434) от 25.10.2020
+
+Udemy | Создание Sci-Fi ассета для игр в Blender 2.81 / Blender Sci fi Game Asset Creation with Emiel Sleegers (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс по созданию ассета для игры AAA качества от художника из Ubisoft.
+Этот курс не для полных новичков, которые никогда раньше не использовали Blender, Substance painter, Marmoset toolbag. Вместо этого это дружественный курс для начинающих, что означает, что если вы знаете, как передвигаться в этих программах, возможно, уже использовали их раньше, но вы все еще (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 13:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BEAC15C5EACFD3FF59F16BA399F61E7947C6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179745   (346184) от 01.11.2017
 
 HighLights | Основы веб-дизайна (2016) PCRec [H.264]
@@ -6,7 +59,7 @@ HighLights | Основы веб-дизайна (2016) PCRec [H.264]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346184.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344926.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ Udemy, Nexttut, Arash Arefnia | Complete Modular Environments in Unreal Engine 5
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342440.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ Skillshare | Explaining How We Use Face-Tracking In Our Videos (Tiktok Filter) (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339573.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ Skillshare | Create a Pixelated Glitch Effect using Adobe After Effects (2020) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339337.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ Gumroad | Митч Леуве 7 книг + уроки / Mitch Leeuwe 7 Books + T
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339231.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339221.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338814.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ Udemy, Joakim Tornhill | Become a Material Guru in Blender 2.8 (2019) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335954.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335085.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334907.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334720.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334674.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334667.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ Broadcast Design School | Remastered Records (2015-2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333396.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333265.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ Udemy | Создание ретро футуристичного автомоб�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333243.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332765.jpg" />
 </div>
 
 
@@ -491,7 +544,7 @@ Elementza, Mario Brajdich | Mastering 3D Modeling in Maya (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332764.jpg" />
 </div>
 
 
@@ -517,7 +570,7 @@ Jan Urschel | Реалистичный сэт-дизайн в Blender 2.82 / Rea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332417.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ Jan Urschel | Кинематографичный сэт-дизайн в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332357.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ Jan Urschel | Дизайн 3D окружения для производства
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332279.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ Jan Urschel | Создание скетча 3D окружения в Blender 2.9
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332278.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331805.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:129ACDB668F1DCBA3CDA52219E9C1F26A7C97C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420795   (331127) от 02.11.2020
-
-Jan Urschel | Процедурные ландшафты в Blender 2.80 / Procedural Landscapes in Blender 2.80 (2019) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Процедурные ландшафты. Никакого моделирования, никаких текстур изображений, никаких плагинов. Только Blender. Мы создадим три различных вида реалистичных ландшафтов только с помощью редактора шейдеров и движка рендеринга Cycles.Производство: GumroadЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86D9492E64299088D362BDC4F210F10C01044C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420796   (331045) от 02.11.2020
-
-Jan Urschel | Скалистые ландшафты в Blender 2.82 / Rocky Landscapes in Blender 2.82 (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте фантастические скалистые и природные ландшафты для ваших Sci-Fi и фэнтези сцен в Blender и Eevee. Работает для любого вида скальных форм. Никакого скульпинга!Производство: GumroadЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABD7D6A879E0A7B2AAFFAEF9556982701C53DAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

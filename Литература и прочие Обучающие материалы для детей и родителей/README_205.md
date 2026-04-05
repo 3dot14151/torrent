@@ -1,3 +1,56 @@
+###  Публикация: 1037119   (615749) от 23.07.2016
+
+В. Бычко | Весна идёт (1960) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихотворения для дошкольного возраста.Жанр: Стихи для детейФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7136BB0959196864B747C897E982FCE519234614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037275   (615739) от 23.07.2016
+
+Эмилиян Станев и др. | Хлопотливая Мецана (1964) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок болгарских авторов с иллюстрациями Вадима Лазаркевича.
+Вадим Вадимович Лазаркевич (28 февраля 1895, Белая Церковь, Киевская губерния Российская империя — 18 февраля 1963, София, Болгария) — русский и болгарский художник, график, иллюстратор. Один из самых популярных иллюстраторов детских книг в Болгарии.Жанр: СказкаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F0816A9BFF67C629A36D2BF3432F86101A9504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037289   (615734) от 23.07.2016
 
 Кайгородов Дмитрий | Лепестки (сборник рассказов) (1899) [DJVU]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615734.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615732.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615606.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615598.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615580.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615553.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615552.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615541.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615510.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615484.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615483.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615453.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615242.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615153.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615146.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615064.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615004.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615003.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614922.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614588.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614477.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614406.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614393.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614146.jpg" />
 </div>
 
 
@@ -633,60 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D101D7F33575CFD248AE7EC91BFCBE46887E458A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146550   (614128) от 29.06.2017
-
-Брайсон Пэйн | Python для детей и родителей (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программирование – одна из самых востребованных профессий в наше время, и она останется таковой в ближайшем будущем.
-
-Научите своих детей программировать уже сейчас с помощью этой книги! В книге представлен язык Python, один из самых популярных и простых. Вы найдете здесь много упражнений – полезных, интересных и забавных, поэтому ваш ребенок не заскучает. Материал (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15FC0C6E92C8E4914B7E7470D39D8CC5BBADA71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804286   (613999) от 13.07.2014
-
-Николай Болгаров | Что такое Красный флот (1927) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613999.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 февраля 1918 года по флотам и флотилиям был разослан подписанный Народным комиссаром по морским делам П.Е. Дыбенко приказ, в котором был объявлен ленинский декрет: "Флот, существующий на основании всеобщей воинской повинности царских законов, объявляется распущенным и организуется Социалистический Рабоче-Крестьянский Красный Флот...".Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F902FE3CA8409042F7CFA405EE8D9AD83109E4CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

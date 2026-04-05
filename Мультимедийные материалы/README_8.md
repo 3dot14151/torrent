@@ -6,7 +6,7 @@
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464057.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Javabegin | Онлайн библиотека на Java (2019) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459628.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457408.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455387.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Javabegin | Google Web Toolkit с нуля (2019) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453276.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450186.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448736.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448728.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447729.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447719.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438272.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_434255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434255.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ CHIP  | CHIP - DVD приложение к журналу CHIP №10 (октяб
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434209.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433331.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Twitmoney | Twittir PRO. Мы знаем как заработать 162 000 р�
 >>Образование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430839.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429078.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422418.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ WebForMySelf, Даниил Волосатов | Веб-дизайн UX/UI. По�
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420003.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418071.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413694.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413454.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411456.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ TradeLikeaPro | Памм Инвестирование (2016) [unpacked]
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411229.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407000.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400364.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398264.jpg" />
 </div>
 
 

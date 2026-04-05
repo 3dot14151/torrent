@@ -1,30 +1,3 @@
-###  Публикация: 1072817   (620203) от 16.04.2022
-
-Джаз-квинтет п/у Я. Валясека - Импровизированный джаз (1955) Shellac-78rpm [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чай Вдвоём, фокстрот
-02. Знаю одно средство, фокстротЖанр: JazzПродолжительность: 00:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D336984AC1CB96C0F77ACC92BDF252DE8FDFFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071518   (620201) от 16.04.2022
 
 Концертный Ансамбль п/у Фердинанда Криша - Записи 1941 года (1951) Repress [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Latin, Tango, Retro>
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620201.jpg" />
 </div>
 
 
@@ -60,7 +33,7 @@ Roxy Music - Flesh + Blood (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]  <Pop Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620053.jpg" />
 </div>
 
 
@@ -89,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620042.jpg" />
 </div>
 
 
@@ -118,7 +91,7 @@ VA - Golden Hits Of Turkish / Золотые Хиты Турецкой Эстр�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619907.jpg" />
 </div>
 
 
@@ -147,7 +120,7 @@ Scorpions - Love At First Sting (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619835.jpg" />
 </div>
 
 
@@ -176,7 +149,7 @@ Therion - Vovin (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Symphonic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619610.jpg" />
 </div>
 
 
@@ -205,7 +178,7 @@ Abdul Hafis - Flute Music (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Arabian, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618294.jpg" />
 </div>
 
 
@@ -234,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618125.jpg" />
 </div>
 
 
@@ -261,7 +234,7 @@ VA - Вас Поздравляют Звёзды! (1990) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617994.jpg" />
 </div>
 
 
@@ -290,7 +263,7 @@ Enigma - MCMXC a.D. (1990) Virgin, Universal Music | Remastered 2016 [FLAC 2.0|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616977.jpg" />
 </div>
 
 
@@ -319,7 +292,7 @@ Gentle Giant - Octopus (1972) 2015, Alucard Music [DTS 5.1|LPCM 2.0|96/24|Blu-ra
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616882.jpg" />
 </div>
 
 
@@ -348,7 +321,7 @@ Yes - Fragile (1971) 2015, Atlantic [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray] <Rock,
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616864.jpg" />
 </div>
 
 
@@ -379,7 +352,7 @@ Louis Armstrong - Collection (Unofficial Release, Unknown Year) [FLAC 2.0|44,1/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616836.jpg" />
 </div>
 
 
@@ -408,7 +381,7 @@ Pink Floyd - The Division Bell (1994) 2014, Rhino Music [DTS 5.1|LPCM 2.0, 5.1|9
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616795.jpg" />
 </div>
 
 
@@ -436,7 +409,7 @@ VA - Jazz Mix Evening Conversation 1950-2008 (2016) [WavPack|96/32|image+.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616381.jpg" />
 </div>
 
 
@@ -465,7 +438,7 @@ Benny Goodman / Бенни Гудмен - Как Глубок Океан (1940-1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616253.jpg" />
 </div>
 
 
@@ -494,7 +467,7 @@ Joan Baez/Джоан Баэз - Поёт Джоан Баэз (1970) [FLAC 2.0|96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616246.jpg" />
 </div>
 
 
@@ -523,7 +496,7 @@ Kenny Rogers/Кенни Роджерс - Поёт Кенни Роджерс (198
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615584.jpg" />
 </div>
 
 
@@ -552,7 +525,7 @@ The Who - Quadrophenia (1979) 2LP Original Motion Picture Soundtrack [FLAC 2.0 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615337.jpg" />
 </div>
 
 
@@ -581,7 +554,7 @@ Roger Waters - Amused to Death (1992) Remastered, 2015, Sony Music [LPCM 2.0, 5.
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614986.jpg" />
 </div>
 
 
@@ -610,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612911.jpg" />
 </div>
 
 
@@ -639,7 +612,7 @@ Bobbysocks / Боббисокс (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612910.jpg" />
 </div>
 
 
@@ -668,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612904.jpg" />
 </div>
 
 
@@ -697,7 +670,7 @@ Louis Armstrong - Louis Armstrong In Prague (live at the Lucerna Hall 1965) 1983
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612896.jpg" />
 </div>
 
 
@@ -729,7 +702,7 @@ Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612888.jpg" />
 </div>
 
 
@@ -743,6 +716,35 @@ Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017131   (612792) от 20.04.2022
+
+Herrey's (Херриз) - Diggi Loo, Diggi Ley (Дигги Лу, Дигги Лей) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612792.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Дигги Лу, Дигги Лей • Diggi Loo, Diggi Ley
+A2	Освободись • Kom Loss
+A3	Мне Ничто Не Помешает • Ingenting Som Hindrar Mej
+A4	Если Это Любовь • If It's Love(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1101634   (894712) от 07.02.2017
+
+Журнал | Профиль №4 (985) (февраль 2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.Жанр: Деловой-аналитическийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E6C87E504AB1DFCCE6E56BDF60841EEBDCC6DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869085   (894593) от 13.02.2015
+
+Журнал | Про здоровье №3 (89) (Март 2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894593.jpg" />
+</div>
+
+
+###  Подробнее
+
+«АиФ Про Здоровье» - красивое глянцевое издание о здоровье и здоровом образе жизни женщины – непременных условиях женской красоты, счастья и семейного благополучия. Это журнал практических советов, рассказывающий о человеке, о его внутреннем мире, о гармонии с природой и любви.Жанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4EFC7A527A296E81A9A1775C724902D265D90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869311   (892845) от 14.02.2015
 
 Журнал | Тайны ХХ века [Украина] №6 (Февраль 2015) [PDF]
@@ -6,7 +58,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892845.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891475.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889824.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889033.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888067.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887840.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887768.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887761.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887742.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887673.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887582.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887323.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886898.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886517.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886457.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885427.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885281.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884701.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884619.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883850.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883822.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883746.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883602.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883422.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:615B4AAE5A4A2824B21AD32792A41B29C41864F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373136   (882114) от 05.04.2020
-
-Газета | Война и отечество Спецвыпуск №2 (2020) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882114.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Война и Отечество» — В каждом номере журнала оригинальные версии событий военной истории России. Постоянные темы нашего журнала - Война, Родина, Героизм, Патриотизм, Архивная информация и комментарии именитых специалистов. Самое главное в журнале "Война и Отечество" нет никаких выдумок! Все, о чём пишут наши журналисты – это достоверные проверенные исторические (   Читать дальше...   )Жанр: Популярная газетаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D219B954F8B6D97D59B5DDD3BB70480AF0ED5A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373188   (882058) от 05.04.2020
-
-Газета | Народный совет №13 (март 2020) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882058.jpg" />
-</div>
-
-
-###  Подробнее
-
-На станицах "Народного совета" вы найдете множество интересных материалов на самые разные темы, которые касаются нашей с вами повседневной жизни: традиционно важная для всех тема здоровья и красоты, информация по благоустройству дома и дачи, полезные советы по кулинарии и ведению домашнего хозяйства, ремонту и строительству, уходу за домашними животными (   Читать дальше...   )Жанр: Популярная газетаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D486EAC3277B76A96B5092B161BFB3126E12946
 ```
 
 https://mybot314.ru/tekegram_catalog/

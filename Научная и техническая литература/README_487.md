@@ -1,133 +1,3 @@
-###  Публикация: 1339368   (266148) от 19.11.2019
-
-П. М. Керженцев | Принципы организации (1968) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266148.jpg" />
-</div>
-
-
-###  Подробнее
-
-В однотомнике избранных произведений Платона Михайловича Керженцева, посвященных научной организации труда и управления, помещено с некоторыми сокращениями пять работ: «Принципы организации», «НОТ — научная организация труда», «Борьба за время», «Памятка организатора», «Организуй самого себя!».Жанр: История, психология, социология, искусство, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587DA078EFA035D4982E8973DA69DDDE4DCBC3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339422   (266079) от 19.11.2019
-
-М.Д. Моисеев | Английская лексика. Правильный выбор слова (1996) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель этого учебного пособия состоит в том, чтобы на основе конкретного материала помочь учащимся увеличить свой словарный запас и одновременно научить их самостоятельно ориентироваться в очень обширной английской лексике, то есть правильно определять основной смысл изучаемого слова и его характерные отличия от других схожих (синонимических) слов. Пособие предназначено (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2292BE02D4BDB35C6A8ECEFE3F5B7F545E2F0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339363   (266068) от 19.11.2019
-
-Ж. Г. Тард | Законы подражания (2011) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический труд основателя социальной психологии Г. Тарда посвящен социально-коммуникативной деятельности индивидов в форме подражания (имитации), которая выступает как основа развития общества. Под процессом подражания понимается элементарное копирование и повторение одними людьми поведения других. Процессы копирования и повторения касаются существующих практик, (   Читать дальше...   )Жанр: История, психология, социологияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19B4C66C4DD5CB1453DCEA1C6443F8A98231029
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339454   (266066) от 19.11.2019
-
-Дженнифер Даудна, Сэмюэль Стернберг | Трещина в мироздании (2019) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дженнифер Даудна – одна из ведущих современных генетиков, под ее руководством была разработана технология редактирования генома CRISPR – самый дешевый, но при этом самый точный и мощный способ манипуляций с ДНК. Но довольно быстро стало понятно, что этот метод, позволяющий прицельно изменять ДНК живого организма, – очень рискованная технология, которую уже называют (   Читать дальше...   )Жанр: Научная литература, Биология, биофизика, биохимияПеревод: Светлана ЯстребоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08E92C10B921CE3CF9EC17FC9BEF2F31DC5CB67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339426   (266019) от 19.11.2019
-
-А.Н. Драгункин | СуперРуководство для умных лентяев. Английский язык: пособие для взрослых (2008) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это - переиздание самой первой книги известного петербургского филолога Александра Драгункина. "СуперРуководство" вышло в 1998 году, было моментально распродано и стало библиографической редкостью. Экспериментальный курс английского языка для широкого круга лиц, желающих научиться говорить по-английски и понимать английскую речь в кратчайший срокЖанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B67CC9AB97470503C055AAF06CD772379EBEC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339412   (266015) от 19.11.2019
 
 В.А. Державина | Английская грамматика в схемах и таблицах (2019) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266015.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265940.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265899.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_265852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_265852.jpg" />
 </div>
 
 
@@ -241,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265313.jpg" />
 </div>
 
 
@@ -267,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265131.jpg" />
 </div>
 
 
@@ -295,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265127.jpg" />
 </div>
 
 
@@ -321,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265029.jpg" />
 </div>
 
 
@@ -348,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265017.jpg" />
 </div>
 
 
@@ -374,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265015.jpg" />
 </div>
 
 
@@ -400,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265006.jpg" />
 </div>
 
 
@@ -427,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264889.jpg" />
 </div>
 
 
@@ -453,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264848.jpg" />
 </div>
 
 
@@ -481,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264844.jpg" />
 </div>
 
 
@@ -507,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264838.jpg" />
 </div>
 
 
@@ -533,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264577.jpg" />
 </div>
 
 
@@ -559,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264572.jpg" />
 </div>
 
 
@@ -585,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264441.jpg" />
 </div>
 
 
@@ -613,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264440.jpg" />
 </div>
 
 
@@ -639,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264438.jpg" />
 </div>
 
 
@@ -665,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264436.jpg" />
 </div>
 
 
@@ -676,6 +546,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDED06148BB2AFC3B421C9A896D3BFE858728204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266874   (264435) от 09.12.2018
+
+И.И. Антонович | Капитализм и социальный контроль [Критика теории и практики социального контроля в буржуазной социологии] (1978) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264435.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге дается анализ новейших концепций, средств и механизмов, с помощью которых буржуазные социологи пытаются установить контроль над общественными процессами, над сознанием и поведением людей. Автор вскрывает связь социального контроля при капитализме с общим кризисом буржуазной общественной системы, охватившем все сферы жизни. В то же время он показывает неспособность (   Читать дальше...   )Жанр: История, политология, экономика, социология, психология, искусство, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957CADAE857879E263D11B14394F76CCA0936454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267997   (264434) от 09.12.2018
+
+К.В. Островитянов | Избранные произведения [2 тома] (1972-1973) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый том содержит работы, посвященные вопросам экономики досоциалистических формаций и общеметодологическим проблемам политической экономии. В том вошли работы, раскрывающие развитие В. И. Лениным марксистской экономической теории капитализма. В этих работах дан глубокий анализ вклада В. И. Ленина в политическую экономию капитализма, раскрыто содержание ленинского (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF8FE6605E8CA16E84A968D8FDF22A705324607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191348   (264418) от 13.12.2017
+
+Н.К. Полуянович | Монтаж, наладка, эксплуатация и ремонт систем электроснабжения промышленных предприятий (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы, связанные с правильным хранением, монтажом и техническим обслуживанием электрических машин и аппаратов, трансформаторов, распределительных электрических сетей, осветительных установок и электрической бытовой техники.
+Приведены порядок действия, способы выполнения пусконаладочных работ электротехнического оборудования, организационная структура, (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5998214E616FCE2A1D4FFB5221C92A099941021F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969401   (264410) от 27.12.2015
+
+Д. Свак (отв. ред.) | Ельцинщина (1993) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264410.jpg" />
+</div>
+
+
+###  Подробнее
+
+На русском языке впервые появляется сборник «(Пост) советские тетради», орган венгерской советологии и Венгерского института русистики, сотрудники которого, помимо других исследований, занимаются анализом процессов, происходящих ныне в России. Авторы и редакторы сборника думают, что русскому читателю, может быть, было бы небезынтересно узнать, как видятся сегодняшние (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07DDC8D49CFA8CA188E46C723340C57F3E05ABFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969246   (264367) от 27.12.2015
+
+Р. И. Косолапов (сост.) | Слово товарищу Сталину (2002) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня печать, как левая, так и правая, отвечает все возрастающий интерес к личности И. В. Сталина. Это объясняется обстоятельствами сегодняшней жизни, драматическим положением, в котором оказалась Россия, униженным состоянием ее обнищавшего населения. Поневоле народ обращается к славным страницам истории могущественного Советского Союза и его лидера И. В. Сталина. (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C183D8364C004BF439B08EBC63A8B555E85D17D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

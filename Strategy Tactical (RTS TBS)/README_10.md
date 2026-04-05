@@ -1,3 +1,55 @@
+###  Публикация: 1183695   (429017) от 07.09.2019
+
+This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) License CODEX
+
+>>След.
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429017.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «This War of Mine» вы играете не за солдата элитных войск, а за группу мирных жителей, пытающихся выжить в осажденном городе, испытывая нехватку еды, лекарств и постоянную опасность со стороны снайперов и мародеров. Игра дает возможность прочувствовать войну с абсолютно новой перспективы.Тип издания: LicenseРазработчик: 11 bit launchpadЖанр: Strategy, 3D, LifestyleЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF9B80672ADBAD8AC7DC5F92CE8FCF6A7DD83BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411341   (427012) от 25.09.2020
+
+Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.12) Repack xatab
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Commandos 2: HD Remaster - это обновлённая версия культовой тактической стратегии, вышедшей в 2001 году. Возглавьте элитную группу коммандос, которая должна проникнуть на вражескую территорию и, используя свои навыки, справиться с заданиями, кажущимися на первый взгляд невыполнимыми. Вам предстоит побывать в разных уголках мира, принять участие в миссиях, связанных (   Читать дальше...   )Тип издания: RepackРазработчик: Yippee! Entertainment, Pyro StudiosЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2831FD59C85E792CE1A92F8AF8950FD4849B389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411923   (422292) от 27.09.2020
 
 CastleStorm 2 / CastleStorm II (2020) [Ru/Multi] (1.0) Repack xatab
@@ -6,7 +58,7 @@ CastleStorm 2 / CastleStorm II (2020) [Ru/Multi] (1.0) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422292.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Tryst [En] (RePack) 2012 | SEYTER
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420785.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Dungeons 2: A Game of Winter (2015) [En] (1.5.1.392/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419621.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Warhammer 40,000: Deathwatch (2015) [Ru/Multi] (1.0) Repack xatab [Enhanced Edit
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419616.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Emergency 2016 (2015) [Multi] (1.0.0) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417427.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Prodigy Tactics (2017) [En/Fr] (0.8.9) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417136.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Immortal Realms: Vampire Wars (2020) [Multi] (1.01) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415291.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Trapped Dead: Lockdown (2015) [En/Multi] (18.10.2015) Repack R.G. Механик
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412922.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Nantucket (2018) [En] (1.4c/dlc) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408405.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Praetorians - HD Remaster (2020) [Ru/Multi] (1.04) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407752.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Ancestors Legacy (2018) [Ru/Multi] (64724/dlc) License GOG [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406967.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Confrontation / Confrontation: Последняя битва [Ru/En] (RePack/v.1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406471.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Total War: WARHAMMER II / Total War: WARHAMMER 2 (2017) [Ru/En] (1.0.0) Repack R
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397251.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387078.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Space Hulk: Tactics (2018) [Ru/Multi] (28103) License HOODLUM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383330.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Achtung! Cthulhu Tactics (2018) [Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383321.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Men of War: Assault Squad 2 - Cold War (2019) [En] (1.004.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382500.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Space Hulk: Tactics (2018) [Ru/En] (28103) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378935.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Eador: Masters of the Broken World / Эадор. Владыки миров (2013
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376050.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Dungeon Rats (2016) [En] (1.0.1.0001) License HI2U
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370759.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.0) Repack Dok2
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370459.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3.9087) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369385.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Commandos 3 - HD Remaster (2022) [Ru/Multi] (1.00.045) License FAiRLIGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367969.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ War Front: Turning Point / War Front: Другая мировая (2007) [Ru] (1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366962.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ War Front: Turning Point / War Front: Другая мировая (2007) [Ru] (1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:297C41775BD7FA26BBD00544A8BC4F09FC227217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255201   (365549) от 17.10.2018
-
-Panzer Strategy (2018) [Ru/En] (1.0) Repack R.G. Catalyst
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Panzer Strategy - варгейм в сеттинге Второй Мировой Войны, сочетающий классический пошаговый геймплей с современной графикой. Командуйте своей армией и адаптируйте ее к любой боевой задаче, используя широкий выбор оборудования, экипировки и боевых навыков.Тип издания: RepackРазработчик: Starni GamesЖанр: Straregy (TBS), TacticsЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A4A476CBB537292B9DE046517CFDB74D2C2D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328262   (365221) от 29.09.2019
-
-Prodigy Tactics (2017) [Multi] (Update 6) License GOG
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365221.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире Тазиса выживание большинства рас зависит от Маны. Но сейчас эта волшебная энергия встречается все реже, и магические существа разоряют земли Тазиса, сражаясь за последние крохи живительной Маны. А где-то бесконечно долгим сном дремлют легендарные создания, сердца которых скрывают первоисточник Маны. Лишь немногие избранные могут пробудить этих существ и с (   Читать дальше...   )Тип издания: LicenseРазработчик: Hanakai StudioЖанр: Стратегия, Пошаговая, ФэнтезиЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6C908BCAE74762A7D81D4DBCA60DE1A558C015
 ```
 
 https://mybot314.ru/tekegram_catalog/

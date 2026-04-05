@@ -6,7 +6,7 @@ Vanced Tube v5.4.80.356 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3043.jpg" />
 </div>
 
 
@@ -24,32 +24,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817691   (3018) от 13.09.2025
-
-WPS Office + PDF v18.20.2 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3018.jpg" />
-</div>
-
-
-###  Подробнее
-
-WPS Office - очень полезное, офисное приложение для любого пользователя мобильных устройств. Проект обладает всеми необходимыми функциями, что позволяют работать со всеми документами и файлами пакета программ Microsoft Office. Открытие, редактирование, объединение и многое другое подвластно всем желающим без установки оригинального программного обеспечения. Ну а (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.09.2025Разработчик: WPS SOFTWARE PTE. LTD.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03806253A3DE1073F9B3A9AF077735A20E259B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817718   (2988) от 13.09.2025
 
 Узлы 3D / Knots 3D v10.1.0 Paid [Ru/Multi]
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2988.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ AndroVid Pro Video Editor v7.0.8.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2973.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ IPTV Pro v9.1.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2832.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Xiaomi Home (Ранее. MiHome) v10.9.702 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2780.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2662.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ Purvpn 9.2 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2213.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Remini / Улучшение Фото v3.7.1070.202515697 Mod by Mixroot [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1882.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ RUTUBE - видео, шоу, трансляции 30.10.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1845.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ PictureThis - Plant Identification v5.12.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1828.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ Purvpn 9.3 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1650.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ Vanced Tube v5.4.80.365 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1343.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ Purvpn 9.4 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1295.jpg" />
 </div>
 
 
@@ -379,7 +353,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.0 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1291.jpg" />
 </div>
 
 

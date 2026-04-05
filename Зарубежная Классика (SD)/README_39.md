@@ -1,3 +1,56 @@
+###  Публикация: 236639   (752824) от 10.01.2022
+
+Лимонадный Джо, Или Конская Опера / Limonadovy Joe aneb Konska opera / Lemonade Joe or Horse Opera (1964) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752824.jpg" />
+</div>
+
+
+###  Подробнее
+
+В маленьком городке на «Диком западе» крепкие парни развлекаются дракой, стрельбой и пьют виски. Нравы там грубы и жестоки, закон один - «Кто кого раньше застрелит». Даже шериф не в силах этому противостоять. Но однажды в салун заходит Он - Лимонадный Джо, и в городке начинается новая жизнь. В него влюбляются все первые красавицы городка. Секрет популярности героя (   Читать дальше...   )Производство: Чехословакия, Filmové Studio BarrandovЖанр: мюзикл, мелодрама, комедия, приключения, вестернРежиссер: Ольдржих ЛипскийАктеры: Карел Фиала, Рудольф Дейл, Милош Копецки, Квета Фиалова, Ольга Шоберова, Богуш Загорский, Йозеф Глиномаз, Карел Эффа, Вальдемар Матушка, Эман ФиалаПеревод: Дублированный, Многоголосый профессиональныйЯзык озвучки: Русский, чешскийПродолжительность: 01:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F81C15318AB578627342C2860AE057514015F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 660032   (752789) от 01.06.2013
+
+Полуночный ковбой / Midnight Cowboy (1969) [H.264] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джо Бак, жизнерадостный и наивный парень из крохотного техасского городка, направляется в Нью-Йорк, чтобы использовать свои незаурядные сексуальные способности для удовлетворения потребностей богатых женщин за плату. Но дела у него идут не слишком хорошо, и вскоре уличный бомж-туберкулезник Риццо убеждает Джо, что ему необходим менеджер.
+Хотя Джо не в восторге от того, что ему приходится обслужить в сортире гомосексуалистов, он и Риццо становятся настоящими друзьями. Они хотят заработать много денег и уехать во Флориду…Жанр: драмаРежиссер: Джон Шлезингер / John SchlesingerАктеры: Дастин Хоффман, Джон Войт, Сильвия Майлз, Джон, МакГайвер, Бренда Ваккаро, Барнард Хьюз, Рут Уайт, Дженнифер Солт, Гилмен Рэнкин, Т. Том МарлоуПеревод: многоголосый закадровый (DVD Magic), двухголосый закадровый (Somewax); авторский, одноголосый закадровый (Багичев)Формат: MKVПродолжительность: 01:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D4EE8DB422A2F278AC90B9D99FAF378CDAF0EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 205978   (752746) от 31.05.2010
 
 За десять минут до полуночи / 10 to Midnight (1983) DVDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752746.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752055.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751629.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751491.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751276.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750934.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750492.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749966.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749752.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749676.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749332.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749261.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748869.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748202.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748087.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747992.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747877.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746348.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746258.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746047.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745997.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745678.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745597.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745348.jpg" />
 </div>
 
 
@@ -626,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E9FD3638E30FFFF9940A9415CDBEFBA038C7819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020449   (745308) от 26.05.2016
-
-Телефон пополам / Pillow Talk (1959) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обладатели спаренного телефонного номера дизайнер Джен Морроу и композитор Брэд Аллен никогда друг друга не видели, но люто друг друга ненавидят. Брэд каждый вечер играет своим многочисленным поклонницам одну и ту же мелодию, а Джен подслушивает, возмущается и жалуется в телефонную компанию. За Джен ухаживает миллионер Джонатан Форбс, который по стечению обстоятельств (   Читать дальше...   )Производство: США / Arwin Productions, Universal International Pictures (UI or U-I)Жанр: Мелодрама, КомедияРежиссер: Майкл ГордонАктеры: Рок Хадсон, Дорис Дэй, Тони Рэндалл, Тельма Риттер, Ник Эдамс, Джулия Миде, Аллен Дженкинс, Марсель Далио, Ли Патрик, Мэри МакКартиПеревод: Многоголосый, двуголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FC2E2478C07588FFC5AC0DAFE6DFA7A3AB37C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459872   (745253) от 04.05.2014
-
-Мост через реку Квай / The Bridge on the River Kwai (1957) BDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захваченные в плен японцами британские солдаты и их командир полковник Николсон вынуждены строить железнодорожный мост через реку Квай в Бирме. Несмотря на свирепый характер полковника Сайто, Николсон проявляет настоящее мужество.
-Тем временем командование назначает группу коммандос для уничтожения этого стратегически важного объекта.Производство: Великобритания, США / Columbia Pictures, Horizon Pictures (II)Жанр: Драма, Приключения, ВоенныйРежиссер: Дэвид ЛинАктеры: Алек Гиннесс, Уильям Холден, Джек Хоукинс, Сессю Хаякава, Джеймс Дональд, Джеффри Хорн, Андре Морелл, Питер Уильямс, Джон Боксер, Перси ХербертПеревод: Профессиональный многоголосый закадровый R5/ВидеосервисЯзык озвучки: Руский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF424AC79CF3C9F61865E6496C18AE27E578759
 ```
 
 https://mybot314.ru/tekegram_catalog/

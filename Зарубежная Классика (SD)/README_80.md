@@ -1,3 +1,55 @@
+###  Публикация: 560185   (406279) от 16.10.2012
+
+Трюкач / The Stunt Man (1980) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скрываясь от полиции, Кеймерон попадает на съемочную площадку фильма о Первой мировой войне. Жестокому режиссеру Кроссу нужен человек, который заменил бы погибшего каскадера. Кеймерон получает укрытие, но он должен заменить каскадера. Пройдя ужасы вьетнамской войны, Кеймерон в роли американского летчика, демонстрирует фантастическое мужествоЖанр: Боевик, Триллер, ДрамаРежиссер: Ричард РашАктеры: Питер О’Тул, Стив Рейлсбэк, Барбара Херши, Аллен Гарфилд, Алекс Рокко, Шарон Фаррелл, Адам Рорк, Филип Брунс, Чарльз Бэйл, Джон Гарвуд, Джим Хесс, Джон Пирс, Майкл Рэйлзбэк, Джордж Уоллес, Ди Кэрролл, Лесли Уиноград, Дон Кеннеди, Уайти Хьюз, Уолтер Роблз, А.Дж. Бакунас, Роберто Карузо, Фрэнк Алива, Стэффорд Морган, Джон Олдермен, Джек Палинкас, Сесил Бриттейн, Гаррет МакФерсон, Нельсон Тайлер, Луис Гартнер, Уильям Джозеф Арно, Джеймс Эйври, Френк Битсон, Грегг Бергер, Дианна Дае Коулмэн, Ларри Данн, Патриция МакФерсон, Росс Рейнольдс, Гордон Росс, Мэрион Вейн, Ли УэббПеревод: ДублированныйПродолжительность: 02:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17936A37C03CC3AFFC0A567E2D6A080538A822E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562190   (405407) от 19.10.2012
+
+Звездные войны: Эпизод 3 - Месть Ситхов / Star Wars: Episode III - Revenge of the Sith (2005) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со времен, описанных во втором эпизоде, прошло 3 года. Энакин окончательно встает на темную сторону силы и превращается в Дарта Вейдера. Республика гибнет под ударами крепнущей Конфедерации, Джедаи теряют контроль над галактикой, а Падме готовится к тому, чтобы стать матерью. Все эти события будут разворачиваться на фоне грандиозной битвы, знаменующей финал Клонических войн…Жанр: Фантастика, Фэнтези, ПриключенияРежиссер: Джордж Лукас / George LucasАктеры: Юэн МакГрегор, Натали Портман, Хейден Кристенсен, Иэн МакДайармид, Сэмюэл Л. Джексон, Джимми Смитс, Фрэнк Оз, Энтони Дэниелс, Кристофер Ли, Киша Касл-ХьюзПеревод: ДублированныйПродолжительность: 02.20.00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682671E8E6CED52F048B56CB404B6F2AD16220D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562262   (405404) от 19.10.2012
 
 Звездные войны: Эпизод 5 - Империя наносит ответный удар / Star Wars: Episode V - The Empire Strikes Back (1980) DVDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405404.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405403.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405400.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405361.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405173.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404488.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403759.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403752.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403485.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402984.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402772.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402346.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401326.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401316.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397448.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396855.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396818.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396616.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396544.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395852.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395786.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395472.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395448.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394807.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CE107F2FCA5AC36C77D3847B787A053A025E72C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169847   (394719) от 06.10.2017
-
-Не трогай белую женщину / Touche pas a la femme blanche (1974) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финансовые верхи молодой Америки решают разом покончить с индейцами, которые, по их мнению, тормозят развитие американской экономики. Они подкупают генерала армии, и тот призывает знаменитого полковника Кастера, самодовольного фанатика-расиста, возглавить победоносную кампанию против индейцев…Производство: Франция, Италия / Films 66, Laser Production, Mara Films, Produzioni Europee Associati (PEA)Жанр: Комедия, ВестернРежиссер: Марко ФеррериАктеры: Катрин Денёв, Марчелло Мастроянни, Мишель Пикколи, Филипп Нуаре, Уго Тоньяцци, Ален Кюни, Серж Реджани, Дарри Коул, Моник Шометт, Даниэле Дублино, Анри Пикколи, Паоло ВилладжоПеревод: Профессиональный (двуголосый закадровый)Субтитры: РусскиеПродолжительность: 01:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB61B5F779A4C37E6AC6A968F4C33FDB785C81CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 714623   (394705) от 28.10.2013
-
-Франсуа Первый / Франциск I / Francois Premier / Francois 1er (1937) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Накануне ярмарочного спектакля под названием «Франциск I и Прекрасная Ферроньерка», в котором ему предстоит заменить заболевшего тенора, Онорен чувствует жестокий мандраж. Чтобы придать Онорену уверенности, другой ярмарочный артист — фокусник Калиостро — гипнотизирует его и отправляет в прошлое на встречу с реальными персонажами пьесы. Едва Онорен прибывает в таверну (   Читать дальше...   )Производство: ФранцияЖанр: КомедияРежиссер: Кристиан-Жак / Christian-JaqueАктеры: Фернандель / Fernandel ... Honorin, Мона Гойя / Mona Goya ... Elsa et Madeleine Ferron, Александр Рино / Alexandre Rignault ... Henri VIII, Анри Боск / Henri Bosc ... Luigi Cascaroni et Jean Ferron, Аим Симон-Жиро/ Aime Simon-Girard ... Francois Premier, Алис Тиссо / Alice Tissot ... Madame Cascaroni et Dame, Alfredine Шарль Лемонтье / Charles Lemontier ... La Palisse, (   Читать дальше...   )Перевод: Одноголосый закадровыйПродолжительность: 01:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D361BB941A066AD4FB23C2054699DE33F1448FD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

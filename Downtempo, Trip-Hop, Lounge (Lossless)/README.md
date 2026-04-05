@@ -7,7 +7,7 @@ VA - Golden Hour Cafe: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063058.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - The Orient Collective: Sun Rituals (2026) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062865.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - The Orient Collective: Roots of the South (2026) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061833.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - The Orient Collective: Sand & Smoke (2026) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061099.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Lemongrass - Colors (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060307.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Smooth Vibes Chillout Edition (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059422.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - The Orient Collective: Temple Stories (2026) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059103.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - The Orient Collective: Organic Rituals (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058931.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - The Orient Collective: Ancient Legends (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058821.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - Daydream Chillout Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058336.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - After Hours Chill & Unwind (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058333.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Soft Horizons: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057879.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - The Orient Collective: Whispers of the Ancients (2026) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057844.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - The Orient Collective: Sand Temple Stories (2026) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056993.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Coastal Vibrations: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056432.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Chillout & Lofi Vibes 2026 (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056137.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Noir Desire - Intimate Chillout Beats (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056118.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - The Orient Collective: Desert Moon (2026) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055865.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Amanati - Omen (2025) [FLAC|Lossless|tracks] <Downtempo, Electronic,>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055836.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Desert Souls, Vol.1 (Micro Sound Records) (2026) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055536.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - The Orient Collective: Celestial Dunes (2026) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054912.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ GARRISON (Игорь Савосин) - Best Relax Music (2023) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054707.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ GARRISON (Игорь Савосин) - Atmospheric (2026) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054706.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ GARRISON (Игорь Савосин) - Sounds and Images (2024) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054691.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ GARRISON (Игорь Савосин) - Sound Vibrations (2023) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054690.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ GARRISON (Игорь Савосин) - The Best (2025) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054689.jpg" />
 </div>
 
 

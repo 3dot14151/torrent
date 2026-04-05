@@ -1,3 +1,211 @@
+###  Публикация: 1084989   (215078) от 20.12.2016
+
+Malwarebytes Anti-Malware Premium 3.0.5.1299 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malwarebytes Anti-Malware - новая версия программы от создателей RogueRemover Pro, AboutBuster и других популярных утилит, способная находить и удалять разнообразные вредоносные программы. Программа использует эвристический метод сканирования, способный в реальном времени контролировать безопасность системы в целом. Также имеется возможность полного сканирования (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D632C149F2FEFCA54DB6B126BAE4E73CDD0758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 132746   (215023) от 20.12.2016
+
+Ookami to Koushinryou II / Spice and Wolf II / Волчица и пряности (второй сезон) [2009, TV, 12 + Special] HDTV 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение первого сезона: Любит человек побеждать мать-природу. Даже крестьяне из очередного фэнтезийного захолустья предпочли новые посевные технологии надежде на богиню-волчицу по имени Хоро, тысячи лет охранявшую их урожай. Совсем затосковала богиня, но древний договор отменить могли только люди, давно о нем позабывшие. И тут нежданно-негаданно ее освободил (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Такахаси ТакэоПродолжительность: 25 мин
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085036   (215014) от 20.12.2016
+
+XRECODE 3 Build 1.44 + Portable (x64) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215014.jpg" />
+</div>
+
+
+###  Подробнее
+
+XRECODE 3 – уникальный конвертер аудио , снабженный удобным многоязычным «drag and drop» интерфейсом. Позволяет преобразовывать аудиоданные большинства распространенных форматов в m4a, alac, ape, flac, mp3, mp4 (используя NeroAAC), ogg, raw, wav, wav(rf64), wma, WavPack, mpc, mp2, Speex, ofr, ac3, aiff, tak. Оптимизирован для параллельной обработки нескольких файлов (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A3A142A14BB994C310AF7BBEC22052FF77C9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083663   (214996) от 20.12.2016
+
+Red Giant Universe 2.0.0 CE Repack by TeamVR [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Giant Universe - Постоянно расширяющаяся библиотека плагинов для режиссеров, редакторов, VFX-художников, предоставляющая доступ к быстрым и мощным инструментам для видео-редактирования, кинопроизводства, визуальных эффектов и анимированной графики. Каждый инструмент в библиотеке эффектов и переходов Universe совместим с GPU-ускорением вашего компьютера и работает (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8565EB9D785CE46E9EEB0DE756155B98CFBDFE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085187   (214987) от 20.12.2016
+
+Windows Update MiniTool 20.12.2016 Portable [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альтернатива стандартному Windows Update из Windows 1, т.к. стандартный Windows Update в Windows 10 очень сильно урезан по сравнению с версиями из предыдущих Windows, например нельзя скрывать обновления, stupid user создал альтернативную программу с расширенным функционалом для обновления Windows и других продуктов Microsoft, таких как например Office.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F1428B3568BE93A683505826D0EEF45404175B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084133   (214974) от 20.12.2016
+
+reconquest (2016) [Ru/Multi] (1.814) License HI2U
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reconquest - это стратегия в реальном времени со строительством баз. После третьей мировой войны человечество оказалось на грани исчезновения. Вы должны снова завоевать Землю, принимая более дальновидные стратегические решения, чем ваши соперники. Самый ценный из оставшихся ресурсов - это сланцевый газ. Обладание им предопределит исход многих сражений.Тип издания: LicenseРазработчик: StormCube GamesЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D81CD4B39370A1ACB708EB3EBE47CF84C7D3754A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085111   (214965) от 20.12.2016
+
+Новая эра Z / The Girl with All the Gifts (2016) SATRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по книге, ставшей бестселлером британского фантаста Майка Кэри «Дары Пандоры». Апокалипсическое ближайшее будущее. Всю планету поразила грибковая спора, которая обычных людей превращает в плотоядных монстров, готовых поедать себе подобных не зараженных болезнью. Единственный шанс на спасение, отыскать вакцину способную остановить заражение...Производство: США, ВеликобританияЖанр: Ужасы, Триллер, ДрамаРежиссер: Колм МакКартиАктеры: Джемма Артертон, Гленн Клоуз, Пэдди Консидайн, Доминик Типпер, Анамария Маринка, Сенниа Нануа, Лобна Фьютерс, Энтони Уэльс, Дэниэл Иган, Фисайо АкинадеПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:45:59Реклама: Присутствует текстовая реклама
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45B2C8239C0ACBF71AE0F79314277865E104885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058144   (214954) от 20.12.2016
+
+Osiris: New Dawn (2016) [En] (0.1.087) Repack Other s
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Osiris: New Dawn - на дворе 2046 год, человечество придумало способ перемещаться в космосе с околосветовой скоростью, что сразу открыло возможности по исследованию расположенных поблизости звёздных систем. Игроку предстоит стать участником второй колониальной команды, отправившейся на поиски пригодных для обитания планет. Конечно, всё идёт не по плану, и команда (   Читать дальше...   )Тип издания: RepackРазработчик: Fenix Fire EntertainmentЖанр: Action (Survival horror), 3D, 1st Person, 3rd PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AABE1A7E7197E8EB6B40CB5BE9F415DE62E7FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084983   (214943) от 20.12.2016
 
 SketchUp Pro 2017 17.1.174 (x64) RePack by D!akov [Ru]
@@ -6,7 +214,7 @@ SketchUp Pro 2017 17.1.174 (x64) RePack by D!akov [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214943.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214940.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214930.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214923.jpg" />
 </div>
 
 
@@ -110,7 +318,7 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 10.2022
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214922.jpg" />
 </div>
 
 
@@ -136,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214915.jpg" />
 </div>
 
 
@@ -163,7 +371,7 @@ Adobe Lightroom Classic for Mac 12.4 U2B [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214874.jpg" />
 </div>
 
 
@@ -189,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214842.jpg" />
 </div>
 
 
@@ -215,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214827.jpg" />
 </div>
 
 
@@ -241,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214691.jpg" />
 </div>
 
 
@@ -267,7 +475,7 @@ Everylang PRO 3.4.0.0 + Portable [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214686.jpg" />
 </div>
 
 
@@ -293,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214635.jpg" />
 </div>
 
 
@@ -319,7 +527,7 @@ Anno 1404: Dawn of Discovery (2009) [Ru] (1.0) License [Коллекционно
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214594.jpg" />
 </div>
 
 
@@ -345,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214585.jpg" />
 </div>
 
 
@@ -371,7 +579,7 @@ Windows 10 24in1 (x86/x64) + LTSC +/- LTSB by Eagle123 v12.2018 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214577.jpg" />
 </div>
 
 
@@ -397,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214564.jpg" />
 </div>
 
 
@@ -424,7 +632,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 10.2018 by OVGorskiy® 1DVD
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214559.jpg" />
 </div>
 
 
@@ -450,7 +658,7 @@ Dishonored 2 (2016) [Ru/En] (1.77.9/dlc) Repack xatab
 >>18
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214552.jpg" />
 </div>
 
 
@@ -461,215 +669,6 @@ Dishonored 2 (2016) [Ru/En] (1.77.9/dlc) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1B2C7C9903606D41CDB8713B3651E6E973C54B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943429   (214540) от 19.12.2015
-
-Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/En] (1.6.0.34396/dlc) Repack R.G. Механики [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет Героев VII повествует о кровавой войне, которая привела к смене правящей династии Священной Империи. После смерти императрицы страна полыхает в пламени раздора: многочисленные противники сражаются за трон. В это время герцог Иван созывает шесть доверенных советников. Этот совет призван помочь ему выбрать правильный путь, чтобы положить конец войне за престолонаследие.Тип издания: RepackРазработчик: Limbic Entertainment и Black Hole EntertainmentЖанр: Strategy (Turn-based), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C927CA98E1491B708DB5368A1652D7375D1B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873683   (214525) от 19.12.2015
-
-The Talos Principle (2014) [Ru/Multi] (250756/dlc) SteamRip Let'sPlay
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214525.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Talos Principle - это философская головоломка с видом от первого лица от студии Croteam, создателей легендарной серии Serious Sam, написанная в соавторстве с Томом Жубертом (FTL, The Swapper) и Йонасом Киратзесом (The Sea Will Claim Everything). Словно пробудившись от глубокого сна, вы оказываетесь в странном, диковинном мире, полном древних руин и сложных машин.Тип издания: SteamRipРазработчик: CroteamЖанр: Adventure (Puzzle), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659A0EB9D10F64B0E399CECD504DC39E81D95F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653185   (214520) от 16.08.2023
-
-Антивирус Defender  «закрутит гайки» пользователям пиратской Windows
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Microsoft выпустила августовские обновления безопасности для Windows 10 и Windows 11, а также серверных версий фирменных ОС. Помимо традиционной «починки» известных уязвимостей, они содержат ещё одно любопытное изменение, которое способно усложнить жизнь пользователям пиратской продукции.Патч Security Intelligence Update версии 1.395.68.0 добавляет в базу (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965984   (214517) от 19.12.2015
-
-Конец детства / Childhood's End (2015) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) (BaibaKo)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеадаптация одноимённого романа Артура Ч. Кларка, признанного революционной работой в научной фантастике.
-Сериал рассказывает о вторжении на Землю инопланетян. Однако, вопреки представлениям людей об обитателях других планет, эти существа пришли к нам с миром. Они прибыли для того, чтобы прекратить на Земле войны, кровопролитие и междоусобицы. Спустя небольшой (   Читать дальше...   )Производство: СШАЖанр: фантастика, триллер, драмаРежиссер: Ник ХарранАктеры: Дэйзи Беттс, Чарльз Дэнс, Ози Икхайл, Джулиан МакМэхон, Колм Мини, Яэль Стоун, Майк Фогель, Эшли Цукерман, Лачлан Роланд-Кенн, Джейкоб Холт и др.Перевод: Профессиональный многоголосый закадровый - BaibaKoОзвучка: Ольга Мотрич, Юлия Котурбаш, Артемий Мирон и Сергей КорчакФормат: MKVПродолжительность: ~ 00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63992F80277A6CEC5D0AA8D8FAA50E501B2EFB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965686   (214508) от 19.12.2015
-
-Стажер / The Intern (2015) WEBRip [H.264/720p-LQ]
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214508.jpg" />
-</div>
-
-
-###  Подробнее
-
-70-летний вдовец Бен Уитакер обнаруживает, что выход на пенсию — еще не конец. Пользуясь случаем, он становится старшим стажером на сайте моды под руководством Джулс Остин.Производство: США | 	Waverly FilmsЖанр: КомедияРежиссер: Нэнси МайерсАктеры: Роберт Де Ниро, Энн Хэтэуэй, Рене Руссо, Андерс Холм, ДжоДжо Кушнер, Эндрю Рэннеллс, Адам Дивайн, Зак Перлман, Джейсон Орли, Кристина ШерерПеревод: Двухголосый закадровый, любительскийПродолжительность: 02:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410534E0B642D6AFEAEBE1143F94F96647EC7256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653533   (214458) от 16.08.2023
-
-Adobe Photoshop for Mac 2023 v.25.0.0 Beta [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop - новая, следующая за CC 2020 версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.06.2023Разработчик: © 1990-2022 AdobeПоддерживаемая ОС: macOS X 11.2 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3D1AC78D38EEB04CFFD3FC45EB3E8CE3B397A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343625   (214269) от 08.12.2019
-
-Власти США могут внести иностранные филиалы Amazon в список пиратских организаций
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список планируется опубликовать в ближайшие неделиАдминистрация президента США Дональда Трампа намерена внести некоторые иностранные филиалы американского онлайн-ретейлера Amazon в список компаний, занимающихся распространением контрафактной продукции. Об этом сообщила в пятницу газета The Wall Street Journal со ссылкой на источники.По ее данным, соответствующий (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586284   (214261) от 28.10.2022
-
-Исследование показало, что человеческий мозг использует квантовые вычисления
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследования ученых из Дублинского университета показывают, что мозг имеет много общего с квантовым компьютером. В частности, результаты исследования свидетельствуют о том, что наши когнитивные функции мозга основаны на квантовых вычислениях. Это может объяснить, почему наш мозг превосходит суперкомпьютеры в непредвиденных обстоятельствах, когда нужно принять решение (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

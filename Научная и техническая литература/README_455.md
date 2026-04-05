@@ -1,134 +1,3 @@
-###  Публикация: 1259386   (320634) от 03.11.2018
-
-В.Б. Яковлев | Эконометрика в Excel и Statistica. Часть 1. Регрессионный анализ (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320634.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии изложены основные методы регрессионного анализа (парная и множественная регрессия), приведены соответствующие расчетные формулы, раскрыт содержательный смысл эконометрических показателей. Подробно, вплоть до пошаговых инструкций, описаны способы решения задач в табличном процессоре Microsoft Excel 2016 и статистическом пакете Statistica 10.
-Предназначено (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0476F14760737BC71F152EE9F04A0FD884E975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946456   (320617) от 03.11.2018
-
-Мохеб Костанди | Мозг человека. 50 идей, о которых нужно знать (2015) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – квинтэссенция из столетних размышлений о мозге. В нее вошли все важнейшие представления нейробиологии. Здесь вы найдете как давно существующие концепции, но рассмотренные в свете последних научных данных, так и новейшие теории о человеческом мозге, возникшие недавно. Книга проливает свет на устройство и работу самого плохо изученного органа человека. (   Читать дальше...   )Жанр: Неврология, нервная системаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE135B6ADBDA2C2DEE8E6FEF4274D756FFC0EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181936   (320614) от 08.11.2017
-
-П.Д. Волкова | Великие художники: большая книга мастеров и эпох (2017) [PDF, FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Великие художники: большая книга мастеров и эпох» объединяет в себе два заключительных тома серии «Мост через бездну» – легендарного цикла лекций Паолы Волковой – и рассказывает нам об эволюции живописи – от заката Ренессанса до наших дней, от идеального образа до сиюминутного впечатления. Паола Дмитриевна приглашает нас в долгое путешествие по мосту над бездной (   Читать дальше...   )Жанр: ИскусствоведениеФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A30D4D9BABD90B2EF2C3CE287E8675E15AE1002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075493   (320592) от 22.11.2016
-
-Елена Дмитриевна Мелешко | Христианская этика Л.Н. Толстого (2006) [PDF, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320592.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии исследуется этика Л.Н. Толстого как искусство жизни в соответствии с принципами христианского вероучения - любви, непротивления и неделания. По мнению автора, великий писатель видел основу философствования в сознании всеобщего духовного начала - Бога. Религия для Толстого есть первое, аксиоматическое жизнеощущение, в силу чего именно она должна задавать (   Читать дальше...   )Жанр: Этика, философия, монографияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C007886C170DE04F745373E42037489BA64AB4AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075372   (320564) от 22.11.2016
-
-И.Ю. Торшин, О.А. Громова | Экспертный анализ данных в молекулярной фармакологии (2012) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фармакология и медицина являются одними из крайне перспективных областей для применения современных методов интеллектуального анализа данных и распознавания образов. В этих областях существует значительное количестве задач распознавания, эффективное решение которых весьма важно для фундаментальных прорывов в современной медицине. Однако, задолго до того, как задача (   Читать дальше...   )Жанр: МонографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C774656511DFEE38DF9F5827919854F958C6944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075497   (320431) от 22.11.2016
 
 К. Маркс, Ф. Энгельс | Манифест коммунистической партии (1950) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320431.jpg" />
 </div>
 
 
@@ -165,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320429.jpg" />
 </div>
 
 
@@ -191,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319926.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319918.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319780.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319485.jpg" />
 </div>
 
 
@@ -295,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319480.jpg" />
 </div>
 
 
@@ -321,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319430.jpg" />
 </div>
 
 
@@ -347,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319342.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319340.jpg" />
 </div>
 
 
@@ -401,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319339.jpg" />
 </div>
 
 
@@ -427,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319331.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319328.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319326.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319277.jpg" />
 </div>
 
 
@@ -533,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319214.jpg" />
 </div>
 
 
@@ -559,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319211.jpg" />
 </div>
 
 
@@ -585,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319207.jpg" />
 </div>
 
 
@@ -611,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319195.jpg" />
 </div>
 
 
@@ -637,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319125.jpg" />
 </div>
 
 
@@ -663,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319124.jpg" />
 </div>
 
 
@@ -674,6 +543,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB35BCB2A3AA783B80E5BDFA12F8F6B955A341E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182031   (319080) от 09.11.2017
+
+О.Я. Баев | Следователь (основы теории и практики деятельности) (2017) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319080.jpg" />
+</div>
+
+
+###  Подробнее
+
+На основе понимания процессуальной функции следователя как уголовного преследования в досудебном производстве, использования уголовно-процессуального законодательства России и ряда других государств, обусловленной этим специфики правоприменительной деятельности в работе углубленно исследуются теоретические основы и проблемы теории его деятельности. В частности, рассмотрены (   Читать дальше...   )Жанр: Юриспруденция, Уголовное правоФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D1D3ACF72A18081EC5872EA427AA89482EB7AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958904   (319010) от 23.11.2015
+
+Г. В. Поздняк (ред.) | Азербайджан. Общегеографическая карта (2005) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание кроме подробной справочной карты Азербайджана (масштаб 1:750 000) содержит ещё и брошюру с указателем географических названий. На основном листе есть карта-схема азербайджанской столицы — Баку.Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:668B861C40083F1859408ACA46DA32A37DC4C8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259685   (318944) от 04.11.2018
+
+Сергей Куликов, Дмитрий Зыкин | Террористическая война против империи. Из архивов царского правительства (2018) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кандидат исторических наук Сергей Куликов и публицист Дмитрий Зыкин провели исследование проблемы терроризма в Российской империи. Уникальные архивные документы, воспоминания участников событий, специализированные работы отечественных и зарубежных историков – основа, на которой авторы книги показали влияние терроризма на ход русско-японской войны и на революционные (   Читать дальше...   )Жанр: Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0242791C206AE18F8EE8A505DEBADAED5DABBB77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075680   (318815) от 23.11.2016
+
+Р. Люксембург | Введение в политэкономию (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание работы Розы Люксембург "Введение в политическую экономию" осуществлено на основе русского издания, выпущенного Соцэкгизом в 1926-1931 гг. Русский текст тщательно сверен с немецким текстом рукописи Р. Люксембург, помещенном в двухтомнике избранных произведений, опубликованном в 1955 г. Институтом марксизма-ленинизма при ЦК КПСС.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2E235936B2C5FEFADF78A841E396465988999E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075618   (318811) от 23.11.2016
+
+К. Маркс, Ф. Энгельс | Из ранних произведений (1956) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318811.jpg" />
+</div>
+
+
+###  Подробнее
+
+В состав настоящего сборника входит ряд ранних произведений К. Маркса и Ф. Энгельса, не включенных во второе издание их Сочинений. Примыкая к первому тому Сочинений, сборник даёт дополнительный материал для изучения процесса перехода Маркса и Энгельса от идеализма к материализму и от революционного демократизма к коммунизму. В сборник входит также незаконченная работа (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72E411B5D69B91397C8C993791295EBE1059B85
 ```
 
 https://mybot314.ru/tekegram_catalog/

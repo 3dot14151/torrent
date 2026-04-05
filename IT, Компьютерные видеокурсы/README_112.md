@@ -1,29 +1,3 @@
-###  Публикация: 860030   (29344) от 30.01.2025
-
-Digium | Обучение основам Asterisk / Asterisk Essentials Training (2011) PCRec [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеокурс основы Asterisk -  16 глав, включающие в себя в общей сложности около 60 видеороликов, в среднем от 5 до 6 минут каждый.Жанр: VoIPСубтитры: АнглийскийЯзык: АнглийскийПродолжительность: 06:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF09B27377F944BAC113A06C0F4399A089BE031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 833545   (29217) от 31.01.2025
 
 Andrew Burgess | Building a Web App From Scratch With AngularJS (2014) PCRec
@@ -32,7 +6,7 @@ Andrew Burgess | Building a Web App From Scratch With AngularJS (2014) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29217.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Deworker Pro, Дмитрий Елисеев | Стрим про безопасн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29069.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29054.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28963.jpg" />
 </div>
 
 
@@ -145,7 +119,7 @@ Merion Academy, Сергей Егоров | MikroTik (2024) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28956.jpg" />
 </div>
 
 
@@ -172,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28849.jpg" />
 </div>
 
 
@@ -198,7 +172,7 @@ Infostart, Артур Аюханов, Александр Кунташов, Ва�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28720.jpg" />
 </div>
 
 
@@ -227,7 +201,7 @@ ITVDN | VUE.JS (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28530.jpg" />
 </div>
 
 
@@ -253,7 +227,7 @@ Merion Academy, Никита Буцев | Онлайн-курс по сетев�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28521.jpg" />
 </div>
 
 
@@ -279,7 +253,7 @@ Master-Skills & Андрей Скидан | Программирование б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28507.jpg" />
 </div>
 
 
@@ -306,7 +280,7 @@ Systems.Education | Конференция по проектированию п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28492.jpg" />
 </div>
 
 
@@ -332,7 +306,7 @@ Product University, Анна Филина, Дмитрий Жечков, Алек
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28441.jpg" />
 </div>
 
 
@@ -358,7 +332,7 @@ Skillbox, Дмитрий Шадрин, Арсений Павлов | Специ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28435.jpg" />
 </div>
 
 
@@ -384,7 +358,7 @@ Network for Everyone (NFE, N4E) | Внедрение Cisco ACI. Базовый �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28310.jpg" />
 </div>
 
 
@@ -413,7 +387,7 @@ Network for Everyone (NFE, N4E) | Внедрение Cisco SD-WAN (Viptela). Б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28284.jpg" />
 </div>
 
 
@@ -442,7 +416,7 @@ PurpleSchool, Антон Ларичев, Дмитрий Мозулёв | Сов�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28092.jpg" />
 </div>
 
 
@@ -470,7 +444,7 @@ Andrew Perkins | Build a CMS in Symfony 2 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28021.jpg" />
 </div>
 
 
@@ -496,7 +470,7 @@ Product University, Дмитрий Жечков, Артем Новиков | Сu
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27909.jpg" />
 </div>
 
 
@@ -525,7 +499,7 @@ Microarch, Кирилл Ветчинкин | Микросервисная арх
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27797.jpg" />
 </div>
 
 
@@ -554,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27753.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ Convert Monster | Яндекс.Метрика (2014) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27705.jpg" />
 </div>
 
 
@@ -607,7 +581,7 @@ D-Link | Видеоматериалы про основы сетевых тех�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27704.jpg" />
 </div>
 
 
@@ -633,7 +607,7 @@ Dartware | Многопоточность в C++ (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27701.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Frontendblok, Анна Блок | «Продвинутый курс по вёр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27675.jpg" />
 </div>
 
 
@@ -685,7 +659,7 @@ Deworker Pro, Дмитрий Елисеев | Большой стрим про S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27664.jpg" />
 </div>
 
 
@@ -697,6 +671,32 @@ Deworker Pro, Дмитрий Елисеев | Большой стрим про S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9E0624B2BDA9D114FD1CD664BD0CA38C1565709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779612   (27659) от 14.02.2025
+
+Deworker Pro, Дмитрий Елисеев | Способы ускорения PHP-приложений (2024) WEB-DLRip [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучим методы повышения быстродействия веб-приложения. От простого активации OpCache, кеширования настроек и ленивой инициализации сервисов до применения Preload с JIT и RoadRunner, асинхронности, использования Fibers и других особенностей в различных фреймворках. Выполним практику на проектах с бенчмарками. Обсудим потенциальные проблемы, удобство разработки stateless-сервисов (   Читать дальше...   )Производство: Deworker ProЖанр: СтримЯзык озвучки: РусскийПродолжительность: 11:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900C6B76584B28DBC7EFD82D6EAD606986D246F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

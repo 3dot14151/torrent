@@ -6,7 +6,7 @@ VA - Территория DDT (Трибьют DDT) (2020) [AAC|~317 Kbps] <Rock,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378573.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378497.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378462.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378332.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378318.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378030.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mamma Mia! 2 / Mamma Mia! Here We Go Again (2018) WEB-DL [720p] ATV
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377378.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377257.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377229.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377165.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377058.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Selena Gomez - Revival (Deluxe) (2015) [AAC|256 кб/с]<Pop, Dance-pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377050.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Desireless - François (1989) [AAC|~357 Kbps]<Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376988.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ The Doors - Morrison Hotel (50th Anniversary Deluxe Edition) (2020) [AAC|~319 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376982.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376981.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ U96 / Wolfgang Flür - Transhuman (2020) [AAC|~342 Kbps]<Electronic, Synth-pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376979.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Italobox - Best of Italobox (Expanded Edition, New Italo Disco Hits) (2020) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376977.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376975.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376895.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Milk & Sugar: Beach Sessions 2020 (2020) [AAC|~328 Kbps] <Deep House, Nu Di
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376867.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Pupo - Su di noi - The Best of Pupo (2020) [AAC|~351 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376864.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Jazz Ballads, Vol. 3 (2020) [AAC|~300 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376863.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Jazz Ballads, Vol. 2 (2018) [AAC|~300 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376700.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376699.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376697.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Secret Garden - Nocturne: The 25th Anniversary Collection (2020) [AAC|~319 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376695.jpg" />
 </div>
 
 

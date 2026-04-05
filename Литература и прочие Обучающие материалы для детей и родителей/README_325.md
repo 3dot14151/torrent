@@ -1,3 +1,55 @@
+###  Публикация: 1260991   (307706) от 09.11.2018
+
+Конни Глинн | Принцесса под прикрытием (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лотти Тыквен, обыкновенная четырнадцатилетняя девочка, всегда хотела побыть немного особой королевской крови. Её ровесница Элли Вулф, наследница небольшого европейского престола, напротив, мечтала о жизни простого подростка за пределами дворца. Лотти и Элли оказываются соседками по комнате в чудесной, старинной, окруженной розовым садом и вековыми тайнами школе Роузвуд-Холл. (   Читать дальше...   )Жанр: ФэнтезиПеревод: Надежда СечкинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009082F06BAE29BFBE9655DE660A9524A2B05802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260859   (307700) от 09.11.2018
+
+Э.В. Александрова, В.А. Левшин | Искатели необычайных автографов, или странствия, приключения и беседы двух филоматиков (1982) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга знакомит читателей с приключениями двух забавных чудаков, которые, попадая в разные страны и эпохи, получают разнообразные сведения из истории математики других наук и искусства.Жанр: Познавательная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D9D41F68AA7C29EAA2AF1F885B687C008172B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332374   (307658) от 23.10.2019
 
 Лидия Чарская | Малютка Марго (1916) [PDF]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307658.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307649.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307647.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307602.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307481.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307480.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307464.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307345.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307342.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307315.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307312.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307305.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307303.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307228.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307209.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307144.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307127.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307124.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306886.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306885.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306786.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306686.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306681.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306483.jpg" />
 </div>
 
 
@@ -630,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65412A0423B5F134A9EDDC7EAEB7097DE125711C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499702   (306481) от 03.12.2013
-
-Ефим Чеповецкий | Собрание сочинений [7 книг] (1959-1979) [FB2, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ефим Петрович Чеповецкий - русский и украинский детский писатель, драматург.
-Написал несколько великолепных детских книг.
-Кстати, сценарий мультика Приключения капитана Врунгеля (по мотивам повести А. Некрасова) тоже дело рук Чеповецкого.Жанр: СказкиФормат: FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E08F8A4518899C284A6BA3F6806D1C28E83CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729996   (306378) от 03.12.2013
-
-Лев Кассиль | Твои защитники (1970) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы о воинах защитниках РодиныЖанр: Для дошкольного возрастаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FA67E8B57FB0D1D2F7E4B5E94D1827384970EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

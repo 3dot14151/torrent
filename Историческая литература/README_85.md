@@ -1,34 +1,3 @@
-###  Публикация: 497954   (253759) от 17.05.2012
-
-Книжная серия | "Энциклопедия спецслужб" (3 книги) [2008-2011] [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энциклопедия спецслужб - серия книг о деятельности самых мощных спецслужб.
-Моссад, ЦРУ, Смерш, КГБ и др.
-
-Внешняя разведка СССР
-Спецслужбы Российской Империи
-ЦРУ и другие спецслужбы США2008-2011Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6FB87F04C0A7A23502F2E8EB3456FF59DC5F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836257   (252423) от 09.11.2025
 
 Денис Бояринов | Цой. История рок-звезды в буквах и картинках (2024) [PDF]
@@ -37,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252423.jpg" />
 </div>
 
 
@@ -63,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250944.jpg" />
 </div>
 
 
@@ -89,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250838.jpg" />
 </div>
 
 
@@ -115,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250125.jpg" />
 </div>
 
 
@@ -143,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250113.jpg" />
 </div>
 
 
@@ -170,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249868.jpg" />
 </div>
 
 
@@ -198,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249611.jpg" />
 </div>
 
 
@@ -224,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249479.jpg" />
 </div>
 
 
@@ -250,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246085.jpg" />
 </div>
 
 
@@ -276,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245864.jpg" />
 </div>
 
 
@@ -302,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245025.jpg" />
 </div>
 
 
@@ -328,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242336.jpg" />
 </div>
 
 
@@ -354,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230056.jpg" />
 </div>
 
 
@@ -382,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229920.jpg" />
 </div>
 
 
@@ -408,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229797.jpg" />
 </div>
 
 
@@ -434,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229365.jpg" />
 </div>
 
 
@@ -462,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228982.jpg" />
 </div>
 
 
@@ -489,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228872.jpg" />
 </div>
 
 
@@ -516,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228078.jpg" />
 </div>
 
 
@@ -542,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226770.jpg" />
 </div>
 
 
@@ -569,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226387.jpg" />
 </div>
 
 
@@ -595,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226273.jpg" />
 </div>
 
 
@@ -622,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226034.jpg" />
 </div>
 
 
@@ -648,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225852.jpg" />
 </div>
 
 
@@ -674,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225692.jpg" />
 </div>
 
 
@@ -685,6 +654,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD6B5C31606E91918EAE59816BB53FAD1A9ECE3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268709   (225083) от 12.12.2018
+
+А. Бебель | Государство будущего [Социалистическое общество] (1918) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда совершится всеобщее отчуждение всех средств и орудий производства в пользу общества, это создаст новые основы. С этих пор коренным образом изменятся условия жизни и труда мужчин и женщин, как в области обрабатывающей промышленности и земледелия, путей и средств сообщения, так и в области воспитания, семьи, научной, художественной и общественной жизни. Человеческое (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7466A7E5A899FC86CE181D2FCF9F54584436F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

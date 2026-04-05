@@ -6,7 +6,7 @@ MAMP & MAMP PRO 3.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634231.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Apple Final Cut Pro X 10.1.2,  Motion 5.1.1 & Compressor 4.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634183.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Remotix VNC & RDP 4.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634042.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Any RecScreen 2.0.71 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633830.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ SQLPro Studio 2022.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633819.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Baldur's Gate II: Enhanced Edition v.2.5.16.4 (2013) [Multi/Ru] [macOS Native ga
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633656.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VideoProc Converter 4K 4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633556.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Stellar Phoenix Mac Data Recovery 7.0.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633476.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Privatus 5.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633385.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Boom 3D v1.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633263.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ BlueHarvest 6.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633150.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VueScan Pro 9.5.80 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633020.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Blocs 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632584.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Color Finale 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632369.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ TechSmith Snagit 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632253.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ AnyToISO PRO 3.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632194.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631967.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Capture One Pro 9.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631927.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ MAMP & MAMP PRO 3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631919.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Tweetbot for Twitter 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631884.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Flume Pro ~ A beautiful Instagram experience for your desktop 2.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631350.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631147.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Serial Box 07-2014 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630965.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Short Menu 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630583.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ KCNcrew Pack 07-15-16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630516.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Navicat Premium 11.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630308.jpg" />
 </div>
 
 

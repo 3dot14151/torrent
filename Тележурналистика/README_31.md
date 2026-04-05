@@ -1,29 +1,3 @@
-###  Публикация: 1015724   (774276) от 11.05.2016
-
-Тайный мир золота / The secret world of gold (2013) DVB
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золотом украшены храмы и соборы, оно встроено в телефоны, золото покрывает наши пальцы. Однако за золотом может скрываться черное прошлое. Но после переплавки этого не поддающегося коррозии металла прошлое испаряется. Вполне вероятно, что вы носите в ушах золото конкистадоров, инков и даже нацистов. Вместе с кладоискателями вы сможете проникнуть на рынки Дубаи, а (   Читать дальше...   )Телекомпания: Канада, CMF-FMCЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE178C46855906CB8C80F0277303732822B8FA6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015491   (774275) от 11.05.2016
 
 Сан-Франциско 2.0 / San Francisco 2.0 (2015) HDTV [H.264/1080i]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774275.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774056.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773460.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773256.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773106.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772675.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771661.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770533.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770377.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770281.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769848.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769844.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769814.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769744.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769692.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769689.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769688.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769561.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769098.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768967.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768939.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768527.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767986.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767342.jpg" />
 </div>
 
 
@@ -656,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767112.jpg" />
 </div>
 
 
@@ -667,6 +641,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC74F8036A397DA2C06E665A302E2EDE2F045EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393659   (766840) от 01.07.2020
+
+Беседы с убийцей: Записи Теда Банди / Conversations with a Killer: The Ted Bundy Tapes (2019) WEBRip [H.264/720p] (сезон 1, эпизоды 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал расскажет об одном из самых жутких маньяков в истории Америки — Теде Банди. К своим 42 годам мужчина, кажущийся на первый взгляд очаровательным, признался в убийстве более тридцати женщин, с которыми он расправлялся в течение четырех лет. Однако реальное количество жертв до сих пор не установлено. С помощью архивных заметок, видеороликов, полицейских (   Читать дальше...   )Телекомпания: США | Elastic, Gigantic Studios, Outpost DigitalЖанр: Документальный, криминал, биография, историяРежиссер: Джо БерлингерПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (hardsub) на надписиПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF777087634A2AA1F991F61D1742AB1452DEB644
 ```
 
 https://mybot314.ru/tekegram_catalog/

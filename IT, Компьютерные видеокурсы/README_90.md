@@ -1,29 +1,3 @@
-###  Публикация: 1592155   (184879) от 20.11.2022
-
-Udemy, Sergey Dragunov | Room Persistance Librar - Приложение ShoppingList на Котлин (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184879.jpg" />
-</div>
-
-
-###  Подробнее
-
-На данном курсе мы изучим подробно работу с библиотекой Room persistance library для работы с базой данных SQLite. Для того что бы уроки были более понятными и интересными, проще усвоились мы будем изучать данную тему на создание полностью законченного приложения "Список покупок и Блокнот", а именно у нас будет два в одном. В процессе создания мы не только (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 14:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B72D5013C3277DF6772599DD0B3C37E28EE3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427024   (184801) от 26.11.2020
 
 Udemy, Никита Сергеев | Power Point: от новичка до уверенного бизнес-пользователя (2020) PCRec
@@ -32,7 +6,7 @@ Udemy, Никита Сергеев | Power Point: от новичка до ув�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184801.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Udemy, Lucy Iterman | Postman по полочкам + практика (2022) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184790.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ Udemy, Andrei Neagoie и др. | JavaScript веб проекты: 20 проек
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184775.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ Smartpoly | Unreal Engine 5 Multiplayer Steam Survival Game Course (2022) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184744.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ Udemy, Артем Баданов | Изучение C++ с нуля (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183698.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ Domestika, Bruno Imbrizi | Creative Coding 2.0 in JS: Animation, Sound, & Color 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183480.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183351.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ Udemy, Macheronte Courses | Изучите Python и создайте свой �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182795.jpg" />
 </div>
 
 
@@ -248,7 +222,7 @@ Udemy, Timur Mashnin | SEO: Введение в поисковую оптими�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182661.jpg" />
 </div>
 
 
@@ -275,7 +249,7 @@ Udemy, Vasyl Velmyk | Курс по Front-End. От основ JavaScript до R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182564.jpg" />
 </div>
 
 
@@ -302,7 +276,7 @@ Udemy, DevelopIntelligence Team | Node Микросервисы / Node Microserv
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181992.jpg" />
 </div>
 
 
@@ -328,7 +302,7 @@ Udemy, Dr. Ryan Ahmed и др. | Мастер-класс по современн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181898.jpg" />
 </div>
 
 
@@ -354,7 +328,7 @@ Ismail Mahmudov | Пошаговая установка Arch Linux (2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181801.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181759.jpg" />
 </div>
 
 
@@ -406,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181757.jpg" />
 </div>
 
 
@@ -435,7 +409,7 @@ GeekBrains, Андрей Заярный и др. | C#. Базовый и про�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181742.jpg" />
 </div>
 
 
@@ -464,7 +438,7 @@ Merion Academy, Иван Тишин | Администрирование MS Wind
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181729.jpg" />
 </div>
 
 
@@ -492,7 +466,7 @@ itProger, Гоша Дударь | C++. Изучение языка C++, WinForms
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181717.jpg" />
 </div>
 
 
@@ -520,7 +494,7 @@ Skillbox, Алексей Никушин | Аналитика данных на P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181710.jpg" />
 </div>
 
 
@@ -549,7 +523,7 @@ Slurm (Слёрм), Иван Чувашов | Оптимизация запро�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181336.jpg" />
 </div>
 
 
@@ -577,7 +551,7 @@ Slurm (Слёрм), Кирилл Борисов | Jenkins: СI/CD для DevOps 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181320.jpg" />
 </div>
 
 
@@ -603,7 +577,7 @@ Slurm (Слёрм), Алексей Барабанов | Rabbit MQ (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181299.jpg" />
 </div>
 
 
@@ -629,7 +603,7 @@ Karpov.courses, Александр Сахнов, Валерий Бабушкин
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181048.jpg" />
 </div>
 
 
@@ -658,7 +632,7 @@ Javabegin, Тимур Батыршинов | Базы данных и SQL - с �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_180987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_180987.jpg" />
 </div>
 
 
@@ -685,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180646.jpg" />
 </div>
 
 
@@ -696,6 +670,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D48C350B4343E64DCDAC44394B3399FB5B6DAB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593310   (180614) от 26.11.2022
+
+ProductStar, Денис Соболев и др. | Курс "Аналитик данных" (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните свою карьеру в анализе данных на курсе "Аналитик данных". Освойте все необходимые для аналитика навыки: от Google-таблиц до Python, SQL и Power BI.
+Сейчас на рынке более 5400+ вакансий Аналитиков от ведущих компаний (с которыми мы сотрудничаем) — Яндекс, Skyeng, Nimax, Ingate, RedKeds, Selectel, Avito и другие.
+Мы поможем вам получить необходимые (   Читать дальше...   )Производство: ProductStarЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 85:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C12A1DD4E86D4F2FB36DEEB330C0E8DD8DC508C
 ```
 
 https://mybot314.ru/tekegram_catalog/

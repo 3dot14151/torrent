@@ -1,3 +1,109 @@
+###  Публикация: 1444401   (1034593) от 01.02.2021
+
+Apowersoft CAD Viewer 1.0.3.1 Portable by Spirit Summer [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apowersoft CAD Viewer. Простое в использовании, но полнофункциональное программное обеспечение САПР, которое может быстро просматривать, комментировать, измерять, редактировать и преобразовывать Ваши чертежи..Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1595F97F96B4E36E9B2833BF977D3E99260680E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618128   (1034266) от 10.03.2023
+
+MCBoot WinPE VN 2023 PRO v9.6 build 010323 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034266.jpg" />
+</div>
+
+
+###  Подробнее
+
+MCBoot WinPE VN 2023 PRO Набор инструментов для восстановления компьютера с современным дизайном, чрезвычайно быстрой скоростью загрузки, совместимый со старыми компьютерами и новейшими компьютерами. MCBoot WinPE VN 2023 PRO предлагает множество расширенных функций для решения компьютерных проблем, особенно подходящих для инженеров-ИТ. Каждая деталь MCBoot WinPE (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F2AF662AE3EF48C0CCF3F2367F1D0DF05A9C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619558   (1032906) от 16.03.2023
+
+Microsoft Visual Studio 2019 Enterprise 16.11.25 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53499241617CC4CD90601B869CDD032907815A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445687   (1032806) от 08.02.2021
+
+Microsoft SQL Server 2012 11.0.7001.0 (Service Pack 4) [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Серверное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032806.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQL Server 2012, известный ранее под кодовым именем Denali, получил новую редакцию Business Intelligence и будет доступен по новым схемам лицензирования. Первая CTP-версия продукта была представлена еще в ноябре 2010 года. С того момента SQL Server 2012 успели оценить более 150 000 пользователей.
+
+В SQL Server 2012 компания решила сфокусироваться на обеспечении высокой (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA1A457A88151C1BA57AB6D1A0BE10980904DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446639   (1032443) от 10.02.2021
 
 OpenSCAD 2021.01 + Portable [Multi/Ru]
@@ -6,7 +112,7 @@ OpenSCAD 2021.01 + Portable [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032443.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Synopsys Synplify 2019.03 SP1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032043.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ Microsoft Windows Desktop Runtime 5.0.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032010.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ HyperX NGENUITY 5.2.8.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031736.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ Microsoft SQL Server 2022 16.0.1000.6 (RTM) + CU2 + SSMS [Ru/En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029545.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ PGI Visual Fortran + Workstation C/C++ 11.7 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029367.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ Unity Pro 2019 4.21f1 x64 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027663.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ Golden Software Surfer 20.1.195 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026864.jpg" />
 </div>
 
 
@@ -222,7 +328,7 @@ Nemetschek Vectorworks 2020 SP1 build 512839 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026701.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ ESRI ArcGIS Pro 2.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026646.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ Pitney Bowes MapInfo Pro 17.0.3 r19 x64 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026486.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ Unity Pro 2020 2.7f1 x64 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026303.jpg" />
 </div>
 
 
@@ -328,7 +434,7 @@ ESRI ArcGIS Pro + Addons 2.5 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025528.jpg" />
 </div>
 
 
@@ -354,7 +460,7 @@ Help+Manual Professional Edition 8.3.1 Build 5793 + HelpXplain 1.4.0.1345 + Prem
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023918.jpg" />
 </div>
 
 
@@ -380,7 +486,7 @@ InstallAware Studio Admin X13 Build 3.9 2021 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022024.jpg" />
 </div>
 
 
@@ -406,7 +512,7 @@ HelpXplain 1.5.0.1428 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020793.jpg" />
 </div>
 
 
@@ -434,7 +540,7 @@ Game WideScreener 2.0.1 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014618.jpg" />
 </div>
 
 
@@ -460,7 +566,7 @@ Apowersoft CAD Viewer 1.0.4.1 RePack (& Portable) by TryRooM [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011604.jpg" />
 </div>
 
 
@@ -486,7 +592,7 @@ Active PKiller 1.6 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010097.jpg" />
 </div>
 
 
@@ -512,7 +618,7 @@ NVIDIA GeForce Experience 3.23.0.74 Final [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009495.jpg" />
 </div>
 
 
@@ -538,7 +644,7 @@ X7 5-Mode Wireless for R4 (H8GR4) mouse V11.09V02 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008256.jpg" />
 </div>
 
 
@@ -564,7 +670,7 @@ CorelCAD 2021.5 Build 21.1.1.2097 RePack by KpoJIuK [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007355.jpg" />
 </div>
 
 
@@ -575,111 +681,6 @@ CorelCAD 2021 – САПР-решение профессионального у�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F549521E3CDBE92A151278E9B0BEDC95E2423E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484050   (1006195) от 18.07.2021
-
-LiraLand LIRA-SAPR + SAPFIR (ЛИРА-САПР + САПФИР) 2015 R4 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многофункциональный программный комплекс ЛИРА-САПР, предназначен для проектирования и расчета строительных и машиностроительных конструкций различного назначения (программа расчета конструкций). Расчет выполняется на статические (силовые и деформационные) и динамические воздействия. Выполняется подбор или проверка сечений стальных и(или) железобетонных конструкций. (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550E43AA209F50FE6E8177576957300662D4BB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485596   (1005294) от 26.07.2021
-
-Java SE Development Kit 16.0.2 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
-Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3755F105525A37BD7F28516953BC5E1A4A460F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599324   (999015) от 07.01.2013
-
-Драйверы для ноутбуков ASUS K45A/K45VM/K45VG/K45VS/K45VD/K75A/K75VM/K75VD/K95VM Driver & Utility Ver 8.0 [Rus/Eng]
-
->>Софт и оболочки для специалистов, Прочее
->>Драйверы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999015.jpg" />
-</div>
-
-
-###  Подробнее
-
-К вашему вниманию предлагаю образ оригинального диска идущего в комплекте с ноутбуком ASUS K75VM. Диск включает в себя все необходимые программы/драйвера для работы ноутбука. Windows 7 отлично воспринимает все программы, все проверено, все работает.Название программы: Драйвера для ноутбуков ASUS K45A/K45VM/K45VG/K45VS/K45VD/K75A/K75VM/K75VD/K95VM Driver & Utility Ver 8.0Язык интерфейса: Rus/Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602630   (997350) от 13.01.2013
-
-Advanced Find and Replace 7.8.1 [Multi/Русский]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это быстрая, легкая в использовании утилита, которая является превосходным помощником для программистов или веб мастеров в особенности. Эта мощная утилита позволяет Вам выполнять текстовый поиск на Вашем локальном компьютере также, как если бы Вы использовали поисковик по интернету. Ее язык запросов позволяет указывать в поиске фразы, слова, которые должны обязательно присутствовать (+) или обязательно отсутствовать (-). Вы также можете легко применять фильтры по типам файлов, дате или размеру. Программа позволяет Вам заменять однострочный или многострочный текст. Выберите пары текста для поиска и замены, затем выберите действие, которое Вы хотите предпринять: удалить строку поиска, вставить текст до или после заданного текста, или просто заменить текст. Вы даже можете применить групповые замены к большой группе файлов за одну операцию или делать замену только в выбранных файлах, если Вам это потребуется.Название программы: Advanced Find and ReplaceЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

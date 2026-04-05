@@ -1,3 +1,81 @@
+###  Публикация: 1764636   (2887) от 14.09.2025
+
+Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0 Build 19682311/dlc) Repack Other s [Premium Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте одну из величайших тайн истории в однопользовательской приключенческой игре от первого лица Indiana Jones and the Great Circle, действие которой происходит между событиями фильмов «В поисках утраченного ковчега» и «Последний крестовый поход». В 1937 году зловещие личности начинают искать ключ к древней силе, связанной с большим кругом, и остановить их может (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96F95A764280A31B0840BED765A2C957A40E232E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635727   (2849) от 14.09.2025
+
+The Blackwell Unbound (2007) [En] (4.5) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1973 год. Звук одинокого саксофона дрейфует над набережной острова Рузвельта, в то время как серия аварий наносит ущерб строительной площадке в центре города. Граждане Манхэттена не обращают внимания на эти события, не говоря уже о том, что они взаимосвязаны. Лорен Блэквелл и её духовный наставник Джоуи Мэллоун – единственные, кто верит в то, что происходит нечто (   Читать дальше...   )Тип издания: LicenseРазработчик: Wadjet Eye GamesЖанр: Приключение, Квест, ДeтективЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A7378ABE23C3DA15BD1F652A6EC86FCB0D41B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636004   (2840) от 14.09.2025
+
+Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2840.jpg" />
+</div>
+
+
+###  Подробнее
+
+2087 год. Человечество вступило в эру генной инженерии: Транс заменяет многим живое человеческое общение, а городом управляет вездесущий искусственный интеллект под названием Централ. Всевидящая полиция CEL следит за каждым, включая троих людей, готовящихся к встрече со своим создателем.Тип издания: LicenseРазработчик: TechnocratЖанр: Приключение, КвестЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5120041613D2892EFFA1DBF9CA3C1CB020C276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818051   (2817) от 14.09.2025
 
 The Procession to Calvary (2020) [Multi] (1.0.0) License GOG
@@ -6,7 +84,7 @@ The Procession to Calvary (2020) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2817.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Alters (2025) [Ru/Multi] (1.3.0.7/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2714.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18854438) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2585.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 889.22 Online 1.71) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2579.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.3.4) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2578.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Monster Prom (2018) [Multi] (8.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2552.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Elroy and the Aliens (2025) [Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2539.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250826) Re
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2419.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Mildew Children / Дети Плесени (2024) [Ru/Multi] (1.4.4) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2280.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2262.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.10.0/dlc) Repack Wante
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1928.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack dixen1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1926.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1763.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.09.22.07.56/dlc) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1385.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Mateusz Skutnik Collection (2021-2025) [Ru/Multi] (2.3.49/1.0.50/1.1.7a ) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1317.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (738144) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1088.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Revenge of the Savage Planet (2025) [Multi] (025-9-9-106947/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_716.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Mystery Of Woolley Mountain (2019) [Multi] (14.3/dlc) License GOG [Complete 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_625.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Monolith (2023) [Ru/Multi] (1.1.7.001) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_426.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ One Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19955863
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_425.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ SOMA (2015) [Ru/Multi] (Build 20049349) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_361.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Alters (2025) [Ru/Multi] (550832/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_198.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Mirage Ignis Fatuus (2025) [Ru/Multi] (1.1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67.jpg" />
 </div>
 
 

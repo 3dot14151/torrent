@@ -1,3 +1,58 @@
+###  Публикация: 917587   (588926) от 12.07.2015
+
+Манглхорн / Manglehorn  (2014) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эй Джей Манглхорн, на первый взгляд, ничем не примечательный, обычный, стареющий человек, тихо живущий в маленьком городе: он нянчится со своим котом, каждую пятницу ходит в банк, всегда обедает в одном и том же заведении. Но у этого старика богатое прошлое: в молодости он был преступником, и однажды должен был сделать главный выбор в жизни - между любовью женщины (   Читать дальше...   )Производство: СШАЖанр: ДрамаРежиссер: Дэвид Гордон ГринАктеры: Аль Пачино, Холли Хантер, Крис Мессина, Хармони Корин, Натали Вайлмон, Джун Гриффин Гарсиа, Лара Шах, Сьерра Скотт, Тед Фергюсон, Скайлар Гаспер, Ребекка Франкьоне, Артур МаррокинПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые, отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B709AA0D5EE3B00A98CF470388D1AFA52AD543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551692   (588872) от 18.05.2022
+
+Очередное достижение: 1000 релизов от Russian Mafia!!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_588872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 1000 релизов от Russian Mafia!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища, участника группы "RG Releasers" с 1000-м релизом!От всей души поздравляем
+Russian Mafia
+с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации nnm-club!
+ Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 766240   (588690) от 30.07.2014
 
 Верь / Believe (2014) WEB-DLRip [720p] (Сезон 1, серии 1-13 из 13) (LostFilm)
@@ -6,7 +61,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588690.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588687.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Switch UI Language Adobe CC 2015 1.0 [En] (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588481.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ AusLogics BoostSpeed 5.5.1.0 RePack (& Portable) by elchupacabra (Upd. 12.07.201
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588478.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588475.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_588181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_588181.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_588021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_588021.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ FL Studio Producer Edition 12.3 build 72 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588013.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ Fallout 4: Vault-Tec Workshop (2016) [Ru/En] (1.6.3.0.1) License [DLC]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588012.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588007.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_588003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_588003.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ Google подтвердила: ваши данные активности буд
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_587890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_587890.jpg" />
 </div>
 
 
@@ -320,7 +375,7 @@ Microsoft патентует технологию слежки за пользо
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587855.jpg" />
 </div>
 
 
@@ -346,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587823.jpg" />
 </div>
 
 
@@ -372,7 +427,7 @@ Microsoft Office 2010 VL Professional Plus [SP1] x86 [Русский] [Unattende
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587748.jpg" />
 </div>
 
 
@@ -399,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587742.jpg" />
 </div>
 
 
@@ -425,7 +480,7 @@ F1 2015 (2015) [Ru/Multi] (1.0.1.8) RePack R.G. Steamgames
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587602.jpg" />
 </div>
 
 
@@ -451,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587601.jpg" />
 </div>
 
 
@@ -477,7 +532,7 @@ Far Cry: Операция-Телепортация (2022) [Ru/En] (1.0) Repack/M
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587498.jpg" />
 </div>
 
 
@@ -503,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587161.jpg" />
 </div>
 
 
@@ -529,7 +584,7 @@ Jetico BestCrypt 9.02.10 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587129.jpg" />
 </div>
 
 
@@ -555,7 +610,7 @@ Satisfactory (2019) [Ru] (0.1.6) Repack xatab [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586893.jpg" />
 </div>
 
 
@@ -581,7 +636,7 @@ Everspace (2017) [Ru/Multi] (1.3.4.36508/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586881.jpg" />
 </div>
 
 
@@ -607,7 +662,7 @@ Slimjet 4.0.13.0 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586771.jpg" />
 </div>
 
 
@@ -618,58 +673,6 @@ Slimjet 4.0.13.0 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DF673C784E83AEEF6ABCA3395BC7360E36978CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356290   (586724) от 01.07.2011
-
-S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / SGM 1.7 [Ru] (RePack) 2009/2010 | R.G. NoLimits-Team GameS
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание собственной сюжетной линии, введение новых ключевых персонажей, новой квестовой линии, изменяющих и расширяющих оригинальный игровой мир.Тип издания: Перепакованная лицензияЖанр: Action (Shooter) / Add-on / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D5F3B1B6B53F4640C49992831837C6D21D3A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918606   (586592) от 15.07.2015
-
-Adobe Acrobat Professional DC (v15.8) Multilingual
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Acrobat Professional DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. Он содержит множество интеллектуальных функций, которые предоставляют дополнительные возможности (   Читать дальше...   )Язык интерфейса: Английский / Венгерский / Голландский / Датский / Испанский / Итальянский / Китайский (упрощенный) / Китайский (традиционный) / Корейский / Немецкий / Норвежский / Польский / Португальский / Русский / Словацкий / Словенский / Турецкий / Украинский / Финский / Французский / Чешский / Шведский / Японский / Английский с поддержкой арабского письма / Английский с поддержкой (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02423811E01B0FB6BAFE3ECF03E7FD0D0AEECC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

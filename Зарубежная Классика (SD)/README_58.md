@@ -1,3 +1,55 @@
+###  Публикация: 1298415   (599332) от 01.05.2019
+
+Непобежденный / Unconquered (1947) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепная историческая драма о конфликте между индейцами и колонистами. Несправедливо осужденная в Англии Марта Хейл продана в рабство в Северную Америку, где она встречает капитана Кристофера Холдена…Производство: США / Paramount PicturesЖанр: Драма, Мелодрама, Приключения, Вестерн, ИсторияРежиссер: Сесил Б. ДеМилльАктеры: Гэри Купер, Полетт Годдар, Ховард Да Сильва, Борис Карлофф, Сесил Келлауэй, Уорд Бонд, Вирджиния Кэмпбелл, Кэтерин ДеМиль, Генри Уилкоксон, С. Обри СмитПеревод: Многоголосый закадровый (Петербург 5-й канал)Субтитры: АнглийскиеПродолжительность: 02:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9371B51B8BAAF6C5927EB521E83CAD23378CAD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038465   (599293) от 30.07.2016
+
+Опасные попутчики / The Deadly Companions (1961) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший офицер армии северян по кличке «Желтоногий», отправляется с двумя попутчиками грабить банк. Однако, прямо перед их носом, деньги уносят другие бандиты. В перестрелке с ними "Желтоногий" убивает невинного мальчика. Бандиты отправляются в погоню за грабителями банка, одновременно сопровождая мать убитого малыша, везущую единственного сына кладбище. (   Читать дальше...   )Производство: США / Carousel Productions (III), PathГ© AmericaЖанр: ВестернРежиссер: Сэм ПекинпаАктеры: Морин О’Хара, Брайан Кит, Стив Кокран, Чилл Уиллс, Стразер Мартин, Уилл Райт, Джеймс О’Хара, Питер О’Кротти, Билли Воэн, Хэнк ГобблПеревод: Многоголосый закадровый, авторскийПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E23D555C4CB7266AB3C33E7C66E6A7CB49C342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037498   (599292) от 30.07.2016
 
 Великолепная одержимость / Magnificent Obsession (1954) DVDRip [H.264] [АVO]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599292.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598145.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597977.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597231.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596857.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596297.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596286.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596143.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596125.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596109.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595995.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_595515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_595515.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595490.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595340.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594878.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594788.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594777.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594603.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594468.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594267.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594028.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593839.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593477.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593115.jpg" />
 </div>
 
 
@@ -624,64 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91A7C2F7B9A8B1034B71819CC64C45EBFBB7C9C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 49997   (592735) от 08.05.2022
-
-Три шага в бреду / Fellini - Histoires extraordinaires / Spirits of the dead (1968) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два великих режиссера, Феллини и Луи Маль, плюс великий сценарист, Роже Вадим, плюс великие актеры - Ален Делон, Брижит Бардо, Джейн Фонда, Питер Фонда и другие - я думаю, одного этого списка достаточно, чтобы заинтересовать каждого любителя кинематографа.
-
-Три отдельных повести, по мотивам произведений Эдгара По, в которых смешаны преступления, страсть, эротика (   Читать дальше...   )Жанр: мистикаРежиссер: Фредерико Феллини, Луи МальАктеры: Ален Делон
-Брижит Бардо
-Джейн Фонда
-Питер ФондаПеревод: МногоголосыйПродолжительность: 02:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D578B0394D4F2917C05424DCF9FAEB51A1DB183E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782574   (592574) от 09.05.2022
-
-Мне было девятнадцать / Ich war neunzehn (1967) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героями картины являются режиссер Конрад Вольф, тогда 19-летний офицер Советской Армии, и его фронтовые друзья - капитаны Александр Цыганков и Владимир Галл. Всем им сценаристы оставили воинские звания, но несколько изменили имена - в фильме это Грегор Хеккер, Саша Цыганюк и Вадим Гейман.
-Сценарий написал сам Конрад Вольф в содружестве с кинодраматургом Вольфгангом (   Читать дальше...   )Жанр: ДрамаРежиссер: Конрад ВольфАктеры: Джеки Шварц, Василий Ливанов, Алексей Эйбоженко, Галина Польских, Рольф Хоппе, Вольфганг Грёзе, Дитер Манн, Анатолий Соловьёв, Михаил Глузский, Герман Бейер, Афанасий Кочетков, Борис Токарев, Вальтер Бехштайн, Юрген Хенч, Клаус Манхен, Калмурза Рахманов, Курт Бёве, Вернер Венцель, Иоганнес Вике, Женни Грёллман, Виктор Волков, Вильгельм БурмайерПеревод: ДублированныйПродолжительность: 01:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94890DBBD22F964B3ACB8502563CE2840DF6280
 ```
 
 https://mybot314.ru/tekegram_catalog/

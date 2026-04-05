@@ -1,344 +1,22 @@
-###  Публикация: 1801777   (14730) от 13.06.2025
+###  Публикация: 1801130   (15186) от 09.06.2025
 
-Saxon - Eagles Over Hellfest (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hell, Fire and Damnation (Live at Hellfest) [5:40]
-02 - Motorcycle Man (Live at Hellfest) [3:47]
-03 - Power and the Glory (Live at Hellfest) [5:19]
-04 - Madame Guillotine (Live at Hellfest) [5:05](   Читать дальше...   )Жанр: Metal, Heavy MetalПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D704BB31725FAD4652A32938CC7B80DD9F4DF8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801786   (14729) от 13.06.2025
-
-Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [MP3|320 Kbps] <Gothic Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bequest Of The Wicked [1:05]
-02 - The Eyes Of Suffering [4:04]
-03 - Deformity [4:42]
-04 - Never Forgotten Place [4:38](   Читать дальше...   )Жанр: Gothic Metal, Death MetalПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F980F0C57867BC33EDDBECB6356BE8BF9366C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801781   (14728) от 13.06.2025
-
-The Veronicas - Hook Me Up (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untouched		04:14
-02. Hook Me Up		02:56
-03. This Is How It Feels		04:12
-04. This Love		02:59(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B515FFF5A0FCB12BCC1FBD54E64E4152B1E79747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801827   (14727) от 13.06.2025
-
-Highsociety - Datamosh (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Synth Metal, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Under [00:03:13]
-02. All for Nothing [00:03:29]
-03. Echoes [00:03:25]
-04. BREAK [00:03:41](   Читать дальше...   )Жанр: Alternative Metal, Synth Metal, ElectronicПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE126F7714FE8F66C07A82108B219D252A26C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801877   (14726) от 13.06.2025
-
-Our Lady Peace - Clumsy (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superman’s Dead    [0:04:16.69]
-02. Automatic Flowers    [0:04:05.31]
-03. Carnival    [0:04:48.05]
-04. Big Dumb Rocket    [0:04:23.65](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BC670F98C805AB2A2D2CE677DA183558C63B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801875   (14725) от 13.06.2025
-
-The Beautiful South - Welcome to the Beautiful South (1990) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for Whoever    [0:06:09.28]
-02. Have You Ever Been Away    [0:05:12.15]
-03. From Under the Covers    [0:04:04.50]
-04. I’ll Sail This Ship Alone    [0:04:40.45](   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Pop RockПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84150524A5162D13A693E487828EA7B7FD1C63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801778   (14724) от 13.06.2025
-
-Kings of Leon - Only by the Night (2008) [FLAC|Lossless|tracks + .cue] <Southern Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer    [0:03:57.36]
-02. Crawl    [0:04:06.31]
-03. Sex on Fire    [0:03:23.26]
-04. Use Somebody    [0:03:50.57](   Читать дальше...   )Жанр: Southern Rock, Indie RockПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829C2F4E6A5793440B33C1F7800673AA6B7965AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801831   (14723) от 13.06.2025
-
-НХЛ. Кубок Стэнли 2025. Финал. 4-й матч. Эдмонтон Ойлерз - Флорида Пантерз (12.06.2025) HDTVRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14723.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 июня 2025, пятница. 03:00 МСК
-Стадион: Амерант Банк Арена (Санрайз, США), вместимость: 19434
-Финал. 4-й матч. Флорида Пантерз (Санрайз) — Эдмонтон Ойлерз (Эдмонтон)
-Главный судья: Вес Макколи (Джорджтаун, Канада)Телекомпания: Setanta Sports 2Жанр: Спорт, хоккейЯзык озвучки: русский, английскийПродолжительность: 03:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E264965FB249A84DF3AE1A66E84046E669E8C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801830   (14722) от 13.06.2025
-
-NoiZZy - Dreamland (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamland [00:04:17]
-02. Fake [00:02:40]
-03. Addiction [00:05:29]
-04. Time [00:05:17](   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCAB9B9618EF77C098A267E67060A1D733AD6BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801779   (14721) от 13.06.2025
-
-Saxon - Eagles Over Hellfest (2025) Live [MP3|320 Kbps] <Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hell, Fire and Damnation (Live at Hellfest) [5:40]
-02 - Motorcycle Man (Live at Hellfest) [3:47]
-03 - Power and the Glory (Live at Hellfest) [5:19]
-04 - Madame Guillotine (Live at Hellfest) [5:05](   Читать дальше...   )Жанр: Metal, Heavy MetalПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88195AF8279CDB19ABDFC0FB8FE3D1FC51093D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801912   (14720) от 13.06.2025
-
-ARTY - Live @ Audio (San Francisco, United States) (2025-05-24) [MP3|320 Kbps] <Progressive House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflekt ft. Delline Bass - Need To Feel Loved (Cristoph Remix) w/ARTY - ID w/Kx5 ft. Hayla - Escape (Acappella)
-02. ARTY - ID
-03. Matisse & Sadko vs. Gotye & Kimbra - Verve vs. Somebody That I Used To Know (Martin Garrix Mashup)
-04. Steve Angello & Sebastian Ingrosso ft. Namasenda - No Enemies(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9217FCD63EF317AFC6578EB2858E6B8365E9024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801847   (14719) от 13.06.2025
-
-Иван Бунин | Таня. В Париже (Инсценировка) (2025) [MP3, Иван Жуков, Татьяна Михалевкина и др.]
+Дмитрий Гришанин | Изумрудный берс (Книга 1). Берс – 1. Берс в ребро (2025) [MP3, Данила Максимов]
 
 >>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Театр у вас дома.
-Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
-Рассказы «Таня» и «В Париже» И.А. Бунина, входят в цикл «Тёмные аллеи». Произведения написаны в 1940 году, впервые опубликованы в 1943 году.
-(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:46:00
+Злоключения вчерашнего студента Дениса Савельева начинаются со знакомства с Психом – древним, как само время, системным оружием, топором берсерка. Кроме новых невероятных возможностей системное оружие взваливает так же на плечи нового носителя еще и ворох старинных кровавых долгов его предшественников. Привычный мир рушится, и теперь Ден вынужден приспосабливаться (   Читать дальше...   )Жанр: Боевое фэнтези, Бояръ-аниме, Попаданцы, РеалРПГИздательство: ИДДКПродолжительность: 07:44:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0DF53FFAA1737C20331132067A6AD16FDCE2A6F
+magnet:?xt=urn:btih:D694FB393DED0B83B043C1709729239ACD50AA4C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801849   (14718) от 13.06.2025
+###  Публикация: 1801113   (15185) от 09.06.2025
 
-Insania - The Great Apocalypse (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+Алексей Елисеев, Ирэн Рудкевич | S-T-I-K-S. Пройти через туман (Книга 6) (2025) [MP3, Aztech (Александр Никитин]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Trinity (06:37)
- 02. Indestructible (05:20)
- 03. No One's Hero (08:01)
- 04. Afterlife (05:43)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:03:29
+Я продолжаю свою историю в мрачном мире под названием Улей, где человеческая жизнь оценивается по цене патрона. Пройдя через странный туман с кислым запахом, я оказался здесь, где ультранасилие и борьба за собственную жизнь стали будничной частью моей повседневной жизни.Достигнув загадочного Замка, где учат знахарей со всего региона, я собирался погрузиться в учебу (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: АвторПродолжительность: 07:27:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCB83541CCE621F78A1D31E49E073CCFB5CBFF76
+magnet:?xt=urn:btih:01AEC0BCDDD11B0286E2BD346D1C2A6B70065899
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801890   (14717) от 13.06.2025
+###  Публикация: 1801320   (15184) от 09.06.2025
 
-The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Deluxe Edition) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
+ScreenToGif 2.41.3 + Portable [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15184.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Suffocate City (feat. Spencer Charnas of Ice Nine Kills) [3:34]
-02 - Holy Water (feat. Ivan Moody of Five Finger Death Punch) [3:02]
-03 - Blood Mother [3:17]
-04 - Doom and Gloom [3:19](   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 01:26:33
+ScreenToGif — удобный бесплатный инструмент, с помощью которого можно записывать действия на экране и сохранять в формат анимированного .gif-файла (в народе называют гифками). После запуска нужно выбрать необходимую область захвата: весь экран, окно или вручную заданный размер и положение рамки захвата. Также можно указать количество FPS от 1 до 60 кадров в секунду. (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DD186B90C38262D9E9288FED5988E4CDD8483BB
+magnet:?xt=urn:btih:8D0A672AA858E4DF8303C0349918FBC51F68C648
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +76,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801782   (14716) от 13.06.2025
+###  Публикация: 1654290   (15183) от 09.06.2025
 
-Neil Diamond - The Best of The Movie Album (1998) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock, Soft Rock,>
+Hataraku Maou-sama!! | The Devil Is a Part-Timer! Season 2 | Повелитель тьмы на подработке! [ТВ-2] [2022, TV, 24 эп.] BDRip 1080p raw
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. As Time Goes By    [0:02:55.43]
-02. Unchained Melody    [0:03:49.60]
-03. Can You Feel the Love Tonight    [0:04:08.45]
-04. The Way You Look Tonight    [0:02:38.07](   Читать дальше...   )Жанр: Rock, Pop Rock, Soft Rock,Продолжительность: 00:45:47
+Описание на первый сезон.
+
+В одной далекой-далекой галактике местный Князь Тьмы, он же Сатана, потерпел сокрушительное поражение. Когда все было кончено, и лучшие бойцы человечества, возглавляемые героем Эмилией, ворвались в его замок, темный повелитель, собрав остатки сил, открыл магический портал, куда и прыгнул вместе с генералом Алсиэлем. Астральная буря забросила (   Читать дальше...   )Производство: студия Studio 3HzЖанр: комедия, фэнтезиРежиссер: Тикуси ДайсукэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:167F7E0900F4980E3593A980BD8E607ABB4EC818
+magnet:?xt=urn:btih:B94A144F72A55797B2C1078C5DED90F85628EE43
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,25 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801662   (14715) от 13.06.2025
+###  Публикация: 1801231   (15182) от 09.06.2025
 
-Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
+PrivaZer Pro 4.0.106 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Folk, CountryПродолжительность: 01:04:58
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5229224C856971504507DB44B3B63871D46C71DA
+magnet:?xt=urn:btih:3C4D48E87A531635E327B85A35FD680479140BC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +130,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801835   (14714) от 13.06.2025
+###  Публикация: 1801076   (15181) от 09.06.2025
 
-The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
+Phaser Editor 4.11.2 [En]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Мультимедиа и Графика
+>>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15181.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Revelation [00:04:13]
-02. Love Me Alive [00:03:25]
-03. Foolish Pleasure [00:02:41]
-04. The Hero [00:03:47](   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:28:24
+Phaser Editor — это мощная и удобная среда разработки, предназначенная для создания игр с использованием игрового фреймворка Phaser. Независимо от того, являетесь ли вы опытным разработчиком или только начинаете заниматься разработкой игр, Phaser Editor упрощает процесс создания интерактивных и захватывающих 2D-игр.
+
+Перетаскивайте объекты на место, настраивайте (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D897B35CE14A6C84A3BECE75FA115FB025B8441D
+magnet:?xt=urn:btih:AC074F860152B0BC73519E54E9A57624E84A33D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,28 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801801   (14713) от 13.06.2025
+###  Публикация: 1801248   (15180) от 09.06.2025
 
-Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [MP3|320 Kbps] <Blues Rock, Folk Rock, Progressive Rock>
+Уильям Блум, Джеймс Петрас и др. | Убийство демократии. Операции ЦРУ и Пентагона в постсоветский период (2014) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15180.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - My Sunday Feeling (Live) [3:59]
-02 - Living in the Past (Live) [5:36]
-03 - Serenade to a Cuckoo (Live) [4:22]
-04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
+Холодная война номинально закончилась в 1991 году, но Соединенные Штаты с распадом Советского Союза не только не прекратили военные и скрытые вмешательства в мире, но и значительно активизировали их. Книга «Убийство демократии: операции ЦРУ и Пентагона в постсоветский период» продолжает фундаментальный труд Уильяма Блума «Убийство демократии: операции ЦРУ и Пентагона (   Читать дальше...   )Жанр: Политика, Публицистика, CпецслужбыИздательство: Кучково полеФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFBB0871E67DBDEB3213813A991B4D588FA1F0BF
+magnet:?xt=urn:btih:D3E61EECE1AA9FD3A292EEFC8EEF22C0510F4B72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,28 +184,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801769   (14712) от 13.06.2025
+###  Публикация: 1798687   (15179) от 09.06.2025
 
-Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordings Ltd [FLAC 24/96|Lossless|WEB-DL|tracks] <Britpop, Alternative Rock, Indie Rock>
+Мы жили по соседству (1982) DVDRemux
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Supersonic [4:45]
-02 - Roll With It [4:00]
-03 - Live Forever [4:39]
-04 - Wonderwall [4:22](   Читать дальше...   )Жанр: Britpop, Alternative Rock, Indie RockПродолжительность: 02:08:44
+Счастливые дни первой любви восьмиклассников потускнели, когда они узнали, что Надина мама и недавно овдовевший отец Сережи собираются жить вместе. Юношеский максимализм подростков больно ранит родителей. Но их способность к самоотречению ради счастья детей помогают последним «прозреть» и понять, что одно счастье другому не помеха.Производство: СССР, Киностудия им. М. ГорькогоЖанр: драмаРежиссер: Николай ЛырчиковАктеры: Жанна Прохоренко, Андрей Мартынов, Маргарита Лобко, Антон Голышев, Николай Пастухов, Вера Васильева, Елена Проклова, Галина Макашкина, Александр Адамович, Татьяна ФедороваСубтитры: отсутствуютПродолжительность: 01:13:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:798DBFC6222AF8BC193EC504AF5962434DBE9CF6
+magnet:?xt=urn:btih:E2F15917C605E794D4A35F86DB40CD74F1BE2E9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,28 +210,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801891   (14711) от 13.06.2025
+###  Публикация: 1801331   (15178) от 09.06.2025
 
-The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Deluxe Edition) (2025) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
+Соник 3 в кино / Sonic the Hedgehog 3 (2024) BDRip [H.264/1080p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15178.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Suffocate City (feat. Spencer Charnas of Ice Nine Kills) [3:34]
-02 - Holy Water (feat. Ivan Moody of Five Finger Death Punch) [3:02]
-03 - Blood Mother [3:17]
-04 - Doom and Gloom [3:19](   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 01:26:33
+Соник, Наклз и Тейлз воссоединяются против нового могущественного противника, Ежа Шэдоу, таинственного злодея с силами, не похожими ни на что, с чем они сталкивались раньше. С их способностями, превосходящими во многих отношениях, команда Соника вынуждена создать неожиданный союз в надежде остановить Шэдоу и защитить планету.Производство: США, Япония / Blur Studio, Marza Animation Planet, Original Film, Paramount Pictures, Sega Sammy GroupЖанр: фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Джефф ФаулерАктеры: Бен Шварц, Джим Керри, Киану Ривз, Идрис Эльба, Коллин О’Шонесси, Джеймс Марсден, Тика Самптер, Ли Мадждуб, Кристен Риттер, Адам ПаллиПеревод: Дублированный официальный (SC Produb), дублированный неофициальный (Flarrow Films, Red Head Sound, Jaskier)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:50:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAC64DD849B80A6240FA137917792218B41290FF
+magnet:?xt=urn:btih:EAA0025324120174D5CABFC3D09DFE6D1336085F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +236,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801799   (14710) от 13.06.2025
+###  Публикация: 1801171   (15177) от 09.06.2025
 
-Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Folk Rock, Progressive Rock>
+Очередное достижение: 6000+ релизов от alka peter
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15177.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - My Sunday Feeling (Live) [3:59]
-02 - Living in the Past (Live) [5:36]
-03 - Serenade to a Cuckoo (Live) [4:22]
-04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
+Очередное достижение: 6000+ релизов от alka peterДорогие друзья и гости клуба...
+Наш клуб 6000+ пополнился ещё одним неутомимым тружеником.
+Огромная Благодарность от лица всего коллектива модераторов и администрации трекера за твой неоценимый вклад в развитие трекера, за потраченное время и силы, за не угасающее желание поддерживать трекер, за доброе отношение ко (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:931A31D6D0882E4EB028D82D22E965D6F669784F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +264,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801857   (14709) от 13.06.2025
+###  Публикация: 1801226   (15176) от 09.06.2025
 
-Пролиф - 3 Albums (2025) [MP3|320 Kbps] <Alternative Rock>
+День рождения Алисы (2009) [Ru] (1.0) License Акелла
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Win Старые Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15176.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Рыбалка [00:05:22]
-02. Керженец [00:08:14]
-03. Сад [00:03:51]
-04. Весна: 2020 [00:04:38](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 3 CD, 03:45:46
+Рады вам представить детскую приключенческую игру "День рождения Алисы" с развивающими элементами, созданную по сюжету одноименного полнометражного анимационного фильма, снятого по мотивам произведений выдающегося писателя-фантаста Кира Булычева. Вместе с Алисой игроку предстоит увидеть футуристичные виды Москвы будущего, познакомиться с уникальными формами (   Читать дальше...   )Тип издания: LicenseРазработчик: Electronic ParadiseЖанр: Аркады, ПриключенияЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42CF34FE8CC0BA843281ED831D81BD7B407DC33E
+magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +290,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801911   (14708) от 13.06.2025
+###  Публикация: 1801116   (15175) от 09.06.2025
 
-Вадим Кузёма - Говорила мама-Не женись (2025) [MP3|320 Kbps] <Chanson>
+LiveClasses, Дмитрий Ларионов | Подготовка монтажа к отправке звукорежиссёру в Premiere Pro (2025) WEB-DL [AD] [RU]
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Хоть что-то осталось [00:02:59]
-02 - Творцы [00:03:24]
-03 - Говорила мама-Не женись [00:02:35]
-04 - Женщина-загадка [00:02:51](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:18:05
+Перед тем как отправить монтаж на финальное озвучание, важно правильно подготовить проект — иначе звукорежиссёр получит хаос вместо стройной структуры. В этом мастер-классе вы шаг за шагом освоите процесс подготовки: от создания референс-видео с таймкодом и пипами до экспорта AAF с нужными настройками. Вы узнаете, какие параметры нужно заранее согласовать со студией, (   Читать дальше...   )Производство: LiveClassesЖанр: видеокурс, обучающий курс, видеомонтажЯзык озвучки: русскийПродолжительность: 00:41:34Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F97954E6A7EC35C1D3C5AE7A5EAFD95A4AAD303
+magnet:?xt=urn:btih:255CDE9000FF2C2D71D850F6C3B56E5CD93B4B1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,29 +316,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801846   (14707) от 13.06.2025
+###  Публикация: 1801239   (15174) от 09.06.2025
 
-Van Morrison - Remembering Now (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Заведи меня / Turn Me On (2024) WEB-DLRip [H.264]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-47-й студийный альбом североирландского певца и автора песен Вана Моррисона, вышедший на лэйблах Exile Productions и Virgin Records.
-Это возвращение Вана Моррисона к оригинальному написанию песен после кавер-альбомов и переработок его старых песен01. Down To Joy
-02. If It Wasn’t For Ray
-03. Haven’t Lost My Sense Of Wonder
-04. Love, Lover and Beloved(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:10
+Уильям и Джой живут в идеальном мире и максимально цивилизованном обществе, где нет больше войн, голода, боли и страданий. При помощи ежедневного приема особых витаминов люди совсем перестали испытывать какие-либо эмоции. Но однажды молодая пара пропускает прием загадочного лекарства, тем самым открывая для себя совершенно новый мир.Производство: США /  Truant Pictures, Blue Creek PicturesЖанр: фантастика, мелодрама, комедияРежиссер: Майкл ТибурскиАктеры: Люк Кирби, Гриффин Ньюман, Бел Поли, Ник Робинсон, Ава Эйзенсон, Патти Харрисон, Неста Купер, Джулия Шиплетт, Джастин Х. Мин, Софи Ван ДорнПеревод: Дублированный (Централ Партнершип), профессиональный многоголосый (HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:35:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:849FB23991D8B431D5B7E646A4C861C7BB1D0F6F
+magnet:?xt=urn:btih:FFA54F33A7C5A3DCADB28D09D15ED53971B65B11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,25 +342,158 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696087   (14706) от 14.06.2025
+###  Публикация: 1609573   (15173) от 09.06.2025
 
-BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.4.110480/dlc) Scene Rune
+Эрик Фрэнк Рассел | Неспешиты (2022) [MP3, Puffin Cafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15173.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Опытный командор, зарекомендовавший себя на сложных миссиях в космосе, получает задание на первый контакт с обитателями малоисследованной планеты. "Неспешиты", как их прозвали земляне, в десятки, если не сотни раз, медленнее землян. Возможен ли контакт с такой расой?" (с)Жанр: ФантастикаПродолжительность: 01:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D319F1B6122206D8EACE7ED91766D9D5E58915D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801304   (15172) от 09.06.2025
+
+Александр Переседов | Читай Как Native. Символы и числа (2025) [PDF]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Можете ли Вы сходу прочитать на английском 1984, 1066, числительные 7143rd, 12.164
+или 0.008976; а как прочесть 2600 BCE, 2 x 2 = 8, 4/256, lbs?
+С этой книгой Вы научитесь это делать!
+Читайте свободно на английском: числа от  до триллиона; деньги, время, проценты;(   Читать дальше...   )Жанр: учебная литература. английский языкИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48746B0CA27C925EA3F8DE7A6328D0FBF63AA14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801329   (15171) от 09.06.2025
+
+Кнутбю / Knutby (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летом 1999 года наивная Анна перебирается в небольшой сельский городок Кнутби, расположенный недалеко от Стокгольма, чтобы присоединиться к кажущейся на первый взгляд уютной и дружелюбной религиозной общине, где надеется начать новую счастливую жизнь. Местные проповедники предрекают второе пришествие Христа в их городок, где он выберет себе достойную невесту. Постепенно (   Читать дальше...   )Производство: Швеция / B-Reel FilmsЖанр: драмаРежиссер: Горан КапетановичАктеры: Альба Аугуст, Алиетт Офейм, Malin Persson, Эми Даймонд, Emilia Roosmann, Йоаким Салльквист, Нильс Веттерхольм, Джессика Лидберг, Айнар Бредефелдт, Эдвин Бредефелдт и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED6AC05A4A4E899EE5A8E621AE8A6F93F7FF8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801250   (15170) от 09.06.2025
+
+Очень странные дела / Загадочные события / Stranger Things (2022) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision P8.1, 10-bit] (сезон 4, серии 1-9 из 9) Videofilm, HDRezka, LostFilm, NewStudio, TVShows
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло шесть месяцев после битвы в «Старкорте», которая оставила в городке Хоукинс ужас и разрушения. Борясь с последствиями, наша группа друзей впервые разделена – и сложности учёбы в старшей школе ничуть не облегчили ситуацию. В этот самый неудачный момент появляется новая ужасающая сверхъестественная угроза, оказывающаяся ужасной тайной, разгадка которой может (   Читать дальше...   )Производство: США, 21 Laps Entertainment, Monkey Massacre, NetflixЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Мэтт Даффер, Росс Даффер, Шон Леви, Нимрод АнталАктеры: Вайнона Райдер, Дэвид Харбор, Финн Вулфхард, Милли Бобби Браун, Гейтен Матараццо, Калеб Маклафлин, Наталия Дайер, Чарли Хитон, Джо Кири, Ноа ШнаппПеревод: Дублированный (Videofilm Int., укр. Так Треба Продакшн) Многоголосый (HDRezka, LostFilm, NewStudio, TVShows)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, Full), английские (SDH), украинские (Forced, Full)Продолжительность: ~01:18:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96699F785685016D925E38A4BE45B2B5DB18F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781534   (15169) от 09.06.2025
+
+Гилберт Кит Честертон | Отец Браун (Сборник) [MP3, О. Исаев, А. Большешальский, В. Герасимов, В. Соломин, и др.] [Обновляемая]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гилберт Кит Честертон (29 мая 1874 — 14 июня 1936) был английским писателем, философом, христианским апологетом, литературным и художественным критиком. Честертон обычно называл себя ортодоксальным христианином и всё больше отождествлял эту позицию с католицизмом, в конечном итоге перейдя из англиканской церкви. Биографы считают его преемником таких викторианских (   Читать дальше...   )Жанр: ДетективПродолжительность: 212:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5354A383CE73EE4C9E690D8DD6EDB682FEDC1107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801298   (15168) от 09.06.2025
+
+Rayman 3: Hoodlum Havoc (2003) [Ru/En] (1.0.0) Repack Let'sРlay
 
 >>Win Игры
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BlazBlue Entropy Effect - двухмерная приключенческая игра во вселенной BlazBlue, но с другим жанром и стилем, чем предыдущие файтинги. В ней присутствуют элементы рогелита, такие как процедурно генерируемые карты, permadeath и кастомизация персонажей. Также здесь имеется насыщенный сюжет с несколькими концовками, зависящими от выбора геймера.Тип издания: SceneРазработчик: 91ActЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Китайский (упрощенный), ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский (упрощенный) и другие
+Перекресток Грез был спокойным и тихим местом, в котором правили простые радости жизни. Некоторым его обитателям даже казалось, что Перекресток Грез был слишком уж тихим. Но однажды красный лум по имени Андрэ превратился в маленький пушистый комочек злости.Тип издания: RepackРазработчик: UbisoftЖанр: Экшен, Приключeния, ПлатформерЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C59A309DEEADB5CE981CCB296D7583C6A89EFEAD
+magnet:?xt=urn:btih:C97E42741B95389887FA586B9D4962C6F1D9086B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -718,27 +501,187 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 164024   (14705) от 14.06.2025
+###  Публикация: 1801240   (15167) от 09.06.2025
 
-Фартовый (2006) DVDRip
+Футбол. Лига Наций УЕФА 2024-2025. Лига А. Финал. Португалия - Испания (08.06.2025) HDTVRip [H.264/1080p]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-22-летний Вадим Упоров по доносу осужден на 25 лет по статье 58 и отправлен в один из лагерей ГУЛАГА. По прибытии в лагерь он ссорится с ворами, и с вором в законе Дьяком, который приговаривает его к смерти. Чтобы избежать этой участи, он совершает побег. Побег не удается — его ловят, избивают и кидают в карцер в БУР.
-
-В «сейфе» Упоров проводит полгода… Вернувшись (   Читать дальше...   )Жанр: Драма, КриминалРежиссер: Владимир ЯканинАктеры: Екатерина Вуличенко, Владимир Епифанцев, Александр Мохов, Николай Иванов, Алексей Жарков, Дмитрий Щербина, Борис Невзоров, Игорь Воробьев, Сергей Греков, Михаил СамохваловСубтитры: ОтсутствуютПродолжительность: 01:32:47
+Футбол. Лига Наций УЕФА 2024-2025. Лига А. Финал. Португалия - Испания (08.06.2025)
+СУДЬЯ Шерер Сандро (Швейцария)
+СТАДИОН «Альянц Арена» (Мюнхен)Телекомпания: ОккоЖанр: Спорт, футболЯзык озвучки: русскийПродолжительность: 04:02:48
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:3BFA8B24E134C2A7CD646AADFD71BE93665BC68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801273   (15166) от 09.06.2025
+
+Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифицирован по жизни [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давно разочаровавшийся в жизни японский писатель, по-булгаковски именующий себя Мастером, в очередной раз пытается покончить с собой, да не один, а вместе со своей верной подругой, но вместо Царства Смерти попадает в мир меча и магии. Теперь единственной целью этого склонного к самоубийству циника становиться узнать, что стало с его подругой, после чего он планирует (   Читать дальше...   )Производство: студия Atelier PontdarcЖанр: приключения, комедия, фэнтезиРежиссер: Кавай СигэкиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC04EFE601FE3A27678A5FD0EBAECB3ED7A68894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801263   (15165) от 09.06.2025
+
+Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | Восхождение Героя щита [ТВ-3] [2023, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ивaтaни Haoфyми вмecтe c тpeмя дpyгими людьми пpизвaн в пapaллeльный миp, чтoбы cтaть eгo Гepoeм. Пoлyчив в pyки лeгeндapный щит, oн oтпpaвляeтcя в пyтeшecтвиe, нo нe имeя ни oпытa, ни xapизмы, ocтaётcя лишь c oднoй пpeкpacнoй cпyтницeй, кoтopaя пpeдaёт eгo нa тpeтий дeнь. B peзyльтaтe Ивaтaни oкaзывaeтcя oгpaблeнным и oбвинённым в изнacилoвaнии, cильныe миpa ceгo (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Хага ХитосиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37981ABB2248A8ECA323E8F429996738DD53E535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801218   (15164) от 09.06.2025
+
+Hokkyoku Hyakkaten no Concierge-san | The Concierge at Hokkyoku Department Store | Консьерж универмага Арктика [2023, Movie] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акино - новый консьерж в универмаге "Арктика", где все покупатели - животные. В этот необычный универмаг, где продавцы - люди, а покупатели - животные, и даже вымершие звери приходят, чтобы проконсультироваться о предметах, которые они ищут, или о проблемах, которые у них возникли. Акино тактично и с улыбкой решает проблемы покупателей, а её отзывчивость (   Читать дальше...   )Производство: Production I.G / プロダクション・アイジーЖанр: фэнтези, комедияРежиссер: Итадзу ЁсимиПеревод: CrunchyrollЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 70 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB065E5D480D01FD36883723D4BF75BC747014A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801199   (15163) от 09.06.2025
+
+Лев Лещенко - Только в любви (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Доброго утра, доброго дня [00:03:54]
+02. Руки женщины [00:03:24]
+03. Я лечу к тебе [00:04:27]
+04. Шлягер [00:04:52](   Читать дальше...   )Жанр: PopПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F60CACFDF0468B744834CDC66E546E4982BA1D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801241   (15162) от 09.06.2025
+
+Изабель Филльоза | Поверь, я люблю тебя (2022) [MP3, Ирина Булекова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть сыновья и дочери, которые каждый день звонят мама и папам – а есть такие, кто не звонит им никогда. Есть те, кто строит дом поближе к родительскому – а есть те, кто старается поселиться как можно дальше от них, и предпочитает не видеть их вообще. Есть такие дети, которым трудно принимать решения без папы, мамы, и другие – для которых уступки семейным обязательствам (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига АСТПродолжительность: 08:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6D3F11AE4BF19F3131F8619F9C0488F44615B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801274   (15161) от 09.06.2025
+
+Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evil Lieutenant Used to Be Archenemies | Волшебница и злой офицер [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Организация Зла захватывает и уничтожает страны и территории. Всеми действиями руководит генерал по имени Мира, правая рука Владыки Зла. Однако всё меняется, когда на их пути встаёт волшебница Бъякуя Мимори. Едва увидев Бъякую, Мира мгновенно в неё влюбляется. Что же ждёт этих двоих в вечном противостоянии долга и чувств?
+© crunchyrollПроизводство: студия Bones / ボンズЖанр: романтика, фэнтезиРежиссер: Охаси АкиёПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDA0BE2D976DDD564158B24809E6427C43EE79F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,161 +1,3 @@
-###  Публикация: 1639434   (247616) от 13.06.2023
-
-Алексей Хлебников | OpenSSL 3: ключ к тайнам криптографии (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный интернет кишит червями, троянцами, незаконными посредниками и другими угрозами. Защита от них в наше время приобретает особую значимость. OpenSSL — один из самых широко используемых и важных проектов с открытым исходным кодом в интернете — предназначен для обеспечения сетевой безопасности. Из этой книги вы узнаете о самых важных возможностях OpenSSL и (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.А. СлинкинФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307E4E143A27B2735ED597547DAABFB0C52BBB24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639378   (247614) от 13.06.2023
-
-Aймен Эль Амри | GPT-3. Программирование на Python в примерах (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247614.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о том, как использовать генеративную текстовую модель (GPT) для создания приложений различного назначения, в числе которых медицинский чат-бот с пользовательской точной настройкой, интеллектуальный голосовой помощник, система предсказания категории новостей и многие другие. Вы узнаете, как управлять уровнем креативности моделей GPT, применять (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F6310FF5759A9FCA276F44F6BB977F5B3AD6A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639083   (247565) от 15.06.2023
-
-Джаспе Ван Вуденберг,  Колин  О`Флинн | Аппаратный хакинг. Взлом реальных вещей (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга по аппаратному взлому поможет вам проникнуть внутрь устройств, чтобы показать, как работают различные виды атак, а затем проведет вас через каждый взлом на реальном оборудовании. Написанное с остроумием и снабженное практическими лабораторными экспериментами, это руководство ставит вас в роль злоумышленника, заинтересованного в нарушении безопасности для достижения (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813B5BFE44663D6E3E821854E78EFE6585AF5B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640108   (247555) от 16.06.2023
-
-Дэвид Хеффельфингер | Java EE 7 и сервер приложений GlassFish 4 (+code) (2016) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой практическое руководство с очень удобным подходом, позволяющим читателю быстрее освоить технологии Java EE 7. Все рассмотренные основные интерфейсы Java EE 7 и подробная информация о сервере GlassFish 4 подкреплены практическими примерами их использования.
-Платформа Java Enterprise Edition (Java EE) 7 является отраслевым стандартом для корпоративных (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.Н. КиселевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9CB54CCFC0B0D557EC421B7C4EEC31834EB8FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640232   (247551) от 16.06.2023
-
-А.В. Белов | Микроконтроллеры AVR. От азов программирования до создания практических устройств (+CD) (2016) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247551.jpg" />
-</div>
-
-
-###  Подробнее
-
-За шесть шагов практический самоучитель позволит пройти путь от "чайника" изучающего азы цифровой техники, до вполне готового специалиста, умеющего самостоятельно разрабатывать схемы любых устройств на микроконтроллерах и составлять для них программы. Изучив базовые элементы цифровой логики, читатель осваивает основы микропроцессорной техники, возможности (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8825D182781E210A9AD0F339985E830404E53D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640120   (247550) от 16.06.2023
-
-Джон Мэннинг, Пэрис Баттфилд-Эддисон | Head First. Изучаем Swift (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swift известен как язык разработки приложений, выбранный компанией Apple для iOS, iPadOS, macOS, watchOS и tvOS. Но этим его применение не ограничивается. Swift с открытым кодом набирает популярность как язык системного программирования и программирования на стороне сервера, его используют и в Linux, и в Windows. С чего же начать?
-«Head First. Изучаем Swift» охватывает (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Е. МатвеевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D0DE2AD284F54069099AEE2E1EFB2F74E2F0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640222   (247506) от 18.06.2023
 
 Джордж Хайнеман | Алгоритмы. С примерами на Python (2023) [PDF]
@@ -164,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247506.jpg" />
 </div>
 
 
@@ -190,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247492.jpg" />
 </div>
 
 
@@ -218,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247425.jpg" />
 </div>
 
 
@@ -244,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247256.jpg" />
 </div>
 
 
@@ -270,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247142.jpg" />
 </div>
 
 
@@ -298,7 +140,7 @@ Dr. Nirali Dabhi, Dr. Dharmendra Patel, Dr. Atul Patel | Web Development Toolkit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247034.jpg" />
 </div>
 
 
@@ -324,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246854.jpg" />
 </div>
 
 
@@ -350,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246833.jpg" />
 </div>
 
 
@@ -376,7 +218,7 @@ Chaos Software Ltd. | V-Ray 2.0 for 3ds Max [2010] [PDF]
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246662.jpg" />
 </div>
 
 
@@ -408,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246553.jpg" />
 </div>
 
 
@@ -434,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246438.jpg" />
 </div>
 
 
@@ -460,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246203.jpg" />
 </div>
 
 
@@ -486,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245843.jpg" />
 </div>
 
 
@@ -514,7 +356,7 @@ Raúl Ferrer García | iOS Architecture Patterns: MVP, MVVM, VIPER, and VIP in S
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245495.jpg" />
 </div>
 
 
@@ -540,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245475.jpg" />
 </div>
 
 
@@ -566,7 +408,7 @@ Mike McShaffry, David Graham | Game Coding Complete (2012) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245405.jpg" />
 </div>
 
 
@@ -592,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245303.jpg" />
 </div>
 
 
@@ -618,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245052.jpg" />
 </div>
 
 
@@ -644,7 +486,7 @@ Spiro Buzharovski | Introducing Blockchain with Java (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244862.jpg" />
 </div>
 
 
@@ -672,7 +514,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244574.jpg" />
 </div>
 
 
@@ -683,6 +525,162 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24C461C10D1B5F5CC225D39289ACA30C7E3B6C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621950   (244242) от 27.03.2023
+
+Sufyan bin Uzayr | Mastering Unity: A Beginner’s Guide (2022) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы абсолютный новичок, эта книга поможет вам понять основы Unity, ее возможности, технические требования, архитектуру и язык сценариев, используемый в Unity. Эта книга также посвящена настройке Unity, которая включает в себя установку, создание проекта и запуск сцены проекта. В книге также рассматривается работа со сценами и игровыми объектами, префабы, хранение (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:674CF7DFEAD1515B3CA0254C798806D590B16E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542008   (243918) от 05.04.2022
+
+Валентин Холмогоров | PRO вирусы. Версия 4.0 (2020) [FB2, EPUB]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время энтузиастов-одиночек, создававших компьютерные вирусы на заре информационной эпохи, давно прошло: в наши дни разработкой и распространением вредоносных программ занимаются хорошо организованные преступные группировки, имеющие жесткую иерархию и напоминающие по своей структуре настоящие мафиозные кланы. Объем этого подпольного рынка составляет сотни миллионов (   Читать дальше...   )Жанр: Компьютерная литератураФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F9A653313473652D0A569BA402B4FA1A2B967C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632881   (243683) от 12.05.2023
+
+Manfred Moser | Trino: The Definitive Guide. 2nd Edition (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выполняйте быструю интерактивную аналитику на различных источниках данных с помощью высокопроизводительного распределенного механизма запросов SQL Trino. Во втором издании этого практического руководства вы узнаете, как проводить аналитику данных там, где они находятся, будь то база данных с использованием Hive, современное база с Iceberg или Delta Lake, различные (   Читать дальше...   )Жанр: ПрогрпммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E968376933A3026C823A8ECE64589D13B19CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622756   (243681) от 30.03.2023
+
+M Rashid Raza | Getting Skilled with Java (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга охватывает все, что вам нужно знать о программировании на Java. Книга демонстрирует настройку среды разработки и переменных окружения, установку JDK, написание программ с использованием ключевых возможностей Java, устранение неполадок, развертывание приложений и их комплектацию. Каждый из аспектов программирования объясняется в доступной для понимания форме. (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A2F7B9C73B599107AE230944C5AEE956C24D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542682   (243463) от 07.04.2022
+
+Эндрю Ферлитш | Шаблоны и практика глубокого обучения (2022) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243463.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются актуальные примеры создания приложений глубокого обучения с учетом десятилетнего опыта работы автора в этой области. Вы сэкономите часы проб и ошибок, воспользовавшись представленными здесь шаблонами и приемами. Проверенные методики, образцы исходного кода и блестящий стиль повествования позволят с увлечением освоить даже непростые навыки. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7C02A313235D45E0C200FB27864964F0592E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624055   (242909) от 04.04.2023
+
+Nabendu Biswas | Beginning React and Firebase (2021) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы начнете с основ: научитесь развертывать приложение React на хостинге Firebase. Затем вы научитесь создавать полнофункциональное приложение "ToDo", которое будет использовать базу данных Firebase для хранения списка элементов действий. Также вы научитесь создавать приложение "Stories", в котором можно показывать короткие вертикальные видеоролики, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313B09DC5D2CB7282307E1B0BC340FE96658B6DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

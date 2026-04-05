@@ -1,3 +1,119 @@
+###  Публикация: 1142139   (644711) от 13.06.2017
+
+Robin Schulz & David Guetta & Cheat Codes - Shed A Light: The Remixes Part 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Robin Schulz - Shed a Light (Extended Version) [05:05]
+02 Robin Schulz - Shed A Light (MOTi Remix) [04:31]
+03 Robin Schulz - Shed A Light (HUGEL Remix) [04:31]
+04 David Guetta - Shed A Light (Oliver Moldan Remix) [04:55](   Читать дальше...   )Жанр: HouseПродолжительность: 00:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1ECB94EF390C29C740A360AAA8E1857205548A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292669   (644693) от 30.03.2019
+
+Fatboy Slim - The Best Of (2019) [MP3|320 Kbps] <Electronic, Big Beat, Breakbeat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644693.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fatboy Slim - Right Here, Right Now
+2. Fatboy Slim - Praise You
+3. Fatboy Slim - Song For Shelter
+4. Fatboy Slim - Weapon Of Choice (Feat. Bootsy Collins)(   Читать дальше...   )Жанр: Electronic, Big Beat, BreakbeatПродолжительность: 02:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962A259C7DA5BDBB521FABD8DD37113BD0BDCA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142142   (644603) от 13.06.2017
+
+Robin Schulz & David Guetta & Cheat Codes - Shed A Light (The Remixes Part 2) (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shed A Light (MDZN Remix) [03:27]
+02 - Shed A Light (Mosimann Remix) [06:02]
+03 - Shed A Light (Heyder Remix) [03:39]
+04 - Shed A Light (Aligee Remix) [04:12](   Читать дальше...   )Жанр: HouseПродолжительность: 00:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCF7BDE845A9B7289224BE8898E95EACDE367E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142235   (644469) от 13.06.2017
+
+Igorrr - Savage Sinusoid (2017) [FLAC|Lossless|tracks+.cue] <Breakcore, Black Metal, Baroque, Death Metal, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viande (01:55)
+ 02. ieuD (03:55)
+ 03. Houmous (03:32)
+ 04. Opus Brain (05:26)(   Читать дальше...   )Жанр: Breakcore, Black Metal, Baroque, Death Metal, ExperimentalПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2AC30A5A60EE90D26139175C11B931DE1AF033C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142370   (644461) от 13.06.2017
 
 Нейромонах Феофан - А теперь поёт медведь (2017) Single [MP3|320 Kbps] <Drum & Bass, Electronic>
@@ -6,7 +122,7 @@
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644461.jpg" />
 </div>
 
 
@@ -32,7 +148,7 @@ Freeland - Cope™ (Jun-08-2009) [FLAC|Lossless]<Electronic, Rock, Electro, Brea
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644397.jpg" />
 </div>
 
 
@@ -61,7 +177,7 @@ Marga Sol • Discography + M-Sol Records & Sublabels: Chill 'N Chill Records, U
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644233.jpg" />
 </div>
 
 
@@ -90,7 +206,7 @@ York - Traveller (2016) [MP3|320 Kbps] <Chillout, Downtempo, Progressive Trance,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643906.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ Adrika - Prana (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Psybient, Downtempo, 
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643549.jpg" />
 </div>
 
 
@@ -147,7 +263,7 @@ The Glitch Mob - Piece of the Indestructible EP (2015) [MP3|320 кб/с]<Electro
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643491.jpg" />
 </div>
 
 
@@ -175,7 +291,7 @@ Maceo Plex - Mutant Series (2019) Ellum Audio [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643291.jpg" />
 </div>
 
 
@@ -204,7 +320,7 @@ Kayatma - Ambivalence (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, 
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643193.jpg" />
 </div>
 
 
@@ -233,7 +349,7 @@ VA - Deephouse Top 100 Vol.8 (2019) 2CD [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643186.jpg" />
 </div>
 
 
@@ -262,7 +378,7 @@ Merlin & Lydia Delay - Infinity (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, 
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643181.jpg" />
 </div>
 
 
@@ -291,7 +407,7 @@ Junior Bourcier - Mystic Rain (2018) [MP3|320 Kbps] <Piano, Easy Listening>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643143.jpg" />
 </div>
 
 
@@ -320,7 +436,7 @@ VA - Beach Waves Lounge (Chillout Your Mind) (2018) [MP3|320 Kbps] <Balearic, Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643142.jpg" />
 </div>
 
 
@@ -349,7 +465,7 @@ VA - Ibiza Beats Volume 11 - Sunset Chill and Beach Lounge (2018) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643137.jpg" />
 </div>
 
 
@@ -378,7 +494,7 @@ VA - Trance Runner - Episode Five (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643109.jpg" />
 </div>
 
 
@@ -407,7 +523,7 @@ VA - Back To The Trance (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643085.jpg" />
 </div>
 
 
@@ -436,7 +552,7 @@ Argus - Pure Love | Pure Down​-​tempo Vol​.​1 (2019) [FLAC|Lossless|WEB-
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643070.jpg" />
 </div>
 
 
@@ -465,7 +581,7 @@ Dynalectric Orchestra - Signal Upon Arrival (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642842.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ Dmitriy N'Elpin (Dmitriy Nelepin) - Universe 2 Beyond Consciousness (2022) [MP3|
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642740.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ Dmitriy N'Elpin (Dmitriy Nelepin) - Universe 2 Beyond Consciousness (2021) [FLAC
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642728.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ VA - Chateau Erotique Vol 1 (Sexy Boutique Lounge Chill Out for Erotic Gourmets)
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642003.jpg" />
 </div>
 
 
@@ -581,7 +697,7 @@ Boys Brigade - Boys Brigade (1983) [MP3|320 Kbps] <Electronic, New Wave, Pop-Roc
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641998.jpg" />
 </div>
 
 
@@ -610,7 +726,7 @@ VA - Club Sounds Presents Bodybangers - Bang the House (2015)2CD[FLAC|Lossless|W
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641617.jpg" />
 </div>
 
 
@@ -624,119 +740,6 @@ VA - Club Sounds Presents Bodybangers - Bang the House (2015)2CD[FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:761F580B3D03CBAD1DC9F3F559555DA4C4C08C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 347176   (641557) от 07.06.2011
-
-DJ Silence - Driving Relax (2010) [FLAC|Lossless]<Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_641557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: AmbientПродолжительность: 01:19:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293043   (641293) от 01.04.2019
-
-Toki Fuko - Archives (2019) Affin LTD [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oblation (07:09)
- 02. The Signal (08:35)
- 03. Boil (08:54)
- 04. Sapadilla Bay (10:47)(   Читать дальше...   )Жанр: Techno, Ambient, ExperimentalПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C96C0C6BC366801F742D3C77B9E1D0C6F1C0FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228074   (641206) от 29.05.2018
-
-Guido Hermans - Against the Tide (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Would Do Without Sound? (Intro Track)
-02. Once Upon A Time in Outer Space (Original Mix)
-03. Creepy Business (Original Mix)
-04. Until We Meet Again (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B5E3E5EDA2D6144D8E064951D50AE7E7741EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228051   (641204) от 29.05.2018
-
-VA - High Contrast: Ibiza Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Beyond Vision - Mesmerized (Ibiza Trance 2018 Exclusive)
-02 Dj K-Mixx - Nocturnal Bliss (Ibiza Trance 2018 Exclusive)
-03 Marcel Woods - Lemon Tree (Daxson Remix) (Ibiza Trance 2018 Exclusive)
-04 Spark, Shade - Not Even Close (Tony Day Remix) (Ibiza Trance 2018 Exclusive)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8916A0A26EDDF79F02B583F545DFC51A8D6721
 ```
 
 https://mybot314.ru/tekegram_catalog/

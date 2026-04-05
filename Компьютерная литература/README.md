@@ -7,7 +7,7 @@ https://t.me/izofen
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062923.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062910.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Rob Ciampa, Matt Ciampa, Rich Murphy и др. | YouTube Channels For Dummies. 3r
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062893.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Alexia Mandeville | Video Game Design For Dummies (2025) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062834.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Patrick Marie | Modern Web Cartography. Open Source Map Solutions with OpenStree
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062829.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Raúl Pimienta, Pedro López | Ultimate .NET MAUI Projects. Design and Deploy Cr
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062827.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sreejith Salgunan | Ultimate React Testing with Jest. Build Reliable Web Applica
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062824.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Soumaya Erradi | Web3 Development with Angular. Building Web Applications with B
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062821.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062817.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Stewart Weiss | System Programming in Linux. A Hands-On Introduction (2026) [PDF
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062806.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062804.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062803.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Stacy Cashmore | Beginning Azure Static Web Apps. Building and Deploying Profess
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062802.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ D. Roth, J. Fritz, T. Southwick | Blazor for ASP.NET Web Forms Developers (2023)
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062801.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ed Freitas | Vue 3 Succinctly (2025) [PDF, EPUB] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062800.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Joe Attardi | Modern CSS. Master the Key Concepts of CSS for Modern Web Developm
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062798.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Alex Libby | Developing Web Components with Svelte. Building a Library of Reusab
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062797.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Bhargav Bachina | Ultimate Full-Stack Web Development with MEVN. Learn From Desi
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062796.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Irina Shamaeva | Advanced Styles and Insights with Midjourney. Imagine Beautiful
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062789.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062787.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062785.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Greg Tomsho | Guide to Operating Systems (MindTap Course List). 6th Edition (202
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062784.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062781.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Stack Overflow | Node.js. Самое полное руководство для 
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062780.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062779.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062778.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1292929   (641171) от 01.04.2019
+
+Питер Сингер | О вещах действительно важных. Моральные вызовы двадцать первого века (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питера Сингера часто называют самым влиятельным философом в мире. И он же является одним из самых противоречивых. Будучи автором таких важных книг, как "Освобождение животных" и "Практическая этика", он защищает права животных, поддерживает альтруистические движения и способствует развитию биоэтики. В своей новой книге "О вещах действительно (   Читать дальше...   )Жанр: Общество, ЭтикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E16ACC889DCDC565FAD91C84D5C8CE0626CCF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227874   (641080) от 29.05.2018
 
 О. А. Феофанов | Шпионаж ради бизнеса (1965) [DJVU]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641080.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641046.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639701.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637982.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637976.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637676.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637654.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637621.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637565.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637441.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637423.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637416.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637278.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637273.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637140.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636979.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636972.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636931.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635736.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635716.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634274.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634084.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633978.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633875.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632324.jpg" />
 </div>
 
 
@@ -648,34 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58C5CAF88F8DAE016F44D6282FFC5CA160BED4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543413   (631536) от 10.04.2022
-
-Лариса Черкашина | Живой Пушкин. Повседневная жизнь великого поэта (2021) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда сквозь наслоения веков уже не разглядеть живых черт, не услышать заразительного смеха, не увидеть печальных глаз великого поэта…
-А что любил Пушкин в жизни и что презирал, чему радовался и что отвергал? Каков был мир увлечений поэта?
-Эта книга – ещё одна попытка воссоздать живой образ поэта со всеми его человеческими слабостями и пристрастиями, странностями (   Читать дальше...   )Жанр: Биографии и Мемуары, Документальная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661DCF5FF1B834AA16C3057A5D3D1A9199B3EDBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

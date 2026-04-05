@@ -1,3 +1,139 @@
+###  Публикация: 549122   (465177) от 19.09.2012
+
+Подшивка журналов | Сады России [2011] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465177.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Сады России" - ежемесячный иллюстрированный журнал для садоводов, учредителем и издателем которого является научно-производственное объединение "Сады России". Научно-производственное объединение «Сады России» более 20 лет занимается внедрением новейших достижений селекции плодовых, ягодных и декоративных культур в широкую практику любительского садоводства.
+
+В журнале много полезной научной и практической информации, так или иначе связанной с садоводством, цветоводством, ландшафтным дизайном и огородничеством: статьи о новых сортах, агротехнике, передовом опыте, эффективных средствах защиты растений от вредителей и болезней и о многом другом.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14AFC2605CD67D0995DED1DB7091F694A0770EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549127   (465174) от 19.09.2012
+
+Подборка журналов | Сады России №№1 - 9 + Каталоги [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465174.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Сады России" - ежемесячный иллюстрированный журнал для садоводов, учредителем и издателем которого является научно-производственное объединение "Сады России". Научно-производственное объединение «Сады России» более 20 лет занимается внедрением новейших достижений селекции плодовых, ягодных и декоративных культур в широкую практику любительского садоводства.
+
+В журнале много полезной научной и практической информации, так или иначе связанной с садоводством, цветоводством, ландшафтным дизайном и огородничеством: статьи о новых сортах, агротехнике, передовом опыте, эффективных средствах защиты растений от вредителей и болезней и о многом другом.
+
+По иллюстрированным каталогам можно заказать посадочный материал понравившихся растений по почте.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8E3998FEE162C382E612A8134C9A18086AA26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549121   (465024) от 19.09.2012
+
+Журнал | Total DVD №8-9 [август-сентябрь 2012] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для прогрессивных киноманов, для тех, кто любит кино и хочет знать о нём больше, а также ценит качество, современные технологии. В каждом номере – рецензии на главные хиты кинопроката, более 100 подробных обзоров DVD-дисков и тесты новейших моделей аппаратуры, советы экспертов по выбору лучших домашних кинотеатров.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9983B944DAF061938B901F4B908B7F7EC20D35DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549115   (465008) от 19.09.2012
+
+Журнал | Hard'n'Soft №9 [сентябрь 2012] [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный авторитетный отечественный компьютерный журнал для увлеченных компьютерной техникой. Лучшие специалисты и эксперты предоставляют читателям необходимую, максимально полную и объективную информацию по цифровым и компьютерным технологиям. Журнал входит в пятерку лидеров по охвату читательской аудитории. И эти лидирующие позиции сохраняются на протяжении многих лет.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FF5F1DF22FF6DD576EE13396F5FBEF9C5E8AB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940617   (464910) от 26.09.2015
+
+Журнал | Дом в саду. Спецвыпуск №3 "Календарь дачника 2016" (2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Влияние Луны на растения известно с давних пор. Учитывая фазы Луны и ее прохождение через знаки Зодиака, вы добьетесь наилучших результатов в работах в саду и огороде. Как пользоваться календарем: Найдите в календаре интересующий вас день, и вы увидите, в каком знаке гороскопа находится Луна и в какой она фазе. Рядом имеются рекомендации: какие работы благоприятны (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F25A2F9F6DA9AE5DEC6CAD611ED91E11C127D9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941213   (464907) от 26.09.2015
 
 Журнал | Мой прекрасный сад [Россия] №10 (октябрь 2015) [PDF]
@@ -6,7 +142,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464907.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464875.jpg" />
 </div>
 
 
@@ -58,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464611.jpg" />
 </div>
 
 
@@ -84,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464605.jpg" />
 </div>
 
 
@@ -111,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464275.jpg" />
 </div>
 
 
@@ -137,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464160.jpg" />
 </div>
 
 
@@ -163,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464154.jpg" />
 </div>
 
 
@@ -189,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464080.jpg" />
 </div>
 
 
@@ -215,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463946.jpg" />
 </div>
 
 
@@ -241,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463944.jpg" />
 </div>
 
 
@@ -267,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463628.jpg" />
 </div>
 
 
@@ -293,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463623.jpg" />
 </div>
 
 
@@ -319,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463622.jpg" />
 </div>
 
 
@@ -345,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463616.jpg" />
 </div>
 
 
@@ -371,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463562.jpg" />
 </div>
 
 
@@ -397,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463553.jpg" />
 </div>
 
 
@@ -423,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463551.jpg" />
 </div>
 
 
@@ -449,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463542.jpg" />
 </div>
 
 
@@ -475,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463535.jpg" />
 </div>
 
 
@@ -501,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463531.jpg" />
 </div>
 
 
@@ -527,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463442.jpg" />
 </div>
 
 
@@ -538,138 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44C9B4035A5594BA8108A9C53C2FED33C774B977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549522   (463317) от 20.09.2012
-
-Журнал | Домашние цветы №9 [сентябрь 2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все о цветах в доме: выращивание, уход, аранжировка... Советы и рекомендации специалистов, опыт любителей. Путешествие в мир увлеченных людей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFD2682EEA2534A73284318CFEC2AAF06B5E6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246488   (463315) от 10.09.2018
-
-Журнал | Техника - молодежи №10 (2018) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техника молодежи - сенсации науки и техники, открытия, изобретения, патенты. История техники, футурология, фантастика, оружие, боевая техника. Компьютеры, самоделки и моделизм. Смелые проекты и гипотезы. Антология таинственных случаев. Загадки забытых цивилизаций.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17F82834F5BDB1C7A196CF69A548B83774D418C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549072   (463180) от 20.09.2012
-
-Журнал | Сантехника. Отопление. Кондиционирование №6 (126) [июнь 2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущее российское ежемесячное, полноцветное, cпециализированное издание в области сантехники, отопления и кондиционирования. Главная миссия журнала - объективно отображать тенденции рынка, доносить до читателей российский и мировой опыт внедрения новых технологий, знакомить с оборудованием и практикой его применения, с современными техническими решениями и инновациями в отрасли.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16BE6870066F50F24366B7A70E0FCF27BDAE2F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549624   (463174) от 20.09.2012
-
-Газета | Здоровье в чашке чая № 3 [2002] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-познавательная газета на тему народной (нетрадиционной) медицины.
-
-В номере 12 страниц формата А3, собственный скан.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FF7E759B6BCE4E96BE674C2A6FB70CB0F371A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549587   (463173) от 20.09.2012
-
-Журнал | Кухни & ванные комнаты №9 [2012 сентябрь] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Кухни и ванные комнаты» содержит актуальную информацию об основных стилях и направлениях, последних дизайнерских и технологических решениях, новых материалах, идеи и полезные советы по обустройству кухонь и ванных комнат в целом, включая декорирование и аксессуары.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C64B93C0F3B30D3D3792279750BA811DC70C034
 ```
 
 https://mybot314.ru/tekegram_catalog/

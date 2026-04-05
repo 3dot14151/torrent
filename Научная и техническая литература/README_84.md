@@ -1,133 +1,3 @@
-###  Публикация: 1361617   (954051) от 20.02.2020
-
-Наталья Иртенина | История России. Иллюстрированный атлас (2016) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот атлас – путеводитель по истории России с древних времен до наших дней. Необычайно комфортная для восприятия структура атласа поможет не только разобраться в море исторических дат, но и понять причинно-следственные связи между различными историческими событиями и эпохами.Жанр: История России, справочная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4BF23C85786BC57BBC614EA62F5125CD6044375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089025   (953903) от 02.01.2017
-
-А. Р. Тюрго | Избранные экономические произведения (1961) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анн Робер Жак Тюрго (10 мая 1727 — 18 марта 1781) — французский экономист, философ и государственный деятель. Вошёл в историю как один из основоположников экономического либерализма.Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D56B9E35CF6BACEAC01D504ABDA80CAD615007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361658   (953900) от 20.02.2020
-
-Паола Волкова | Полная история искусства (2020) [PDF, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами обновленное издание уникальных лекций по истории и философии изобразительного искусства, составляющих цикл «Мост через бездну» известной российской писательницы, искусствоведа и преподавателя Паолы Волковой. «Полная история искусств» дает читателю возможность составить всестороннее представление об истории искусства, творческом процессе и личности художника. (   Читать дальше...   )Жанр: История , Культурология, ИскусствоведениеФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00093961EEDBD8303D1112CAB8A62E7F14C406F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089046   (953660) от 02.01.2017
-
-А.И. Канащенков, В.И. Меркулов (ред.) | Оценивание дальности и скорости в радиолокационных системах (Часть 1) (2004) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены теоретические основы синтеза и анализа радиолокационных измерителей на основе представления процессов и систем в многомерном пространстве состояний в рамках математического аппарата теорий оптимального управления, фильтрации и идентификации. Уделено внимание особенностям построения и функционирования временных и частотных дискриминаторов, сглаживающих (   Читать дальше...   )Жанр: РадиолокацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3410EE943DE9DA200181BA276A65B5D0C13B3B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089109   (953655) от 02.01.2017
-
-А.А. Кудинов | Строительная теплофизика (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основы теории переноса теплоты теплопроводностью, конвекцией и радиацией, а также тепло- и массообмена при фазовых превращениях. Изложена теория подобия процессов конвективного теплообмена и теплопередачи, теплового и гидромеханического расчетов теплообменных аппаратов рекуперативного типа. Представлены инженерные методы расчета процессов передачи теплоты, (   Читать дальше...   )Жанр: Строительство, физикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A624557B4D108AF9642FEDE783CD4C5129EBF26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089038   (953648) от 02.01.2017
 
 В.Б. Топильский | Схемотехника измерительных устройств (2010) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953648.jpg" />
 </div>
 
 
@@ -163,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953601.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953586.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953252.jpg" />
 </div>
 
 
@@ -242,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953046.jpg" />
 </div>
 
 
@@ -269,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952802.jpg" />
 </div>
 
 
@@ -296,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952779.jpg" />
 </div>
 
 
@@ -322,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952777.jpg" />
 </div>
 
 
@@ -349,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952199.jpg" />
 </div>
 
 
@@ -377,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952175.jpg" />
 </div>
 
 
@@ -403,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952022.jpg" />
 </div>
 
 
@@ -430,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951658.jpg" />
 </div>
 
 
@@ -456,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951654.jpg" />
 </div>
 
 
@@ -482,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951608.jpg" />
 </div>
 
 
@@ -508,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_951555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_951555.jpg" />
 </div>
 
 
@@ -537,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951398.jpg" />
 </div>
 
 
@@ -566,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951116.jpg" />
 </div>
 
 
@@ -594,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951105.jpg" />
 </div>
 
 
@@ -622,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951005.jpg" />
 </div>
 
 
@@ -648,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950976.jpg" />
 </div>
 
 
@@ -674,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950919.jpg" />
 </div>
 
 
@@ -685,6 +555,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6026EBAC2DEAC9C64C92AD328A73A06DA45F6FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362035   (950897) от 22.02.2020
+
+С. А. Голунский, Б. М. Шавер | Криминалистика. Методика расследования отдельных видов преступлений (1939) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Науки нет там, где каждое явление, каждый процесс рассматриваются изолированно от окружающей среды. Ленин учил, что точка зрения жизни, практики должна быть первой и основной точкой зрения теории познания. Без постоянного обобщения и научного анализа практики расследования отдельных видов преступлений не может быть научно-организованного следствия. Правильная организация (   Читать дальше...   )Жанр: История, политология, криминалистика, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43131D8E71D83542811E04F52E26F6C85AA4BBA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361928   (950839) от 22.02.2020
+
+Крис Импи | Чудовища доктора Эйнштейна. О черных дырах, больших и малых (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши представления о черных дырах чаще всего основываются на популярных мифах и нескольких общеизвестных научных фактах. Описывая историю исследования черных дыр, Крис Импи с легкостью развенчивает наиболее распространенные заблуждения и приоткрывает дверь в загадочный мир далеких звезд и их невидимых, но влиятельных спутниц.
+История астрофизики предстает как череда (   Читать дальше...   )Жанр: Научно-популярная литература, АстрономияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C07741614F1702DEB9D3F404E6BD92BF9D6BBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361975   (950816) от 22.02.2020
+
+Вера Калмыкова | Как начать разбираться в архитектуре (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана по материалам лекционного цикла «Формулы культуры», прочитанного автором в московском Открытом клубе (2012 – 2013 гг.). Читатель найдет в ней основные сведения по истории зодчества и познакомится с нетривиальными фактами. Здесь архитектура рассматривается в контексте других видов искусства – преимущественно живописи и скульптуры. Много внимания уделено (   Читать дальше...   )Жанр: История , Культурология, ИскусствоведениеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC25A29477D9F2F466417466C341A68F9B98C814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361972   (950811) от 22.02.2020
+
+Паола Волкова | Средневековые мастера и гении Возрождения (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950811.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание вошли самые известные труды Паолы Волковой, посвященные Средневековью и Возрождению, – «В пространстве христианской культуры», «Мистики и гуманисты», «Великие мастера» из цикла ее лекций «Мост через бездну».
+Паола Дмитриевна Волкова – советский и российский искусствовед, доктор искусствоведения, историк культуры, заслуженный деятель искусств РСФСР. (   Читать дальше...   )Жанр: История , Культурология, ИскусствоведениеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3D871C81A8FBC3DF10E61470589F45EE28BD03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362121   (950796) от 22.02.2020
+
+М.Н. Иванов, В.А. Финогенов | Детали машин (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950796.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждом разделе приводятся контрольные вопросы для самоподготовки и примеры, помогающие освоить методику расчётов и разрабатывать программы таких расчётов. При выполнении рисунков авторы стремились дать простые схемы, которые, однако, сохраняют основные черты конструкций и позволяют понять условия работы и расчета деталей, полагая, что конструкции деталей студенты (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6EB27EE4BC5140AFB0DBEEDCAEBA3E1E9E5F3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

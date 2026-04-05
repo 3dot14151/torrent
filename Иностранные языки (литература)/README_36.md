@@ -6,7 +6,7 @@
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254188.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254087.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254083.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254073.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253800.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253311.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253251.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252770.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248559.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247993.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246733.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Redman Stuart | English Vocabulary in Use. Pre-intermediate and Intermediate (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237991.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Intermediate (2015) [PDF] [Student's
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237985.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237882.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237468.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Upper-Intermediat
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237161.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Elementary (2017)
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237084.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Pre-intermediate (2015) [PDF] [Stude
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236740.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Advanced Plus (2019) [PDF] [Student'
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236721.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Starter (2015) [PDF] [Student's book
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236703.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Elementary (2015) [PDF] [Student's b
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236686.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227386.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226901.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ T&P Books Publishing | Русско-турецкий тематическии�
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226080.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225902.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225398.jpg" />
 </div>
 
 

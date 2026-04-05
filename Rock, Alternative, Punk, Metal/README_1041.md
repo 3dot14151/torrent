@@ -1,3 +1,32 @@
+###  Публикация: 1672678   (168315) от 29.10.2023
+
+Fields Of The Nephilim - Earth Inferno (1991) [FLAC|Lossless|image + .cue] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Dead But Dreaming) / For Her Light / At The Gates Of Silent Memory / (...
+02. Moonchild
+03. Submission
+04. Preacher Man(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1937C82689790A1D2D5E6B6AE3DEEFBFF6A14EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672648   (168313) от 29.10.2023
 
 Skylark - Wings (2004) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
@@ -6,7 +35,7 @@ Skylark - Wings (2004) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168313.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Legendry - Time Immortal Wept (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy/P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168310.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Fields Of The Nephilim - The Nephilim (1988) [FLAC|Lossless|image + .cue] <Gothi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168305.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168303.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Man Machine Industry - Eschaton I-II. Reckoning Day (2022-2023) 2CD [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168302.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ VA - Halloween 2022 Rock Vol. 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168301.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Starchaser - Starchaser (2022) Deluxe Edition, 2023, Frontiers Records s.r.l. [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168292.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Fields Of The Nephilim - Revelations (1993) [FLAC|Lossless|image + .cue] <Gothic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168285.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Weight of Emptiness - Withered Paradogma (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168277.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Liedfett - Hi! (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Deutschrock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168251.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Fields Of The Nephilim - Elizium (1990) [FLAC|Lossless|image + .cue] <Gothic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168242.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Eric Clapton - The Lady In The Balcony: Lockdown Sessions (2021) Japanese Editio
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168224.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Skylark - The Princess' Day (2001) [FLAC|Lossless|image + .cue] <Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168218.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Magnolia Park - Halloween Mixtape II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168212.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Eisbrecher - Schock Tour Edition 2016 (2016) Box 4CD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168210.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Fields Of The Nephilim - Fallen (2002) [FLAC|Lossless|image + .cue] <Gothic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168208.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Generation Steel - Lionheart (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168196.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Fields Of The Nephilim - Dawnrazor (1987) [FLAC|Lossless|image + .cue] <Gothic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168190.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Skid Row - The Gang's All Here (2022) Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168189.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Status Quo - Quo'ing In The Best Of The Noughties (2022) 3xCD, Compilation, Limi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168180.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Howling Giant - Glass Future (2023) [FLAC|Lossless|WEB-DL|tracks] <progressive r
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168169.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168164.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Skylark - Divine Gates Part I Gate Of Hell (1999) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168156.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Closure In Moscow - Soft Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168140.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168138.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF88E47FA00C879FF323E2BDC291CBBFAF3D8E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596941   (168133) от 12.12.2022
-
-VA - Best Rock 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Jovi -- Livin' On A Prayer (4:11)
-02. Rainbow -- Street Of Dreams (4:26)
-03. Kiss -- I Was Made For Lovin' You (4:28)
-04. Iggy Pop -- Search And Destroy (Live From The Rainbow Theatre, London, UK / 7th March 1977) (3:27)(   Читать дальше...   )Жанр: RockПродолжительность: 01:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABA8D99BBCC09F2F66AEB5A66EF9D455ED020B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

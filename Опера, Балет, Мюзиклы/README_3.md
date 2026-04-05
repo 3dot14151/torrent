@@ -6,7 +6,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537855.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Michael Jackson - Moonwalker (1988) BDRip [H.264/1080p]
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534931.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519040.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508303.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494837.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494101.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494096.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492240.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491341.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964) BDRi
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477258.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475841.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471594.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471536.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468581.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426260.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425771.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423987.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423815.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420528.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415785.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_415660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_415660.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414277.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411750.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404307.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_380428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_380428.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365093.jpg" />
 </div>
 
 

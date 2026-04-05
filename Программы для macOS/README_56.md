@@ -1,3 +1,56 @@
+###  Публикация: 1281904   (748286) от 10.02.2019
+
+TunesKit M4V Converter 5.0.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748286.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit DRM M4V Converter - лучшее и самое быстрое программное обеспечение для удаления DRM, специально разработанное для устранения защиты DRM без потери покупок фильмов iTunes, прокатов и телевизионных эпизодов.
+Это также поможет вам преобразовать любое видео без DRM в MP4 без защиты, M4V и другие форматы с объемным звуком AC3 5.1 с сохраненными субтитрами.Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FA08CB4063D7E492970EE43B311C3D30AE01F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281924   (748046) от 10.02.2019
+
+Presonus Studio One Pro 4.1.3 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Studio One Pro - мощный, профессиональный аудио/MIDI-секвенсор, снабжен не только всеми профессиональными функциями, необходимыми музыканту и аранжировщику в процессе производства музыки, но и некоторыми новыми разработками, выделяющими эту программу из ряда традиционных аудио-приложений. В основе работы Studio One Pro лежит механизм автоматического переключения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: PreSonusПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий, Французский, Японский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3C653BE4387BDA7249B2B65B18486BFFA86ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019724   (747969) от 24.05.2016
 
 SILKYPIX Developer Studio Pro 7.0.5.0 [En]
@@ -6,7 +59,7 @@ SILKYPIX Developer Studio Pro 7.0.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747969.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Xcode 7.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747579.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ onOne Software Plug-In Suite 5.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_747175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747175.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ QR Factory 2.9.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746813.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ Doo - Get Things Done 1.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746730.jpg" />
 </div>
 
 
@@ -144,7 +197,7 @@ PaintCode 2.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746729.jpg" />
 </div>
 
 
@@ -172,7 +225,7 @@ Virus Scanner Plus 3.13 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746556.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ qBittorrent 4.2.0 alpha [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746308.jpg" />
 </div>
 
 
@@ -224,7 +277,7 @@ Instant Translate 1.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745306.jpg" />
 </div>
 
 
@@ -253,7 +306,7 @@ Equilibrium 1.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745299.jpg" />
 </div>
 
 
@@ -280,7 +333,7 @@ iFFmpeg 6.1.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745226.jpg" />
 </div>
 
 
@@ -306,7 +359,7 @@ Aria 2.0.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743858.jpg" />
 </div>
 
 
@@ -332,7 +385,7 @@ Magic Hider PRO 1.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743856.jpg" />
 </div>
 
 
@@ -359,7 +412,7 @@ Tipard Blu-ray Player for Mac 6.2.30 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743855.jpg" />
 </div>
 
 
@@ -385,7 +438,7 @@ DockMate Beta 0.8.7 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743853.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ CopyLess 1.8.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743780.jpg" />
 </div>
 
 
@@ -439,7 +492,7 @@ TurnTable 4.0.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743771.jpg" />
 </div>
 
 
@@ -466,7 +519,7 @@ Apeaksoft iOS Toolkit 1.1.96 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743769.jpg" />
 </div>
 
 
@@ -494,7 +547,7 @@ Instant: The Polaroid Instant Photos 3.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743701.jpg" />
 </div>
 
 
@@ -522,7 +575,7 @@ Enolsoft PDF Password Remover for Mac 3.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743628.jpg" />
 </div>
 
 
@@ -548,7 +601,7 @@ BookReader 5.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743554.jpg" />
 </div>
 
 
@@ -577,7 +630,7 @@ Adobe DNG Converter 11.2.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743521.jpg" />
 </div>
 
 
@@ -603,7 +656,7 @@ Sierra Cache Cleaner 11.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743349.jpg" />
 </div>
 
 
@@ -631,7 +684,7 @@ NanoBrowser 1.5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742364.jpg" />
 </div>
 
 
@@ -642,61 +695,6 @@ NanoBrowser - это еще один из минималистичных бра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:074022ED6A2D3B88932EED99056DA5CFBCCC341B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524785   (742356) от 17.01.2022
-
-MovieSherlock 6.3.5 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742356.jpg" />
-</div>
-
-
-###  Подробнее
-
-MovieSherlock - это все-в-одном YouTube-загрузчик и конвертер. Это позволяет вам искать, загружать и конвертировать фильмы YouTube. MovieSherlock позволяет загружать видео быстро, плавно и без потерь качества!
-MovieSherlock - это лучший способ получить видео на ваш Mac.
-MovieSherlock позволяет загружать любое видео с YouTube и конвертировать его на вашем Mac в высококачественное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2022Разработчик: © 2009-2021 Capibara Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F700AFB2AC3453DD2492F2571C688D7A3563DA6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021073   (742079) от 28.05.2016
-
-Fantastical 2.2.3 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fantastical 2 — продвинутый календарь-органайзер для Mac OS X
-Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы.  Основным отличием от аналогичных программ такого (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 мая 2016Разработчик: Flexibits Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Испанский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824FA8C4D4A4BA96C1EAB3F04A51C015BB8A89F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

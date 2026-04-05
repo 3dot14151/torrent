@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138692.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - Зимний марафон № 216: Новогодний Фейервер�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138069.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137734.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137594.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Europa Plus TOP 40 декабрь (2017) WEB-DL
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137540.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137461.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Rammstein - Legacy of Kain: Soul reaver (sonne remix) (2011)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137434.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Xenia - Understand (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135403.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Plies - Hunna (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135370.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ The Blue Van - There Goes My Love (Uncensored) (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135193.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Rammstein - Videos 1995-2012 (Disk 1-2) (2012) BDRip_720р
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134361.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132550.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131902.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131426.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131364.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131338.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ SaBo-FX - Erotic (Final Countdown 2012 remake) [H.264/720p] (2012) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131325.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Progressive Rock - Rock Legends (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130968.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130751.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126163.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117747.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Scooter - Video collection - Chapter 1 (1994 - 1997) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116952.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Scooter - Video collection - Chapter 2 (1998 - 2002) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114690.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Scooter - Video collection - Chapter 4 (2007-2012) DVDRip, WEBRip [H.264/1080p-L
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112227.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110936.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110779.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1838223   (258007) от 21.11.2025
+
+Sainted Sinners - High On Fire (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crown of Thorns (5:38)
+02. Out of the Blue (4:07)
+03. Night After Night (4:18)
+04. Sunshine (3:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B825485986D3AB9E234837997592A953DAF7F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838219   (258006) от 21.11.2025
 
 Bloodbound - Field Of Swords (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -6,7 +35,7 @@ Bloodbound - Field Of Swords (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258006.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Aerosmith & YUNGBLUD - One More Time (2025) EP [FLAC 24/96|Lossless|WEB-DL|track
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257998.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Kiss - Alive! (Live) (1975) Remaster, 2025, UMe Direct 2 [MP3|320 Kbps] <Hard-Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257988.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Midnite City - Bite The Bullet (2025) [MP3|320 Kbps] <Melodic Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257913.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Agalloch - Ashes Against The Grain (2006) 2XCD, Reissue, 2025, Eisenwald , Delux
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257822.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Bloodbound - Field of Swords (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257756.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Moonspell + Orquestra Sinfonietta De Lisboa - Opus Diabolicum (The Orchestral Li
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257732.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Various - Killed By Deaf - A Punk Tribute To Motörhead (2025) Compilation [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257712.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Cheap Trick - All Washed Up (2025) [FLAC|Lossless|image + .cue] <Rock, Power Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257635.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Elithium - Strangers Parade (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257621.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Suicide Queen - Crowned In Blood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <I
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257553.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Spiritbox - Сollection (2021 - 2025) 3 CD [FLAC|Lossless|tracks + .cue] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257512.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ The Dead Daisies - Live At Stonedead (2025) Live [FLAC 24/44.1|Lossless|WEB-DL|t
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257489.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Red Elvises - Drinking With Jesus (2008) [MP3|320 кб/с]<Rock-n-Roll, Rockabil
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257434.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ VA - Time Life - Guitar Rock 60's to 90's (25CD) (1994) [MP3|~225 кб/с ]<Clas
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257257.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257179.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256909.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256878.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ DvärG (DvarG) - Скала (2012) [FLAC|Lossless|WEB-DL|tracks] <Progressive He
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256865.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Heavyone - Heavyone (2011) [MP3|224 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256779.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ Feanor - Hellhammer (2025) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256749.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Back Jack - Certainly In Neverland (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256705.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Kauan - Wayhome (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Black 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256667.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256499.jpg" />
 </div>
 
 
@@ -732,7 +761,7 @@ Roger Waters - The Best (1995) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256442.jpg" />
 </div>
 
 
@@ -752,35 +781,6 @@ Roger Waters - The Best (1995) [FLAC|Lossless]<Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836280   (256345) от 10.11.2025
-
-Portugal. The Man - Shish (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denali (4:16)
-02. Pittman Ralliers (2:46)
-03. Angoon (4:37)
-04. Knik (5:38)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35595DD8FCA45D55911CE165BD59A2FC5F452A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

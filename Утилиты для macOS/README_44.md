@@ -1,3 +1,30 @@
+###  Публикация: 1428493   (180221) от 02.12.2020
+
+Duplicate Files Sweeper 3.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Files Sweeper - приложение для очистки дубликатов, которое поможет вам легко избавиться от повторяющихся файлов с вашего Mac.
+Duplicate Files Sweeper помогает вам тщательно сканировать ваш Mac для поиска дубликатов файлов, фотографий, музыки, видео, архивов и даже дубликатов приложений, которые могут быть разбросаны по разным папкам на вашем Mac. Большое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: Wise Tech Labs Private LimitedПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:022E17F70EE8B8E74E68E5810F349F2D5CBFFADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428507   (180153) от 02.12.2020
 
 NeoFinder Business 7.7 [Multi]
@@ -6,7 +33,7 @@ NeoFinder Business 7.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180153.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Smart Zipper - RAR&7Zip Tool 1.90 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179711.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ OverPicture for Safari 1.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178445.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Faronics Power Save Enterprise for Mac 3.70.2200.0455 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177747.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Dropshare 5.24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177426.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ Multitouch 1.27.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176852.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Tower Pro 9 v.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176654.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ PortsMonitor 1.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175316.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ Gemini 2: The Duplicate Finder 2.9.11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175029.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ A Better Finder Rename 12 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174820.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ HoudahGeo 6 v.6.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174802.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ WiFi Signal: Status Monitor  4.4.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174649.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ Bartender 4 v.4.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174643.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ App Cleaner & Uninstaller Pro 8.0.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174288.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ iMazing 2.17.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174219.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ Hands Off! 4.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174165.jpg" />
 </div>
 
 
@@ -434,7 +461,7 @@ Trminal 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173979.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ Display Maid 3.3.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173235.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ Mirror for Fire TV  2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173063.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ Mirror for Hitachi TV 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173062.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ Mirror for Roku TV 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173060.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ Mirror for Hisense TV 3.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173056.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ Mirror for Android TV 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172999.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ Micro Snitch 1.6.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172839.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ Magic Battery 8.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172666.jpg" />
 </div>
 
 
@@ -656,34 +683,6 @@ Magic Battery 8.1.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83F512FF935546CD249CAE7D3455F19C4988DA91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669965   (172515) от 18.10.2023
-
-ScreenFloat-Better Screenshots 1.5.22 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172515.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenFloat — приложение для создания висящих на виду скриншотов.
-Приложение позволяет создавать висящие перед глазами скриншоты и сохранять их в собственную библиотеку, чтобы потом быстро их найти.
-Используйте ScreenFloat для создания плавающих скриншотов, которые всегда видны, независимо от того, какое приложение вы используете. Таким образом, вам не нужно перемещать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2023Разработчик: © 2023, Eternal Storms Software.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5602C7B5057A1190868C3FC230F23A889A3D421A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1420131   (335486) от 30.10.2020
-
-Секта космического педофила (2020) WEB-DL [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Псевдорелигиозная секта «Чёрный Лотос» существовала в 2004 на Кубани. Ее основатель обещал своим адептам квантовый переход в рай в обмен на полное подчинение. Впервые жертвы общины рассказывают о том, как была устроена секта.Производство: РоссияЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB72F672F3F47D509BA14883C78387EDE764D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331016   (334995) от 13.10.2019
 
 Чудо техники с Сергеем Малозёмовым (13.10.2019) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334995.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334855.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333956.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333951.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332637.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332622.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332609.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332566.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332552.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331288.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331217.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330883.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330724.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330393.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330205.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330198.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330102.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329919.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329483.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329479.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329446.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329439.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328249.jpg" />
 </div>
 
 
@@ -636,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327556.jpg" />
 </div>
 
 
@@ -662,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325877.jpg" />
 </div>
 
 
@@ -673,6 +647,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9964419E6E4FD5995472A2D39DDFB0188743FE1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957417   (325838) от 19.11.2015
+
+Излишки: Терроризм потребления / Surplus: Terrorized Into Being Consumers (2003) DVDRip [EN / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Общество потребления уничтожило окружающую среду. Погубило миллионы видов растений и животных. Отравило наши моря, реки и озера. Загрязнило воздух. Необходимо что-то делать, чтобы спасти человечество. Мир может быть лучше! Мы лишь хотим, чтобы люди задумались над тем, почему протестующие выходят на улицы и пытаются что-то сделать. Это ведь не бессмысленное насилие. (   Читать дальше...   )Производство: ШвецияЖанр: ДокументальныйРежиссер: Эрик ГандиниПеревод: отсутствуетСубтитры: русские - отдельным файлом;
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C872C11CF27E9877EE8138384C8DE52A33CEB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

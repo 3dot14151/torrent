@@ -1,3 +1,31 @@
+###  Публикация: 1429510   (176225) от 06.12.2020
+
+Brejestovski Language School, Антон Брежестовский | Основная английская грамматика (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс-самоучитель “Основная английская грамматика”.
+
+Этот курс, проверенный и протестированный десятки раз за 12 лет своего существования, помог уже сотням студентов кардинально улучшить свою грамматику. Теперь он доступен и для самостоятельного обучения.Производство: Brejestovski Language SchoolЖанр: Английский языкПродолжительность: 06:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D79A3882686F24990394387D38B5B50A2C7BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429355   (176192) от 06.12.2020
 
 Udemy, Fabrizio Guerrieri | Базовый курс по электричеству и электронике / The Complete Basic Electricity & Electronics Course (2020) PCRec [En / En Sub]
@@ -6,7 +34,7 @@ Udemy, Fabrizio Guerrieri | Базовый курс по электричест�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176192.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175793.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ Udemy, Cov Phillips | Ultimate 3D Environment Animation Course - Blender (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175781.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ CG Cookie, Jonathan Lampel | Основы динамической симуля�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175765.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ Udemy, Darrin Lile | Blender 2.83 и захват движения / Blender 2.8
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175722.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175661.jpg" />
 </div>
 
 
@@ -169,7 +197,7 @@ Udemy, Zoran Horvat | Рефакторинг под паттерны проек�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175634.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ Udemy, Vinoth Selvaraj | Selenium WebDriver и Паттерны Проектир
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175627.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175621.jpg" />
 </div>
 
 
@@ -251,7 +279,7 @@ ArtStation, Rico Cilliers | Введение в скульптинг в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175612.jpg" />
 </div>
 
 
@@ -277,7 +305,7 @@ Udemy, Krista King | Станьте Мастером Теории Вероятн
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175606.jpg" />
 </div>
 
 
@@ -305,7 +333,7 @@ OTUS, Павел Пархомец и др. | Безопасность веб-п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175447.jpg" />
 </div>
 
 
@@ -334,7 +362,7 @@ Skillbox, Наталья Кисельникова | Кто я и чего хоч
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174934.jpg" />
 </div>
 
 
@@ -363,7 +391,7 @@ Gumroad, Evolving CG | Создание малыша Йоды / Creating Baby Yo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174907.jpg" />
 </div>
 
 
@@ -390,7 +418,7 @@ Udemy, MrBriit | End-To-End Machine Learning Projects&Deployment Mastery 2021 (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174893.jpg" />
 </div>
 
 
@@ -418,7 +446,7 @@ Skillshare, Simon Van Den Hende| Основы скриптинга на Python �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174873.jpg" />
 </div>
 
 
@@ -447,7 +475,7 @@ Udemy, Otto Lai | Intro to Geometry Nodes using Blender 3.3 (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174789.jpg" />
 </div>
 
 
@@ -474,7 +502,7 @@ Tolkovoprod, Анастасия Мазуровская | I am designer. Тари
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174788.jpg" />
 </div>
 
 
@@ -503,7 +531,7 @@ Schoolism, Bobby Chiu | Цифровое рисование с Бобби Чу /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174712.jpg" />
 </div>
 
 
@@ -530,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174678.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174674.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ XYZ School | Blender 2.8 Intro (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174670.jpg" />
 </div>
 
 
@@ -611,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174658.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174512.jpg" />
 </div>
 
 
@@ -667,7 +695,7 @@ Dream & Draw Art School, Анастасия Козлова | Волшебный 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174250.jpg" />
 </div>
 
 
@@ -681,32 +709,6 @@ Dream & Draw Art School, Анастасия Козлова | Волшебный 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC5392710834A50BE21FB8A3393F9E51DA6CD0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668006   (174234) от 11.10.2023
-
-Sinclair Intimacy Institute, Марк Шон | Pro секс: Обратная сторона луны (2002) DVDRip [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа выпущена всемирно известным американским ИНСТИТУТОМ СЕКСОЛОГИИ СИНКЛЕР и содержит большой объем информации об нестандартных способах секса. Если вы думаете, что нестандартные способы секса не популярны, то вы ошибаетесь, опросы показывают обратное. Если между двумя взрослыми людьми достигнуто соглашение о занятии безопасным, не приводящим к нежелательной (   Читать дальше...   )Производство: Sinclair Intimacy InstituteЖанр: эротика, обучающее видеоЯзык озвучки: РусскийПродолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7251555B938F34F865F2C555A1A237F691B050D
 ```
 
 https://mybot314.ru/tekegram_catalog/

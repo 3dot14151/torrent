@@ -1,175 +1,3 @@
-###  Публикация: 1065742   (417210) от 24.10.2016
-
-Fernando Express - Urlaub fur die Seele (2005) [FLAC|Lossless|image + .cue] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barfu. bis ans Ende der Welt
-02. Liebe gibt und Liebe nimmt
-03. Urlaub fur die Seele
-04. La Isla Felicita(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D365E0990B09EF6E862B753544A6D4C21FD4B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573046   (417121) от 29.08.2022
-
-Lucio Battisti - Umanamente uomo: il sogno (1972) remaster 1989 [FLAC 2.0|192/24|WEB-DL|tracks] <Soft Rock, Chanson, Canzone italiana>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I giardini di marzo [00:05:31]
-02. Innocenti evasioni [00:03:47]
-03. E penso a te [00:04:25]
-04. Umanamente uomo: il sogno [00:03:18](   Читать дальше...   )Жанр: Soft Rock, Chanson, Canzone italianaПродолжительность: 00:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D609323B96E6886B3862B94A7B977CEB855B2E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065845   (417037) от 24.10.2016
-
-Gram Rabbit - RadioAngel & the RobotBeat (2007) [MP3|256 Kbps] <Alternative Pop, Space Dance Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Hookers
-02. The Rest of Us Sleep
-03. In My Book
-04. Fancy Dancy(   Читать дальше...   )Жанр: Alternative Pop, Space Dance Rock, ElectronicПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7DA12867A32DB78FFCF9A726CDE222E48741CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573018   (416890) от 29.08.2022
-
-Mylene Farmer - Ainsi Soit Je... (1988) [OGG Vorbis|485 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Horloge	5:03
-02. Sans Contrefaçon	4:07
-03. Allan	4:46
-04. Pourvu Qu'Elles Soient Douces	4:52(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1F7F0F87BF59FF96740DC75DFD0D65E4C4EDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066038   (416815) от 24.10.2016
-
-Paul Brookes - Steps from Beyond (1978) LP [MP3|320 Kbps] <Electronic, Abstract, Experimental, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Довольно-таки редкий альбом британского композитора, музыканта и продюсера.01. Steps from Beyond - part one (17:14)
-02. Steps from Beyond - part two (17:36)Жанр: Electronic, Abstract, Experimental, DiscoПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD3C7844361A941DBC32A6169542A14E5F86A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324953   (416730) от 13.09.2019
-
-VA - RTL 2 It's fun - Oktoberfest (2019) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416730.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Franzl Lang - Ein Prosit der Gemütlichkeit
-02. Hubert von Goisern - Brenna tuats guat(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E846D5912DA52A2315059BBAC99023B3DD1B5153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324935   (416724) от 13.09.2019
 
 VA - Die deutschen Disco Charts - Die ultimative Schlager Party (2019) 3CD [MP3|320 Kbps] <Pop, Schlager>
@@ -178,7 +6,7 @@ VA - Die deutschen Disco Charts - Die ultimative Schlager Party (2019) 3CD [MP3|
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416724.jpg" />
 </div>
 
 
@@ -207,7 +35,7 @@ Olivia Newton-John - Greatest Hits (1976) Japanese Edition, 1984, EMI [WavPack|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416657.jpg" />
 </div>
 
 
@@ -236,7 +64,7 @@ Tom Chaplin (Keane) - The Wave (2016) Deluxe Edition [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416652.jpg" />
 </div>
 
 
@@ -265,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416361.jpg" />
 </div>
 
 
@@ -294,7 +122,7 @@ The Radio Dept. - Running Out Of Love (2016) [FLAC|Lossless|tracks] <Indie Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416342.jpg" />
 </div>
 
 
@@ -323,7 +151,7 @@ VA - Первый танцевальный, Vol. 18 (2019) [MP3|320 Kbps] <Pop, 
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416222.jpg" />
 </div>
 
 
@@ -352,7 +180,7 @@ VA - И Просится Сердце В Полёт... (Аэрофлоту - 75)
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416179.jpg" />
 </div>
 
 
@@ -381,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416003.jpg" />
 </div>
 
 
@@ -410,7 +238,7 @@ VA - Les Stars font leur cinema (2015) Deluxe Edition [FLAC|tracks]<Pop, Ballad>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415996.jpg" />
 </div>
 
 
@@ -439,7 +267,7 @@ Alina Orlova - Daybreak (2018) [MP3|320 Kbps] <Alternative Pop, Psychedelic Folk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415498.jpg" />
 </div>
 
 
@@ -468,7 +296,7 @@ VA - Acoustic Music (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415492.jpg" />
 </div>
 
 
@@ -497,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415438.jpg" />
 </div>
 
 
@@ -523,7 +351,7 @@ Nile Rodgers & Chic - It’s About Time (2018) Deluxe Edition [FLAC|Lossless|tra
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415240.jpg" />
 </div>
 
 
@@ -552,7 +380,7 @@ Arabesque - II, III - Japan (1979, 1980) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_415191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_415191.jpg" />
 </div>
 
 
@@ -581,7 +409,7 @@ VA - Retro Futurism - Italo Is Still Alive (2017) [MP3|320 Kbps] <Italo-Disco, S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415077.jpg" />
 </div>
 
 
@@ -610,7 +438,7 @@ VA - Bravo Hits Vol. 99 (2CD) (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414870.jpg" />
 </div>
 
 
@@ -639,7 +467,7 @@ FIZICA - Доппельгангер (2022) Deluxe Edition [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414770.jpg" />
 </div>
 
 
@@ -668,7 +496,7 @@ VA - Retro Futurism - Italo Is Still Alive (2017) Compilation [FLAC|Lossless|ima
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414709.jpg" />
 </div>
 
 
@@ -697,7 +525,7 @@ Various - The Best Of Italo-Disco Vol. 4 (1985) [OGG Vorbis|485 Kbps] <Italo-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414638.jpg" />
 </div>
 
 
@@ -726,7 +554,7 @@ Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M (2005) CD [MP3
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414481.jpg" />
 </div>
 
 
@@ -740,6 +568,180 @@ Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M (2005) CD [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8728FEF74777C0FD8DBFBBCF46F49D7A493504C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573212   (414421) от 30.08.2022
+
+Mr.President - Up'n Away - The Album (1995) Remastered, 2022, Maschina Records [OGG Vorbis|485 Kbps] <Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro                                                    	1:20
+02. Up'n Away                                           	3:53
+03. 4 On The Floor                                   	3:17
+04. On My Mind                                         	3:55(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE1746965386AF0FC806BC9ED8D51A8B266A303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710890   (413775) от 15.10.2013
+
+VA - Pure... Legends (2013) Box Set, 4 CD [FLAC|Lossless]<Retro, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рыбачка Sony как то в мае...выпустила замечательный сборник легенд рор и рок музыки. В треклисте специально привожу годы выпуска соответствующих композиций, чтоб вы ощутили широту охвата этого сборника. Просто уверен, что даже большие ценители музыки найдут в нем для себя несколько незнакомых исполнителей и насладятся этой не стареющей музыкой.01. Sade - Smooth Operator [1984] (4:20)
+02. Journey - Who's Crying Now [1981] (5:02)
+03. Patti Smith Group - Because The Night [1978] (3:23)
+04. Meat Loaf - Two Out Of Three Ain't Bad [1977] (4:47)(   Читать дальше...   )Жанр: Retro, Pop, RockПродолжительность: 01:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F281764E12B421EA52C3C6C4C63840C5D404A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168179   (412895) от 22.09.2017
+
+Love Committee - 2 Albums (1978, 1980) [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диско - вокальный квартет из США. В 60-е годы начинали работать под названием - The Ethics. Выпустили под проектом "Love Committee" только эти два альбома и в дальнейшем несколько новых синглов.01. Law And Order (8:46)
+02. Tired Of Being Your Fool (2:56)
+03. If You Change Your Mind (3:43)
+04. Cheaters Never Win (3:58)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 01:20:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926C04ABE1B9D822618C14AC43F9356393B274F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325357   (412573) от 15.09.2019
+
+Space Pilots - Space Music (1978) [MP3|320 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Fly (3:11)
+02. Onyx (3:49)
+03. Space Computer (4:05)
+04. Future Woman (2:41)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 00:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338CDF37278F9DDE622B7C5F98D537A6B8009E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325625   (412436) от 15.09.2019
+
+VA - I Love Success, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Hi-NRG, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riccardo Campa feat. Tuesday - The Future Is You (05:09)
+02. Male Room - You Are Not My Lover (Video Edit) (03:43)
+03. Multiple Maniacs feat. Tuesday - The Fauxriental Jam (7'' Mix) (06:22)
+04. Multiple Maniacs feat. Tuesday - Bazooms (05:23)(   Читать дальше...   )Жанр: Hi-NRG, Italo-DiscoПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB40230C6CB8EE2FF95D7231F2C164A5DCDCF075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325597   (412422) от 15.09.2019
+
+Ирина Аллегрова - Неизданное…2019 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412422.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Жизнь-игра
+2. Ария Сильвы
+3. Книга жизни
+4. Нас друг для друга создал Бог(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80AC9F163C784899FF9119E4B686B0F0A99A09A
 ```
 
 https://mybot314.ru/tekegram_catalog/

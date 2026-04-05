@@ -6,7 +6,7 @@ Harry James - 1937 - 1939 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239589.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Howard McGhee - 1945 - 1946 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239580.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Stuff Smith - 1936 - 1939 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239565.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Shirley Scott - Queen Of The Organ (1964) 1993, GRP [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239462.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Milt Hinton, Wendell Marshall, Wyatt Ruther - Basses Loaded! (1955) 2021, Fresh 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239452.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Martial Solal - The Vogue Recordings, Vol.1 (1954 - 1957) 1993, Vogue [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239440.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ernie Watts Quartet - Home Light (2018) Flying Dolphin Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239371.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Michael Dease - Give It All You Got (2021) Posi Tone Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239346.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Oscar Peterson - Oscar Peterson (1951) 1995, Just A Memory Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239239.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Art Pepper - Seven Classic Albums (1952 - 1960) 4CD, 2013, Real Gone Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239226.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Gard Nilssen's Supersonic Orchestra - If You Listen Carefully the Music Is Yours
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239088.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Take 6 - Feels Good (2005) I-More [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239038.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lalo Schifrin - Seven Classic Albums (1959 - 1962) 4CD, 2013, Real Gone Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239029.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Cal Tjader - Mambo Sangria (1968, 1969) 2007, Fabulous [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239012.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Pasquale Grasso - Solo Masterpieces (2021) Sony Music [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238976.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sarah Lancman - Le pouvoir des mots (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238913.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Charlie Rouse Band - Cinnamon Flower (1977) 1987, Rykodisc [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238910.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Oscar Peterson - Great Connection (1971) 2005, Universal [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238831.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jacky Terrasson - 53 (2019) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238769.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ V.A. - Relaxing Soothing Melodic Tunes for Body, Mind and Soul (2023) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238721.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Henry Busse - The Uncollected Henry Busse and His Orchestra (1935) 2011, Hindsig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238630.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Jazzy Romance (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238606.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Joe Henderson - Mirror, Mirror (1980) 1993, MPS [FLAC|Lossless|image + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238597.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Chet Baker & Bud Shank - Theme Music From “The James Dean Story” (1956) 2000
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238558.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Wynton Marsalis - Jodi (1980) 2005, Memo Music [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238349.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Emilie-Claire Barlow - Spark Bird (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238309.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Discovery. Человек против медведя / Man vs Bear (2019-2020) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13332.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2013) S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9065.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Челюсти против кракена / Jaws vs Kraken (2022) WE
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8822.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery: Мастерская Ричарда Хаммонда / Richard Hammon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2815.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Discovery. Великий замысел по Стивену Хокингу / St
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2729.jpg" />
 </div>
 
 

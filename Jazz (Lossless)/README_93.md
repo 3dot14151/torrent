@@ -6,7 +6,7 @@ Beegie Adair - Into Somethin' (2011) Green Hill Productions [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741236.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Carmen McRae - Ms. Magic (1978) 1986, Dunhill Compact Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741235.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jackie McLean Quartet - Dr. Jackle (1966) 1990, SteepleChase [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741234.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Count Basie - Portrait (1930-e) 2002, Rainbowcd.com [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741233.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Splashgirl - Sixth Sense (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Nu Jazz, Da
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741231.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tony Bennett - As Time Goes By: Great American Songbook Classics (1950-e) 2013, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741229.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nels Cline & Vinny Golia - The Entire Time (2004) Nine Winds [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741204.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ben Webster - My Romance (1965) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741161.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ John Patton - Boogaloo (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741084.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dinah Washington - The Definitive Dinah Washington (2002) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741081.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Charlie Rouse - Yeah! (1960) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741080.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ New Cool Collective & Mark Reilly - The Things You Love (2016) [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741079.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Louis Armstrong - What A Wonderful World (1962 - 1965) 1989, Jazz Hour [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741065.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Daniel Freedman - Imagine That (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740995.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dexter Gordon - Come Rain Or Come Shine (1967) 1989, Jazz Hour [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740966.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Frank Sinatra & Tommy Dorsey - Falling In Love With Frank Sinatra & Tommy Dorsey
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740804.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Nat King Cole - The Quintessence, Vol.1: Los Angeles - Chicago - Hollywood - New
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740465.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bill Evans - The Complete Interplay Sessions (1957 - 1962) 2014, 2CD, Essential 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740464.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Papik & Alfredo Bochicchio - Cocktail Guitar (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740417.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Trombone Shorty - Trombone Shorty Meets Lionel Ferbos (2002) 2005, Wise and Bark
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740390.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mina Agossi - Carrousel (2004) Cristal Records [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740389.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Joe Holiday - Mambo Jazz (1951 - 1954) 1991, Original Jazz Classics [APE|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740324.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Duke Ellington - The Great Concerts: London & New York 1963-1964 (2009) 2CD, Nim
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740247.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Cal Tjader - Four Classic Albums (1955 - 1959) 2018, 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739910.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Nat King Cole - The Quintessence, Vol.2: New York - Hollywood (1944 - 1946) 1998
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739900.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Paul Bley - Four Classic Albums (1954 - 1961) 2CD, 2016, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739846.jpg" />
 </div>
 
 

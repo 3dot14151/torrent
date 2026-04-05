@@ -1,3 +1,29 @@
+###  Публикация: 1055932   (483621) от 24.09.2016
+
+SupremePlayer - A player can play all media file 6.0.1 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483621.jpg" />
+</div>
+
+
+###  Подробнее
+
+SupremePlayer -  простой в использовании и мощный проигрыватель видео, который поддерживает множество форматов и различных функций. Поддержка воспроизведения (воспроизведение / пауза, предыдущий кадр / Следующий кадр, назад 5s / Вперед 5s, назад 60s / Вперед 60s и Seek Точно,  скорость  (1.2x, 1.5x, 2.0x, 1 / 2x, 1 / 4x, 1 / 8x, 1 / 16x),  регулировка видео (легко изменить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 сентября 2016Разработчик: LongHaiqiang .IncПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C665878F1D10EF21C8BF2D49A4C6F602F9A28E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566750   (480365) от 30.07.2022
 
 Movist 2.7.2 [Multi/Ru]
@@ -6,7 +32,7 @@ Movist 2.7.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480365.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ MKV2MP4 1.4.15 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477234.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ IINA 0.0.12 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458878.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ X Lossless Decoder 20161007 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452765.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Amarra Luxe 4.0.295 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443477.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ SopoTube for YouTube + AdBlock 1.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439316.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Aiseesoft Mac Video Downloader 3.3.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437679.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ MKVtools 2.4 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436276.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ AudioBook Converter for Mac 5.1.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435293.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ iFFmpeg 6.2.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434814.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ AnyMP4 MOV Converter 6.3.10 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432254.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ TunesKit 3.5.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424073.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Music Converter Pro 1.6.3.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417120.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Smart Player Premium 1.1.0.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417097.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Wondershare DVD Creator 6.1.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414654.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ DivX Pro 10.4.0  [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408976.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ AirStreamer - for Apple TV 1.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396615.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ H265 Converter Pro 3.1.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394667.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ MP4tools 3.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393945.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ MKVtools 3.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393929.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ AVITools 3.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393040.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ KeepVid Pro 6.4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389626.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ IINA 0.0.14 (build 45) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380928.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ iGif Creator 4.2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379523.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ JustBroadcaster for YouTube 2.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379522.jpg" />
 </div>
 
 
@@ -660,33 +686,6 @@ JustBroadcaster for YouTube 2.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9EDD94868D9BEA43A6E178AD8FE86CF0AB9E5FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175616   (378051) от 18.10.2017
-
-DivX Plus Pro 10.8.5 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378051.jpg" />
-</div>
-
-
-###  Подробнее
-
-DivX внедряет новейшие кодеки и обеспечивает высокое качество DivX создание видео HEVC и потоковое видео с существующими инструментами DivX. На основе новейшого стандарта сжатия видео, DivX HEVC стремится предоставлять до 50% лучшее сжатие, чем его предшественник на основе H.264, DivX Plus HD.
-DivX 10 является первым программным обеспечением в своем роде для интеграции (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2017Разработчик: DivX Inc.Поддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A021B8926EB1CD5DF7DB40B0CDC6F45790AA64
 ```
 
 https://mybot314.ru/tekegram_catalog/

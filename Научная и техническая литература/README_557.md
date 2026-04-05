@@ -1,135 +1,3 @@
-###  Публикация: 1674285   (162246) от 04.11.2023
-
-Г. Аттура | Магнитные усилители (1963) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162246.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в доступной форме изложены основы теории современных магнитных усилителей. Внимание главным образом уделено двум основным типам магнитных усилителей - дросселю насыщения и усилителю с самонасыщением. Рассмотрены одно- и двухполупериодные, одно- и двухтактные магнитные усилители, а также комбинированные магнитно-полупроводниковые усилители.
-Излагаются преимущественно (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ГосэнергоиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F856DD1F07A79754A0A6507C08F7B675B28AC055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674295   (162215) от 04.11.2023
-
-Г.Ф. Сторм | Магнитные усилители (1957) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача настоящей книги - разъяснить основные принципы работы магнитных усилителей и показать наиболее важные области их применения. Книга предназначена для инженеров-электриков и студентов старших курсов электротехнических специальностей.Жанр: ЭлектротехникаИздательство: Издательство иностранной литературыФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B0F2386AB6054C4A22DC215D4456830228B538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674311   (162166) от 04.11.2023
-
-С. Лошаков | Периферийные устройства вычислительной техники (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162166.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии подробно описаны виды, классификации и особенности различных периферийных устройств. Периферийное устройство — это часть технического обеспечения, конструктивно отделенная от основного блока вычислительной системы. В издании приводятся описание интерфейсов и классификация запоминающих устройств; затронуты оптические технологии. Отдельные разделы (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F033FE7B1BD86ABB896D9D5930D37BB4376E06D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674180   (162108) от 04.11.2023
-
-А.С. Кравчук и др. | Язык С++. Объектно-ориентированное программирование. Библиотека STL (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются классы, различные аспекты работы с ними. Подробно рассматривается механизм наследования, использования виртуальных функций, а также абстрактных классов. Даются основы построения диаграмм классов, использования лямбда-функций и обработки исключительных ситуаций. Обширный раздел посвящен описанию основ работы с STL: рассмотрены некоторые контейнеры (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9AFF3919AACDED161FA37BE48601C63C72E3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433172   (161999) от 19.12.2020
-
-С.П. Копысов и др. | Масштабируемые вычисления для гетерогенных платформ (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие представляет собой введение в методы построения и программной реализации параллельных численных алгоритмов на гетерогенных вычислительных платформ. Основной ее целью является научить читателя самостоятельно разрабатывать максимально эффективные алгоритмы и программы для современных компьютеров.
-Учебное пособие содержит описание основ параллельных (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3682AF52A21FAF249B5864112004BCE45CA12E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433117   (161983) от 19.12.2020
 
 Маркус Чаун | Странные вопросы о Вселенной, или Как сделать Солнце из бананового пюре (2020) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161983.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161963.jpg" />
 </div>
 
 
@@ -191,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161937.jpg" />
 </div>
 
 
@@ -217,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161875.jpg" />
 </div>
 
 
@@ -244,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161862.jpg" />
 </div>
 
 
@@ -271,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161857.jpg" />
 </div>
 
 
@@ -297,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161768.jpg" />
 </div>
 
 
@@ -323,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161689.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161373.jpg" />
 </div>
 
 
@@ -376,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161356.jpg" />
 </div>
 
 
@@ -402,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161339.jpg" />
 </div>
 
 
@@ -429,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161336.jpg" />
 </div>
 
 
@@ -456,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161285.jpg" />
 </div>
 
 
@@ -482,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161246.jpg" />
 </div>
 
 
@@ -510,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161208.jpg" />
 </div>
 
 
@@ -536,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161127.jpg" />
 </div>
 
 
@@ -562,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161042.jpg" />
 </div>
 
 
@@ -588,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161019.jpg" />
 </div>
 
 
@@ -614,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160969.jpg" />
 </div>
 
 
@@ -640,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160842.jpg" />
 </div>
 
 
@@ -667,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160807.jpg" />
 </div>
 
 
@@ -678,6 +546,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F88DB029744BCF55003907FFDE21C1C919AC24E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674694   (160804) от 06.11.2023
+
+В.С. Миронов | Традиции школы живописи художественно-промышленной aкадемии им. А.Л. Штиглица (2009) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача этого альбома — познакомить читателя с достижениями кафедры общей живописи прославленного учебного заведения, каким является Санкт-Петербургская Государственная художественно-­промышленная Академия им. А.Л. Штиглица.
+
+За почти 60 лет своего существования кафедра освоила различные методики преподавания, накопила богатый изобразительный материал, создала по-настоящему (   Читать дальше...   )Жанр: Искусство, ЖивописьИздательство: Лики РоссииФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734C0399BEE553A4E5ED6807490D3FEF34E8B8FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674695   (160783) от 06.11.2023
+
+В.В. Пугин | Традиции школы рисования художественно-промышленной академии им. А.Л. Штиглица (2009) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные тенденции в художественно-промышленном образовании - компьютеризация художественного процесса - ослабляют внимание студентов к академическому рисунку. И этот альбом призван поддержать исторически сложившуюся нормативность обучения базовой дисциплине. Он может служить учебным пособием в системе отечественного профессионального образования, представляя (   Читать дальше...   )Жанр: Искусство, РисованиеИздательство: Лики РоссииФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E731A5EE5B733711B0A3DF24226F3D989786AEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674932   (160643) от 07.11.2023
+
+В.И. Гольданский | Физическая химия позитрона и позитрония (1968) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена одному из важных разделов современной ядерной химии - использованию аннигиляции позитронов для исследования физических и химических свойств вещества. Описываются общие свойства позитронов, картина их замедления в веществе, процессы образования и гибели простейшего водородоподобного "атома" - позитрония. Анализируются пути использования (   Читать дальше...   )Жанр: ХимияИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48BBC761CC49F6CFA5C04A5C70E5443469E0533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674827   (160606) от 07.11.2023
+
+Ю.Л. Ильин | Тепловозы серий  ТЭЗ и ТЭ7 (2009) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тепловозы ТЭЗ были самой многочисленной серией дизельных локомотивов на железных дорогах СССР. Они сыграли решающую роль в переходе железных дорог страны с паровой на тепловозную тягу. Само их появление предопределило дальнейшее развитие отечественного тепловозостроения. Указанные причины дают достаточно оснований для того, чтобы посвятить этой серии, а также пассажирскому (   Читать дальше...   )Жанр: история техникиИздательство: ИД "Ноосфера СПб"Формат: PDFКачество: Обработанный скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE96C279ED448B3F06A62FA19B9E398C0082D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674825   (160602) от 07.11.2023
+
+Ю.Л. Ильин, С.В. Критский | Тепловозы М62 (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Локомотивы серии М62 получили широкое распространение на железных дорогах Северного полушария: от Кубы до Кореи, включая Восточную Европу и республики бывшего СССР. Их эксплуатация началась еще в 1964 г. и продолжается по настоящее время. Вместе с тем история появления машин этой серии, а также их эксплуатация на просторах бывшего СССР освещены еще явно недостаточно. (   Читать дальше...   )Жанр: история техникиЯзык: Русский, АнглийскийИздательство: ИД "Ноосфера СПб"Формат: PDFКачество: Обработанный скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C08428FD2169C705EBF3D54D46B01543D70F91
 ```
 
 https://mybot314.ru/tekegram_catalog/

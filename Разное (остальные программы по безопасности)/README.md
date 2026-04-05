@@ -1,4 +1,86 @@
 https://t.me/izofen
+###  Публикация: 1863111   (1063667) от 
+
+Abelssoft KeyDepot 2026.12.11 & Portable [Multi]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063667.jpg" />
+</div>
+
+
+###  Подробнее
+
+В современную цифровую эпоху, когда количество онлайн-аккаунтов постоянно растет, безопасное управление паролями становится важнейшей задачей. KeyDepot, менеджер паролей последнего поколения с высоким уровнем безопасности, совершает революцию в способах защиты нашей цифровой личности и экономии драгоценного времени.
+
+С KeyDepot запоминание множества паролей становится (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D473D2BF394A25891778F6EF25CDFE2749622D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862482   (1063429) от 
+
+Glary Malware Hunter Pro 1.214.0.848 [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malware Hunter - отмеченный наградами продукт, который обеспечивает комплексную защиту от всех типов угроз, защищает ваши данные, защищает вашу конфиденциальность и гарантирует, что ваш компьютер не будет содержать вирусов. Гиперсканирование обеспечивает более высокую скорость сканирования.
+Обнаружение и удаление устойчивых вредоносных программ защищает от потенциальной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E826520926859217D0623EFA2B1BFB066EB8C9DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862444   (1063134) от 
+
+Glary Malware Hunter PRO 1.214.0.848 Portable by FC Portables [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malware Hunter - отмеченный наградами продукт, который обеспечивает комплексную защиту от всех типов угроз, защищает ваши данные, защищает вашу конфиденциальность и гарантирует, что ваш компьютер не будет содержать вирусов. Гиперсканирование обеспечивает более высокую скорость сканирования.
+Обнаружение и удаление устойчивых вредоносных программ защищает от потенциальной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C804156D7A1715C291873CACF2BE59AF19F76B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860864   (1062348) от 
 
 Adguard 7.22.6 (7.22.5267.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -7,7 +89,7 @@ Adguard 7.22.6 (7.22.5267.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062348.jpg" />
 </div>
 
 
@@ -33,7 +115,7 @@ Ultra Adware Killer 10.9.10.0 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062322.jpg" />
 </div>
 
 
@@ -59,7 +141,7 @@ Adguard 7.22.6 (7.22.5267.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062017.jpg" />
 </div>
 
 
@@ -85,7 +167,7 @@ DefenderUI 2.04 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061420.jpg" />
 </div>
 
 
@@ -111,7 +193,7 @@ Glary Malware Hunter PRO 1.213.0.847 Portable by FC Portables [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060711.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ Glary Malware Hunter Pro 1.213.0.847 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060269.jpg" />
 </div>
 
 
@@ -165,7 +247,7 @@ Adguard 7.22.5 (7.22.5262.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060017.jpg" />
 </div>
 
 
@@ -191,7 +273,7 @@ DefenderUI 1.46 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059354.jpg" />
 </div>
 
 
@@ -217,7 +299,7 @@ MinerSearch 1.4.8.41 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059261.jpg" />
 </div>
 
 
@@ -243,7 +325,7 @@ HitmanPro 3.8.50 Build 346 Portable by FCPortables [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057825.jpg" />
 </div>
 
 
@@ -271,7 +353,7 @@ HitmanPro 3.8.50 Build 346 RePack by No_Reply [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057637.jpg" />
 </div>
 
 
@@ -297,7 +379,7 @@ Antivirus Removal Tool 2026.02 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056260.jpg" />
 </div>
 
 
@@ -324,7 +406,7 @@ Glary Malware Hunter Pro 1.212.0.845 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056206.jpg" />
 </div>
 
 
@@ -343,35 +425,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850300   (1054195) от 27.01.2026
-
-Emsisoft Emergency Kit 2025.7.0.12683 Portable [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный портативный комплект антивирусных программ, который может быть использован без установки и Интернета для сканирования с помощью движков Bitdefender и Emsisoft, а также лечения зараженного компьютера от вредоносного ПО, используя USB-флешку.
-Состав Emsisoft Emergency Kit:
-- Emergency Kit Scanner (сканер)
-- Commandline Scanner (сканер, работающий из командной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D6142355EC524F0A9C4ACE8FB231DBDC2FF91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850348   (1054178) от 28.01.2026
 
 Folder Guard Pro 26.1 [Multi/Ru]
@@ -380,7 +433,7 @@ Folder Guard Pro 26.1 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054178.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ Glary Malware Hunter Pro 1.211.0.842 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053340.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ MinerSearch 1.4.8.4 Portable  [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051514.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ Dr.Web LiveDisk 9.0.0 (04.01.2026) [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051185.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ Glary Malware Hunter Pro 1.210.0.841 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050514.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ MinerSearch 1.4.8.3 Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049940.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ Malwarebytes AdwCleaner 8.7.0.619 Beta [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049325.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ Adguard 7.22.3 (7.22.5240.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048145.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ Glary Malware Hunter Pro 1.209.0.840 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047879.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ Glary Malware Hunter Pro 1.208.0.839 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047615.jpg" />
 </div>
 
 
@@ -631,61 +684,6 @@ Malware Hunter - отмеченный наградами продукт, кот�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF0B0401F1902446CD03ACD94543765E065B4417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442054   (1037090) от 23.01.2021
-
-USB Guardian 4.6.0 [En]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037090.jpg" />
-</div>
-
-
-###  Подробнее
-
-USB Guardian специальное программное обеспечение, которое предотвращает заражение вашего компьютера вирусами и червями, распространяемыми через USB носители (накопители, MP3 плееры, фото- видео-камеры и т.д.). USB Guardian блокирует файлы автозапуска на флешке, анализирует autorun.inf на предмет ссылок на исполняемые файлы и блокирует эти файлы, предоставляет возможность (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A242204EB31DAF042B5A05BEAC6AA58656556245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452744   (1027467) от 07.03.2021
-
-DWAKU2 2.1.2 [Multi/Ru]
-
->>След.
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027467.jpg" />
-</div>
-
-
-###  Подробнее
-
-DWAKU2 является наследником программы DWAKU.
-DWAKU2 - это программа-помощник для антивирусных сканеров.
-Она может загрузить/обновить/сохранить сканеры.
-Программа поддерживает самообновление.(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E1E65C2750D211A149DCA08B49FA6AD900A728
 ```
 
 https://mybot314.ru/tekegram_catalog/

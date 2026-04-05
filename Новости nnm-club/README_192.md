@@ -1,3 +1,55 @@
+###  Публикация: 951080   (364713) от 28.10.2015
+
+Фантастическая четверка / Fantastic Four (2015) BDRip [H.264/1080p] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364713.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о четырех молодых астронавтах, которые отважились на авантюрное путешествие в параллельное измерение для исследования аномальной волны космической энергии. Вернувшись из путешествия, они обнаружили у себя суперспособности, которые навсегда изменили их жизни...Производство: США, 20th Century Fox Film Corporation, Marvel EntertainmentЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джошуа ТранкАктеры: Майлз Теллер, Майкл Б. Джордан, Кейт Мара, Джейми Белл, Тоби Кеббелл, Рег Э. Кэти, Тим Блейк Нельсон, Джошуа Монтес, Дэн Кастелланета, Оуэн ДжаджПеревод: Дублированный (Чистый звук)Субтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDB4EFABE766DEF0B26BD01DC2B69F5AC7A323F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994992   (364677) от 24.10.2017
+
+XCOM 2 (2016) [Ru/Multi] (29.08.2017/dlc) License CODEX [Digital Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364677.jpg" />
+</div>
+
+
+###  Подробнее
+
+XCOM 2 – это продолжение полюбившейся игрокам и критикам стратегии XCOM: Enemy Unknown, получившей в 2012 году титул «Игра года». Земля изменилась. Двадцать лет прошло, с тех пор как мировые лидеры подписали акт о безоговорочной капитуляции перед пришельцами. Организация XCOM, последний рубеж обороны Земли, уничтожена, а её остатки рассеяны по миру.Тип издания: LicenseРазработчик: Firaxis Games, Feral InteractiveЖанр: Strategy (Real-time, Turn-based, Tactical), 3DЯзык озвучки: Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33CD503B0AAD120B9BD0E027C93AA762022B473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416711   (364509) от 17.10.2020
 
 Mortal Kombat 11 (2019) [Ru/Multi] (0.318/dlc) SteamRip =nemos= [Ultimate Edition]
@@ -6,7 +58,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.318/dlc) SteamRip =nemos= [Ultimate Editio
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364509.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Paint.NET plugins pack 17.10.2020 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364505.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ NBA 2K15 [PS3] [USA] [En] [4.60] [Cobra ODE / E3 ODE PRO ISO] (2014)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363549.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_363492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_363492.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_363452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_363452.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ VPN Russia - VPN сервера в России v1.133 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363288.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Adobe InDesign CC 2017.0 12.0.0.81 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363245.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Borderlands 2 (2014) [PSVita] [USA] 3.50 [HENkaku] [Repack / 1.09 / 6 DLC] [Ru/E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363242.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Mem Reduct 3.3.3 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363065.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Windows x86 x64 USB Release by StartSoft 26 2019 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362640.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Assassin's Creed II / Assassin's Creed 2 (2010) [Ru] (1.01/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362284.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362283.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362282.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362280.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ USSDDualWidgetPro V1.0.19 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362252.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ Life Is Strange Complete Season (2015) [Ru/En/Fr] (1.0.0.371598) Repack R.G. Cat
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362245.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362244.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362236.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_362176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_362176.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Kaspersky Internet Security 2013 13.0.1.4190 Final (c) Xone [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_362156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_362156.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ Adobe Photoshop 2020 21.2.4.323 (x64) RePack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362066.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ Game of Thrones / Игра престолов (2012) [Ru/En] (1.5.0.0) RePack Au
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362002.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ WYSIWYG Web Builder 11.2.4 + extensions + templates [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360686.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ Clean Master v5.8.8 - чистильщик-оптимизатор смартфо
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360525.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ Clean Master v5.8.8 - чистильщик-оптимизатор смартфо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83D9F4AE91B047D4868FCE64D708A83343D74966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178132   (360463) от 19.10.2018
-
-Wolfenstein II: The New Colossus (2017) [Ru/Multi] (191018) License PLAZA [Language Pack]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальные языковые пакеты для смены локализации в игре, упакованные в обычный установщик. Wolfenstein II: The New Colossus — долгожданное продолжение Wolfenstein: The New Order, восторженно принятого критиками боевика с видом от первого лица от титулованной студии MachineGames.Язык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC9FA7ABFD65E70C0F8E195EC6FB6BEB91DA364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255795   (360457) от 19.10.2018
-
-Ожидайте дальнейших инструкций / Await Further Instructions (2018) WEB-DLRip [H.264/1080p-LQ] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360457.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ночь перед Рождеством семья Милгрем обнаруживает, что их дом окружила некая чёрная субстанция. Что это: техногенная катастрофа, атака террористов или, может быть, ядерная война? В панике семейство включает телевизор, из которого им сообщают: «Оставайтесь дома и ожидайте дальнейших инструкций». Но с телепередачей что-то не так — трансляция влияет на семью, и их (   Читать дальше...   )Производство: Великобритания / Goldfinch StudiosЖанр: Ужасы, фантастика, детективРежиссер: Джонни КеворкянАктеры: Дэвид Брэдли, Эбигейл Круттенден, Сэм Гиттинс, Холли Уэстон, Грант Мастерс, Ниржа Наик, Крис Саддлер ...Перевод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Английские (full, SDH)Продолжительность: 01:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C859DF882FEA546082A035D05F40210D53C757E
 ```
 
 https://mybot314.ru/tekegram_catalog/

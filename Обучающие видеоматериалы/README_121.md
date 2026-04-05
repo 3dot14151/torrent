@@ -1,3 +1,29 @@
+###  Публикация: 901220   (663883) от 25.05.2015
+
+Convert Monster | Google Adwords 2.0 (2015) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настрой Google Adwords по секретной методике и получи сотни новых клиентов в свой бизнес!Жанр: Google Adwords, поисковая рекламаПродолжительность: 11:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F6FBAA0A32DB9FC776CD14D5D87720754780D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138213   (660997) от 01.06.2017
 
 Владимир Сибирцев | Катализатор эффективности «Переход в альфа-состояние» (2015) PCRec [H.264/720p]
@@ -6,7 +32,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660997.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660992.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Udemy, Darrin Lile | Blender 3.0 Vintage Car Creation (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660859.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660733.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Oleg Lav | Как создать флешку восстановления Windo
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658661.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658409.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Daarken | Введение в цифровую живопись [Обновля�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658403.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657614.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657605.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657600.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ eXeLaB.ru | Курс видеоуроков КРЭКЕРСТВО + ПРОГРА�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657525.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ lynda.com |  After Effects Apprentice 15: Final Project - After Effects. Обу�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657421.jpg" />
 </div>
 
 
@@ -334,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656486.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ Steven Axford, Catherine Marciniak | Planet Fungi: Fungi photography masterclass
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656078.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ Rebelway, Igor Zanic | Water FX in Houdini (2016) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655982.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ Uartsy, David Lesperance | Environment Creation in Unreal Engine 4 (2016) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655875.jpg" />
 </div>
 
 
@@ -446,7 +472,7 @@ Surgical Techniques in Ophthalmology | Хирургические техники
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655658.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655523.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655482.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655077.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654766.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654155.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Convert Monster | Эффективные объявления (2015) PCRec [H.26
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654083.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Convert Monster | Интенсивный курс по таргетирован�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654055.jpg" />
 </div>
 
 
@@ -667,7 +693,7 @@ Convert Monster | Идеальный Яндек.Директ 2.0 (2014) PCRec [H
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654052.jpg" />
 </div>
 
 
@@ -679,35 +705,6 @@ Convert Monster | Идеальный Яндек.Директ 2.0 (2014) PCRec [H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:357C8456FF9A31A9550EC56078C78DBCA4306B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140099   (653475) от 08.06.2017
-
-Андрей Журавлев | Подготовка изображений к офсетной печати (2017) PCRec
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастер-класс, посвященный вопросам цветоделения и подготовки изображений к офсетной печати.
-
-Чему вы научитесь?
--Управлять собственными ожиданиями.(   Читать дальше...   )Производство: ProfileschoolЖанр: Фото, Цветоделение, ПечатьПродолжительность: 07:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E3C1CB20099B8A8E360E14108F07F695A03EE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

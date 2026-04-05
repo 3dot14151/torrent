@@ -1,32 +1,3 @@
-###  Публикация: 1244228   (483755) от 31.08.2018
-
-Eminem - Kamikaze (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ringer (05:37)
-02. Greatest (03:46)
-03. Lucky You (Feat. Joyner Lucas) (04:04)
-04. Paul (Skit) (With Paul Rosenberg) (00:35)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C11C202A30A054949A88FF60BC8E1649A23719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244231   (483753) от 31.08.2018
 
 Eminem - Kamikaze (2018) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -35,7 +6,7 @@ Eminem - Kamikaze (2018) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483753.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ ATL - Карма x Кома (2016) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481280.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ The Maytals - The Best Of The Maytals (2016) 2CD, Compilation [MP3|320 Kbps] <Re
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479394.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478168.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Stephan Pie - Не паникуй! (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473190.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ DK - SYNONIM (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473080.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473074.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ L'One - Гравитация (2016) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468323.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Pra(Killa'Gramm) - 39 ROOTS (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466549.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465900.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Beyonce (Beyoncé) - Renaissance (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <R&B, Pop
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463812.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Jahmal TGK - Superda (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463314.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Young Thug - So Much Fun (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461077.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455443.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Apollo Brown & Skyzoo - The Easy Truth (2016) [FLAC|Lossless|tracks] <Hip Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453220.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Kaisa - K.M.K. (2010) Bonus Edition [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450631.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Chillhop Essentials - Fall (2016) [FLAC|Lossless|Web-DL|tracks] <Instrument
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448214.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ The Platters - The Original Platters The Very Best Of (1987) [MP3|192 kbps]<Rhyt
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447615.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Sagath - Тёмное добро (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443279.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443153.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443141.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440455.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Ka - The Night's Gambit (2013) [FLAC|Lossless|tracks + .cue] <Hip Hop, Conscious
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431216.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Juicy J - Stay Trippy (2013) Best Buy Exclusive [FLAC|Lossless|tracks + .cue] <H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430476.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430038.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B01ACEF434E56C9348363E5B7D28EB2466426B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411475   (427345) от 25.09.2020
+
+Хаски - Хошхоног (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [03:33]
+02. Шаг влево, шаг вправо [02:33]
+03. Никогда-нибудь [02:25]
+04. Люцифер [02:56](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F199BFC78A6FEC2A2FFCC7D5C71A6208FD9116A
 ```
 
 https://mybot314.ru/tekegram_catalog/

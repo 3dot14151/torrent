@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1863144   (1063807) от 
+
+Dune 2000 (1998) [Ru/En] (1.6.7) Repack dixen18 [GruntMods Edition]
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра является продолжением Dune II на игровом движке, сходном с движком Command & Conquer: Red Alert от Westwood. Действие игры разворачивается на планете Арракис. В игре доступно три враждующих дома: Атрейдес, Харконнен, Ордос. В игре присутствуют видеозаставки перед началом миссии с живыми актёрами.Тип издания: RepackРазработчик: Intelligent GamesЖанр: Стратегия в реальном времениЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5290F7A36F57DA9DEE96C3170166727213FAAE5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862996   (1063740) от 
+
+Turok 2: Seeds of Evil (1998) [Multi] (3.0.1336) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Turok 2: Seeds of Evil - это компьютерный шутер от первого лица, разработанный компанией Iguana Entertainment и изданная компанией Acclaim Entertainment. Игра является продолжением легендарной Turok: Dinosaur Hunter. История последнего Турока продолжается, на этот раз игрока ждет борьба с таинственным существом из другой вселенной. Игра доступна в одиночном режиме, (   Читать дальше...   )Тип издания: LicenseРазработчик: Iguana EntertainmentЖанр: Шутер от первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC9273328ED26553EAD53AA54815C769BFA2812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861986   (1063108) от 
 
 Scarface: The World Is Yours (2006) [Ru] (1.0) Repack Other s
@@ -7,7 +59,7 @@ Scarface: The World Is Yours (2006) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063108.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ BioShock (2007) [Ru] (Build 11242) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062257.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Max Payne 2: The Fall of Max Payne (2003) [En] (1.01) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060215.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Dune 2000: Long Live the Fighters! (1998) [Ru/En] (1.06) Repack 1nomok
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060132.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Test Drive Unlimited (2007) [Ru] (1.45a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060094.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Test Drive Unlimited (2007) [Multi] (1.66a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060088.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ The Punisher (2005) [En] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059957.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Max Payne (2001) [En] (1.05) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059944.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ The Last Express (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059733.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Knights of Honor (2004) [En] (1.05) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059519.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Catwoman (2004) [En] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059332.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Hitman: Contracts (2004) [En] (1.74) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059063.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Rome: Total War (2004) [Ru/Multi] (1.5/dlc) Repack kosak4 [Launcher Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059017.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ FlatOut 2 (2006) [Ru] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058395.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ FlatOut (2004) [Ru] (1.1) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058181.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Need for Speed: Underground 2 (2004) [En] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057979.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Mafia: The City of Lost Heaven / Мафия (2002) [En] (1.2) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057871.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Total Overdose (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057869.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Grand Theft Auto III (3) (2002) [Ru/Multi] (1.1) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057817.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Serious Sam 2 (2005) [Ru] (2.0.7.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057674.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Juiced (2005) [En] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057672.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ The Punisher / Каратель (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057513.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055670.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Nosferatu: The Wrath of Malachi / Вампиры (2003) [Multi] (1.0v3) License 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054984.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Nosferatu: The Wrath of Malachi / Вампиры (2003) [Multi] (1.0v3) License 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F99E3DAAA422F96A8D37D2D6A056EE69190290D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849872   (1053919) от 25.01.2026
-
-Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack seleZen [Complete Edition]
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в полное адреналина свободное приключение. В качестве агента Рико Родригеза, вашей целью будет найти и убить вашего друга и наставника, который исчез на островном рае Панау. Здесь, на Панау, вы должны вызвать максимум хаоса на земле, воде и в воздухе, чтобы изменить баланс сил. Используя сочетание из уникального крюка-кошки и парашюта, вы сможете выполнять (   Читать дальше...   )Тип издания: RepackРазработчик: Avalanche StudiosЖанр: Экшены от третьего лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184F9B70831CA271B9D1EC511BD2989EE96BA4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847623   (1052280) от 13.01.2026
-
-Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 1937-й. Антарктика. Нацисты, всегда стремившиеся отыскать доказательства своего высокого происхождения, находят что-то действительно пугающее. В нескольких ящиках на их секретной базе хранятся замороженные существа... Однако, норвежский антрополог Хемсон с помощью британской подлодки крадёт три загадочных ящика. Их атакует германский самолёт, и, прежде, чем его (   Читать дальше...   )Тип издания: LicenseРазработчик: Chaosium, InfogramesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED12339976B40AC768123791AB562CBB447FA5B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

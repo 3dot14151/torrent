@@ -1,3 +1,55 @@
+###  Публикация: 1219743   (711112) от 15.04.2018
+
+Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/Multi] (1.0.0.0) Repack R.G. Catalyst
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711112.jpg" />
+</div>
+
+
+###  Подробнее
+
+В свежеиспеченной части игрокам вновь предстоит посетить Кокон – небесный мир альтернативного будущего, переживающий не лучшие времена. Эре благополучия и всеобщего процветания под правлением Санктума приходит конец, и вот уже мир рушится на глазах.Тип издания: RepackРазработчик: SQUARE ENIXЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170C91885ED7E7C6066B675B5A54291B7E542BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286569   (710461) от 03.03.2019
+
+Ashen (2018) [Ru/Multi] (1.0.12.0) Repack R.G. Механики
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashen – экшен-РПГ с открытым миром, что рассказывает историю о страннике, который отправился на поиски места, где он мог бы чувствовать себя как дома. В мире, где разворачиваются события игры, солнце скрыто пеленой пепла. Это мир, где ничего долго не существует, независимо от того, насколько сильно вы привязались к этому. По своей сути, Ashen рассказывает о построении (   Читать дальше...   )Тип издания: RepackРазработчик: A44Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E16B4D0A8657854E053A9E5B4B55C32B2490DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131123   (710211) от 04.05.2017
 
 Birthright: The Gorgon's Alliance / Право на жизнь: Союз Горгон (1997) [En] (1.3) License
@@ -6,7 +58,7 @@ Birthright: The Gorgon's Alliance / Право на жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710211.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ BloodLust Shadowhunter (2015) [En] (1.028) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709190.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Kenshi (2018) [Ru/Multi] (1.0.17) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708714.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Monark (2022) [Multi] (1.00/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704644.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Hand of Fate 2 (2017) [Ru/Multi] (1.3.5/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704095.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ All Walls Must Fall - A Tech-Noir Tactics Game (2018) [En/Pt] (1.1.0649) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703876.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ My Time At Portia (2018) [Ru/Multi] (2.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702852.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Ys VI: The Ark of Napishtim (2015) [En] (13.04.2018) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702204.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ For The King (2017) [Ru/Multi] (1.0.7724) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702203.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ For The King (2018) [Ru/Multi] (1.0.7724) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702202.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702111.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Fallout Tactics: Brotherhood of Steel [Ru] (L) 2001
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_701519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701519.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ ELDEN RING (2022) [Ru/Multi] (1.02/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699050.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ BELOW (2018) [Ru/Multi] (1.0.0.36) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698909.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Rebel Galaxy (2015) [Ru/Multi] (1.08) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697682.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Joe Dever's: Lone Wolf HD Remastered (2014) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697559.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697466.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695487.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Quest Hunter (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693535.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Demon's Rise - Lords of Chaos (2018) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692785.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ Aethra's Chronicles (RePack) [En] 1994 | Pilotus (RG Games)
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690114.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ The Caligula Effect: Overdose (2019) [En/Ja] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689787.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Sanctuary RPG (2015) [En] (2.3.1) License GOG [Black Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688770.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Another War / Другая Война (2002) [Ru] (2.48) Unofficial
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687821.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ Another War / Другая Война (2002) [Ru] (2.48) Unofficial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04F53B11F743DB7BA191FAF093662C8D89CA9110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134830   (686517) от 16.05.2017
-
-Might and Magic - Clash of Heroes (2011) [Ru/Multi] (1.0.1.1) Repack R.G. Origami
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Might and Magic: Clash of Heroes - является приквелом к Heroes of Might and Magic V, и ее действие происходит сорока годами ранее в том же мире, в Асхане. В центре сюжета выступают пять главных персонажей – Годрик, Айдан, Анвен, Надя и Фиона, каждый из которых представляет разные расы. Для каждого из героев есть своя кампания.Тип издания: RepackРазработчик: Capybara GamesЖанр: Strategy (Turn-based), Logic (Puzzle)Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE1BB906C5387CA431458F2D34C61A3530F03A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511185   (680083) от 09.03.2022
-
-Hammerting (2020) [Ru/Multi] (1.2.39.0) License GOG
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hammerting - это вертикальный симулятор гномьей шахтерской колонии с элементами RPG. Управляйте кланом забавных гномов, затевайте эпические шахтерские проекты, куйте легендарные мечи и закапывайтесь как можно глубже, чтобы найти славу, богатства... И опасности. На поверхности бушует война. Искусные ремесленники гномы дали обещание поселиться в глубине и обеспечивать (   Читать дальше...   )Тип издания: LicenseРазработчик: Warpzone StudiosЖанр: Стратегия, Симулятор, МенеджментЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504902D98427C7465DB5979A100613543CB4ED07
 ```
 
 https://mybot314.ru/tekegram_catalog/

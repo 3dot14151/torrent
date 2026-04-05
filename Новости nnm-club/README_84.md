@@ -1,3 +1,29 @@
+###  Публикация: 1013498   (777021) от 05.05.2016
+
+Ирина Калмыкова | Урок № 22. Практический урок (2016) PCRec [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Использование знаний, опыта и наработок из прошлых уроков в другом варианте. Новые маленькие хитрости обработки. Объем снимка и динамика цвета. Урок не предполагает обязательного просмотра других уроков, так как содержит в себе новую информацию в полной мере.Жанр: ФотоПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CF37C5C20F6B6F0B798E61241042D2C8147B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011544   (777018) от 05.05.2016
 
 Rage of Mages / Аллоды: Печать тайны (1998) [Ru/En] (1.03) License GOG
@@ -6,7 +32,7 @@ Rage of Mages / Аллоды: Печать тайны (1998) [Ru/En] (1.03) Lice
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777018.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Adobe Audition CC 2015.1 8.1.0.162 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777014.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Avira Antivirus Pro 15.0.17.273 Final RePack by Alker [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777007.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Adobe Premiere Pro CC 2018 (12.0.1.69) Portable by XpucT [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776988.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ CyberGhost VPN 6.5.0.3180 RePack by elchupacabra [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776986.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776982.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776981.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_776666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_776666.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.3) License CODEX [patch]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776628.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ ACDSee Photo Studio Ultimate 2018 11.2.1309 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776617.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Ultimate Final Cut Pro X Plugin pack by joinqwerty 0.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776616.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Kingdom: New Lands (2016) [Ru/Multi] (1.2.8) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776613.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776589.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776588.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ MAGIX Vegas Pro 15.0 Build 321 RePack by KpoJIuK  [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776269.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Need for Speed: Payback (2017) [Ru/En] (1.0.51.15364) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776263.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776258.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ CorelDRAW Graphics Suite X8 18.0.0.448 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775887.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775886.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ AusLogics BoostSpeed 8.2.1.0 DC 26.04.2016 RePack (& Portable) by KpoJIuK [Ru/En
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775882.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775878.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775876.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775872.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Little Nightmares (2017) [Ru/En] (1.0.43.1/dlc) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775568.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775403.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ P·O·L·L·E·N, атмосферная и таинственная игра, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2909D1B939B3E08795D1E23EE390D4E3140461B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941608   (775398) от 09.05.2016
-
-Thief (2014) [Ru/En] (1.7 build 4158.21/upd8/dlc) Repack =nemos= [Master Thief Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стелс-экшен, в котором игроку предстоит играть за вора Гаррета, который охотно грабит обитателей индустриального города, охваченного чумой. Как и в предыдущих частях серии, герою нужно будет действовать скрытно, но спрятаться от охранников будет труднее — они серьезно поумнеют и научатся тщательно обыскивать даже самые укромные уголки. Из оружия вор получит лишь (   Читать дальше...   )Тип издания: RepackРазработчик: Eidos-MontrealЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645D869F3C8AB8952EDE07160537EBCC9A2EB79C
 ```
 
 https://mybot314.ru/tekegram_catalog/

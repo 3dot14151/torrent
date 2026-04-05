@@ -1,3 +1,32 @@
+###  Публикация: 1062755   (439255) от 14.10.2016
+
+Alter Bridge - The Last Hero (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me A Leader
+02. The Writing On The Wall
+03. The Other Side
+04. My Champion(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 01:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7141B3B8571D32FA4D31D6EF9595E85E539588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062589   (439251) от 14.10.2016
 
 Beth Hart - Fire On The Floor (2016) [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
@@ -6,7 +35,7 @@ Beth Hart - Fire On The Floor (2016) [FLAC|Lossless|image + .cue] <Blues, Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439251.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Fleetwood Mac - Mirage (1982) 3CD + 1LP + DVD Deluxe Edition Box Set, 2016, Rhin
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439246.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Tori Amos - Native Invader (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439060.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Ereb Altor - Gastrike (2012) [WavPack|Lossless]<Viking Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_438900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438900.jpg" />
 </div>
 
 
@@ -125,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438869.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ Malice - License To Kill (1987) [MP3|320 кб/с]<Hard-n-Heavy, Melodic Heavy Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438750.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ Scorched Oak - Withering Earth (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavyrock, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438641.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ Anatomy Of - Splinters (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438632.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ Chaosbay - 2 Albums / 1 EP (2015-2020) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438630.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ Rage - Strings To A Web (2010) Limited Edition [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438629.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ Cross Bringer - The Signs of Spiritual Delusion (2020) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438627.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438625.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ Rage Of Light - Imploder (2019) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438556.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ Mushroomhead - A Wonderful Life (2020) Limited Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438538.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ Kamelot - I Am The Empire: Live From The 013 (2020) 2xCD [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438513.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Sun of the Dying - 2 Albums (The Roar of the Furious Sea / The Earth Is Silent) 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438511.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ Stoned Void - Throbbing Rhythm of the Doldrums (2022) [MP3|320 Kbps] <Heavy Psyc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438475.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ Crystal Fate - Euphoria (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438465.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Rasp - Питомник имени И.В. Мичурина (2022) [MP3|320 Kbps]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438464.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ Fall Out Boy - Believers Never Die (Greatest Hits) (2009) Limited Edition [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438436.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ Neal Morse - Sola Gratia (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438432.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ Finntroll - Vredesvavd (2020) [FLAC|Lossless|image + .cue] <Viking Metal, Pagan 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438422.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ Lost In Thought - Opus Arise (2011) [FLAC|image +.cue]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438406.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ Clepsydra - 3654 Days (2014) 4CD Boxset, Remaster [FLAC|image+.cue]<Neo-Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438405.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ Operation: Mindcrime - The Key (2015) [FLAC|image+.cue]<Progressive Metal/Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438397.jpg" />
 </div>
 
 
@@ -724,35 +753,6 @@ Operation: Mindcrime - The Key (2015) [FLAC|image+.cue]<Progressive Metal/Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E3EA62D404AF874624B0E994201321B1EA7968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570413   (438379) от 19.08.2022
-
-Kajsa - Они (Дай огня) (2022) [MP3|320 Kbps] <Alternative, Social Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - INTRO [00:01:32]
-02 - Нас бросили здесь умирать [00:02:22]
-03 - Мы не будем молчать [00:04:25]
-04 - Напролом [00:03:28](   Читать дальше...   )Жанр: Alternative, Social RockПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB4C02978152A03A9C0D6B13D6D2B803BBADC71
 ```
 
 https://mybot314.ru/tekegram_catalog/

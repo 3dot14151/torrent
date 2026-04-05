@@ -1,82 +1,3 @@
-###  Публикация: 528384   (572188) от 28.07.2012
-
-Майкл Монкур | Освой самостоятельно JavaScript за 24 часа [2001] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга состоит из 24 учебных занятий, каждое из которых охватывает отдельную тему. Последовательное описание возможностей JavaScript делает длинные сценарии простыми, а сложные понятия - доступными. В конце книги приведен словарь используемых терминов, краткий справочник по операторам JavaScript и множество полезных ссылок. Каждое занятие оканчивается тестовыми вопросами и упражнениями, выполнив которые, вы закрепите пройденный материал и расширите свои познания. Многочисленные советы, замечания и предостережения обращают внимание читателя на важные тонкости создания сценариев и возможные ошибки. Примеры программных кодов и иллюстрации упрощают усвоение нового материала и делают книгу доступной для начинающих пользователей любого уровня.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E600324FE3E5EB34CF3C4B92D034609FEC42373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303541   (571997) от 21.05.2019
-
-Денис Юричев | Введение в reverse engineering для начинающих (2018) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заметки о reverse engineering на русском языке для начинающих, для тех кто хочет научиться понимать создаваемый Си/Си++ компиляторами код для архитектур x86/x64, ARM/ARM64, MIPS, Java/JVM.
-У термина «reverse engineering» несколько популярных значений: 1) исследование скомпилированных программ; 2) сканирование трехмерной модели для последующего копирования; 3) восстановление (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F05D2AE9EE539393FC396FBB01E1D4A34531F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528734   (570744) от 29.07.2012
-
-Джеймс Фостер, Винсент Лю | Разработка средств безопасности и эксплойтов [2007] [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - подробное руководство по разработке средств безопасности для веб-приложений. В ней подробно рассматриваются проблемы безопасности программного обеспечения. На многочисленных примерах изучается принцип использования различных типов уязвимостей компьютерных систем, выполняется детальный анализ техник взлома. Отдельно изучается программирование расширений для таких известных средств обеспечения и проверки безопасности, как Ethereal, Nessus и Metasploit Framework (включая Meterpreter).Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95F85039849F246138148A9F43DBEFC029C1E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555367   (570121) от 03.06.2022
 
 Khalil Stemmler | SOLID: The Software Design and Architecture Handbook (2022) [PDF] [EN]
@@ -85,7 +6,7 @@ Khalil Stemmler | SOLID: The Software Design and Architecture Handbook (2022) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570121.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568479.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568261.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567791.jpg" />
 </div>
 
 
@@ -190,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566656.jpg" />
 </div>
 
 
@@ -216,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566529.jpg" />
 </div>
 
 
@@ -242,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566528.jpg" />
 </div>
 
 
@@ -268,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566524.jpg" />
 </div>
 
 
@@ -294,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566519.jpg" />
 </div>
 
 
@@ -320,7 +241,7 @@ Tiffany B. Brown | CSS Master 2nd Edition (2018) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565014.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564375.jpg" />
 </div>
 
 
@@ -374,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563487.jpg" />
 </div>
 
 
@@ -402,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563278.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562385.jpg" />
 </div>
 
 
@@ -456,7 +377,7 @@ Wyken Seagrave | B4A: Быстрая разработка приложений �
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561911.jpg" />
 </div>
 
 
@@ -484,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560120.jpg" />
 </div>
 
 
@@ -510,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559556.jpg" />
 </div>
 
 
@@ -536,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558891.jpg" />
 </div>
 
 
@@ -562,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558488.jpg" />
 </div>
 
 
@@ -588,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557863.jpg" />
 </div>
 
 
@@ -614,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557162.jpg" />
 </div>
 
 
@@ -642,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556855.jpg" />
 </div>
 
 
@@ -668,7 +589,7 @@ Anywhere Software | B4A Users Guide (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556570.jpg" />
 </div>
 
 
@@ -679,6 +600,85 @@ Anywhere Software | B4A Users Guide (2016) [PDF] [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:281D8C49EB288B516939A186493B973E631D72F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235872   (556491) от 14.07.2018
+
+Дэвид Гриффитс, Дон Гриффитс | Head First. Программирование для Android. 2-е изд. (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система Android покорила мир. Все хотят иметь планшет или смартфон, а устройства на базе Android - самые популярные в мире. В этой книге мы научим вас разрабатывать и запускать приложения. Вам уже пришла в голову гениальная идея? Дело за малым - воплотить ее в жизнь.  Вы научитесь правильно формировать структуру приложений, проектировать гибкие и интерактивные интерфейсы, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76496E8802C373601A4B631D569E86DC9DABCD33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557018   (556322) от 12.06.2022
+
+Уолтер Шилдс | SQL: быстрое погружение (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что общего между самыми востребованными профессиями и стремительным увеличением количества информации в мире? Ответ: язык структурированных запросов (SQL). SQL – рабочая лошадка среди языков программирования, основа основ для современного анализа и управления данными. Книга «SQL: быстрое погружение» идеальна для всех, кто ищет новые перспективы карьерного роста; (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E6D31FF42652A28362EB54A619C6513EAD8778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307393   (554968) от 09.06.2019
+
+Грэхем Селлерс | Vulkan. Руководство разработчика (2017) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следующее поколение спецификаций OpenGL, Vulkan, было разработано с нуля, давая приложению прямой контроль над графическим процессором (GPU) для беспрецедентного быстродействия и предсказуемости. Данная книга является официальным руководством по этому новому стандарту и предназначена для опытных программистов GPU.
+Один из разработчиков Vulkan API Грэхем Селлерс представляет (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52DD51CAFA103F93847CB8E36C5F86BB4F67061E
 ```
 
 https://mybot314.ru/tekegram_catalog/

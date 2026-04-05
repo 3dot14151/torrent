@@ -6,7 +6,7 @@ Garmin: City Navigator Southern Africa NT 2017.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846402.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Garmin: City Navigator South America NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842728.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Garmin: City Navigator North Africa NT 2016.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841505.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Garmin: Azerbaijan Map 2015 V01 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836329.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Garmin: Moldova Road Atlas & Topo 3D 2015.2 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836325.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835850.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Garmin: Road Map of Latvia LM and Road Map of Latvia TOPO LM v2.7 [Lv]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_834013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_834013.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Garmin: NaviGuide Hungary 2017.10 NT Final (+ v2018.10 NT Beta test) [Hu]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820532.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Garmin: City Navigator South America NT 2018.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820519.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Garmin: City Navigator Australia & New Zealand HERE NT 2018.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820513.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Garmin: City Navigator North America NT 2018.30 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820422.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Garmin: City Navigator China NT 2015.40 AN (по регионам) [Ch]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819450.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Garmin: TOPO Southern Africa v3 PRO + Madagascar [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819448.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Garmin: Topo Chile Deluxe 2015.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819444.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Garmin: TOPO Portugal Light v3 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819442.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Garmin: TOPO Belarus v3 Light [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819156.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Garmin: TopoActive East+West Europe v3.00 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819006.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Garmin: City Navigator Middle East & N Africa NT 2018.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818764.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Garmin: TOPO UK & Ireland v4 Light [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809661.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Garmin: City Navigator Thailand NT 2016.20 (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809550.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Garmin: City Navigator Europe NTU 2017.10 (по регионам) [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808979.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Garmin: City Navigator Eastern Africa NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807710.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Garmin: City Navigator Southern Africa NT 2017.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802132.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Garmin: City Navigator Middle East and North Africa NT 2022.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797395.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Garmin: City Navigator North America NT 2022.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789201.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Garmin: TOPO Germany v9 PRO [De]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788784.jpg" />
 </div>
 
 

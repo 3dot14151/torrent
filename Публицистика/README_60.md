@@ -1,3 +1,31 @@
+###  Публикация: 1070992   (358981) от 10.11.2016
+
+У. Г. Флоуер | Мода на уродование (1883) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наклонность к уродованию или изменению естественной формы некоторых частей тела свойственна человеческой натуре на всех ее ступенях — как самой первобытной и варварской, так и наиболее цивилизованной и утонченной.
+
+Изменения или уродования, о которых мы намерены говорить в настоящем очерке, касаются не тех уродований, которые совершаются отдельными единицами или (   Читать дальше...   )Жанр: История, культурология, антропология, медицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB54F34AD83AE7D1A288CA49F9824B880685100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178347   (357982) от 27.10.2017
 
 Е. Королева (ред.) | Мудрость и остроумие: большая книга всех времен и народов (2017) [FB2]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357982.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357870.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356779.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356775.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356765.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356671.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356113.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356105.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355945.jpg" />
 </div>
 
 
@@ -249,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355934.jpg" />
 </div>
 
 
@@ -275,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355623.jpg" />
 </div>
 
 
@@ -301,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355622.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354814.jpg" />
 </div>
 
 
@@ -353,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354773.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354583.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353837.jpg" />
 </div>
 
 
@@ -436,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353829.jpg" />
 </div>
 
 
@@ -463,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353828.jpg" />
 </div>
 
 
@@ -489,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353827.jpg" />
 </div>
 
 
@@ -515,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353708.jpg" />
 </div>
 
 
@@ -541,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353552.jpg" />
 </div>
 
 
@@ -567,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353547.jpg" />
 </div>
 
 
@@ -596,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353521.jpg" />
 </div>
 
 
@@ -622,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353408.jpg" />
 </div>
 
 
@@ -648,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353305.jpg" />
 </div>
 
 
@@ -659,34 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4861966BFEDEF4F38BF0DFF08328717563480B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952199   (353039) от 02.11.2015
-
-Анатолий Фоменко, Глеб Носовский | Бог войны (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353039.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей книге дается общее представление о реконструкции истории, предложенной авторами на основе Новой хронологии, а также обсуждается ряд новых важных вопросов, связанных с этой реконструкцией.
-В книге излагаются в основном новые результаты полученные авторами в последнее время.
-Много места отведено новому взгляду на «античного» бога войны Марса (Ареса). Оказывается, (   Читать дальше...   )Жанр: История, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:211E897ABDEC6C95D8973121F4EED48955505065
 ```
 
 https://mybot314.ru/tekegram_catalog/

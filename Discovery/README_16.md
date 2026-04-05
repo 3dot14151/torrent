@@ -6,7 +6,7 @@ Discovery: Наука магии / The Magic of Science (2013) HDTVRip (1-9 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457168.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454781.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Плутон: первая встреча / Direct from Pluto-The Fir
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453238.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Discovery. Самая странная погода на Земле / Strangest 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452414.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452361.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2015) HDTVRip (3 сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451032.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Discovery: Америка: факты и домыслы / America: Facts vs. Fic
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447119.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Discovery: Ангелы и демоны. Факты или домыслы? / Ang
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446641.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445984.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Discovery: Разрушители легенд. Спецвыпуск: Коман
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444918.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery: Разрушители легенд. В поисках утрачен
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444748.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Discovery: Разрушители легенд. Трансформеры / MythB
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444601.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444600.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441168.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery: Первые обитатели Америки / America's First Nati
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435144.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Discovery: Прежде чем мы покорили Землю / Before We Rule
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432893.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Discovery. Техногеника. Шагающий экскаватор (2016) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432153.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431569.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Discovery. Взгляд изнутри / Inside West Coast Customs (2017) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427220.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Discovery. Взрывая историю / Blowing up History (2016) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423594.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Discovery. Как это работает? / How it's made? (2016-2019) WEB-DL [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422422.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Discovery. Дороги России: Ладога (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421114.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery: Жизнь отвратительных животных / Nasty by N
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418663.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Discovery. Дороги России: Уфа - Магнитогорск (2016) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416165.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Discovery: Разрушители легенд. Взрыв на воде / MythB
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415612.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Discovery: Разрушители легенд. Полёт фантазии / My
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415491.jpg" />
 </div>
 
 

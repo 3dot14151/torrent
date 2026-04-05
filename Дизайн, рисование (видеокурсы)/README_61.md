@@ -1,3 +1,56 @@
+###  Публикация: 1548462   (213492) от 20.08.2023
+
+Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - Basics (2022) PCRec [EN, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь хотели создавать 3D-модели? В эпоху технологий домашние цифровые развлечения стали более популярными, чем когда-либо, и не проявляют никаких признаков замедления. Может быть, вы хотели бы попробовать свои силы в создании собственного анимационного фильма, или, возможно, вы хотите создать свою собственную видеоигру. Независимо от того, новичок ли вы (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 27:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D990BFA9040261C57F7B70460C7C12CF6E75777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557826   (213288) от 17.06.2022
+
+Patreon, FlyCat | Ahri Modelling - Full process videos and 3D model (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моделирование и анимация персонажа в Blender.
+Полное видео процесса моделирования и финальная 3D-модель.Производство: PatreonЖанр: 3D моделирование, СкульптингЯзык озвучки: Без озвучкиПродолжительность: 27:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA34E5CC2CC362541BF3F6D441DB3C6B88F03B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557753   (213274) от 17.06.2022
 
 Digital Tutors, Clinton Crumpler | Creating Rock Structures for Games in ZBrush and Unreal Engine (2015) PCRec [EN, RU]
@@ -6,7 +59,7 @@ Digital Tutors, Clinton Crumpler | Creating Rock Structures for Games in ZBrush 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213274.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Gumroad, Flycat | Blender 3.0 - JinX Modeling – Full process video and 3D mode
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213261.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Flycat | Blender 3.1 – Tracer Character Modeling – Full process videos and 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213258.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Amlab, Каюрова Наталия | Как рисовать в Photoshop (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213257.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Gumroad, Flycat | Create an MMORPG character style in Blender – Real-time proc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213199.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Gumroad, Flycat | Blender – Bunny Girl – Full process videos by Flycat (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213198.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Samouchka School, Алексей Меркулов, Максим Маркевич
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213179.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213131.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ Rebelway, Saber Jlassi | Transferring High-Res Assets from Houdini to Unreal Eng
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212657.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212655.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ Rebelway, Urban Bradesko | CG Cinematography 101 (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212653.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ Rebelway, Saber Jlassi | Mastering Destruction And FX In Houdini (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212647.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ Rebelway, Jayden Paterson | Master The Art of Magical FX in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212642.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ Udemy, Victor Yamakado | Master Character Modeling with Victor Yamakado (2020) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212615.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ Rebelway, Corbin Mayne | Math for fx Artists (2020) PCRec [EN/ RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212589.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ CGcircuit, VFX Magic | Houdini Crack Effect (2021) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212587.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ Rebelway, Saber Jlassi | Mastering Pyro FX In Houdini Level 1 (2018) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212582.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ Yiihuu, Jungwon Park | “Liu yifei likeness as Mulan” for Photorealistic rend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212506.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ FastTrack Tutorials, Emiel Sleegers | Ultimate Environmental Texture Creation Co
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_212440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_212440.jpg" />
 </div>
 
 
@@ -516,7 +569,7 @@ Mold3D, J Hill | Character Creation for Video Games with J Hill (2019) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212431.jpg" />
 </div>
 
 
@@ -544,7 +597,7 @@ Wingfox, Alexander Sköld | The Lost Soldier- Environment Concept Design (2020) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212417.jpg" />
 </div>
 
 
@@ -572,7 +625,7 @@ Wingfox, Andre Pires | UE4 for Real-Time Hair Course (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212409.jpg" />
 </div>
 
 
@@ -601,7 +654,7 @@ hipflask, Fraser Shiers | Houdini Geometry Essentials (Все части) (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212358.jpg" />
 </div>
 
 
@@ -630,7 +683,7 @@ Rebelway, Saber Jlassi | Advanced Asset Creation In Houdini For VFX And Games (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212356.jpg" />
 </div>
 
 
@@ -641,62 +694,6 @@ Rebelway, Saber Jlassi | Advanced Asset Creation In Houdini For VFX And Games (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:328A2EFB64F8183F340C4796899C06E23F16637C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564710   (212343) от 20.07.2022
-
-Руслан Темурзиев | ИZИGЭNG (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212343.jpg" />
-</div>
-
-
-###  Подробнее
-
-ИZИGЭNG — это что?
-А можно же сразу заходить с козырей?
-Например, с вероятностью 99% этот курс проходил хотя бы 1 дизайнер, которого ты знаешь, за страницей или блогом которого ты следишь. Хотя, скорее всего, эта цифра намного больше, чем 1.
-Теперь давай более предметно. Что это за курс, какие задачи выполняет и чем он так полезен веб-дизайнеру любого уровня.(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 45:43:31Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CE54110BA398F2E412FFCBE281136F61C8D384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565618   (212234) от 24.07.2022
-
-Break Your Crayons, Marc Whitelaw | Houdini - QUIXEL megascans workflow Rendered with Redshift (2020-2021) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212234.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) Houdini: Quixel Megascans Workflow Rendered with Redshift
-В этом видео мы рассмотрим рабочий процесс, который я использовал для создания сцены с ночной пустыней в Houdini. Используя ресурсы Megascans и несколько простых приемов, мы рассредоточим и замаскируем области нашей сцены, чтобы лучше управлять изображением.Производство: Break Your CrayonsЖанр: 3D-моделированиеЯзык озвучки: РусскийПродолжительность: 01:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C343845FF0F02E8FDC5CB5F8E49741C250C52E2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

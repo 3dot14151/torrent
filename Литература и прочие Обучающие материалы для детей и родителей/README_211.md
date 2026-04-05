@@ -1,3 +1,56 @@
+###  Публикация: 1547445   (603005) от 28.04.2022
+
+Бен Гутерсон | Диковинные загадки отеля «Зимний дом». Книга 3 (2022) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отель «Зимний дом» готовится отметить Пасху, и Элизабет радостно окунается в шумную жизнь своего нового дома. Но вскоре она и Фредди оказываются втянуты в новую зловещую тайну. Гости отеля начинают вести себя странно, а дар Элизабет всё чаще проявляется с не самой лучшей стороны.
+Пока необъяснимые толчки сотрясают фундамент отеля, Элизабет слышит крики о помощи Грацеллы (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Екатерина ЗиганшинаФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F271BF80377466FF3A57C75F15C2DAB580411E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547453   (602986) от 28.04.2022
+
+Алекс Милвэй | Отель «Фламинго» [4 книги] (2019-2021) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алекс Милвэй (родился в 1978 году) - британский детский писатель и художник, который обожает животных. И хотя его любимчики - лемуры, все прочие постояльцы и сотрудники отеля "Фламинго" у Алекса тоже получаются очень обаятельными. Даже тараканы с улитками на страницах этой книги - и те вызовут умиление у всякого, кто любит добрые, вдохновляющие сказки. (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Анастасия ЖемчуговаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5E00B16B55A2F44E5BC991075955122C1778FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547500   (602977) от 28.04.2022
 
 Римма Алдонина | Гербы. Всё началось с рыцарей (2018) [PDF]
@@ -6,7 +59,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602977.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602976.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602951.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602945.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602931.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602922.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602921.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602881.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602879.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602784.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602626.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602622.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602620.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602605.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602439.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602414.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602237.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602106.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602095.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602056.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602052.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602040.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601997.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601991.jpg" />
 </div>
 
 
@@ -624,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EF0B47D9216849F690A29AE6B9FE491BE41478F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298318   (601913) от 27.04.2019
-
-Анатолий Алексин | Сева Котлов за полярным кругом (1963) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений знаменитого и неугомонного Севы Котлова.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B43B3A464A3C11A8C106A0B750607AAC0DDBE43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298391   (601861) от 27.04.2019
-
-В. Бейко | Большая энциклопедия животного мира (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – прекрасное дополнение к школьным учебникам по биологии. Энциклопедия написана российскими учеными-зоологами и сотрудниками Московского зоопарка и предназначена специально для детей! Вся необходимая школьнику информация о различных типах животных сопровождается увлекательными рассказами о самых ярких представителях фауны нашей планеты.
-Книга построена (   Читать дальше...   )Жанр: Биология, ЗоологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D010E04F581151DBD542D8804DBAD2D1749BBAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

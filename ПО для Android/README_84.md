@@ -1,3 +1,107 @@
+###  Публикация: 1578035   (196064) от 05.07.2023
+
+Moon+ Reader Pro v8.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 04.07.2023Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413C740CDADE7668EF3F28BC112E937055E45F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645892   (195849) от 12.07.2023
+
+Браузер Opera 76.2.4027.73374 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят получить цельное (   Читать дальше...   )Тип издания: ModРелиз состоялся: 30.06.2023Разработчик: OperaПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE16FA0697CE20CA510288CB47083D422D689DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646389   (195746) от 14.07.2023
+
+AGAMA Car Launcher 3.3.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никогда еще управление мультимедиа вашего автомобиля не было столь удобным. Встречайте новый автомобильный лаунчер AGAMA. Все самые полезные функции и необходимая информация на расстоянии одного клика от вас. Лаконичный дизайн и простота управления, не будут помехой в гибкости настройки. AGAMA меняется в зависимости от интерьера автомобиля и вашего настроения, но (   Читать дальше...   )Тип издания: Пиратка (Мод) Premium версияРелиз состоялся: 04.07.2023Разработчик: altergames.ru (Олег Павлов)Поддерживаемая ОС: Android 4.1 +Язык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F92CB45EAFD6D83F76934F148F8D840AAF481D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618619   (195648) от 15.07.2023
+
+Picsart Photo & Video Editor v22.7.4 Mod by KirillCXV [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к сообществу Picsart, насчитывающему более 150 миллионов авторов по всему миру. С помощью фоторедактора и видеоредактора Picsart вы сможете воплотить в жизнь свои творческие замыслы. Создавайте коллажи профессионального уровня, создавайте и добавляйте стикеры, быстро удаляйте и меняйте фоны, пробуйте популярные способы редактирования, такие как «Золотой (   Читать дальше...   )Тип издания: GOLDРелиз состоялся: 13.07.2023Разработчик: PicsArt, Inc.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED3C5343A9C952BE1D0BCB15E9D4752E2886775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575568   (195642) от 15.07.2023
 
 Антирадар ContraCam v3.7.01-Google [Ru/En]
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195642.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Chronus Home & Lock Widget / Информационные виджеты Chronus
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195629.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195614.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ PictureThis - Plant Identification v3.58 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195587.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195571.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ Screenshot touch v2.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195493.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195487.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Imagine : AI Art Generator v2.9.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195386.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ X-plore File Manager 4.32.00 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195304.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ Total Commander 3.42d Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195277.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ CapCut - Видеоредактор 8.8.1 Mod by dimonx32, Айфона нет [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195237.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ ViMu Media Player for TV 10.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195213.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195210.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ ESET Mobile Security Antivirus 8.2.8.0-15 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195188.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ izi.TRAVEL v7.2.1.510 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195079.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ Persona: Бьюти-камера v1.6.44 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195017.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ SnapTube - YouTube Downloader HD Video v7.05.1.7051601 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194996.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ Hira vpn 1.0.4 b24 Mod by AzadNet[Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194993.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.5.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194917.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ Remini / Улучшение Фото v3.7.314.202248013 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194851.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ AVG антивирус & Безопасность 23.15.0 Mod by DEXUNPACKER [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194838.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194652.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CC5E68B71D8C9D446F42354570BA20235FF7A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651803   (194645) от 08.08.2023
-
-AR Ruler  v2.5.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194645.jpg" />
-</div>
-
-
-###  Подробнее
-
-ARuler - лучшее и бесплатное приложение на Android для измерений, использующее технологию дополненной реальности (Augmented reality или кратко AR)! Приложение AR Ruler использует технологию дополненной реальности (AR) для измерения различных предметов с помощью камеры вашего смартфона. Просто нацельтесь на обнаруженную горизонтальную плоскость и начните измерять!Тип издания: ProРелиз состоялся: 04.08.2023Разработчик: GrymalaПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2ACD8CCC97C2DD8B91AB50CF2EE6255441F8B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579769   (194628) от 06.08.2023
-
-NewPipe v0.25.2 Mod by Alex.Strannik  [Ru/Multi]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый легковесный клиент YouTube. Удобно. Работа в фоне с выключенным экраном. Подписка без аккаунта на каналы. Присутствует возможность скачивания видео (или аудио) с выбором качества. Следуя инструкциям, возможно получить доступ к вашим подпискам на YouTube. Комментарии видны.Тип издания: Free + ModРелиз состоялся: 03.08.2023Разработчик: Christian SchabesbergerПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD50CCBA31BD936E85B5230F4AC7FF79411CA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651999   (194513) от 09.08.2023
-
-MX Player Pro v1.68.4 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный видеоплеер с аппаратным ускорением и поддержкой субтитров для Android-смартфонов и планшетов. Плеер отличается удобной системой управления. Так, для изменения громкости достаточно провести пальцем вверх или вниз по правому краю экрана, для изменения яркости картинки - слева. Скольжение вправо или влево отвечает за перемотку позиции воспроизведения. С помощью (   Читать дальше...   )Тип издания: ModРелиз состоялся: 07.08.2023Разработчик: MX Media & Entertainment Pte LtdПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18DCD0670647F0DE20495F96957689FF4E92C4C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652426   (194506) от 11.08.2023
-
-Аудиокниги - Торрент v3.0.7 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для доступа к огромному архиву аудиокниг, размещённому на портале Ru.Tracker.org (ранее .torrents.ru). Позволяет искать, скачивать и прослушивать аудиокниги.Тип издания: FreeРелиз состоялся: 11.08.2023Разработчик: Aleksei NikolaevПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F755DA0B4EE8DD664CD0A0C05B2A857813E388E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

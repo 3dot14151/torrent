@@ -1,3 +1,31 @@
+###  Публикация: 1009572   (805116) от 23.04.2016
+
+Специалист | Oracle 12c. Ускоренный курс по администрированию, установке и обновлению (2016) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oracle – самая популярная база данных, которая используется в большинстве крупных компаний, банков и государственных учреждений.
+
+Специалисты со знанием Oracle востребованы везде. Хотите в кратчайшие сроки освоить работу с базой данных Oracle 12с? Представляем уникальный интенсив для инженеров техподдержки, технических администраторов, администраторов хранилищ данных, (   Читать дальше...   )Жанр: Базы данных, OracleПродолжительность: 21:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C2AB882D18B01A3096D4E8D1D23DF9B538951C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116851   (804892) от 29.03.2017
 
 Петр Ловыгин | Проекты: Кухня фотоисторий Петра Ловыгина (2017) PCRec
@@ -6,7 +34,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804892.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804800.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804715.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ Aaron Nace | Волшебство Синемаграфии (2016) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804713.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804709.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804707.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804659.jpg" />
 </div>
 
 
@@ -198,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804657.jpg" />
 </div>
 
 
@@ -227,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804652.jpg" />
 </div>
 
 
@@ -253,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804648.jpg" />
 </div>
 
 
@@ -279,7 +307,7 @@ Digital-Tutors | Введение в After Effects для моушн-дизай�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804645.jpg" />
 </div>
 
 
@@ -307,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804644.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ Lynda.com | Фуд - фотография (2011) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804592.jpg" />
 </div>
 
 
@@ -363,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803993.jpg" />
 </div>
 
 
@@ -391,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803870.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803869.jpg" />
 </div>
 
 
@@ -444,7 +472,7 @@ Udemy, Oleksandr Heiets | React JS с нуля и до создания полн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803863.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803861.jpg" />
 </div>
 
 
@@ -499,7 +527,7 @@ Stepik, Никита Шультайс | Пакет SQL курсов (2021) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803858.jpg" />
 </div>
 
 
@@ -527,7 +555,7 @@ XYZ School, Константин Файзуллин | Нарративный д�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803851.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ Profileschool | Жанровая съемка в путешествии (2015) P
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802765.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ Udemy | PHP 5.5 Zend Certification (OOP) (2016) PCRec [H.264/720p-LQ] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802472.jpg" />
 </div>
 
 
@@ -611,7 +639,7 @@ Udemy | PHP 5.5 Zend Certification - PHP Security (2016) PCRec [H.264/720p-LQ] [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802464.jpg" />
 </div>
 
 
@@ -639,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802366.jpg" />
 </div>
 
 
@@ -667,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801365.jpg" />
 </div>
 
 
@@ -679,32 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:324EEC6905D128AD5A106B84CAF0E7F51E805A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381533   (801364) от 21.05.2020
-
-Илья Афанасьев | ФотоВидеоМастерство (2020) WEBRip (лекций 12 из 108)
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс ФотоВидеоМастерство поможет Вам обрести все необходимые атрибуты успешного современного фотографа и фильммейкераЖанр: Обучающее видео. Фотосъёмка и видеосъёмкаПродолжительность: 09:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7034A6600C4BE267DEED347828976074ED1F9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

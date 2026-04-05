@@ -1,3 +1,33 @@
+###  Публикация: 867152   (902749) от 08.02.2015
+
+Оркестр Олега Лундстрема - Серенада солнечной долины (1976) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. В хорошем настроении - Разаф, Гарланд  3:30
+2. Лунная серенада - Г. Миллер  2:42
+3. Дорога на Чаттанугу - Гордон, Уоррен  2:42
+4. Я знаю, почему - Уоррен  1:58(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C3BFB4F9B7C3FD7367A8F77C080FDBF9482366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 867384   (902586) от 08.02.2015
 
 AC/DC - Let There Be Rock (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock>
@@ -6,7 +36,7 @@ AC/DC - Let There Be Rock (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902586.jpg" />
 </div>
 
 
@@ -36,7 +66,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902548.jpg" />
 </div>
 
 
@@ -66,7 +96,7 @@ John Lennon - Imagine (2014/1971) [LPCM 2.0 96/24|Audio-DVD (BD-Audio)] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899541.jpg" />
 </div>
 
 
@@ -95,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899279.jpg" />
 </div>
 
 
@@ -124,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894588.jpg" />
 </div>
 
 
@@ -154,7 +184,7 @@ AC-DC - Rock Or Bust (2014) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892146.jpg" />
 </div>
 
 
@@ -183,7 +213,7 @@ VA - RETROспектива, часть IX: Эстрадные оркестры I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890901.jpg" />
 </div>
 
 
@@ -212,7 +242,7 @@ Locomotiv GT. - In Warsaw. Recorded live at the Congress Hall (1975) [FLAC 2.0|9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890865.jpg" />
 </div>
 
 
@@ -241,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890699.jpg" />
 </div>
 
 
@@ -270,7 +300,7 @@ VA - RETROспектива, часть X: Эстрадные оркестры X 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887401.jpg" />
 </div>
 
 
@@ -299,7 +329,7 @@ The Alan Parsons Project - Eve (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887065.jpg" />
 </div>
 
 
@@ -328,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882829.jpg" />
 </div>
 
 
@@ -357,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880732.jpg" />
 </div>
 
 
@@ -386,7 +416,7 @@ VA - Love Power vol.1 (1997) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880530.jpg" />
 </div>
 
 
@@ -415,7 +445,7 @@ VA - RETROспектива, часть XI: Эстрадные оркестры X
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879940.jpg" />
 </div>
 
 
@@ -444,7 +474,7 @@ Beth Hart - Better Than Home (2015) [WavPack|192/32|image + .cue|Vinyl-Rip] <Blu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879781.jpg" />
 </div>
 
 
@@ -475,7 +505,7 @@ Frank Sinatra - Duets (1993) First Press [WavPack|192/32|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879773.jpg" />
 </div>
 
 
@@ -504,7 +534,7 @@ Nightwish - Endless Forms Most Beautiful (2015) [FLAC 2.0|96/24|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878696.jpg" />
 </div>
 
 
@@ -533,7 +563,7 @@ Manfred Mann's Earth Band - Messin' (1973) 1983, Reissue [FLAC 2.0|192/24|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878009.jpg" />
 </div>
 
 
@@ -562,7 +592,7 @@ Manfred Mann's Earth Band - Nightingales & Bombers (1975) [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875456.jpg" />
 </div>
 
 
@@ -591,7 +621,7 @@ a-ha - Cast In Steel (2015) [WavPack 2.0|192/32|image +.cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875254.jpg" />
 </div>
 
 
@@ -620,7 +650,7 @@ Duran Duran - Notorious (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874934.jpg" />
 </div>
 
 
@@ -649,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872108.jpg" />
 </div>
 
 
@@ -679,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872061.jpg" />
 </div>
 
 
@@ -709,7 +739,7 @@ VA - RETROспектива, часть XII. Мелодии и песни из к
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869534.jpg" />
 </div>
 
 
@@ -723,36 +753,6 @@ VA - RETROспектива, часть XII. Мелодии и песни из к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94D59E8C99EE03292BFCC65957A7E8A6FC76B3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108388   (864034) от 24.02.2017
-
-Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864034.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЧЕРРОНЕ ЖАН-МАРК (Cerrone Jean Marc) (р. в 1952, Сен-Мишель, Франция), французский композитор, продюсер и барабанщик.
-     Хотя слушателю 1990-х годов это имя едва ли говорит о многом, два десятилетия назад, во времена диско-бума конца 70-х, он был одним из самых продуктивных и изобретательных творцов европейской танцевальной музыки: как композитор, продюсер и барабанщик (   Читать дальше...   )Альбомы:
-1976 - Love In C Minor
-1977 - Cerrone's Paradise
-1977 - Cerrone III - SupernatureЖанр: DiscoПродолжительность: 01:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

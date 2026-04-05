@@ -6,7 +6,7 @@ NGW. Болотный отряд (Павианы Окаванго) / Swamp Troop
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880138.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: 100 Величайших Открытий / 100 Greatest Discoveries 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879959.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BBC: Секреты устройства античных городов. Афи
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879854.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Discovery. Как устроена Вселенная / Discovery. How the Unive
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878746.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NG: Спасти Титаник: сокровища с глубины / Save the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878255.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878247.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NG: Спасение старейшей пирамиды Египта / Saving E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878118.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877399.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877127.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ BBC: Королевские дворцы / The Queen's Palaces (2011) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876843.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876660.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876470.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Discovery. COVID-19: Китай против вируса / COVID-19: Battling t
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876366.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ BBC: Секреты устройства античных городов. Рим
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874933.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ BBC: Невидимые миры. Вне поля зрения / Invisible World
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874263.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874257.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Nat Geo Wild: Землеройка-убийца / Killer Shrew (2014) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873209.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ NGW. Рождение прайда / Birth of the pride (2018) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872339.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ BBC: Гений Марии Кюри: женщина, осветившая мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872328.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872213.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Discovery. Техногеника. Буран (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871602.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871051.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870801.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ NG. Тайны истории. Распутин / Mystery Files. Rasputin (2009)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870266.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ NG Потерянный рай Африки / Africa`s Lost Eden (2009) HDTVRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869958.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Nat Geo Wild: Секретный кубинский риф / Cuba's Secret Reef 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869830.jpg" />
 </div>
 
 

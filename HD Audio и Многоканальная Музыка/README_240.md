@@ -1,32 +1,3 @@
-###  Публикация: 1774742   (30103) от 22.01.2025
-
-Javier Rojo - Música Para Amansar Fieras (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Black, White and Colours (6:00)
-02.  Late April (2:23)
-03.  Lonely Night (7:11)
-04.  Riba (6:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9008660D3F797EBD4F7CA4723AAAD8EA6D28D84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774471   (30102) от 22.01.2025
 
 Dalibor Janda - Take Them To Mars (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Pop Rock>
@@ -35,7 +6,7 @@ Dalibor Janda - Take Them To Mars (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30102.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Dream Theater - Midnight Messiah (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30002.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Venom (& Venom inc., ex-M:Pire of Evil) - Studio Albums (11 releases) (1997-2022
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29938.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Linkin Park - From Zero: A Cappellas (2025) [FLAC 24/48,96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29797.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA & Atomic Heart - Atomic Heart, Vol. 5 (2025) Original Game Soundtrack [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29233.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ The Weeknd - Hurry Up Tomorrow (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Sou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28881.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ Hans Zimmer - The World of Hans Zimmer - Part II: A New Dimension (2025) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28862.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28705.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28465.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ Elvis Presley - The King (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27921.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ Lacuna Coil - Studio Albums (12 releases) (1999-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27653.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ Dream Theater - Дискография (33 releases) (1989-2025) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27459.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ Demis Roussos - Demis (2009) Remaster, 2025, AMPSA [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27396.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27207.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ Dynazty - Studio Albums (9 releases) (2009-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27099.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ Tristania - Studio Albums (8 releases) (1997-2013) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27030.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ Cruel Addiction - Confess (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26996.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ David Rose - Perfect Harmony Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26994.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ Killswitch Engage - Studio Albums (9 releases) (2000-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26880.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ Lacuna Coil - Sleepless Empire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Got
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26873.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ Ozzy Osbourne - Studio Albums (14 releases) (1980-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26439.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ Staind - Studio Albums (8 releases) (1996-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26300.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ Brainstorm - Studio Albums (14 releases) (1997-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26279.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ A Day to Remember - Studio Albums (8 releases) (2005-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26268.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ Dirkschneider - Balls To The Wall Reloaded (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26257.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ Dirkschneider - Balls To The Wall Reloaded (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE4D16A71EA1F9332C782ABDA9E9F5B191BEC116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651765   (26195) от 28.02.2025
+
+Tobias Sammet (Edguy; Avantasia) - Studio Albums (21 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тобиас Заммет (нем. Tobias Sammet, 21 ноября 1977) — немецкий музыкант, лидер и вокалист немецких пауэр-метал-групп Edguy и Avantasia.1997 - Kingdom Of Madness
+1998 - Vain Glory Opera
+1999 - Theater Of Salvation
+2000 - The Savage PoetryЖанр: Power MetalПродолжительность: 25:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0416D70E041545A2709C58E38683D5FE96630B
 ```
 
 https://mybot314.ru/tekegram_catalog/

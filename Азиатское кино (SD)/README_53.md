@@ -1,3 +1,56 @@
+###  Публикация: 757904   (202664) от 15.02.2023
+
+Из мальчишек в мужики 2 / Ah Boys to Men II (2013) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Кен ещё больше возмужал и теперь готов покорять новые высоты — как раз на его пути вырастает ещё одна преграда. Чтобы стать настоящим мужчиной, парень должен её преодолеть.Производство: Сингапур / J Team Productions, MM2 Entertainment, Mediacorp Audio PostЖанр: КомедияРежиссер: Джек НеоАктеры: Джошуа Тань, Тош Чжан, Daniel Ang, Вивек Арора, Ridhwan Azman, Fish Chaar, Sarah Chen, Тянь Вэнь Чэнь, Charlie Goh, Steven GohПеревод: Одноголосый любительский (озвучка den904 по переводу Skyworker)
+Присутствует ненормативная лексика!Субтитры: Английские (hardsub)Продолжительность: 01:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057C23936AD623739C2D22FDE66173CB89F8ADD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615975   (202075) от 28.02.2023
+
+Пропавший / Sagasu / Missing / (2021) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сантоши, отец-одиночка, в депрессии и в долгах. Однажды он рассказывает дочери, что видел разыскиваемого серийного убийцу и хочет получить за это награду, а на следующий день исчезает. Девочка начинает поиски папы, но ни учителя, ни полиция не верят, что он попал в неприятности, все считают, что он просто сбежал...Производство: Япония, Корея Южная, Asmik AceЖанр: драма, криминал, детективРежиссер: Синдзо КатаямаАктеры: Дзиро Сато, Мисато Морита, Хироя Симидзу, Аои Ито, Сётаро Исии, Идзуми Мацуока, Токо Нарусима, Тору Синагава, Масаки Наито, Кацуки СудзукиПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:620D34D75E06D8596DB7E72E09E9D3CED8225141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617936   (201587) от 09.03.2023
 
 Робот Джи / Robo Ji / Robo-G (2012) BDRip [AVO]
@@ -6,7 +59,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201587.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201571.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201545.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201286.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200951.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200900.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199758.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199736.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199261.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198549.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198195.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197841.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197741.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197729.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197703.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197622.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197610.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197005.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196783.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196693.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195661.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195235.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194998.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194931.jpg" />
 </div>
 
 
@@ -619,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BD420F9430FC83C494648671244DB1FF4295549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649777   (194904) от 31.07.2023
-
-Проходимцы / Apkkujeong / Men of Plastic (2022) WEB-DLRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сеул, 2007 год. Все в Апкуджоне знают Кан Дэ-гука. Он, вроде бы, ничем особенным не занят, но обладает харизмой, деловым чутьём, а также полезными связями и может решить любую проблему. Однажды судьба сводит его с талантливым пластическим хирургом Пак Чи-у, который из-за подлости делового партнёра лишился бизнеса, лицензии врача и погряз в долгах. Увидев в нём потенциал, (   Читать дальше...   )Производство: Корея Южная / B.A. Entertainment, Big Punch Pictures, Hong Film, Showbox/MediaplexЖанр: Комедия, криминалРежиссер: Лим Джин-сунАктеры: Ма Дон-сок, Чон Гён-хо, О На-ра, Чхве Бён-мо, О Ён-со, Рю Сын-су, Лим Хён-джун, На Гван-хун, Киль Хэ-ён, Чха У-джин, Ким Чхан-хёнПеревод: Дублированный (Кипарис)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4931B5DFDAA7A4C6A9B16B205F70A815A65217D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650329   (194738) от 04.08.2023
-
-Новый Камен Райде / Shin Kamen Rider (2023) WEB-DLRip [H.264] [MVO]
-
->>След.
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студента колледжа и любителя мотоциклов Такеси Хонго похищает злая организация "Шокер" и превращает его в киборга в рамках своих планов мирового господства. Прежде чем они успевают промыть ему мозги, чтобы он выполнял их приказы, он сбегает и использует свои новые способности, чтобы вести единоличную войну против преступной организации.Производство: Япония / Toei Company, TohoЖанр: фантастика, боевик, драма, фэнтезиРежиссер: Хидэаки АнноАктеры: Сосукэ Икэмацу, Минами Хамабэ, Тасуку Эмото, Нанасэ Нисино, Каната Хонго, Синъя Цукамото, Тору Тэдзука, Судзуки Мацуо, Тору Накамура, Кэн ЯсудаПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, японскийСубтитры: английские, немецкие, французскиеПродолжительность: 02:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED70F2BAC50A8CCB00C47915D29384AE2B58966
 ```
 
 https://mybot314.ru/tekegram_catalog/

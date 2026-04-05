@@ -6,7 +6,7 @@ Testament - Dark Roots Of Thrash (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355931.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kreator - Gods Of Violence: Live At Wacken 2014 (2017) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355640.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Anthrax - Chile On Hell 2013 (2014) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353693.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Megadeth - Rust In Peace Live (2010) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353316.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Eric Clapton's: Crossroads Guitar Festival (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352296.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Roger Waters -The Wall Show ( London O2 Arena 5/02/2011 )(Pink Floyd Reunite) (2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_352091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352091.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Hugh Laurie: Let Them Talk. A Celebration of New Orleans Blues (2011) [1080i] HD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351739.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ U.D.O. - Live in Sofia (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_350081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350081.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350011.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Kreator - Dying Alive 2012 (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349051.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Avantasia - The Flying Opera: Around The World In Twenty Days (2011) BDRip [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348902.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347882.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Accept - Rock Hard Festival (2022) HDTV [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347605.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Joe Cocker / Fire it Up Live (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347464.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346683.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346437.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345694.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ P!nk (Pink)  Rock in Rio (05.10.2019) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343257.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) H264  HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_342321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342321.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ The Rolling Stones: Charlie Is My Darling (1965/2012) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_340047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340047.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_339756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339756.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) BDRip [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_339623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339623.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338417.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Eric Clapton: Planes, Trains and Eric (2014) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336903.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Jeff Lynne's ELO - Live at Glastonbury 2016 (2016) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335245.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Kylie Minogue: Kiss Me Once - Live At The SSE Hydro, Glasgow (2014) UHDTVRip [H.
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335218.jpg" />
 </div>
 
 

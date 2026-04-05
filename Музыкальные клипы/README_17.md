@@ -6,7 +6,7 @@ David Vendetta Vs Keith Thomspon - Break 4 Love (2007) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628542.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ David Vendetta - Love To Love You Baby (2007) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628538.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628296.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ TV Rock ft Rudy - 'In The Air' (Axwell Remix) (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626553.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Benny Benassi Feat. Kelis, Apl.De.Ap, & Jean-Baptiste - Spaceship (2010) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626153.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ William Orbit - Barber's Adagio For Strings (Ferry Corsten Remix) (2000) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626007.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624673.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Steve Angello & Laidback Luke Ft Robin S - Show me Love (2009) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624633.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624409.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624405.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Swedish House Mafia - Miami 2 Ibiza ft. Tinie Tempah (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624359.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Armin Van Buuren Ft. Sharon Den Adel - In And Out Of Love (2010)  [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624088.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Animal ДжаZ - Три полоски (2007) HDRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620979.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620697.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620260.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Gia. Lights Out (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619227.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Girls' Generation (SNSD) - Music video collection. Part 2 (2007-2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616473.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Girls' Generation (SNSD) - Music video collection. Part 1 (2007-2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616151.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614320.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609434.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Rafa Romero - Que No Acabe (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607502.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603798.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602399.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ DJ Jessica - Azov Fest (Uncensored) (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601321.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600129.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ VA - Летний марафон № 175 / Видеоклипы (Turbo Диск�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599965.jpg" />
 </div>
 
 

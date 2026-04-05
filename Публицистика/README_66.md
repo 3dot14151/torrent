@@ -1,3 +1,32 @@
+###  Публикация: 1078246   (301919) от 30.11.2016
+
+Арнольд Шварценеггер | Вспомнить все: Моя невероятно правдивая история (2013) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301919.jpg" />
+</div>
+
+
+###  Подробнее
+
+История его жизни уникальна.
+Он родился в голодные годы в маленьком австрийском городке, в семье полицейского, не имея особых перспектив на будущее. А в возрасте двадцати одного года он уже жил в Лос-Анджелесе и носил титул «Мистер Вселенная».
+За пять лет он выучил английский язык и завоевал статус величайшего бодибилдера мира.
+За десять лет он получил университетское (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5EA8EC444A15D0BF22ECAFB482B8205436BF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184398   (301370) от 17.11.2017
 
 Г. Н. Вачнадзе | Идеологические диверсии империализма (1981) [DJVU]
@@ -6,7 +35,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301370.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301263.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301188.jpg" />
 </div>
 
 
@@ -86,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301187.jpg" />
 </div>
 
 
@@ -112,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301151.jpg" />
 </div>
 
 
@@ -138,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300983.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300982.jpg" />
 </div>
 
 
@@ -191,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300800.jpg" />
 </div>
 
 
@@ -218,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299139.jpg" />
 </div>
 
 
@@ -245,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299128.jpg" />
 </div>
 
 
@@ -271,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299035.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299033.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299019.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298959.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298792.jpg" />
 </div>
 
 
@@ -402,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298780.jpg" />
 </div>
 
 
@@ -428,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298716.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298641.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298624.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298562.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297438.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297430.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297297.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297287.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297285.jpg" />
 </div>
 
 
@@ -651,33 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61D2EA16E5F3C0989AB4708BB20A32645CD0D0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185061   (297042) от 19.11.2017
-
-Лиззи Остром | Парфюм. История ароматов XX века (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297042.jpg" />
-</div>
-
-
-###  Подробнее
-
-У каждой эпохи – свой аромат. Так считает автор этой книги, знаменитый парфюмерный эксперт Лиззи Остром, и рассказывает историю XX века через историю парфюма.
-Перед вами промелькнут «прекрасная эпоха» начала века, ревущие двадцатые, грозные тридцатые, непокорные сороковые, элегантные пятидесятые, свингующие шестидесятые, сверкающие семидесятые, эгоистичные восьмидесятые, (   Читать дальше...   )Жанр: Мода и стиль, ПублицистикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D89F2CFEAAE06A0D13B4BC8FC41806BD01A855C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

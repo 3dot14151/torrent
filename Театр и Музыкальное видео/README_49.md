@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754658.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754599.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Europe - Live at Sweden Rock: 30th Anniversary Show (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754303.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753988.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Tina Turner - One Last Time Live in Concert & Celebrate! (2000/1999) SD Blu-Ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753916.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752812.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Lindsey Stirling - Beyond The Veil (2014) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752390.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Elvis Presley - Aloha From Hawaii (1973) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751642.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ The ВЙО - Карпаты (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751321.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751060.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750987.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750690.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750682.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750158.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Ana Popovic Band - Jazzwoche Burghausen (2012) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750077.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749956.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Europe: War of King – Live at W:O:A (2015) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749953.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749847.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749681.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749587.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Erasure - The Innocents - Live'1988 (2009) DVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749317.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748632.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748053.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747828.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747553.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Nickelback: Live At Sturgis (2007) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747286.jpg" />
 </div>
 
 

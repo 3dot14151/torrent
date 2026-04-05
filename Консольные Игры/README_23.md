@@ -6,7 +6,7 @@ Alan Wake (2010) [Xbox360] [RegionFree] FreeBoot [Repack] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706685.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SnowRunner (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.28 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706577.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bayonetta (2010) [PS3] [EUR] 4.82 [HAN] [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703865.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Shovel Knight: Treasure Trove (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702297.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kirby's Extra Epic Yarn (2019) [3DS] [JPN] 11.9 [CIA] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700921.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Resident Evil: HD Remaster (2014) [PS3] [JP] 4.82 OFW [HAN] [Repack] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700045.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Teslagrad (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699843.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Chariot (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699841.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Marvel Avengers: Battle for Earth (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Lice
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699727.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Terraria (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699724.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Dragon Quest IV - Chapters of the Chosen (2008) [NDS] [USA] [Unofficial] [Ru]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697688.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Deepak Chopra's Leela [Wii] [PAL] [Multi 3] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696515.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ God of War II HD (2010) [PS3] [EUR] [PSN] [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695514.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Super Mario Galaxy 2 [Wii] [PAL] [Multi 5] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694415.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Batman: Arkham Origins (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Ru/Mul
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694036.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ WWE 2K16 (2015) [PS3] [EUR] 4.21 [Repack] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693904.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ LittleBigPlanet Karting / Little Big Planet Karting [PS3] [EUR] [Ru] [4.25] [Cob
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693494.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690942.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ The Book of Unwritten Tales 2 (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690258.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Back to Bed (2014) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.01] [R
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690103.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Sniper Elite V2 (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690100.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Dance Dance Revolution - Hottest Party 4 [Wii] [PAL] [Multi 5] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686972.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ LEGO Dimensions (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686600.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Mighty No. 9 (2016) [PS3] [USA] 4.21 [Repack / 3 DLC] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685936.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Mario & Sonic at the Rio 2016 Olympic Games (2016) [WiiU] [EUR] 5.3.2 [Loadiine 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685934.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Devil May Cry 5 (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.08 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685897.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Kreator - Coma Of Souls (1990) 2CD, Remastered, 2018, Noise [MP3|320 Kbps] <Thra
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379520.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ October Thorns - Circle Game (2022) [MP3|320 Kbps] <Progressive Metal, Heavy Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379418.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bloodbath - Survival Of The Sickest (2022) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379398.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Parkway Drive - Darker Still (2022) [MP3|320 Kbps] <Heavy Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379354.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ LunariaN - Burn the Beauty (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379345.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hexer - Realm of the Feathered Serpent (2020) [MP3|320 Kbps] <Doom Metal, Sludge
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379250.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Empress - Premonition (2020) [MP3|320 Kbps] <Doom Metal, Sludge Metal, Post Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379105.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Inner Odyssey - The Void (2020) [MP3|320 Kbps] <Progressive Rock, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378957.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Constructions - Void And Silence (2016) [MP3|320 Kbps] <Sludge, Groove Metal, Dj
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378454.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Blazon Stone - War of the Roses (2016) [MP3|320 Kbps] <Speed Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378298.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Amberian Dawn - Innuendo (2015) Japanese Edition [MP3|320 кб/с]<Symphonic Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377415.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Leaves' Eyes - King of Kings (2015) 2CD Digibook Edition [MP3|320 кб/с]<Symph
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377345.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Blackment - Plains Of Oblivion (2022) [MP3|320 Kbps] <Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377197.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ A Sound of Thunder - The Krimson Kult (2022) [MP3|320 Kbps] <Heavy Metal, Hard R
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377195.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Allen/Olzon - Army Of Dreamers (2022) [MP3|320 Kbps] <Melodic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377108.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dream Theater - Lost Not Forgotten Archives: Images and Words Demos (1989-1991) 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377093.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Emma Ruth Rundle & Thou - May Our Chambers Be Full (2020) [MP3|320 Kbps] <Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376976.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Triosphere - 3 альбома (2006-2014) [MP3|320 кб/с]<Power/Progressive Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376637.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Until the Uprising - Out of Time (2016) [MP3|320 Kbps] <Melodic Death Metal, Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376442.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Exiled On Earth - Forces Of Denial (2016) [MP3|320 Kbps] <Progressive Metal, Thr
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376437.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Red Moon Architect - Concealed Silence (2012) [MP3|320]<Melodic Doom/Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376410.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Wovenwar - Honor Is Dead (2016) [MP3|320 Kbps] <Alternative Metal, Melodic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376251.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Trivium - The Sin and the Sentence (2017) [MP3|320 Kbps] <Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376126.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Dark Tranquillity - Atoma (2016) Limited Edition [MP3|320 Kbps] <Melodic Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375672.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Nightwish - Imaginaerum (The Score) (2012) [MP3|320 kbps] <Symphonic Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375022.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ Veil Of Maya - False Idol (2017) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374340.jpg" />
 </div>
 
 

@@ -1,3 +1,213 @@
+###  Публикация: 1430695   (168335) от 12.12.2020
+
+Немецкий суд заставил почтового провайдера Tutanota установить бэкдор
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_168335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tutanota — один из немногих почтовых сервисов, которые шифруют входящую почту по умолчанию, как Protonmail, Posteo.de и Mailbox.org. То есть почта хранится на серверах в зашифрованном виде. Провайдер не может её расшифровать, даже если захочет.Однако постановление Кёльнского областного суда потребовало внедрить «функцию, с помощью которой можно отслеживать отдельные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430764   (168168) от 12.12.2020
+
+Врачи объяснили, почему не стоит носить маску на улице в мороз
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_168168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маска на улице нужна там, где есть большое скопление людей, в остальных случаях надевать ее не стоит, потому что она быстро намокает и охлаждается, сообщила РИА Новости врач-инфекционист научно-клинического отдела Московского городского Центра профилактики и борьбы со СПИДом департамента здравоохранения столицы Елена Белова."Зачем человек надевает маску? Чтобы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 210879   (168117) от 12.12.2020
+
+KissXsis / Поцелуй Сестёр [2010, TV, 12 серий] HDTV 720p raw + rus
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168117.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летний Кэйта Суминоэ с детства живет с двумя старшими сестрами: близняшками Ако и Рико. Вся проблема в том, что родичи они сводные, по крови не связанные, и со временем сестринские чувства Ако и Рико к милому Кэйте претерпели э-э… возрастную эволюцию. Более того, собственные отец и мать активно поощряют это стремление и настаивают, чтобы Кэйта тщательно «изучил (   Читать дальше...   )Жанр: комедия, повседневность, эттиРежиссер: Нава МунэнориПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D328E18439A0372DE376ADDB4021E305C0848222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430721   (168113) от 12.12.2020
+
+Подольские курсанты (2019) WEB-DLRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Октябрь 1941 года, Подмосковье. Около трёх с половиной тысяч курсантов подольских артиллерийского и пехотного училищ получают приказ занять оборону на Ильинском рубеже и совместно с регулярными частями 43-й армии сдерживать наступление фашистских захватчиков, пока не подойдёт подкрепление. Погибая, вчерашние мальчишки держат оборону от многократно превышающих сил (   Читать дальше...   )Производство: Россия, Военфильм, Централ партнершипЖанр: Военный, Драма, История, БоевикРежиссер: Вадим ШмелевАктеры: Алексей Бардуков, Евгений Дятлов, Сергей Безруков, Любовь Константинова, Артём Губин, Игорь Юдин, Гурам Баблишвили, Дмитрий Соломыкин, Роман Мадянов и др.Перевод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 02:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6947826FDC080FE40D279AE454421F009071E052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430680   (168110) от 12.12.2020
+
+Подольские курсанты (2019) WEBRip [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Октябрь 1941 года, Подмосковье. Около трёх с половиной тысяч курсантов подольских артиллерийского и пехотного училищ получают приказ занять оборону на Ильинском рубеже и совместно с регулярными частями 43-й армии сдерживать наступление фашистских захватчиков, пока не подойдёт подкрепление. Погибая, вчерашние мальчишки держат оборону от многократно превышающих сил (   Читать дальше...   )Производство: Россия / Военфильм, Централ партнершипЖанр: Военный, драма, история, боевикРежиссер: Вадим ШмелевАктеры: Алексей Бардуков, Евгений Дятлов, Сергей Безруков, Любовь Константинова, Артём Губин, Игорь Юдин, Гурам Баблишвили, Дмитрий Соломыкин, Роман Мадянов и др.Субтитры: ОтсутствуютПродолжительность: 02:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E0EAC1DCFAD161579A3294AE015AB8EF536BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417066   (168106) от 12.12.2020
+
+Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 10.2020 2DVD
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168106.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новой операционной системы Windows 10 Enterprise (Корпоративная) LTSC x86-x64 (VLSC) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: обновления системы, небольшой набор самых (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94AD77275C9E81BB615A02F4A1D25521D8287D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086171   (168102) от 12.12.2020
+
+Diablo: The Hell 2 (2020) [En] (1.0638) Mod Mordor_XP & ТН team
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь доступна текущая версия мода The Hell 2, который сейчас находится в стадии выпущенного в релиз мода. Мод играбелен, и постоянно развивается.
+Diablo The Hell 2 - это вторая часть мода Diablo The Hell.
+Работает и сингл плеер, и мультиплеер.Тип издания: ModЖанр: RPG (Rogue, Action), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495BFA08ADEA3762E7936EDAE20A394FEB91BC71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515433   (168065) от 08.12.2021
+
+У Intel есть секретная лаборатория для тестирования старых устройств
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_168065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение на въезд выдается только высшим руководством, а на территории комплекса установлены камеры видеонаблюдения.Журналисты издания The Wall Street Journal узнали о существовании секретной лаборатории компании Intel, расположенной в Коста-Рике. На этом предприятии компания хранит тысячи единиц различного старого компьютерного оборудования, чтобы с его помощью (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595572   (167792) от 12.12.2022
 
 Windows 10 Pro 22H2 19045.2251 x64 by SanLex [Extreme Edition] [Ru/En] (2022.12.06)
@@ -6,7 +216,7 @@ Windows 10 Pro 22H2 19045.2251 x64 by SanLex [Extreme Edition] [Ru/En] (2022.12.
 >>21
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167792.jpg" />
 </div>
 
 
@@ -32,7 +242,7 @@ JetBrains PyCharm Professional 2019.3 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167659.jpg" />
 </div>
 
 
@@ -58,7 +268,7 @@ Windows 7 будет спамить полноэкранными предлож�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_167637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_167637.jpg" />
 </div>
 
 
@@ -84,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167418.jpg" />
 </div>
 
 
@@ -110,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_167269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_167269.jpg" />
 </div>
 
 
@@ -138,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_167172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_167172.jpg" />
 </div>
 
 
@@ -164,7 +374,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (1.0.0p-1.1.4i.486) License
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167143.jpg" />
 </div>
 
 
@@ -190,7 +400,7 @@ Zombie Army 4: Dead War (2020) [Ru/Multi] (1.06/dlc) License EMPRESS [Super Delu
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167069.jpg" />
 </div>
 
 
@@ -216,7 +426,7 @@ Google Chrome теперь официально поддерживает клю�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_167060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_167060.jpg" />
 </div>
 
 
@@ -242,7 +452,7 @@ HTML Academy | HTML и CSS. Профессиональная вёрстка са
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167046.jpg" />
 </div>
 
 
@@ -270,7 +480,7 @@ Kaspersky Free 2020 20.0.14.1085 (e) RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166829.jpg" />
 </div>
 
 
@@ -296,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166826.jpg" />
 </div>
 
 
@@ -322,7 +532,7 @@ TNod User & Password Finder 1.7.0.0 Beta [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166813.jpg" />
 </div>
 
 
@@ -348,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166809.jpg" />
 </div>
 
 
@@ -374,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166804.jpg" />
 </div>
 
 
@@ -400,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166800.jpg" />
 </div>
 
 
@@ -426,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166794.jpg" />
 </div>
 
 
@@ -452,7 +662,7 @@ KMS Tools Portable 01.08.2019 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166789.jpg" />
 </div>
 
 
@@ -463,219 +673,6 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7CBCCE32E119D40CF19563A24DC63DBC2BC2945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773337   (166784) от 14.12.2019
-
-Windows Loader 2.2.2 by Daz [En]
-
->>3
->>22
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Активатор Microsoft Windows 7 / Vista / 2008 R2 / Server 2012, устанавливает сертификат одной из фирм (по выбору), после чего активирует вашу копию Windows и дает возможность проходить проверку подлинности. Запускать от имени Администратора (желательно из проводника Windows)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F4944789A11E2BEFAC9FC576E48B83AEAB988A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672118   (166593) от 30.10.2023
-
-Китай выпускает «убийцу» Windows с открытым кодом
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_166593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовится к релизу настольная платформа Orange Pi OS от создателя китайских продвинутых одноплатников Orange Pi. Ее собрали на базе Huawei Harmony OS – китайской альтернативы Android. Orange Pi OS будет конкурировать с Windows 11 и скоро научится работать на х86-совместимых ПК.Windows по-китайски
-Компания Shenzhen Xunlong из Китая, разработчик широко известных одноплатных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503120   (166553) от 30.10.2023
-
-Частушки ("Частушко-слогательна" игра)
-
->>3
->>97
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_166553.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЧастушкиПравила игры
-Задание даётся в виде двустишия (рифма не обязательна). Нужно придумать продолжение, чтобы получился смешной стишок-частушка. Тот, кто первый ответил, даёт новое задание.Пример задания и ответов(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370361   (166366) от 14.12.2020
-
-Sticky Password Premium 8.2.3.43 (промо Comss) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sticky Password Premium – менеджер паролей, который позволяет хранить ваши учетные данные локально или в облаке, синхронизируя их с компьютерами Windows, Mac, Android-устройствами, iPhone и iPad, гарантируя, что вы можете создавать безопасные пароли и автоматически вводить их, где бы вы ни находились.
-Sticky Password Premium для Windows может осуществлять автоматический (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876F9F5B3D8B91780B355E82268BEAE0F7CF14F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516110   (166357) от 10.12.2021
-
-Блокировка Tor: что вообще происходит?
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_166357.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последние дни много что было написано про блокировку Tor, но, кажется, что никто не сделал понятного и полного описания происходящего.  Исправляем ситуацию (актуально на 8 декабря 2021).Причина блокировки:
-Формальная причина — исполнение решения суда от 2017 года.Реальная причина —  давление на нецензурируемые каналы информации под предлогом борьбы с наркотиками. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596965   (166334) от 14.12.2022
-
-«Роскосмос» представил мобильное приложение «Цифровая Земля»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_166334.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сообщению госкорпорации «Роскосмос», завершена разработка бета-версии мобильного приложения «Цифровая Земля». Это приложение позволяет получить доступ к данным дистанционного зондирования Земли (спутниковым снимкам) прямо с портативного устройства.Приложение обеспечивает возможность просматривать снимки земной поверхности, полученные с космических аппаратов отечественной (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516268   (166326) от 10.12.2021
-
-Windows 10 Enterprise LTSC 1809 (x86/x64) by Paxweaver [11.2021] [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка Windows 10 Enterprise LTSC 1809 на основе оригинальных образов MSDN. Удалены и отключены шпионские компоненты и телеметрия. Использовались наработки westlife & Lex6000. Интегрированы обновления на ноябрь 2021 года. Настройки системы, автоматизация, минимализм, вариативность установки и набор удобных инструментов.Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D64DF18BAFD9FBD17F9DB05C74F18A2A7034064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516256   (166320) от 10.12.2021
-
-ESET NOD32 Antivirus / Internet Security / Smart Security Premium 15.0.21.0 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166320.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET NOD32 Antivirus 15 – новая версия антивируса с облачными технологиями, обеспечивающая усиленную защиту от сложных угроз. Включает мощный HIPS, контроль устройств, эффективную защиту от фишинга и уязвимостей.
-ESET NOD32 Internet Security 15 – комплексный антивирус и интернет-защита с облачными и проактивными технологиями. Включает фаервол, инструменты для безопасных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BD6B4989F36D3BAADC524227263509CA54AE9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,118 @@
+###  Публикация: 1424693   (227470) от 17.11.2020
+
+Slow Dancing Society - The Torchlight Parade Vol. I & II (2020) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Drone, Post-Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227470.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Audubon Park (03:22)
+2. Manito (02:45)
+3. Riverside (02:51)
+4. Comstock (02:44)(   Читать дальше...   )Жанр: Ambient, Drone, Post-RockПродолжительность: 01:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01540A1253A8D28237C5E8485009E2FB2D6DB73E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424704   (227450) от 17.11.2020
+
+r beny - The Dashboard Cast a Spectral Glow (2020) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227450.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Dashboard Cast a Spectral Glow (05:03)
+2. Fjorda (04:56)
+3. Golden Larch Emerging in Spring (09:52)Жанр: Ambient, DroneПродолжительность: 00:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8118D3A5C72052DD1CE5EDE6564C7AE7A0BED95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341992   (227447) от 30.11.2019
+
+Blow - I (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Power Electronics, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil Remembers Me (3:42)
+02. Don't Wait for Us (4:20)
+03. Call the Youth (4:49)
+04. Close to You (4:34)Жанр: Power Electronics, SynthwaveПродолжительность: 00:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CF72727B22D429C99D0A780DC2E55040EED45B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341959   (227328) от 30.11.2019
+
+VA - Workout Hits Vol.2 (The Best Of 2020 Fitness & Sports Sounds) (2019) Explicit [MP3|320 Kbps] <House, ClubHouse, ProgressiveHouse, FutureHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Workout Hits Vol.2 - The DJ Mix, Pt.1 1:01:40
+02. VA - Workout Hits Vol.2 - The DJ Mix, Pt.2 1:11:11
+03. GATTUSO & Damon Sharpe - When In Rome (Mark Sixma Extended Remix) 3:54
+04. VIZE feat. Laniia - Stars (VIP Remix) 2:36(   Читать дальше...   )Жанр: House, ClubHouse, ProgressiveHouse, FutureHouseПродолжительность: 04:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11CE31B44D01750F6AC6F14D009A494C1169940A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342077   (227221) от 30.11.2019
 
 Harry Thumann - Andromeda (1982) LP [MP3|320 Kbps] <Electronic, Rock, Synth-pop>
@@ -6,7 +121,7 @@ Harry Thumann - Andromeda (1982) LP [MP3|320 Kbps] <Electronic, Rock, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227221.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [MP3|320 Kbp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227212.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Nuanæ (NuanAE, Nuaиæ) - Collection 9 Releases (2015-2020) Kaer'Uiks [FLAC|Los
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227194.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Shrine - Discography 8 Releases (2006-2019) Corvus Records, Cyclic Law, Cryo Cha
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227052.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ Various Artists - Ram Drum & Bass Annual 2012 (2012) [MP3|320 кб/с]<Drum & Ba
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226978.jpg" />
 </div>
 
 
@@ -157,7 +272,7 @@ VA - Uplifting Only - Fan Favorites 2014 - 2015 (Mixed by Ori Uplift) (2015) Abo
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226870.jpg" />
 </div>
 
 
@@ -186,7 +301,7 @@ Terranova (Edition Terranova, Terra Nova) - Discography 40 Releases (1998-2019) 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226665.jpg" />
 </div>
 
 
@@ -215,7 +330,7 @@ Livio & Roby - Phantom Circle (2016) Desolat [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226641.jpg" />
 </div>
 
 
@@ -244,7 +359,7 @@ VA - EDM Anthems 2018: Top 40 Club Beats For DJs (2017) [MP3|320 Kbps] <Big Room
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226609.jpg" />
 </div>
 
 
@@ -273,7 +388,7 @@ VA - Kay Rush Presents Unlimited XX (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226587.jpg" />
 </div>
 
 
@@ -302,7 +417,7 @@ VA - Grotesque 350 (Mixed by RAM, Alex M.O.R.P.H. & Alex Di Stefano) (2018) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226552.jpg" />
 </div>
 
 
@@ -331,7 +446,7 @@ VA - Poker Flat Recordings Best Of 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226544.jpg" />
 </div>
 
 
@@ -360,7 +475,7 @@ Woob - Tokyo Substrate Paradox (2018) Isometric [FLAC|Lossless|WEB-DL|tracks] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226535.jpg" />
 </div>
 
 
@@ -389,7 +504,7 @@ VA - Sunday Lounge Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226528.jpg" />
 </div>
 
 
@@ -418,7 +533,7 @@ VA - The Best Of Suanda Voice 2018 (Mixed By Dennis Graft) (2018) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226513.jpg" />
 </div>
 
 
@@ -447,7 +562,7 @@ NOIRESOR - Imprinted Memories (2022) авторская раздача [MP3|320 
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226497.jpg" />
 </div>
 
 
@@ -476,7 +591,7 @@ VA - Jazzpresso Vol. 1-2 (2000-2001) Lab Records [FLAC|Lossless|tracks+.cue] <Ac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226440.jpg" />
 </div>
 
 
@@ -505,7 +620,7 @@ Oaktree - Discography 7 Releases (2014-2018) [PIAS] Recordings [FLAC|Lossless|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226431.jpg" />
 </div>
 
 
@@ -531,7 +646,7 @@ Eguana & Qeight - Life Cycle (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psyc
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226289.jpg" />
 </div>
 
 
@@ -560,7 +675,7 @@ Colombo - Abandoned Factory II (2015) [MP3|320 кб/с] <Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226024.jpg" />
 </div>
 
 
@@ -589,7 +704,7 @@ Deep Blu' - Under The Ocean (2006) [MP3|320 Kbps] <Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225961.jpg" />
 </div>
 
 
@@ -618,7 +733,7 @@ VA - Kiez Beats: Retro Futuristic Sounds (Revisited 2k12) (2012) [FLAC|Lossless|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225893.jpg" />
 </div>
 
 
@@ -632,119 +747,6 @@ VA - Kiez Beats: Retro Futuristic Sounds (Revisited 2k12) (2012) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C5B023355D1C8C24456169A9FC90C895302D497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419696   (225886) от 18.11.2020
-
-Lontano Series - Label-Pack 23 releases (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal, Experimental>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: WEBЖанр: Ambient, Drone, Minimal, Experimental •Продолжительность: 18:09:42 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09A7C4391323109746062B51373A67BBA3EA4C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342198   (225867) от 01.12.2019
-
-VA - Retrowave (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 80s Stallone - Beach (L'equipe Du Son Remix) (6:18)
-02. Le Matos - Montrose (5:40)
-03. Makeup and Vanity Set - Praxis (4:49)
-04. Bxentric - Surrender (Original Mix) (6:25)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B8CDF98CDDE6B4E3E9C7926BF4F35D40AE86C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851285   (225858) от 20.12.2014
-
-Dissolved - Temporal Breathing (2014) [FLAC|Lossless|WEB-DL|24/41.1]<IDM, Ambient, Experimental, Glitch>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archispectral (5:36)
-02. Vast Wires (4:50)
-03. Seeing if you remember being (5:26)
-04. Autumn Cylinders (3:39)(   Читать дальше...   )Жанр: IDM, Ambient, Experimental, GlitchПродолжительность: 01:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17713FAA7FA2714BBDDF73267E599F8C937DB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341358   (225827) от 01.12.2019
-
-Bob Sinclar - III (2006) [MP3|320 Kbps] <House, Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Goes On
-02. Kiss My Eyes
-03. If I Was
-04. Musique Is Fantastique(   Читать дальше...   )Жанр: House, DiscoПродолжительность: 01:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0893CACD42503B726C29E1CFDDB2BC8A79DC9ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/

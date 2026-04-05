@@ -1,3 +1,61 @@
+###  Публикация: 935733   (497523) от 10.09.2015
+
+Lebowski - Cinematic (2010) [FLAC|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trip To Doha 5:42
+02. 137 Sec. 7:13
+03. Cinematic 7:43
+04. Old British Spy Movie 5:11(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACBC507C680CA65F0463C7B51186B9A814AAA6BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935706   (497511) от 10.09.2015
+
+Lunatic Soul - Walking on a Flashlight Beam (2014) Special Edition CD+DVD [FLAC|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shutting Out The Sun 8:40
+02. Cold 6:58
+03. Gutter 8:42
+04. Stars Sellotaped 1:34(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B27FDC1A48879986523EAD88A96EEC7B8095F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936115   (497425) от 10.09.2015
 
 Илья Чёрт - Аудиостихия, ч. 2 (2015) [MP3|320 кб/с]<Poetry, Rock, Acoustic>
@@ -6,7 +64,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497425.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Stratovarius - Eternal (2015) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497331.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Slayer - Repentless (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497262.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497260.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Krokus - Favorites(2CD)(сборник) (2012) [MP3|320 кб/с]<Hard Rock, Heav
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497138.jpg" />
 </div>
 
 
@@ -154,7 +212,7 @@ Rise Against - Endgame (2011) [MP3|320 кб/с]<Punk/HardCore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497122.jpg" />
 </div>
 
 
@@ -189,7 +247,7 @@ Mordeth - Animicide (2001) [FLAC|Lossless|image + .cue] <Progressive Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496807.jpg" />
 </div>
 
 
@@ -218,7 +276,7 @@ Morpheus Descends - The Horror Of The Truth (1997) EP [FLAC|Lossless|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496803.jpg" />
 </div>
 
 
@@ -246,7 +304,7 @@ With the Dead - With the Dead (2015) [FLAC|Lossless|tracks + .cue] <Doom, Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496756.jpg" />
 </div>
 
 
@@ -275,7 +333,7 @@ Marlugubre - Maladie (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496752.jpg" />
 </div>
 
 
@@ -304,7 +362,7 @@ With the Dead - Love from with the Dead (2017) Japan Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496751.jpg" />
 </div>
 
 
@@ -333,7 +391,7 @@ Black Bile - The Substance (2020) EP [FLAC 2.0|44/24|WEB-DL|tracks] <Doom Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496744.jpg" />
 </div>
 
 
@@ -362,7 +420,7 @@ Dreamtide - Drama Dust Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496702.jpg" />
 </div>
 
 
@@ -391,7 +449,7 @@ Highway Sentinels - The Waiting Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496701.jpg" />
 </div>
 
 
@@ -420,7 +478,7 @@ Lessmann/Voss - Rock Is Our Religion (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496699.jpg" />
 </div>
 
 
@@ -449,7 +507,7 @@ Fatal Vision - Once (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496698.jpg" />
 </div>
 
 
@@ -478,7 +536,7 @@ Oddland - Origin (2016) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496677.jpg" />
 </div>
 
 
@@ -507,7 +565,7 @@ Psycrence - A Frail Deception (2014) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496674.jpg" />
 </div>
 
 
@@ -536,7 +594,7 @@ Stratovarius - Дискография (26 альбомов) (1989-2009) [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496614.jpg" />
 </div>
 
 
@@ -562,7 +620,7 @@ Sihasin - 2 альбома (2012-2018) [MP3|192-320 Kbps] <Native american, Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496593.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ Symphonika - Symphonika (2012) [FLAC|Lossless]<Symphonic rock, Alternative rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496391.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ Final Conflict - Return Of The Artisan (2012) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496385.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ Striker - Armed To The Teeth (2012) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496330.jpg" />
 </div>
 
 
@@ -684,7 +742,7 @@ Ektomorf - Black Flag (Limited Edition) (2012) Scene [FLAC|Lossless]<Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496326.jpg" />
 </div>
 
 
@@ -704,61 +762,6 @@ Ektomorf - Black Flag (Limited Edition) (2012) Scene [FLAC|Lossless]<Thrash Meta
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936039   (496286) от 11.09.2015
-
-Slayer - Repentless (2015) [FLAC|Lossless|WEB-DL]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496286.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:55] 01. Delusions Of Saviour
-[03:19] 02. Repentless
-[03:13] 03. Take Control
-[03:32] 04. Vices(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F5E315B8FCC1FC6B3DB94C49704B32A7F67175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543186   (496218) от 05.09.2012
-
-Don Ray Band - 3 albums (2009 - 2012) [MP3|320 кб/с]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Blues RockПродолжительность: 02:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188B0E299F02D896AD3B5A6E955824BECDB4AABE
 ```
 
 https://mybot314.ru/tekegram_catalog/

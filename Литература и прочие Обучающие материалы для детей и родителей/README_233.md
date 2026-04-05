@@ -1,3 +1,57 @@
+###  Публикация: 924792   (557476) от 04.08.2015
+
+Елена Любимова | Как отучить ребенка врать (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это у него такая бурная фантазия? Или он лжет? Или, может быть, мы просто не можем поверить в правду? Такие вопросы встают перед всеми родителями.
+Что же говорят по этому поводу психологи? Все дети рано или поздно врут. Все дети фантазируют. Дети, порой, рассказывают такую правду, в которую мы – взрослые просто не можем поверить. Самое важное, научиться различать (   Читать дальше...   )Жанр: Детская психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCBE6C9E06B694D7306AAE80BE6B4DF523EC33A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924806   (557466) от 04.08.2015
+
+Виктор Казьмин | Первая доврачебная помощь пострадавшим детям (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557466.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в доступной форме описана симптоматика различного рода травматических недугов. Также приводятся методы и способы скорой неотложной доврачебной помощи детям при тех или иных повреждениях их здоровья.
+В первую очередь рассматриваются такие травматические повреждения, как ожоги, различного рода раны, ушибы, отравления, укусы животных и ядовитых змей, а также (   Читать дальше...   )Жанр: Медицина детямФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183EF1345FD13728F795561E68F8D846B68ECA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924382   (557406) от 04.08.2015
 
 А. Татарский (худ. рук.) | Сказки народов России. По мультфильмам студии ''Пилот'' [5 книг] (2009) [PDF]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557406.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557181.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557103.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557078.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556937.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556902.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556739.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556722.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556716.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556542.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556517.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556513.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556405.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556143.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556133.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555979.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555888.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555842.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555840.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555839.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555837.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555835.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555815.jpg" />
 </div>
 
 
@@ -624,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555811.jpg" />
 </div>
 
 
@@ -635,59 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21D61443E85C719BF87F9D664F61B2735077FDBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306584   (555520) от 05.06.2019
-
-И.Е. Гусев, А.Г. Мерников | Лучшие советские задачи и головоломки. Проверь свою наблюдательность и изобретательность (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проверенные временем головоломки дадут вам возможность наточить свой ум до остроты булавки, а быстроту принятия решений развить до космических скоростей. Они значительно обогатят копилку хитрых математических приемов, пригодных в том числе и для решения бытовых задач. Занимательные сюжеты погрузят вас в атмосферу головоломки, превращая перебор гипотез и подходов (   Читать дальше...   )Жанр: Головоломки, Кроссворды, ЗагадкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3D644024529BAECB0F9413813657EE1614C7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306787   (555489) от 06.06.2019
-
-Александр Лондон | Дикие. Лунный Отряд (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая книга цикла «Дикие»
-«Все одной лапы» – это девиз легендарного Лунного Отряда. Лунный Отряд – это пятеро животных, которые в глубокой древности поклялись защищать свободу всех Диких под небесами. И енот по имени Кит тоже слышал легенды о Лунном Отряде. Еще бы, ведь среди основателей Отряда был его предок – Первый Енот! Кит еще совсем юн, он только-только начал (   Читать дальше...   )Жанр: Фэнтези, Городское фэнтези, Фантастика для детейПеревод: Анастасия КузнецоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E7DA559CBB7A6F1B8454ACCEFA724CB6A3086A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555614.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555598.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555321.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555313.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555288.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555137.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555124.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554965.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554623.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554570.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554566.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554559.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554460.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554356.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554351.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554344.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554342.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554193.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554192.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554181.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553765.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553653.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553645.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553580.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553044.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552990.jpg" />
 </div>
 
 

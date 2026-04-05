@@ -1,29 +1,3 @@
-###  Публикация: 582459   (310308) от 03.12.2012
-
-Без обмана - Сладкий ужас (2012) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любой из нас любит, хотя бы иногда, побаловаться сладким. Кондитерские изделия во все времена пользовались спрсом. И каждый мог себе найти лакомство, которое устраивает его и по вкусу, и по виду, и по цене в конечном счете.Жанр: ДокументальныйПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DCF10A5D746A55211ACF7C8C954CE0DF271116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077147   (309498) от 27.11.2016
 
 Главное. Итоговая программа (27.11.2016) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309498.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309267.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308288.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308063.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307878.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307805.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307776.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307722.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307585.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307438.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307217.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305627.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305563.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305439.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305435.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305427.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303506.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303275.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302836.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302063.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301498.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301452.jpg" />
 </div>
 
 
@@ -611,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301448.jpg" />
 </div>
 
 
@@ -637,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301321.jpg" />
 </div>
 
 
@@ -663,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299077.jpg" />
 </div>
 
 
@@ -674,6 +648,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D93B38F323A098679576496028A45ABBB0176614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961652   (299071) от 02.12.2015
+
+Вести.Doc с Ольгой Скабеевой (01.12.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый информационно-документальный проект - это не просто политическое ток-шоу. "Вести.doc" - это возможность увидеть самые громкие документальные премьеры - в первую очередь качественный продукт. В программе сенсационные расследования и вдумчивый анализ событий.Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 02:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D65223A988E22297B19FB86FA8E275DEC3D653
 ```
 
 https://mybot314.ru/tekegram_catalog/

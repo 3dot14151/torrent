@@ -1,3 +1,55 @@
+###  Публикация: 1514272   (216630) от 03.12.2021
+
+Легенда о Корре / The Legend of Korra (2012-2014) BDRip [H.265/1080p] [10-bit] (сезон 1-4, серии 1-52 из 52) SDI Media, 2x2, SkyeFilmTV, Flux-Team
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается примерно через 70 лет после битвы аватара Аанга и Лорда Огня. Корра, уже овладевшая магией воды, земли и огня, должна обучиться последнему элементу — магии воздуха. В этом ей может помочь только сын Аанга и Катары — Тензин. Корра живёт в «Республиканском городе». Республиканский город — это место, где вместе живут люди всех наций. (   Читать дальше...   )Производство: США / Nickelodeon Animation StudiosЖанр: мультфильм, фэнтези, боевикРежиссер: Йен Грэхэм, Колин Хек, Хоаким Дос СантосАктеры: Джанет Вэрни, Джефф Беннетт, Ди Брэдли Бейкер, П.Дж. Бирн, Дэвид Фаустино, Дж.К. Симмонс, Сейшелл Гэбриел, Минди Стерлинг, Логан Уэллс, Кирнан Шипка и др.Перевод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA212E76EDF1E38274C9C098AB8B4E3A457B898D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235990   (216583) от 16.12.2018
+
+Герои в масках / Pj masks (2018) SATRip (сезон 2, серии 26 из ???) [обновляемая]
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательный мультсериал о юных супергероях. Три приятеля являются главными персонажами, они простые ребята, в руках которых оказались амулеты невероятной силы, они могут наделять своих обладателей чудесными способностями. Это звериные амулеты, кота, совы и ящерицы. Днем парни живут простыми жизнями, а по ночам они сражаются со злом, совершают подвиги и ради благих (   Читать дальше...   )Производство: ФранцияЖанр: Компьютерная анимацияРежиссер: Кристиан Де Вита, Мерли-Энн Ридли, Уилсон Дос Сантос.Перевод: Полный дубляж, вкл. песниСубтитры: отсутствуютПродолжительность: серия по ~ 00:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BE0AA2CC85B0C04A7EB9FCC5BD80842483223E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269942   (216512) от 16.12.2018
 
 Новое шоу Дятла Вуди / The New Woody Woodpecker Show (1999-2000) DVBRip [H.264] (Сезоны 1-3, Серий 53 из 53)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216512.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216167.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215576.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215565.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215350.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214271.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214158.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214029.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213223.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213096.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212889.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212887.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212661.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212311.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211478.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210720.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210012.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209573.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209318.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208776.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208629.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208311.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207692.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207620.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DABA88C0B45D9B01979F0536E70F2746019BE2F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611408   (207613) от 11.02.2023
-
-Легенда о Vox Machina / Легенда Вокс Макины / The Legend of Vox Machina (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-12 из 12) HDrezka Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они хулиганы, они разношерстные, они неудачники, ставшие наемниками. Они больше заинтересованы в легких деньгах и дешевом эле, чем в реальной защите королевства. Но когда королевству угрожает зло, эта неистовая команда понимает, что только они способны восстановить справедливость...Производство: США / Аmazon StudiosЖанр: мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Ан Сон-джин, Алисия Чан, Young HellerПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685479A7C44DC0EC1187C4D0F45FEBECA687FA6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337284   (207610) от 20.09.2022
-
-Бэтмен / Batman: The Animated Series (1992-1995) BDRip [H.264/720p-LQ] (Сезон 1-2, Серии 01-85 из 85)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ставший уже классическим мультсериал про Бэтмена был заново переиздан на Blu-Ray. Визуальный стиль мультсериала основан на художественных работах продюсера Брюса Тимма. Изначально концепция мультсериала была навеяна комиксом Фрэнка Миллера «Бэтмен: Возвращение Тёмного Рыцаря», фильмами Тима Бёртона «Бэтмен» и «Бэтмен возвращается», а также известными мультфильмами (   Читать дальше...   )Производство: США, Warner Bros. AnimationЖанр: Рисованная анимация, ПриключенияРежиссер: Бойд Кирклэнд, Кент Баттерворт, Кевин Алтьери, Дэн Риба, Брюс Тимм, Фрэнк Паур, Дик Себаст, Эрик РадомскиПерсонажи: Брюс Уэйн / Бэтмен, Ричард (Дик) Грейсон / Робин, Альфред Пенниуорт, Джеймс Гордон, Джокер, Харли КвиннПеревод: Дублированный (СТС)Субтитры: Русский, АнглийскийПродолжительность: 85 серий по ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B56411A849B5CD85A33B295C870DEBA0FAC181AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

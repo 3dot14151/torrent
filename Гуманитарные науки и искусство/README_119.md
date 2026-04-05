@@ -1,81 +1,3 @@
-###  Публикация: 1784914   (24803) от 13.03.2025
-
-А.В. Павлов | Бесславные ублюдки, бешеные псы. Вселенная Квентина Тарантино (2018) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга, с одной стороны, нефилософская, с другой - исключительно философская. Ее можно рассматривать как исследовательскую работу, но в определенных концептуальных рамках. Автор попытался понять вселенную Тарантино так, как понимает ее режиссер, и обращался к жанровому своеобразию тарантиновских фильмов, чтобы доказать его уникальность.Жанр: КинематографИздательство: Издательский дом «Дело»Формат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CD796B96CAEC99C3D6CF35357EDDC1C3A10667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784911   (24787) от 13.03.2025
-
-А.А. Акмальдинова, О.А. Лекманов, М.И. Свердлов | «Ликует форвард на бегу…» Футбол в русской и советской поэзии 1910–1950 годов (2016) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24787.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге впервые прослеживается эволюция футбольной темы в отечественной поэзии 1910–1950-х годов — все ее основные вехи. Еще важнее для авторов было показать, как новые для поэзии мотивы менялись, отражая сиюминутные требования современности, деформируясь под их воздействием, а иногда отчаянно им сопротивляясь. Задача книги — двойная: с одной стороны, собрать вместе (   Читать дальше...   )Жанр: Поэзия, культурологияИздательство: Высшая школа экономикиФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07BA7D38D710484F2EBB8CD03CFE499A64698DF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785981   (24285) от 18.03.2025
-
-Кьяра де Капоа | Эпизоды и персонажи Ветхого Завета в произведениях изобразительного искусства (2011) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24285.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены сюжеты и персонажи Ветхого Завета, начиная от библейского повествования о сотворении мира и древней истории Израиля до героев и пророков еврейского народа. В истолковании тем использован не только текст Священного Писания, предлагаются также сопоставления из других культур. Кроме того, в мотивах Ветхого Завета выделены прототипы событий Нового (   Читать дальше...   )Жанр: ИскусствоИздательство: ОмегаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED6DCEE143DC9F6A39EB60CC1553B1D0B60B7D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785903   (24262) от 18.03.2025
 
 Роберт Дарнтон | Великое кошачье побоище и другие эпизоды из истории французской культуры (2002) [DJVU]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24262.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23860.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23757.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23103.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22070.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18533.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16376.jpg" />
 </div>
 
 
@@ -271,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15874.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15562.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15484.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15351.jpg" />
 </div>
 
 
@@ -378,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15347.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15340.jpg" />
 </div>
 
 
@@ -430,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14217.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12987.jpg" />
 </div>
 
 
@@ -482,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12649.jpg" />
 </div>
 
 
@@ -509,7 +431,7 @@ Olive Yong | Kawaii Kitties - Learn How to Draw 75 Cats in All Their Glory (Volu
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11836.jpg" />
 </div>
 
 
@@ -537,7 +459,7 @@ James Manning | How to Draw Koalas Step by Step (2020) [EPUB] [EN]
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11815.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10829.jpg" />
 </div>
 
 
@@ -591,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10779.jpg" />
 </div>
 
 
@@ -617,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10496.jpg" />
 </div>
 
 
@@ -646,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10216.jpg" />
 </div>
 
 
@@ -674,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8804.jpg" />
 </div>
 
 
@@ -686,6 +608,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47119CB58DE8B0B8BDA8B210A859D405EAEB260D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812140   (8098) от 13.08.2025
+
+Владимир Кантор | Россия как судьба (2023) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8098.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей новой книге Владимир Кантор, писатель, доктор философских наук, профессор Национального исследовательского университета «Высшая школа экономики», рассматривает одну из важнейших культурфилософских проблем преобладающего негативного отношения Запада к России, хотя русские писатели и поэты постоянно подчеркивали нашу европейскость, говорили о России как «второй (   Читать дальше...   )Жанр: монография, культурология, искусствоведениеИздательство: Центр гуманитарных инициативФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63DE54DF41DAA70D98F839DFFA4B4D356043D4D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

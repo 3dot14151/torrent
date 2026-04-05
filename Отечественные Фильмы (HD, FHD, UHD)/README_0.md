@@ -1,3 +1,29 @@
+###  Публикация: 1851290   (1055017) от 01.02.2026
+
+В августе 44-го (2001) BDRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 1944 года. Белоруссия уже освобождена, однако с её территории регулярно выходит в эфир группа лазутчиков, передавая врагам важную информацию о советских войсках. На поиски шпионов в район запеленгованной рации отправляется отряд во главе с офицером СМЕРШа.Производство: Россия, Беларусь / Министерство культуры Республики Беларусь, БеларусьфильмЖанр: военный, детектив, боевик, драма, историяРежиссер: Михаил ПташукАктеры: Евгений Миронов, Владислав Галкин, Юрий Колокольников, Беата Тышкевич, Алексей Петренко, Александр Феклистов, Рамаз Чхиквадзе, Александр Балуев, Ярослав Бойко, Анджей Печиньски и др.Субтитры: русскиеПродолжительность: 01:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDDBB4ECEDF777BB878C31F53B62A58DD619C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850224   (1054255) от 26.01.2026
 
 В августе 44-го (2001) BDRip [H.264/1080p]
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054255.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053466.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052989.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052934.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052442.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051981.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051977.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051920.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051048.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050695.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050312.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050296.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049997.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049961.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049955.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049931.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049921.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049540.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049539.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049424.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049267.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048769.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048656.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048635.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048632.jpg" />
 </div>
 
 
@@ -642,33 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4631525FD05969085BC65D80EAC3BCDF4223910A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841876   (1048282) от 13.12.2025
-
-Черная вуаль (1995) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048282.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам романа "Отравленная совесть" Александра Амфитеатрова.
-Петербургский меценат Андрей Рокшин богат, умен, обаятелен, смел - с ним связана не одна женская судьба. Однако Рокшина убивают у него дома. Следователь Синев находит голубой конверт и, таким образом, получает в руки улику, свидетельствующую об убийстве.Производство: Россия / Мосфильм, Ритм, РоскомкиноЖанр: мелодрама, криминалРежиссер: Александр ПрошкинАктеры: Ирина Метлицкая, Александр Абдулов, Татьяна Васильева, Сергей Маковецкий, Ирина Розанова, Наталья Петрова, Маргарита Шубина, Владимир Ильин, Петр Янданэ, Валерий ДоронинСубтитры: отсутствуютПродолжительность: 01:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0799B5855142038444C58F4E99F41B53FC80AE86
 ```
 
 https://mybot314.ru/tekegram_catalog/

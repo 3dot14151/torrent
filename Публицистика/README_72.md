@@ -1,3 +1,30 @@
+###  Публикация: 1269796   (217618) от 16.12.2018
+
+Александр Шуйский, Макс Фрай | Все о мире Ехо и немного больше. Чашка Фрая (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – проект искусствоведа, художника и писателя Александра Шуйского. Она представляет собой 33 интервью с Максом Фраем, сделанные на протяжении трех лет. Вопросы задавал не только автор, но и читатели книг Макса Фрая и блога Александра Шуйского; благодаря им, разговор вышел за рамки диалога.
+Формально каждая глава посвящена одной книге, фактически – всему (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777A706EED3966969D529AFFFE06890FBE24EF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514337   (217255) от 03.12.2021
 
 Георгий Бурков | Дневники, размышления, сюжеты (2020) [FB2, PDF, EPUB]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217255.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216659.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216054.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215623.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215209.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214984.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214869.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214690.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214674.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214659.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214620.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214609.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214589.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214574.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214566.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214518.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214506.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214497.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214457.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214422.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214288.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214240.jpg" />
 </div>
 
 
@@ -587,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214130.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214014.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213778.jpg" />
 </div>
 
 
@@ -651,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:493597797A55098ABB3AEA36D959C087458E7073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344081   (213734) от 09.12.2019
-
-Ю. Джулио | Фашистская Италия. Шесть лет диктатуры черных рубах (1929) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213734.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге вскрываются социальные корни итальянского фашизма, рассказывается о его пути к власти, об установлении диктатуры Муссолини и "чернорубашечников", рассказывается о внутриполитических и внешнеполитических мероприятиях фашистов, их реакционной и империалистической сути.Жанр: История, политология, экономика, социология, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBFC2A0C87FECF048BD9E33A246EE35A9452CD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

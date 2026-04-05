@@ -1,3 +1,58 @@
+###  Публикация: 1782107   (26099) от 01.03.2025
+
+В России сняли свой «Форсаж» —  фильм «Жига. На полной скорости»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм «Жига» расскажет о парне, который влетает в мир стритрейсинга на прогнившем дедовском Жигуле.Сюжет уже тянет на Оскар:
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782486   (26084) от 01.03.2025
+
+Очередное достижение: 1000 релизов от Darkhan_m_e!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 1000 релизов от Darkhan_m_e!!Уважаемые одноклубники, рада сообщить Вам о возможности поздравить нашего товарища и активного релизера hand made * video с первой круглой, а потому такой важной, цифрой -  1000 релизов!! Так держать!!
+От всей души поздравляем
+Darkhan_m_e(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782802   (25889) от 03.03.2025
 
 В ГД назвали проблему квадроберов более не актуальной
@@ -6,7 +61,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25889.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25798.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Hisense обвинили в продаже LED-телевизоров под в�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25708.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ TVGuide v4.5.20 Premium Mod by Alex.Strannik [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25695.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25692.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25588.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25570.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25501.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25482.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25378.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25282.jpg" />
 </div>
 
 
@@ -293,7 +348,7 @@ CorelDRAW Graphics Suite 2025 26.0.0.101 (x64) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25277.jpg" />
 </div>
 
 
@@ -319,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25261.jpg" />
 </div>
 
 
@@ -345,7 +400,7 @@ Google отключился от российских точек обмена т
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25178.jpg" />
 </div>
 
 
@@ -371,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25063.jpg" />
 </div>
 
 
@@ -397,7 +452,7 @@ The KMPlayer 4.2.3.14 repack by cuta (build 10) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24855.jpg" />
 </div>
 
 
@@ -423,7 +478,7 @@ Launcher for zapret 2.4 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24852.jpg" />
 </div>
 
 
@@ -451,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24848.jpg" />
 </div>
 
 
@@ -477,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24835.jpg" />
 </div>
 
 
@@ -503,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24752.jpg" />
 </div>
 
 
@@ -530,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24750.jpg" />
 </div>
 
 
@@ -556,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24548.jpg" />
 </div>
 
 
@@ -584,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24539.jpg" />
 </div>
 
 
@@ -610,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24519.jpg" />
 </div>
 
 
@@ -621,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773490   (24432) от 17.03.2025
-
-Пацаны (1983) DVDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя бы один взрослый, которого можно называть на «ты», должен быть в жизни каждого пацана… Актеры экстракласса — Валерий Приемыхов и тринадцатилетний Андрей Зыков — и ведущая тема фильмов Динары Асановой: непонимание, бесправие и одиночество подростка, против которого — весь мир взрослых.Производство: СССР, ЛенфильмЖанр: драма, криминалРежиссер: Динара Кулдашевна АсановаАктеры: Валерий Приемыхов, Андрей Зыков, Ольга Машная, Екатерина Васильева, Зиновий Гердт, Марина Левтова, Сергей Наумов, Евгений Никитин, Александр Харашкевич, Алексей Полуян, Александр Совков, Владимир Гусев, Виктор Михеев, Юлиан Груздев, Юрий Мороз, Ирина СоколоваЯзык озвучки: русскийСубтитры: ОтсутствуютКачество: DVDRipПродолжительность: 01:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F282A4A4B9E1CC233D4CF586215153ACF954C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770569   (24339) от 18.03.2025
-
-Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru You ni Natta Ken ni Tsuite / Бесполезный навык „Мастер Фруктов“ [2025, TV, 12] WEBRip 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой по имени Лайт мечтает стать великим искателем приключений. Вместе со своей подругой Леной они съедают «плоды навыков», которые наделяют человека особыми способностями, но убивают, если он попробует съесть больше одного. В результате Лена приобретает навык «Святая меча» и быстро становится искательницей приключений S-ранга. А Лайту достаётся бесполезный (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Кимура РюитиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4626EA797C9DAA48200A1B35981B673A71D0640
 ```
 
 https://mybot314.ru/tekegram_catalog/

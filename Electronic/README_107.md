@@ -1,3 +1,61 @@
+###  Публикация: 1002873   (845391) от 02.04.2016
+
+VA - Moodmusic WMC Survival Kit (2016) [MP3|320 кб/с] <Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henrik Schwarz – Forbidden (Club Mix)
+02. Affect! – Inventio
+03. Freestyle Man & George Spruce – Gotta Need (Matthias Tanzmann Remix)
+04. Maurice Aymard – Stripped(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 02:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A5777079CE434C98597F41701539C977C67069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003110   (845297) от 02.04.2016
+
+Ed Ed - Eclectic 01 (2016) [MP3|320 кб/с] <Tech House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Galemore - Johanna Is Leaving
+02. Curses - Time Is On My Side
+03. Giorgia Angiuli - Get Slow
+04. Kiki & Ed Ed - Day Of Drones(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 03:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01350B197632BE0139B605451538AE8A7E7687A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002860   (845294) от 02.04.2016
 
 Oliver Schories - Relatively Definitely (2016) [MP3|320 кб/с] <Tech House, Deep House, Techno>
@@ -6,7 +64,7 @@ Oliver Schories - Relatively Definitely (2016) [MP3|320 кб/с] <Tech House, De
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845294.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Chilling Sunset Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845228.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - 10 Years Stil Vor Talent (Presented By Oliver Koletzki) - 2016 [MP3|320 к�
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845201.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Tribal House of Istanbul (2017) [MP3|320 Kbps] <House, Tech House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845153.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Sasha - Scene Delete (2016) [MP3|320 кб/с] <Electronic, Ambient, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845112.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Beborn Beton - She Cried (2016) EP [FLAC|Lossless|tracks + .cue] <Synthpop, New 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845048.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Moby - Suara Remixes (2017) [MP3|320 Kbps] <Techno, Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844853.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ NKOHA - autumn (2015) EP [MP3|192 Kbps] <Electronic, Cloud, Beat>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844839.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Depeche Mode - Where's the Revolution (Remixes) (2017) Single [FLAC|Lossless|tra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844604.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Eisfabrik - 10 Releases (Discography) (2015-2020) [MP3|320 Kbps] <Synthpop, Futu
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844522.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Yello - Yello 40 Years (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Synth-Pop, Techno,
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844156.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Third Party - Release Radio (01-54) (2016-2021) [MP3|320 Kbps] <Electro House, P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843920.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - 5 Years With Macarize (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843571.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Summer Is Coming So Get Ready For Some Running (2017) [MP3|320 Kbps] <Progr
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843386.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ VA - Top 10 Putin Electro House (2017) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843302.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ VA - DJ Zen - Winter (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybien
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843287.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Mr.Kitty - A.I. (2017) [MP3|320 Kbps] <Synthpop, Electro>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843199.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Booka Shade - Galvany Street (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843138.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Mr.Kitty - A.I. (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843111.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Die Sektor - Death My Darling (2019) [FLAC|Lossless|tracks] <Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843045.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ VA - Radiology Online (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843039.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Vulta - Swarm (2020) [MP3|320 Kbps] <Synthwave, Cyberpunk, Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842986.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ VA - Keep Calm and Ultra Lounge 10 (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842970.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ The Freak Show - Lian (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842959.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ The Freak Show - Lian (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2205B3E974EA1196EADF31ED5BC6D394EC9B00D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193411   (842896) от 27.04.2020
-
-Ex_Tension - Discography 12 Releases (2004-2015) [FLAC|Lossless|tracks+.cue, tracks] <Rhythmic Noise, Tribal, Industrial, Experimental, IDM, Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zwischen Nacht Obduzieren (05:44)
- 02. Philippe F. - remix (04:31)
- 03. Noize Guerilla - remix (07:22)
- 04. Turn of the coil - remix (06:20)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Rhythmic Noise/Industrial/EBM/ElectroПродолжительность: 11:24:24 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E89B7F85ACF3504BBDAE768CAEB76F876D1A346
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378655   (842889) от 27.04.2020
-
-VA - Med School: Graduation (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bop - Magic.gif [04:34]
-02. S.P.Y - Black Flag (VIP) [06:03]
-03. Villem - Stereogram [05:44]
-04. Keeno - Lost For Words [05:21](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB9B4EEADC9BF46149589913FCCD64749839DA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

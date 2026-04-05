@@ -1,3 +1,61 @@
+###  Публикация: 1268656   (226513) от 11.12.2018
+
+VA - The Best Of Suanda Voice 2018 (Mixed By Dennis Graft) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Milov feat. Lucid Blue - End Of Days (Extended Mix)
+02. Lucid Blue - Nothing Like The Sun (Extended Mix)
+03. Michael Milov - Anywhere With You (Extended Mix)
+04. Ruslan Radriges - Over and Out (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93965510120586C9A1CBA2CA01DDCE131798095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342172   (225665) от 01.12.2019
+
+VA - Solarstone Presents Pure Trance 8 (Mixed By Solarstone & Activa) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super-Frog Saves Tokyo - Beautiful Surfaces (Solarstone Ambient Intro Version) (01:50)
+02. Stoby & Coulter ft Liz Cirelli - Sun is High (Solarstone Dubby Retouch) (04:22)
+03. New Ordinance ft Gozzi - Aho (Vocal Version Solarstone Retouch) (04:32)
+04. Allende - Essence (Solarstone Retouch) (04:26)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC25FBA52CA9A083F4B1CFD202061E88D9C1EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584274   (225636) от 18.10.2022
 
 VA - Gert Records 10 Years Anniversary - (Mixed by Danny Grunow) (2022) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Gert Records 10 Years Anniversary - (Mixed by Danny Grunow) (2022) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225636.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Gert Records 10 Years Anniversary - (Mixed by Dimassive) (2022) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225604.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Uplifting Only Fan Favorites 2018-2019 (Mixed By Ori Uplift) (2019) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225555.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Trance 2023 Vol. 7 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225547.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Total Trance Selections Vol.14 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225234.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Suanda Music Radio Top 20 (December ) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225198.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Anniversary Remixes: The Complete Full Length Collection (2023) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224785.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Best Of Vocal Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224641.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Infrasonic Summer Selection (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224155.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Trance 4 Friends - Best Of 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224146.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - 4 Strings - Vocal Trance Hits (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223576.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Gert Records 10 Years Anniversary - (Mixed by DJ OptimuS) (2022) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222824.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Anjunabeats The Yearbook (2019) [MP3|320 Kbps] <Trance, Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222744.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Gert Records 10 Years Anniversary - (Mixed by DJ Mena) (2022) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222721.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Alexei Maslov - Best (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222703.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Fitbeats 2019 (Music For Aerobics, Fitness And Workouts) [MP3|320 Kbps] <Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222670.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Underground Trance Essentials Vol. 13 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221480.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Press Play Vol. 3 (Mixed By Susana) (2015) [MP3|320 кб/с] <Trance, Vocal
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220943.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Alter Ego Records: Best Of (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220187.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Trance The Annual 2020 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220112.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Trance Universe Vol.01 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220082.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Best of Progressive Vocal Trance (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219486.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Suanda Music Radio Top 20 (December) (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218638.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Summer Uplifting Trance (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218215.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Summer Uplifting Trance (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72B48961D8790B3DFCA505EB9617BD1F48FA0EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586088   (218208) от 25.10.2022
-
-VA - Uplifting Only Top 15: October (Extended Mixes) (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeïtam Oshéen & Rolfiek - Aeonian (Intro Dark Mix)
-02. SounEmot - Y El Solamente Quería Amar A Alguien (Emotional Mix)
-03. New World - Ikigai (Club Edit)
-04. Gayax & Lyd14 - Ghosted (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FB959FEE481AA811B0126E9D693B67F6F67D95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652472   (217764) от 11.08.2023
-
-VA - Black Hole Trance Music 08-23 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. XiJaro & Pitch & Ava Silver - Heart (Extended Mix) [7:35]
-02. Craig Connelly & HALIENE - Other Side Of The World (Extended Mix) [7:43]
-03. Richard Durand - Solar Express (Extended Mix) [5:33]
-04. BT - Godspeed (Maria Healy Extended Remix) [7:42](   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E775ED397F36CF8989972228B1374220BE0B12A
 ```
 
 https://mybot314.ru/tekegram_catalog/

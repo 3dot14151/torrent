@@ -1,3 +1,58 @@
+###  Публикация: 564556   (402654) от 23.10.2012
+
+Of Orcs And Men [Ru/En] (Repack/1.0.0.2) 2012 | Fenixx
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возглавьте восстание орков и гоблинов!
+ Огромная империя людей ведет войну с зеленокожими народами, желая захватить территории, принадлежащие оркам и гоблинам. Люди порабощают и истребляют зеленокожих.
+ В этой грандиозной ролевой игре ваши герои – могучий боец из элитного отряда орков и ловкий лазутчик-гоблин должны выполнить важное и крайне опасное задание – убить императора! Сражайтесь не на жизнь, а на смерть, чтобы выполнить свою великую миссию. Повышайте уровень, обучайтесь, развивайте навыки – и освободите свой народ от владычества империи людей!(   Читать дальше...   )Тип издания: Repack (Лицензии)Жанр: RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:761B347EFB54DF255E5240BDBE1FD0C34E9611D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564235   (402582) от 23.10.2012
+
+Might & Magic: Heroes VI. Gold Edition / Герои Меча и Магии 6. Золотое издание [Ru/En/Multi11] (RePack/1.8.0) 2011 | R.G. Catalyst
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история начинается в 564-м году эпохи Седьмого Дракона.
+ В смутное время второго затмения Кровавой Луны и восстания императора Демонов – Кха-Белеха. Легендарный предводитель Архангелов, убитый во время войны старших рас, теперь воскрешен. Он вынашивает планы по грядущему вторжению Демонов и замышляет восстановить свои силы, убить старых заклятых врагов и захватить контроль над миром Асхан. Однако, он недооценивает силу Династии Грифона. Меч и Магия: Герои VI рассказывают историю Династии Грифонов в то время, когда они еще были герцогами Святой Империи и не восседали на Имперском Троне. В пяти кампаниях раскроется история детей Славы, герцога Грифонов. Пять героев Святой Империи поведут свои войска в бой.. но чем кончится эта история? Вскоре наши герои поймут, что в этой Империи далеко не все гладко. Так начинается эпос о романтике и любви, предательстве и тайнах, убийствах и спасении жизней. Все пять кампаний связаны друг с другом единым сюжетом, но вы можете начать играть за любую из сторон. Но перед этим вам предстоит познакомиться с герцогом Грифонов, отцом будущих пятерых героев.(   Читать дальше...   )Тип издания: RePackРазработчик: Black Hole EntertainmentЖанр: Strategy (Turn-based) / 3DЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / Английский / Multi11Язык интерфейса: Русский / Английский / Multi11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222B196CF345807211657C8A8520C9AF441B84E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169561   (402151) от 28.09.2017
 
 Stonekeep (1995) [Multi] (1.2) License GOG
@@ -6,7 +61,7 @@ Stonekeep (1995) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402151.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Of Orcs and Men [Ru/En] (RePack/1.0.0.2) 2012 | Audioslave
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401828.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ Risen 2. Dark Waters / Risen 2. Тёмные воды [Ru/En/Gr] (RePack/1.0.121
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401677.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ Risen 2: Dark Waters [Ru/En] (RePack/1.1.0.0/3 DLC) 2012 | R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400652.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ Spirit of Excalibur [En] (RePack) 1990 | RG Games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398038.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ Dark Heart of Uukrul [En] (RePack) 1989 | RG games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397858.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (22997) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396395.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ Darkspyre [En] (RePack) 1990 | RG Games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395900.jpg" />
 </div>
 
 
@@ -221,7 +276,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (22997) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395459.jpg" />
 </div>
 
 
@@ -247,7 +302,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391640.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/Multi] (3.0.146.
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389519.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ The Harvest (2013) [Multi] (1.0) Unofficial ALiAS
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387516.jpg" />
 </div>
 
 
@@ -328,7 +383,7 @@ Of Orcs and Men [Ru/En] (RePack/1.0) 2012 | R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386771.jpg" />
 </div>
 
 
@@ -358,7 +413,7 @@ Hero Defense - Haunted Island (2016) [Ru/Multi] (1.4.0/dlc) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386104.jpg" />
 </div>
 
 
@@ -384,7 +439,7 @@ Mass Effect (2008) [Ru] (1.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385052.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ Beltion: Beyond Ritual / Бельтион: Свод Равновесия (2009) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384892.jpg" />
 </div>
 
 
@@ -436,7 +491,7 @@ Dawn of Magic 2 / Магия крови: Время Теней [Ru/En] (Repack) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384380.jpg" />
 </div>
 
 
@@ -464,7 +519,7 @@ Chroma Squad (2015) [En/Pt] (1.12b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382831.jpg" />
 </div>
 
 
@@ -490,7 +545,7 @@ Swag and Sorcery (2019) [Ru/Multi] (1.52) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380306.jpg" />
 </div>
 
 
@@ -516,7 +571,7 @@ Dungeon of the Endless (2014) [Ru/Multi] (1.1.5/4dlc) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377608.jpg" />
 </div>
 
 
@@ -542,7 +597,7 @@ Darkstone (1999) [En/Ge/Fr] (1.0.5b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376909.jpg" />
 </div>
 
 
@@ -568,7 +623,7 @@ Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/Multi] (3.6.30.9
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376759.jpg" />
 </div>
 
 
@@ -594,7 +649,7 @@ South Park: Stick of Truth (2014) [Ru] (1.0.138083) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375711.jpg" />
 </div>
 
 
@@ -620,7 +675,7 @@ The Dwarf Run (2015) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374125.jpg" />
 </div>
 
 
@@ -631,58 +686,6 @@ The Dwarf Run - старомодный RPG с элементами point-n-click
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB80BBB449C129FFD37A991D8B6E93F324587C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949753   (374123) от 24.10.2015
-
-Legends of Dawn Reborn (2015) [Ru/Multi] (2.01s) Repack R.G. Catalyst
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legends of Dawn Reborn приглашает игроков в жестокий северный край Narr. Залогом выживания в этих местах служат ваши: магия, ум и меч. Мир Narr простирается через континенты и живописные пейзажи ошеломляют и будоражат воображение. Бесчисленное количество подземелий и незабываемых мест ждут, когда вы их исследуете.Тип издания: RepackРазработчик: DreamatrixЖанр: RPG (Rogue/Action) / 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ВенгерскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Венгерский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BB9113152084130EA7EC2EF7D0908EEA04D8C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574562   (372348) от 13.11.2012
-
-The Last Remnant [Ru/En/Multi7] (RePack) 2009 | R.G. Механики
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372348.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Last Remnant — ролевая игра, в которой вас ждет принципиально новая боевая система, благодаря которой вы сможете принять участие в крупномасштабных сражениях. Предыстория событий такова: тысячу лет назад люди вошли в контакт с Remnants — магическими представители давно ушедшей эры, которые постоянно поддерживали баланс в мире. Вскоре после того, как наметился разлом между правителями и подчиненными этого мира, Remnants прекратили выполнять свою задачу. На тех землях, где раньше царил мир, потекли кровавые реки. Спустя тысячу лет после этого и начинается ваше приключение…(   Читать дальше...   )Тип издания: RePackЖанр: RPG (Japanese-style) / 3D / 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык интерфейса: Русский, Английский, Итальянский, Французский, Испанский, немецкий, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B989176BD1E6AEDD6FC372919A28B71B8D508AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

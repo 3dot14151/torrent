@@ -1,3 +1,162 @@
+###  Публикация: 1392650   (769016) от 27.06.2020
+
+NASA запускает конкурс Lunar Loo Challenge
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_769016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космическое агентство NASA готовится к миссии по отправке астронавтов на Луну. Для выполнения этой миссии предстоит решить множество организационных вопросов и технологических задач. И одной из таких задач является обеспечение астронавтов удобной возможностью справлять биологические потребности. И, чтобы создать лучший туалет на Луне, NASA обратилось к общественности (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392095   (769005) от 27.06.2020
+
+Apple попрощалась с процессорами Intel и превратила iPhone в Android
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_769005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apple переведет все ноутбуки и настольные ПК на процессоры собственной разработки с архитектурой ARM и откажется от использования в них чипов Intel. Переход займет два года, чтобы у разработчиков было время адаптировать свое ПО под новую аппаратную платформу. Также Apple переработала iOS, заимствовав у Android популярные функции, включая поддержку виджетов на главном (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391964   (769003) от 27.06.2020
+
+Борис Гребенщиков - Знак Огня (2020) [MP3|320 Kbps] <Rock>
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769003.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ɑ
+2. Вон Вавилон
+3. Баста Раста
+4. Моё Имя Пыль(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE899FAE9FCA9B2BBC22F1B7D37759E562DA66EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390798   (769002) от 27.06.2020
+
+Adobe Photoshop 2020 v21.2.0.225 (x64) RePack by SanLex (2020-06-17) [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop — лучшее в мире ПО для графического дизайна и обработки изображений, которое воплотит в реальность любые ваши идеи. Создавайте и улучшайте фотографии, иллюстрации и графические 3D-объекты. Разрабатывайте дизайн веб-сайтов и мобильных приложений. Редактируйте видео, моделируйте живые картины и т. д. Теперь у вас есть все необходимое для реализации (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E12C8B472F36AFF1D3C23F5E9818A8D22834E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105958   (769000) от 27.06.2020
+
+theHunter: Call of the Wild (2017) [Ru/Multi] (1859364/upd57/dlc) Repack Other s [2019 Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769000.jpg" />
+</div>
+
+
+###  Подробнее
+
+theHunter: Call of the Wild – наиболее реалистичный на сегодняшний день симулятор охоты. Окунитесь в яркий мир дикой природы и познакомьтесь с его многочисленными обитателями: от изящных оленей до внушительных зубров, от бесчисленных птичьих стай до мелких лесных букашек. Перед вами 13 тыс. гектаров игрового пространства, каждый сантиметр которого создан с помощью (   Читать дальше...   )Тип издания: RepackРазработчик: Expansive WorldsЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CA94B5AD04E13D4BF98B950759BC52CAC8AC3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392756   (768857) от 28.06.2020
+
+Адмиралтейские верфи спустили на воду первый серийный траулер проекта СТ-192 для РРПК (Приморье, Владивосток)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_768857.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Адмиралтейские верфи» (входят в Объединенную судостроительную корпорацию, Санкт-Петербург) 23 июня 2020 года спустили на воду первый серийный траулер проекта СТ-192 «Механик Маслак» для Русской Рыбопромышленной Компании (РРПК), передает корреспондент ИАА «ПортНьюс».Для компании строится 11 современных траулеров проекта СТ-192. 10 из них будет построено на Адмиралтейских (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392699   (768827) от 28.06.2020
 
 Программисты больше не нужны. Запущен бесплатный сервис создания ПО теми, кто не умеет программировать
@@ -6,7 +165,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_768827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_768827.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768821.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768820.jpg" />
 </div>
 
 
@@ -86,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_768720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_768720.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ Adobe Photoshop CC 2018 (19.1.2)  RePack by D!akov  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768708.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ Gears of War 4 (2016) [Ru/Multi] (12.0.0.2) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768703.jpg" />
 </div>
 
 
@@ -164,7 +323,7 @@ Windows 7 SP1 (x86/x64) 13in1 +/- Office 2016 by SmokieBlahBlah 14.03.18 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768701.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768699.jpg" />
 </div>
 
 
@@ -216,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768565.jpg" />
 </div>
 
 
@@ -242,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768561.jpg" />
 </div>
 
 
@@ -268,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768560.jpg" />
 </div>
 
 
@@ -294,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_768381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_768381.jpg" />
 </div>
 
 
@@ -321,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768378.jpg" />
 </div>
 
 
@@ -348,7 +507,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4498.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768376.jpg" />
 </div>
 
 
@@ -374,7 +533,7 @@ Apple Final Cut Pro X 10.3.3, Motion 5.3.2 & Compressor 4.3.2 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768375.jpg" />
 </div>
 
 
@@ -403,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_768259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_768259.jpg" />
 </div>
 
 
@@ -430,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_768245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_768245.jpg" />
 </div>
 
 
@@ -456,7 +615,7 @@ Linux Mint 20.0 Ulyana (XFCE, Mate, Cinnamon) [64bit] 3xDVD
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768234.jpg" />
 </div>
 
 
@@ -482,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_768222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_768222.jpg" />
 </div>
 
 
@@ -508,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768208.jpg" />
 </div>
 
 
@@ -519,164 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB95D460A2CF14B9424EAB24BE59754F73C4EC71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278475   (768206) от 26.01.2019
-
-Репродукция / Replicas (2018) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливый учёный-биолог теряет в автокатастрофе свою семью. Одержимый желанием вернуть к жизни жену и детей, он преступает законы научной этики и самой природы.Производство: США, Company Films, Di Bonaventura Pictures, Riverstone PicturesЖанр: Фантастика, ТриллерРежиссер: Джеффри НачманоффАктеры: Киану Ривз, Элис Ив, Эмили Элин Линд, Эмджей Энтони, Джон Ортис, Томас Миддлдитч, Эмбер Таунсенд, Няша Хатенди, Ария Лайрик Либу, Эмбер Ривера ...Перевод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36FAB6F095092795EDB43914862F840E312129C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277384   (768205) от 26.01.2019
-
-Бамблби / Bumblebee (2018) WEBRip [H.264/1080p-LQ] [MVO, AD]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768205.jpg" />
-</div>
-
-
-###  Подробнее
-
-1987 год. Скрываясь от преследования, Бамблби находит убежище на автомобильной свалке в калифорнийском городке, где живет Чарли. Девушке скоро исполнится 18, она стремится найти свое место в жизни. И именно она наталкивается на покореженного и сломленного Бамблби. Приведя его в чувство, Чарли моментально осознает: на ее пути оказался не простой желтый Фольксваген (   Читать дальше...   )Производство: США, Allspark Pictures, Bay Films, Di Bonaventura Pictures, Hasbro Inc., Paramount Pictures, Tencent Pictures, Tom DeSanto/Don Murphy ProductionЖанр: Фантастика, боевик, приключенияРежиссер: Трэвис НайтАктеры: Дилан О'Брайен, Хейли Стайнфелд, Хорхе Лендеборг мл., Джон Сина, Джейсон Йен Дракер, Памела Адлон, Стивен Шнайдер, Рикардо Хойос, Джон Ортис, Глинн ТёрменПеревод: Многоголосый закадровый (MUZOBOZ)Субтитры: Корейские (вшитые, неотключаемые)Продолжительность: 01:53:36Реклама: Присутствуют текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36529D59CE949FF5E5EC51F97E0933A4C6E337DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278430   (768204) от 26.01.2019
-
-Богемская рапсодия / Bohemian Rhapsody (2018) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чествование группы Queen, их музыки и их выдающегося вокалиста Фредди Меркьюри, который бросил вызов стереотипам и победил условности, чтобы стать одним из самых любимых артистов на планете. Фильм прослеживает головокружительный путь группы к успеху благодаря их культовым песням и революционному звуку, практически распад коллектива, поскольку образ жизни Меркьюри (   Читать дальше...   )Производство: Великобритания, США / GK Films, New Regency Pictures, Queen Films Ltd.Жанр: Драма, биография, музыкаРежиссер: Брайан СингерАктеры: Рами Малек, Люси Бойнтон, Гвилим Ли, Бен Харди, Джозеф Маццелло, Майк Майерс, Эйден Гиллен, Том Холландер, Аллен Лич, Аарон МакКаскерПеревод: Дублированный (iTunes)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские, украинские, английскиеПродолжительность: 02:15:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6796DE5431798C2C0D661FD8D5C025E9C7FB4A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213200   (768027) от 17.03.2018
-
-«Яндекс» встроил голосовой помощник «Алиса» в браузер
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_768027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голосовой помощник «Алиса», разработанный поисковиком «Яндекс», ранее доступный только в мобильном приложении, теперь встроили в «Яндекс.Браузер». Об этом сообщается в официальном блоге компании.«Наш голосовой помощник расширил ареал обитания. С сегодняшнего дня «Алиса» доступна не только на смартфонах, но и в «Яндекс. Браузере» для Windows», — говорится в сообщении.Пользователи (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213052   (767971) от 17.03.2018
-
-Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 14.03.18 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767971.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 редакций Windows 8.1 (русские и английские) с обновлениями по март 2018 и интегрированными системными библиотеками + 10 таких же редакций со встроенным Office 2016 Pro Plus VL x86 (можно выбрать, ставить ли Office. Галочка перед началом установки, см. 1-й скриншот). Язык офиса зависит от выбранного языка ОС.
-
-Ничего не вырезано и не изменено, кроме: см. спойлер (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3246587635E388F9337A5E9B4EDD516C51FB5D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212927   (767966) от 17.03.2018
-
-Windows 10 в апреле ждет масштабное обновление
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_767966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное "большое" обновление Windows 10, в последнее время случающееся примерно каждые полгода, запланировано на апрель. Об этом сообщает The Verge со ссылкой на публикацию в блоге Microsoft.Компания пока не опубликовала название обновления, следующего за вышедшим прошлой осенью Fall Creators Update. Однако, по информации издания, ничего нового в Редмонде (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1110700   (852081) от 03.03.2017
+
+VA - Fitness Tech Beats (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Rubell – Oiso 06:58
+02. Zapotec – Barometric 06:38
+03. Retrosynco – Blurred 06:53
+04. Sphinkter – Mydriasis 06:54(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5AC150EF629EA44B3E5B6EE5707ADF689BE042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110815   (852080) от 03.03.2017
+
+VA - Armada Miami (The House Edition) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kryder feat. Roland Clark & John Julius Knight - [03:21]
+02. Jan Blomqvist - Dark Noise (ME & her Remix) [04:14]
+03. Erick Morillo - The Edge [03:08]
+04. Thomas Gold feat. Jillian Edwards - Magic (Alex P [03:14](   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659081FF950ACA53544745E2B5CB0A611A2EECFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110403   (852034) от 03.03.2017
 
 VA - Selected Edm Compilation 17 (2017) [MP3|320 Kbps] <Club House, Electro House>
@@ -6,7 +64,7 @@ VA - Selected Edm Compilation 17 (2017) [MP3|320 Kbps] <Club House, Electro Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852034.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Sex On The Beach Summer 2020 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850002.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Ibiza Electronic House Mecca Music Del Mar Club Deluxe (2017) [MP3|320 Kbps
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848844.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Summer Bodies Are Made In Winter: Techno Edition (2017) [MP3|320 Kbps] <Min
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848843.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Getting Ready For Some Nightclub Action: Club & Dance Music Collection (201
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848765.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Workout & Fitness House (2020) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848420.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - The Ultimate Gym And Fitness Beats (2020) [MP3|320 Kbps] <Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848342.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - The Remixes, Vol.27 (2021) [MP3|320 Kbps] < House, Progressive House, Minim
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846184.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Ioann Darkovski - Ivory Tower (2016) [MP3|320 Kbps|image + .cue|tracks + .cue] <
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846043.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Sunshine Live Vol.56 (2016) [MP3|257-279 кб/с] <House, Progressive, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845398.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Sunshine Live Vol.57 (2016) [MP3|320 кб/с] <House, Progressive, Electro 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845395.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Moodmusic WMC Survival Kit (2016) [MP3|320 кб/с] <Tech House, Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845391.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Ed Ed - Eclectic 01 (2016) [MP3|320 кб/с] <Tech House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845297.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Oliver Schories - Relatively Definitely (2016) [MP3|320 кб/с] <Tech House, De
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845294.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - 10 Years Stil Vor Talent (Presented By Oliver Koletzki) - 2016 [MP3|320 к�
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845201.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - The Tribal House of Istanbul (2017) [MP3|320 Kbps] <House, Tech House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845153.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Moby - Suara Remixes (2017) [MP3|320 Kbps] <Techno, Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844853.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - 5 Years With Macarize (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843571.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Summer Is Coming So Get Ready For Some Running (2017) [MP3|320 Kbps] <Progr
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843386.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ VA - Top 10 Putin Electro House (2017) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843302.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ VA - Hoch Die Hande Wochenende Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841727.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ ATB - Best Hits & Remixes (2000) [MP3|320 Kbps] <House, Progressive House,Trance
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841237.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ VA - NOW Dance Classics (2020) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840971.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ VA - Extreme Sports Music Vol 2 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839450.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ VA - Extreme Sports Music Vol 2 (2020) [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D03A7EFBD0F684FA3082641EBD74D0EC3C45B524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379589   (839440) от 29.04.2020
-
-VA - Extreme Sports Music Vol 3 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Cypress - Play It Loud (A2C Remix Edit)
-02. Jetty Rachers - Shockwave (Radio Edit)
-03. Santino Kluge - Fly (Club Edit)
-04. John Bounce - Bass Catcher (Radio Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9BF7B4AB0D5313AF96503BD074F6B8AA3115CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379574   (839333) от 29.04.2020
-
-VA - Extreme Sports Music Vol 1 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind Date - Selekta (Original Mix)
-02. Crew 7 - WTF (Club Edit)
-03. Lao'n And Fallon - Bermuda (Original Mix)
-04. Bad Booty Brothers ft Piure - Different (Gorden And Doyle Remix Edit)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26D484FF73648651D515C40366C302DA942EE00
 ```
 
 https://mybot314.ru/tekegram_catalog/

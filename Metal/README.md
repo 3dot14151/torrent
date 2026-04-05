@@ -1,26 +1,27 @@
 https://t.me/izofen
-###  Публикация: 1858901   (1060665) от 13.03.2026
+###  Публикация: 1863102   (1063675) от 
 
-Unheilig - Liebe Glaube Monster (2026) [MP3|320 Kbps] <Industrial Gothic Metal, Darkwave>
+Nervosa - Slave Machine (2026) [MP3|320 Kbps] <Thrash, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Revolution (Intro)
-2. Liebe Glaube Monster
-3. Wunderschön
-4. Monster(   Читать дальше...   )Жанр: Industrial Gothic Metal, DarkwaveПродолжительность: 01:04:18
+Интернациональная женская трэш-дэтовая группа NERVOSA выпустит новый альбом "Slave Machine" 3 апреля на лейбле Napalm. На своем шестом полноформатнике девушки, как гласит пресс-релиз, “спускают с цепи своих внутренних зверей на ошеломляющей скорости и с внушительной эмфазой”.
+На счету NERVOSA выступления на крупнейших фестивалях по всему миру, от “Wacken (   Читать дальше...   )01. Impending Doom
+02. Slave Machine
+03. Ghost Notes
+04. Beast Of Burden(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:43:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16ACC04733DAD3145F86688370A7705CE1A5ECAD
+magnet:?xt=urn:btih:7EADEA7CABE424035724BFC20DB53E8C4BDFCB8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -36,7 +37,7 @@ Zed Yago - At The Edge Of The World (2026) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058815.jpg" />
 </div>
 
 
@@ -65,7 +66,7 @@ Rob Zombie - The Great Satan (2026) [MP3|320 Kbps] <Industrial metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058761.jpg" />
 </div>
 
 
@@ -94,7 +95,7 @@ Gladenfold - Soulbound (2026) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058659.jpg" />
 </div>
 
 
@@ -123,7 +124,7 @@ Clawfinger - Before We All Die (2026) [MP3|320 Kbps] <Alternative Metal, Funk Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058048.jpg" />
 </div>
 
 
@@ -152,7 +153,7 @@ Element - Dreamer (2026) [MP3|320 Kbps] <Progressive Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057457.jpg" />
 </div>
 
 
@@ -181,7 +182,7 @@ Primaluce - Way Of Perfection (2026) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056521.jpg" />
 </div>
 
 
@@ -210,7 +211,7 @@ Powerwolf - Wildlive (2026) Live at Olympiahalle [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056470.jpg" />
 </div>
 
 
@@ -239,7 +240,7 @@ Kreator - Krushers Of The World (2026) 2 x CD [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055284.jpg" />
 </div>
 
 
@@ -268,7 +269,7 @@ Therion - Con Orquesta (2026) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054832.jpg" />
 </div>
 
 
@@ -297,7 +298,7 @@ Every King Has A Clown - Every King Has A Clown (2026) [MP3|320 Kbps] <Melodic H
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054661.jpg" />
 </div>
 
 
@@ -326,7 +327,7 @@ Sunrise - Absolute Clarity (X Anniversary Edition) (2026) [MP3|320 Kbps] <Melodi
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052847.jpg" />
 </div>
 
 
@@ -355,7 +356,7 @@ Blitz Union - Evolution (2026) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052844.jpg" />
 </div>
 
 
@@ -384,7 +385,7 @@ Megadeth - Megadeth (2026) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052514.jpg" />
 </div>
 
 
@@ -413,7 +414,7 @@ Beyond The Black - Break The Silence (ltd. Digipak + Bonustracks) (2026) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052513.jpg" />
 </div>
 
 
@@ -442,7 +443,7 @@ Drowned in Silver - Mothers (2025) [MP3|320 Kbps] <Black Doom Gothic Metal, Grin
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052494.jpg" />
 </div>
 
 
@@ -471,7 +472,7 @@ Kiljin - Far Too Gone (2026) [MP3|320 Kbps] <heavy metal old-school>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052487.jpg" />
 </div>
 
 
@@ -500,7 +501,7 @@ Soen - Reliance (2026) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052395.jpg" />
 </div>
 
 
@@ -529,7 +530,7 @@ Kreator - Krushers of the World (2026) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052392.jpg" />
 </div>
 
 
@@ -558,7 +559,7 @@ Souls of Sorrow - King in the Past (2025) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049945.jpg" />
 </div>
 
 
@@ -587,7 +588,7 @@ Befell - To Mourn The Living (2025) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049944.jpg" />
 </div>
 
 
@@ -616,7 +617,7 @@ Lord Of The Lost - Blood & Glitter (2022) Deluxe Version, 2023, Napalm Records H
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048961.jpg" />
 </div>
 
 
@@ -645,7 +646,7 @@ Myntra - Subnivium (2025) [MP3|320 Kbps] <Metalcore, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048115.jpg" />
 </div>
 
 
@@ -674,7 +675,7 @@ Stormsorrow - The Blood Red Horizon (2025) [MP3|320 Kbps] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048022.jpg" />
 </div>
 
 
@@ -703,7 +704,7 @@ Sakis Tolis - Everything Comes To An End (2025) [MP3|320 Kbps] <Gothic Metal, Da
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048017.jpg" />
 </div>
 
 
@@ -732,7 +733,7 @@ Tesseract - Radar (2025) Live [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047096.jpg" />
 </div>
 
 

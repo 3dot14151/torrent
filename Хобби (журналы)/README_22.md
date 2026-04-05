@@ -1,3 +1,29 @@
+###  Публикация: 1139130   (661303) от 01.06.2017
+
+Журнал | Вяжем сами №11 (май 2017) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию спицами и крючком для всей семьи. Отличный журнал для тех, кто хочет выглядеть стильно и оригинально. В номере представлены 14 моделей для разных сезонов, нарядных и повседневных, головные уборы и аксессуары. Подробные описания и схемы вязания помогут в работе.Жанр: Вязание, хоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887E073B32335564CEAD238BC134E80BA1758C32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139129   (660914) от 01.06.2017
 
 Журнал | WOOD-Мастер №3 (57) (май-июнь 2017) [PDF]
@@ -6,7 +32,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660914.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660177.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659146.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659107.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657870.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657211.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657202.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656662.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655122.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654934.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651723.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651654.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650599.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650598.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650520.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650505.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650504.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650496.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650436.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649567.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648751.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648451.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647522.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647510.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646819.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7CAA89566D289E59D231D809AFB9D0F6C76F266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292475   (646816) от 29.03.2019
-
-Журнал | Лена. Креатив №1 (2019) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изысканные салфетки, связанные крючком, изумительные вышивки крестом и гладью, мастер-класс по обратному декупажу, украшения в технике квиллинг и многое другое... Всё для вас!Жанр: вязаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B7C9697DD28B7FD18698FD58D23114523DA0FFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

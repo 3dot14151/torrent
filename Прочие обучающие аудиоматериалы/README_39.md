@@ -1,3 +1,83 @@
+###  Публикация: 1738155   (49295) от 21.07.2024
+
+Рене Декарт, Бенедикт Спиноза | Я мыслю. Интеллект - это страсть (2021) [MP3, Илья Суровый]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рене Декарт и Бенедикт Спиноза – два величайших мыслителя Нового времени; про них говорили, что они освободили философию от оков средневековья и поставили вопросы, которые навсегда останутся главными. Декарт напрямую связывал существование человека со способностью к мышлению («я мыслю, следовательно, существую»), он же утверждал, что «интеллект – это страсть».
+
+Границы (   Читать дальше...   )Жанр: зарубежная образовательная литература, философские концепцииПеревод: В. И. Пиков, В. И. Модестов, Н. А. Иванцов, Михаил Гарнцев, Г. Полинковский, Варвара Половцева, Яков БоровскойИздательство: РодинаПродолжительность: 07:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D6E2330C46C4DCF5C86349057DFE53EA97874B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617590   (48932) от 25.07.2024
+
+Иосиф Виссарионович Сталин | Собрание сочинений (Тома 1-7 из 18) (2012) [MP3, Андрей Бунин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее собрание Сочинений И.В. Сталина издается по постановлению Центрального Комитета вкп(Б) - Всесоюзной коммунистической партии (большевиков).Жанр: История, Философия, Общественные наукиИздательство: Аудиокниги своими руками // Проект "Аудиокниги товарища Сталина"Продолжительность: 77:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C213C96B18B8A2E18E00F2E26E5B635AA010421F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739267   (48665) от 27.07.2024
+
+Кейт Листер | Удивительная история секса (2022) [MP3, Любовь Конева]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48665.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Удивительная история секса» – любопытная и порой шокирующая книга о том, что мы делаем с собой и друг с другом в поиске (или отрицании) всемогущего оргазма. Доктор Кейт Листер без стеснения копается в штанах истории и знакомит читателей с фактами, которые замалчивали на протяжении столетий.Жанр: Научно-популярная литератураИздательство: CorpusПродолжительность: 09:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFF5F5E74D6318D2785610CD784B6172514F023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739156   (48546) от 28.07.2024
 
 Иосиф Виссарионович Сталин | Собрание сочинений (Том 8 из 18) (2017) [MP3, Андрей Бунин]
@@ -6,7 +86,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48546.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48164.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48153.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47638.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47546.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47429.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47215.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47129.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47021.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46920.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46802.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46603.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46494.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46396.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46089.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45984.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45787.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44490.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44076.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43562.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43378.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43267.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43161.jpg" />
 </div>
 
 
@@ -600,84 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42932B1FD810244FB235CCA0CE222E0D2AEB5CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750472   (42930) от 20.09.2024
-
-Петер Вольлебен | Тайная жизнь деревьев (2023) [MP3, Олег Булгак]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знали ли вы, что деревья умеют дружить, обниматься и общаться между собой? Что они предупреждают друг друга о нападениях, засухах и прочих опасностях. Что мир леса – это социальная сеть, невероятно похожая на человеческие семьи. В книге «Тайная жизнь деревьев» Петер Вольлебен обращается к исследованиям ученых со всего мира, а также к своему многолетнему опыту лесника, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: ВИМБОПродолжительность: 06:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420EA189801E164F8F8F3D9958B34229003B69CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751274   (42537) от 24.09.2024
-
-Майк Викинг | Hygge (Хюгге). Секрет датского счастья (2019) [MP3, Иван Калинин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42537.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Рейтинге стран мира по уровню счастья ООН датчане регулярно занимают первое место. Но как им удается радоваться жизни, когда за окном скверная погода, день так короток, что его и не заметишь, а на работе нескончаемый аврал? Для этого у датчан имеется собственная жизненная философия, которая укладывается в несколько немудреных правил, позволяющих создать атмосферу (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 03:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13AB139AE2BCACE7390658F367CBED68166C037B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751350   (42534) от 24.09.2024
-
-Никита Киров | Волков (Книга 8). Волк. Лихие 90-е (2024) [MP3, Илья Кочетков]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42534.jpg" />
-</div>
-
-
-###  Подробнее
-
-После несчастного случая я снова оказался в 1997 году, в то лето, когда потерял родных и друзей. Но в этот раз у меня есть шанс исправить всё. Цены считают в миллионах, деньги есть только у коммерсантов и бандитов, а народ с опаской ждёт, чем ещё удивят лихие 90-е. Ну а я отберу у этой эпохи всё, что она у меня забрала. Отберу с процентами, которые она должна.Жанр: Боевики, Криминальные боевикиИздательство: ЛитРес: чтецПродолжительность: 09:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20DAF86087A42CE4020AAF499B4E7F4C7831B8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

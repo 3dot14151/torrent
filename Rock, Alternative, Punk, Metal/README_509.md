@@ -1,3 +1,148 @@
+###  Публикация: 1303110   (573097) от 21.05.2019
+
+Root Cellar Xtract - Lonesome Miles (2019) [FLAC|Lossless|tracks + .cue] <Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South Dakota Sky (04:51)
+02. Mystery Lady (05:07)
+03. Everytime (05:15)
+04. Kentucky Heartbreak (03:17)(   Читать дальше...   )Жанр: Country RockПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EB05560691893D46F53119BAEAF352F33DD458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303117   (573033) от 21.05.2019
+
+The Dream Syndicate - These Times (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way In (02:41)
+02. Put Some Miles On (04:00)
+03. Black Light (04:40)
+04. Bullet Holes (04:02)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D99C599E5059BEF1CD32461DD803FAE3D2D587D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151546   (573026) от 19.07.2017
+
+Asylum - Psalms of Paralysis (2017) [FLAC|Lossless|tracks + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573026.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Apprehensia 02:06
+2. Spectral Incantation 05:20
+3. Psalms of Paralysis 04:35
+4. Obsidian Spine 04:04(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCD7DCDA3FADF052B78D62D2E91B592AF28FC28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043290   (572989) от 16.08.2016
+
+Royal Southern Brotherhood - The Royal Gospel (2016) [FLAC|Lossless|image + .cue] <Blues-Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where There’s Smoke There’s Fire (4:39)
+02. I’ve Seen Enough To Know (5:02)
+03. Blood Is Thicker Than Water (6:04)
+04. I Wonder Why (4:22)(   Читать дальше...   )Жанр: Blues-Rock, Southern RockПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC418E76A544C43363422E386A699E6FDC624743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043176   (572987) от 16.08.2016
+
+Kalaban - Don't panic (1990) [FLAC|Lossless|image + .cue] <Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572987.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Between the lines
+3. Grayslayer
+4. Procyon's demise(   Читать дальше...   )Жанр: Symphonic ProgПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FD9B1182E362D4E31087D1DB27CD934D7B132A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234261   (572952) от 04.07.2018
 
 Эндорфины - ПрепаратSEXин (2005) [FLAC|Lossless|image + .cue]<Rock>
@@ -6,7 +151,7 @@
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572952.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Donnie Iris - The Best Of Donnie Iris (2001) [FLAC|Lossless|tracks + .cue] <Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572942.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Loudness - Single Collection 1981-2012 (2012) 2CD [WV|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572907.jpg" />
 </div>
 
 
@@ -92,7 +237,7 @@ Eric Gales - A Night on the Sunset Strip (2016) [FLAC|Lossless|image + .cue] <Bl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572829.jpg" />
 </div>
 
 
@@ -121,7 +266,7 @@ Pooh - 1981-1984 (2011) [FLAC|Lossless|image + .cue] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572685.jpg" />
 </div>
 
 
@@ -150,7 +295,7 @@ Ally Venable Band - No Glass Shoe (2016) [FLAC|Lossless|image + .cue] <Blues-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572595.jpg" />
 </div>
 
 
@@ -179,7 +324,7 @@ VA - Audio's Audiophile Vol.17 - In Concert (2001) Compilation, Live [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572568.jpg" />
 </div>
 
 
@@ -208,7 +353,7 @@ Wintersun - The Forest Seasons (2017) [MP3|320 Kbps] <Epic Metal, Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572563.jpg" />
 </div>
 
 
@@ -237,7 +382,7 @@ Morcrof - De Pessimism Philosophiam Et Dogma Nihilistic (2022) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572532.jpg" />
 </div>
 
 
@@ -266,7 +411,7 @@ Jonathan Cain - Arise (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572527.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ Syndicated Madness - It's Not The End (2022) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572522.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ Znaki - Видеть больше (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572521.jpg" />
 </div>
 
 
@@ -353,7 +498,7 @@ Origin - Chaosmos (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Technical Brutal Death 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572511.jpg" />
 </div>
 
 
@@ -382,7 +527,7 @@ Battlelore - The Return of the Shadow (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Epi
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572445.jpg" />
 </div>
 
 
@@ -411,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572429.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ The Kills - No Wow (2005) The Tchad Blake Mix, 2022, Domino Recording [FLAC 2.0|
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572403.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ Andrew Bird - Inside Problems (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572360.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ While She Sleeps - Sleeps Society (2021) Special Edition, 2022, Spinefarm Record
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572353.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ Jon Bon Jovi - Destination Anywhere (1997) Japanese Edition, 1999 [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572349.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ Tedeschi Trucks Band - I Am The Moon: I. Crescent (2022) [FLAC 2.0|192/24|WEB-DL
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572348.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Ancient Door - A Tribute to (Music from) The Elder (2022) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572115.jpg" />
 </div>
 
 
@@ -599,151 +744,6 @@ Ancient Door - A Tribute to (Music from) The Elder (2022) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B41C849CEE4A32C778ED8068BDA89822324E73B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555211   (572111) от 02.06.2022
-
-Bleed from Within - Shrine (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Melodic Death Metal, Groove Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Damnation (4:42)
-02. Sovereign (3:35)
-03. Levitate (4:31)
-04. Flesh And Stone (4:10)(   Читать дальше...   )Жанр: Melodic Death Metal, Groove Metal, MetalcoreПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221BA859AC6693011FE7A11CCBCED4B9690BFC28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922171   (571876) от 27.07.2015
-
-Gun Club - Les Genies Du Rock - Death Party (1993) [MP3|320 кб/с]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rail road bill (1:50)
-02.  Sex beat (2:12)
-03.  She's Like Heroin To Me (3:08)
-04.  Devil in the woods (2:55)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8466BC7B414DC1C67516A94D42063E92060691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921251   (571868) от 27.07.2015
-
-I Spit Ashes - 99942 (2015) [MP3|320 кб/с]<Modern Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Apophis King
-2. Of Venus And Mars
-3. Astronaut
-4. The Fourth Kind(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3DDA1F567A98480B7DB7EA806AB126860897AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922128   (571866) от 27.07.2015
-
-Flamin' Groovies - Les Genies du Rock - Shake Some Action (1993) [MP3|320 кб/с]<Rock & Roll, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cabiria (3:27)
-02.  Carol (3:16)
-03.  The slide (5:54)
-04.  Doin' my time (2:44)(   Читать дальше...   )Жанр: Rock & Roll, Psychedelic RockПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9686D04F0EBA88F93FEFF1C01185B3B5F834A93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922150   (571782) от 27.07.2015
-
-Gene Vincent - Les Genies Du Rock - Be-Bop-A-Lula (1993) [MP3|320 кб/с]<Rock & Roll, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Be-Bop-A-Lula (2:46)
-02.  Say Mama (1:58)
-03.  Woman in Black (3:18)
-04.  Ain't That Too Much (2:56)(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA79746C5BEE399F00F5EC684648DB612865796C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1252196   (411310) от 04.10.2018
+
+VA - Gods Of Darkness (1997) [FLAC|Lossless|image + .cue] <Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimmu Borgir - Moonchild Domain (5:21)
+02. Emperor - The Loss And Curse Of Reverence (6:07)
+03. Cradle Of Filth - Malice Through The Looking Glass (5:30)
+04. Agathodaimon - Banner Of Blasphemy (5:38)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8C4C0A4A00C110631532F5BF6C8516BCEA1676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252047   (411302) от 04.10.2018
 
 Bayside - Acoustic Volume 2 (2018) [FLAC|Lossless|tracks + .cue] <Punk Rock>
@@ -6,7 +35,7 @@ Bayside - Acoustic Volume 2 (2018) [FLAC|Lossless|tracks + .cue] <Punk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411302.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411264.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411163.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411154.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410827.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Ice Nine Kills - The Silver Scream (2018) [MP3|320 Kbps] <Metalcore, Post-Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410819.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Poets of the Fall - Ultraviolet (2018) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410659.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Acid Drinkers - Vile Vicious Vision (1993) [APE|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410614.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Baskerville - Opus Aeternum (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410608.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Art Boys Collection - Stoned Wall (1972) Reissue, 2001,  Garden Of Delights [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410599.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Nocturnal Rites - Phoenix (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410557.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Power Of Zeus - The Godspel According To Zeus (1970) Reissue, 1995, Buy Or Die R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410553.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Blood of Indigo - Dawn of the Shaded World (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410548.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Parallels (project by Tim Morse) - Awaken (2022) Yes tribute [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410544.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ The Silver Birds - Under My Wing (2022) [MP3|320 Kbps] <Hard Blues Rock, Classic
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410543.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Defacing God - The Resurrection Of Lilith (2022) [MP3|320 Kbps] <Symphonic Melod
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410542.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Miss May I - Curse Of Existence (2022) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410541.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Oceans Ate Alaska - Disparity (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410539.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Scamp - Man meets ape (2022) [MP3|320 Kbps] <Groove Metal, Math Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410538.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Iced Earth - Incorruptible (2017) Japan [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410507.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Eloy - The Vision, The Sword & The Pyre (Part I) (2017) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410502.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Trial (swe) - Feed the Fire (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410492.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Novelists FR - Déjà Vu (2022) [MP3|320 Kbps] <Post-Hardcore, Alt. Metal, Elect
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410485.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Tony Carey - Room With A View (1988) [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410484.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Soft Machine - Bundles (1975) Remastered And Expanded Edition, 2022, 2CD [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410483.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ Soft Machine - Bundles (1975) Remastered And Expanded Edition, 2022, 2CD [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B04B30268AA6EAE001EEC703023F3846768E332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573724   (410478) от 01.09.2022
-
-Aeternam - Heir of the Rising Sun (2022) [MP3|320 Kbps] <Symphonic Melodic Death Metal, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Osman's Dream
-02. Beneath The Nightfall
-03. Irene
-04. Nova Roma(   Читать дальше...   )Жанр: Symphonic Melodic Death Metal, FolkПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4253BAEBA14ABC1F3FDC5683165A1DE64CE99010
 ```
 
 https://mybot314.ru/tekegram_catalog/

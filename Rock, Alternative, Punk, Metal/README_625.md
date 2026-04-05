@@ -1,3 +1,32 @@
+###  Публикация: 827879   (444359) от 04.10.2014
+
+Алиса - Цирк (2014) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цирк (4:09)
+02. Кайф и истерика (4:39)
+03. Ток шок рок (3:39)
+04. Такие дела, хозяин (3:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0261A80EE7C41306095A47FAB3CB59FF9510C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052929   (444249) от 12.10.2016
 
 Heaven Shall Burn - Wanderer (2016) Limited Artbook Edition, 3CD [FLAC|tracks]<Metalcore>
@@ -6,7 +35,7 @@ Heaven Shall Burn - Wanderer (2016) Limited Artbook Edition, 3CD [FLAC|tracks]<M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444249.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Mansun - 5 Albums, 2 EP (1997 - 2006) [FLAC|Lossless|tracks + .cue|image + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444141.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Mollies Revenge - Every Dirty Word (1997) LP Version [MP3|192 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444120.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Mike + The Mechanics - Living Years (1988) [FLAC|Lossless|image + .cue] <Pop-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444112.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444082.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444070.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444067.jpg" />
 </div>
 
 
@@ -205,7 +234,7 @@ Nirvana - Live and Loud (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443987.jpg" />
 </div>
 
 
@@ -234,7 +263,7 @@ SAGA - 2 альбома  [MP3|320 кб/с]<Rock, Progressive Rock, Symphonic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443811.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ The Nights - The Nights (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443775.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Fair Warning - 10 альбомов, 4 EP, 2 сингла, 20 CD (1992 - 2016) [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443748.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Just Delayed - Just Delayed (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443339.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Poor Genetic Material - Here Now (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443336.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Days Between Stations - Giants (2020) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443335.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Aua - I Don't Want It Darker (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443334.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Panzerballett - Planet Z (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz Rock,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443278.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Adapt To Survive - The Endless Condition (2020) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443276.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Flying Colors - Third Stage: Live In London (2020) [FLAC|Lossless|WEB-DL|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443274.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Behemoth - And the Forests Dream Eternally (1995) Remastered, 2020, 2CD, Metal B
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443273.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Zakk Sabbath - Vertigo (2020) [FLAC|Lossless|image + .cue] <Heavy, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443263.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Black Moon Mother - Illusions Under the Sun (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443146.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ A-Z - A-Z (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic, Progressive Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443029.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Ozzy Osbourne - Blizzard Of Ozz (1980) 40th Anniversary Expanded Edition, 2020, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443027.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Papadosio - Extras In A Movie (2015) [OGG| 399-563 кб/с]<Alternative, Electro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442939.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Sweet - The Answer (1995) Remastered, 2022, Aviator-Entertainment [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442879.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Sweet - The Answer (1995) Remastered, 2022, Aviator-Entertainment [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:690E9893FD05C6BEC446E5381CD2409C7123AF2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409627   (442870) от 18.09.2020
-
-Disciple - Love Letter Kill Shot (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuff the Criminal (3:32)
-02. Reanimate (3:39)
-03. Wake Up (3:31)
-04. Panic Room (feat. Andrew Schwab) (4:30)(   Читать дальше...   )Жанр: Alternative Metal, Modern Hard RockПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC57C554D2BF891DCDC4BE200FB7CEEE56FF73D
 ```
 
 https://mybot314.ru/tekegram_catalog/

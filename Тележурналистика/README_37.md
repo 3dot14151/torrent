@@ -1,29 +1,3 @@
-###  Публикация: 1025208   (712050) от 11.06.2016
-
-Научное расследование Сергея Малозёмова. Еда живая и мертвая (2016.06.11) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712050.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E92B139CE46259E26AC2E7AD25B4C309B7A20A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219589   (711924) от 15.04.2018
 
 Известия. Главное (15.04.2018) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711924.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711915.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711163.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711068.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711067.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710049.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710036.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710020.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709465.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_707409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_707409.jpg" />
 </div>
 
 
@@ -299,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706967.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704796.jpg" />
 </div>
 
 
@@ -352,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704459.jpg" />
 </div>
 
 
@@ -378,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701837.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701380.jpg" />
 </div>
 
 
@@ -431,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700511.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700505.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698704.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698648.jpg" />
 </div>
 
 
@@ -538,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698538.jpg" />
 </div>
 
 
@@ -564,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698475.jpg" />
 </div>
 
 
@@ -590,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698473.jpg" />
 </div>
 
 
@@ -616,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698458.jpg" />
 </div>
 
 
@@ -642,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698234.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698229.jpg" />
 </div>
 
 
@@ -679,6 +653,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B0E219C033644AE669ED83AE0179465783B3442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027329   (697572) от 18.06.2016
+
+Теория заговора. Летний коктейль (2016.06.18) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697572.jpg" />
+</div>
+
+
+###  Подробнее
+
+По последним данным американских и канадских ученых воду из пластиковых бутылок пить опасно! В составе пластика может содержаться химическое вещество бисфенол А, которое вызывает бесплодие и рак.
+Йогуртовое мороженое. Это модное мороженое гораздо дороже обычного. Интересно, из чего оно состоит на самом деле? Выясним это. И сдадим в лабораторию для проверки наличия (   Читать дальше...   )Производство: РоссияТелекомпания: Первый каналЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853A76E1FD75D7FF40CD2C03E8B9DA638D000D69
 ```
 
 https://mybot314.ru/tekegram_catalog/

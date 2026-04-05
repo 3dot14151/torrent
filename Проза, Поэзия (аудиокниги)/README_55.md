@@ -1,56 +1,3 @@
-###  Публикация: 1309217   (552149) от 18.06.2019
-
-Энн Тайлер | Клок-данс (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энн Тайлер «Клок-Данс» – новый роман классика современной литературы о надеждах и внезапных переменах, которые случаются в нашей жизни.
-Жизнь Уиллы Дрейк шла от вехи к вехе. 1967-й: она школьница и пытается как-то примириться с внезапным исчезновением матери. 1977-й: студентке Уилле делают предложение руки и сердца. 1997-й: молодая вдова пытается собрать свою жизнь, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 07:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B09F6CC1AC5A06FCA96F9DC01AE6F2D215E133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309208   (552067) от 18.06.2019
-
-Олег Радзинский | Суринам (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Суринам» каким-то невероятным образом сочетает в себе традицию классической русской литературы с извечным богоискательством, философской проблематикой и целым ворохом социальных подтекстов.Жанр: Современная прозаПродолжительность: 09:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C762D5C1CC5333B2F86DB45FD392970BF02C353B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046344   (551793) от 27.08.2016
 
 Александр Чаковский | Блокада (1978) [MP3]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551793.jpg" />
 </div>
 
 
@@ -86,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551785.jpg" />
 </div>
 
 
@@ -113,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551209.jpg" />
 </div>
 
 
@@ -139,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551100.jpg" />
 </div>
 
 
@@ -168,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551020.jpg" />
 </div>
 
 
@@ -195,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549607.jpg" />
 </div>
 
 
@@ -222,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548351.jpg" />
 </div>
 
 
@@ -248,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547850.jpg" />
 </div>
 
 
@@ -275,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547845.jpg" />
 </div>
 
 
@@ -301,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547693.jpg" />
 </div>
 
 
@@ -327,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547411.jpg" />
 </div>
 
 
@@ -353,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547357.jpg" />
 </div>
 
 
@@ -379,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547353.jpg" />
 </div>
 
 
@@ -407,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547351.jpg" />
 </div>
 
 
@@ -433,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547013.jpg" />
 </div>
 
 
@@ -460,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546191.jpg" />
 </div>
 
 
@@ -486,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546035.jpg" />
 </div>
 
 
@@ -512,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545855.jpg" />
 </div>
 
 
@@ -539,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545743.jpg" />
 </div>
 
 
@@ -565,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545742.jpg" />
 </div>
 
 
@@ -591,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545686.jpg" />
 </div>
 
 
@@ -618,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545681.jpg" />
 </div>
 
 
@@ -644,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545678.jpg" />
 </div>
 
 
@@ -670,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545424.jpg" />
 </div>
 
 
@@ -681,6 +628,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:540F8E70497EA3480F20192F34E77A8111B0E1B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310645   (545250) от 26.06.2019
+
+Элизабет Макнил | Мастерская кукол (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рыжеволосая Айрис работает в мастерской, расписывая лица фарфоровых кукол. Ей хочется стать настоящей художницей, но это едва ли осуществимо в викторианской Англии. По ночам Айрис рисует себя с натуры перед зеркалом. Это становится причиной ее ссоры с сестрой-близнецом, и Айрис бросает кукольную мастерскую. На улицах Лондона она встречает художника-прерафаэлита Луиса. (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 15:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D548F8B58648E2AC52EA66C8FA424657FD355C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049306   (543846) от 05.09.2016
+
+Кэтлин Уинзор | Эмбер (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман американской писательницы Кэтлин Уинзор обошел весь мир, он издан в Великобритании, Дании, Германии, Португалии, Франции, Испании, Швеции… Только в США его приобрели более двух миллионов человек. История Эмбер - обворожительной и упрямой, безрассудной и расчетливой - разворачивается на историческом фоне Англии периода Реставрации Стюартов. Босоногая деревенская (   Читать дальше...   )Жанр: РоманПродолжительность: 22:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F09CE5256AB93C5599F6EA4C04228B355004BE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

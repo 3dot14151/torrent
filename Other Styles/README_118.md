@@ -1,3 +1,61 @@
+###  Публикация: 1171444   (395697) от 05.10.2017
+
+Thomas Newman - The Shawshank Redemption (1994) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - May
+02 - Shawshank Redemption (Stoic Theme)
+03 - New Fish
+04 - Rock Hammer(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C254D1A5D2004BB605A31A3D8F1603DE9B19522F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171580   (395646) от 05.10.2017
+
+Fleur (Flёur) - Сияние (2004) Reissue, 2006, Masterwort Production [FLAC|Lossless|tracks] <Folk, Cardiowave>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро 0:37
+02. Кокон 4:41
+03. Зафиксировать вечность 4:21
+04. Небо хочет упасть 3:42(   Читать дальше...   )Жанр: Folk, CardiowaveПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFBEA27DEC0997095D2F4B0EF425B35DBAFDCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171893   (394845) от 06.10.2017
 
 Elizabeth Cook - This Side of the Moon (2004) [FLAC|Lossless|tracks + .cue] <Country>
@@ -6,7 +64,7 @@ Elizabeth Cook - This Side of the Moon (2004) [FLAC|Lossless|tracks + .cue] <Cou
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394845.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Roger Subirana - The Round Dimension (2017) [FLAC|Lossless|WEB-DL|tracks] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394842.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [FLAC|Lossless|WEB-DL|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393924.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Hans Zimmer & Benjamin Wallfisch - Blade Runner 2049 / Бегущий по ле�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393706.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392902.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Merlin's Magic - Just Harmony - The Very Best Of Merlin's Magic (2009) [MP3|320 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_391971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_391971.jpg" />
 </div>
 
 
@@ -185,7 +243,7 @@ Neil Davidge - Halo 4. Original Soundtrack (Special Digital Edition) (2012) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391533.jpg" />
 </div>
 
 
@@ -220,7 +278,7 @@ Medwyn Goodall - Medicine Woman 6: Synchronicity (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391239.jpg" />
 </div>
 
 
@@ -249,7 +307,7 @@ Meldis - Грани Миров (2013) [FLAC|Lossless|image + .cue] <Folk, Celtic
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391230.jpg" />
 </div>
 
 
@@ -278,7 +336,7 @@ VA - Latino Hits Power (2017) [MP3|320 Kbps] <Latin Music, Reggaeton>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391153.jpg" />
 </div>
 
 
@@ -307,7 +365,7 @@ Medwyn Goodall - Medicine Woman (The Lost Tracks) (2017) [FLAC|Lossless|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391149.jpg" />
 </div>
 
 
@@ -336,7 +394,7 @@ Lorne Balfe - Assassin's Creed 3 (2012) [MP3|320 кб/с]<Game OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390696.jpg" />
 </div>
 
 
@@ -371,7 +429,7 @@ Need for Speed Most Wanted  (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390602.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ Carter Burwell - Seven Psychopaths (Семь психопатов) (2012) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389891.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ Logos (Stephen Sicard) - Le Temps des Archanges (2017) [MP3|320 Kbps] <New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389699.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ Eshana - Kalpana (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Spiritual
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387755.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Charles Segal - When You're in Trouble (2020) [FLAC|Lossless|WEB-DL|tracks] <Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387707.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ Tantric Music Masters - Fertility Energy of Couple’s Yoga (2020) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387414.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ Meditation Music Masters, Reiki Tribe - Erotic Side of Yoga (2020) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387405.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ Sensual Music Academy - Ambient Tantric Melodies (2020) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387288.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Bob Weir - Blue Mountain (2016) [MP3|320 Kbps] <Folk Rock, Country Rock, Psyched
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387256.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387235.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ Medwyn Goodall - The Goddess of Machu Picchu (2019) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387183.jpg" />
 </div>
 
 
@@ -696,7 +754,7 @@ Wychazel - Ashram (2019) [MP3|320 Kbps] <New Age, Mantra>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386993.jpg" />
 </div>
 
 
@@ -709,64 +767,6 @@ Wychazel - Ashram (2019) [MP3|320 Kbps] <New Age, Mantra>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E91F0CEF73A117E2EE5EA58D4747EBE535358D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253206   (385551) от 08.10.2018
-
-VA - Visions (1995) [FLAC|Lossless|tracks + .cue] <New Age,Instrumental,Jazz>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forestdene - Sweet Lullaby (03:57)
-02. Ron Asprey - I Will Always Love You (04:00)
-03. Louis Clark - Pachelbelt`s Canon (03:31)
-04. Alessandra Ruffini - The Flower Duet from Lakme (01:36)(   Читать дальше...   )Жанр: New Age,Instrumental,JazzПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B35FF7D319B5F5CA3623166480566916E28C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252679   (385456) от 08.10.2018
-
-Anthony Greninger - A Light in Darkness (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Music Box in the Woods
-02 Destined
-03 Snowfall
-04 Life's Blessings(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BE4FA2BDF17544841C730557F3E7BED13B1405
 ```
 
 https://mybot314.ru/tekegram_catalog/

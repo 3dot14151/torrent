@@ -6,7 +6,7 @@ Roger Waters - The Wall (2014) BDRip [H.265/1080p-LQ] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321104.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320966.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Green Day. Nuclear Family (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320949.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Papajam. Every Day Every Night (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320760.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Ellie Goulding. Figure 8 (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320737.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ The Rasmus. Somewhere (2012)  [H.264/1080p]WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320526.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320380.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319004.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Linkin Park - Live in Moscow (2011) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318906.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318764.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318373.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318227.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318079.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Katy Perry - MTV UNplugged (2009) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318028.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Riverdance - The Show 2002 (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318014.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317919.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317908.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317487.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317479.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316603.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Alizee - En concert (2004) DVDRip [hand made 60fps]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316599.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Motley Crue - The End.Live in Los Angeles.2015 (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315679.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315360.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_314973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314973.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_314972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314972.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314869.jpg" />
 </div>
 
 

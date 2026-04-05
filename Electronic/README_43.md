@@ -1,3 +1,61 @@
+###  Публикация: 1467631   (1017720) от 04.05.2021
+
+Tapage - Recover (2021) Point Source Electronic Arts [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Glitch, Ambient>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Test (02:00)
+ 02. 114120All (03:04)
+ 03. Begin (02:07)
+ 04. We All Became (06:24)(   Читать дальше...   )Жанр: IDM, Glitch, AmbientПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C7D436882FBE59234479B5D5FDAEF3F3741C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917868   (1017640) от 04.05.2021
+
+2methyl (2methylBulbe1ol) - Discography 14 Releases (2009-2021) Ad Noiseam, Ruff, Agnost1k [FLAC|Lossless|tracks+.cue, tracks]<Dubstep, IDM, Drum n Bass, Industrial>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2methylBulbe1ol & Known Rebel - Crashed (04:43)
+ 02. Miii - Lucid Dream (2methyl Awakening Remix) (04:35)
+ 03. Spankbass - Stamina (2methylBulbe1ol Ohmwork) (04:08)
+ 04. Virgil Enzinger - Odic Force (2methylBulbe1ol Remix) (05:53)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Dubstep, IDM, Drum n Bass, Industrial •Продолжительность: 05:32:20 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F97FC04E8632ADB9530BDAEF43C82F070EAA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467861   (1017561) от 05.05.2021
 
 ScAnDroid Experiment's - Necessity of Rest (2021) авторская раздача [MP3|320 Kbps] <Experimental, Lo-Fi, Downtempo>
@@ -6,7 +64,7 @@ ScAnDroid Experiment's - Necessity of Rest (2021) авторская разда�
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017561.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Nebulae Records - Label Pack 8 Releases (2018-2021) [FLAC|Lossless|WEB-DL|tracks
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017516.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ ScAnDroid Experiment's - Scribendarum (2021) авторская раздача [
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017234.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Mastermix Collection – Chillout (2021) [MP3|320 Kbps] <DJ Sets, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017221.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ ilan Bluestone - Impulse (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017197.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ BCee & Charlotte Haining - Life As We Knew It (2021) [FLAC|Lossless|Web-DL|track
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016915.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ SPINNIN' - Best of Tiesto (2021-05-09) [MP3|320 Kbps] <Big Room, Future House, D
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016586.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Calming Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balea
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016583.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Relaxing Afternoon: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016582.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Korolova - Live @ Kamianets - Podilskyi, Ukraine(2021-05-07) [MP3|320 Kbps] <Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016572.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Hardstyle XXL Megamix 2021 [MP3|320 Kbps] <House, Club House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016430.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Kontor Festival Sounds 2021.01 - The Awakening (2021) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016417.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Morcheeba - Blackest Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016267.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Eggvn - La Era de la Bestia (2021) [MP3|320 Kbps] <Industrial Metal>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015793.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Solarstone - Electronic Architecture 4 (2021) [FLAC|Lossless|tracks] <Dance, Pro
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015733.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Vladi Strecker - Sax the Night Away - Saxophone Lounge Music & Chillout Grooves 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015635.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Mellow Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015634.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - EDM 2021 Ibiza Opening Party (2021) [MP3|320 Kbps] <House, Deep House, Prog
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015629.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Disclosure - Settle (Special Edition) (2014) [FLAC|Lossless|WEB-DL]<House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015585.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Felix Raphael - Innersense (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015476.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ ESA (Electronic Substance Abuse) - Discography 16 Releases (2006-2021) [FLAC|Los
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015388.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Morcheeba - Blackest Blue (2021) [FLAC|Lossless|tracks + .cue] <Electronic, Trip
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015281.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Ambient Trip to Relaxation: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014819.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Black Hole Trance Music 05-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014809.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Black Hole Trance Music 05-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B8DCCC141FCC8E4F2E185FA9FA7E63143AF5D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471845   (1014795) от 22.05.2021
-
-Gary Numan - Intruder (2021) [MP3|320 Kbps] <Industrial Rock, Synthpop, Darkwave>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Betrayed [00:04:41]
-02 - The Gift [00:06:07]
-03 - I Am Screaming [00:03:53]
-04 - Intruder [00:04:24](   Читать дальше...   )Жанр: Industrial Rock, Synthpop, DarkwaveПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA290E7D16FF15FEE5F0BC76B8F3C19D359C448D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973538   (1014647) от 23.05.2021
-
-Dave Gahan - Hourglass Remixes (2008) [FLAC|Lossless|tracks + .cue] <EBM, Synthpop, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deeper And Deeper (The Juan MacLean Club Mix) (5:08)
- 02. Kingdom (Booka Shade Club Remix) (5:36)
- 03. Love Will Leave (Kap10kurt Mix) (3:43)
- 04. Use You (Maps Remix) (3:38)(   Читать дальше...   )Жанр: EBM, Synthpop, Techno, MinimalПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D692E0696AA594A041F7E591B44C468F039C439
 ```
 
 https://mybot314.ru/tekegram_catalog/

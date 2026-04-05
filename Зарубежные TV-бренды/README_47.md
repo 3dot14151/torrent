@@ -6,7 +6,7 @@ NGW: Фантастические существа Мадагаскара / Mada
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689315.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Невидимые города Италии / Italy's Invisible Cities (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688876.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. World's TOP 5. Super Planes / Пятёрка лучших. Супер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688500.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery: Встреча с инопланетянами / Alien Encounters (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688217.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687825.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Удивительные пауки / Incredible spiders (2015) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687353.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC: Ядовитые укусы - смерть или спасение / Venom 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687251.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NGW: Дикая природа Филиппин / Untamed Philippines (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687011.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Discovery. Тело человека: Грани возможного / Human Bo
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686895.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NG. Осушить океан: глубокое погружение. Сокро
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686238.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/7
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685472.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NGW: Животные 24 часа / Animal 24 (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685171.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NGW: Короли убийства / Kings of the Kill (2017) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685158.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NGW: Морские котики-убийцы / Killer seals (2017) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685157.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NGW: Амазонская электрическая рыба / Amazon's electri
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685054.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NGW: Орлы / The Eagles (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685048.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NGW: Животные без правил / Animals Gone Wild (2015) HDTVRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685033.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NGW: Хищники Африки / Africa's Deadliest (2011-2016) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684945.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ BBC. Кошачьи тайны / Cat Watch 2014: The New Horizon Experiment (Cat
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683909.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Discovery: Техногеника. БТА. Телескоп-гигант (2017) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682815.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Discovery: Техногеника. Рекордные локомотивы (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682809.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Discovery: Техногеника. Луноходы и марсоходы (2017)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682808.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682338.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Discovery. Как работают машины / Machines: How They Work (2016)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681799.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NG: Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681681.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680819.jpg" />
 </div>
 
 

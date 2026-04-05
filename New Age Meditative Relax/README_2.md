@@ -1,3 +1,32 @@
+###  Публикация: 988489   (920899) от 20.02.2016
+
+VA - Electronic Medicine - Binaural Meditation, Relaxing Deep Yoga Flow and Healing Tones (2016) [MP3|320 кб/с] <Chill Out, Lounge, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nadja Lind – Reprocessing
+02. Helmut Ebritsch – Emptiness
+03. Worldwide Groove Corporation – Kiss Me Slow
+04. Nadja Lind – Expanding(   Читать дальше...   )Жанр: Chill Out, Lounge, New Age, AmbientПродолжительность: 03:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9939298770A04060B1DEC3DF0A2F50ADAEDA88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 167446   (920111) от 23.01.2017
 
 Mike Oldfield - 167 Albums / Discography (1968-2017)[MP3|128,192,320 kbps]<Progressive Rock>
@@ -6,7 +35,7 @@ Mike Oldfield - 167 Albums / Discography (1968-2017)[MP3|128,192,320 kbps]<Progr
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920111.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ David Sun Productions - Звуки океана для ароматерапии 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916745.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Damien Dubois - Evasion (2015) [MP3|320 кб/с] <New Age, Relaxation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915802.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ Isgaard - The Early Days (2015) [MP3|320 кб/с] <New Age, Classical Crossover>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915701.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ The Hollywood Symphony Orchestra - Native Spirit (2012) 3CD [MP3|192 Kbps] <Nati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915522.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Kathryn Kaye - There Was a Time (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913684.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Amaste - Spirit of Tibet (2015) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912380.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Guy Sweens - Pathways (2016) [MP3|320 кб/с] <New Age, Ethnic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912004.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Medwyn Goodall - The Portal (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911758.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Paul Sills - Devas 2 - Ocean Spirits (2016) [MP3|320 кб/с] <New Age, Instrume
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909762.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Asha - Thunderheart (2016) [MP3|320 Kbps] <New Age, Contemporary Christian>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908937.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Apache Dream & Enrique Camac - Native American Music (2012) [MP3|320 Kbps] <Nati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905251.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Timothy Wenzel - Distant Horseman (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904357.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Indian Calling, Alison - Native American Soundtracks (10 Best Native Indian Soun
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903649.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Tatanka - Best Of Indian's Song (2005) [MP3|320 Kbps] <Native American, New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903513.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Nazca & Wayra Rodriguez - Traditional Indian (2010) [MP3|320 Kbps] <Native Ameri
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903401.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Andreas - Music for Pregnant Women (2013) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903399.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ VA - Impressions Of Native America (2001) [MP3|320 кб/с] <Native american, Et
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902692.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ VA - Ethnic Music...indians, Dreams, Visions (2012) 2CD [MP3|320 Kbps] <Native A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901708.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Jamie McMenamy - Oceanlands (2017) [MP3|320 Kbps] <Ambient, Downtempo, Relaxatio
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901581.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Klaus Back & Tini Beier - Enigma Of Faith (1995) [MP3|320 Kbps] <New Age, Enigma
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899532.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Spirit Of Africa 2 - The Unforgettable Musical Journey Continues (2008) [MP3|320
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899214.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Spirit Of Africa - Sacred Verses And Tribal Chants Of Native Africa (1996) [MP3|
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899165.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Phaedrus - Gravity, Vol. 1 (2007) [MP3|192 Kbps] <New Age, Enigmatic, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898009.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ VA - 69 Must Have Chillout & Lounge Songs (2013) [MP3|320 кб/с]<Downtempo, Ch
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897879.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ VA - 69 Must Have Chillout & Lounge Songs (2013) [MP3|320 кб/с]<Downtempo, Ch
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993977   (893973) от 06.03.2016
-
-Stephen Rhodes - Indian Meditation (2016) [MP3|320 кб/с] <New age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Go. Loslassen
-02. Mindfulness. Achtsamkeit
-03. Serenity. Gelassenheit
-04. Inner Freedom. Innere Freiheit(   Читать дальше...   )Жанр: New age, MeditationПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4D5E8AF0017F80AA4402857067A30071363481
 ```
 
 https://mybot314.ru/tekegram_catalog/

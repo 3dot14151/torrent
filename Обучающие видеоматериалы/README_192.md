@@ -1,3 +1,30 @@
+###  Публикация: 1551431   (235190) от 15.05.2022
+
+The Art Of Aaron Blaise, Aaron Blaise | Perspective Drawing (2019) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аарон Блейз – номинированный на Оскар режиссер, аниматор и художник. И в этом абсолютно новом пятичасовом курсе этот всемирно известный художник будет учить вас работать с перспективой.
+Аарон продемонстрирует несколько техник создания рисунков с линейной перспективой и объяснит свой мыслительный процесс и свои методы в легко доступной манере.Производство: The Art Of Aaron BlaiseЖанр: Изобразительное искусствоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 04:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409A313E4C2B6AD4C4726BF33EC804EF681E9DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576572   (235187) от 14.09.2022
 
 JUG Ru Group | HolyJS 2022 Spring. Конференция для JavaScript‑разработчиков (2022) WEB-DL [RU]
@@ -6,7 +33,7 @@ JUG Ru Group | HolyJS 2022 Spring. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235187.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ The Gnomon Workshop, Sarah Arduini | Character Animation and Video Reference (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235169.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Fulltimegamedev, Thomas Brush | Full Time Game Dev (2020) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235150.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ The Animation Box, Yuri Lementy | Cartoon Mechanics Masterclass (2020) PCRec [RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235119.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ JUG Ru Group | DotNext 2022 Spring. Конференция для .NET‑раз�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235115.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ Nadja-Leutloff-School, Евгения Костикова | Нежность ле
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235092.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ Domestika, Juan Solís | Professional Modelling of 3D Cartoon Characters (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235054.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ Udemy, John Purcell | Java 11 For Complete Beginners (2020) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234996.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ JUG Ru Group | C++ Russia 2022. Конференция для C++ разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234985.jpg" />
 </div>
 
 
@@ -251,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234933.jpg" />
 </div>
 
 
@@ -280,7 +307,7 @@ Jeff Delaney | Dart 101 (2021) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234877.jpg" />
 </div>
 
 
@@ -309,7 +336,7 @@ Udemy, Anthony Alicea | JavaScript: Understanding the Weird Parts (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234842.jpg" />
 </div>
 
 
@@ -337,7 +364,7 @@ Stan Winston School, Dan LuVisi | Creature Design - Photoshop Character Renderin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234797.jpg" />
 </div>
 
 
@@ -363,7 +390,7 @@ Udemy, Alexander Batashov | Ruby on Rails 6 - 2020. Создание собст�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234781.jpg" />
 </div>
 
 
@@ -389,7 +416,7 @@ The Gnomon Workshop, Wojtek Piwowarczyk | Creating Procedural Environments in Ho
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234701.jpg" />
 </div>
 
 
@@ -416,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234689.jpg" />
 </div>
 
 
@@ -445,7 +472,7 @@ Udemy, Nathalia Ferrari | Environment Course in Blender 2.93 (2022) PCRec [EN / 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234633.jpg" />
 </div>
 
 
@@ -472,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234605.jpg" />
 </div>
 
 
@@ -499,7 +526,7 @@ Enterclass, Сергей Курбатов | Весенняя зелень (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234346.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ Udemy, Ivan Yosifov | Unreal Engine 5 - Make AAA Game Vehicles (2022) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234191.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ Udemy, Ivan Yosifov | Unreal Engine 5 - Create Zombie Survivor FPS Game (2022) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234184.jpg" />
 </div>
 
 
@@ -583,7 +610,7 @@ Artefactoschool, Игорь Хайков | Времена года (2022) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234092.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ CG Cookie, Kent Trammell | Creating Hair Cards for Realtime Characters in Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233904.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ Udemy, Colt Steele | Mastering TypeScript - 2022 Edition (2022) WEB-DL [EN / EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233867.jpg" />
 </div>
 
 
@@ -665,7 +692,7 @@ Udemy, Greg Wondra | Unreal Engine: Create an Arcade Classic! (2021) PCRec [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233798.jpg" />
 </div>
 
 
@@ -677,35 +704,6 @@ Udemy, Greg Wondra | Unreal Engine: Create an Arcade Classic! (2021) PCRec [EN /
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCE3962C285C3306B39A42CCACD2EC18710D822D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634129   (233738) от 18.05.2023
-
-Watermedia, Татьяна Ширбидова | Акварельные практики (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые уроки из курса СВЕТ 2023г
-
-Преподаватель: художник-иллюстратор, член Союза художников России Татьяна Ширбидова.
-В курсе СВЕТ мы идём на новый уровень! Изучаем световые эффекты и учимся передавать их в работах с помощью знаний из цветоведения и колористики. Для того, чтобы лучше понимать, почему мы видим свет именно так, а не иначе, в курсе есть лекции по физике (   Читать дальше...   )Производство: WatermediaЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 06:56:56Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED0009D9062DF3F32D607FB44FCF556F6445E22
 ```
 
 https://mybot314.ru/tekegram_catalog/

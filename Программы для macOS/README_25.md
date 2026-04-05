@@ -1,3 +1,56 @@
+###  Публикация: 1367717   (915640) от 16.03.2020
+
+Substance Alchemist 2.1.0 Tiramisu [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Substance Alchemist выводит искусство создания 3D-материалов и управления ими на новый уровень, благодаря новым функциям для более простого и быстрого создания материалов. Художники могут рассчитывать на мощный, оптимизированный рабочий процесс и интуитивно понятный пользовательский интерфейс.Тип издания: macOS SoftwareРелиз состоялся: 12.03.2020Разработчик: AllegorithmicПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7FD3D3514EC03E89FC4298789CF1104E51D351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097596   (914494) от 27.01.2017
+
+A Better Finder Anttributes 6.04 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914494.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Better Finder Attributes — мощная и полезная утилита для изменения атрибутов файлов. A Better Finder Attributes позволить изменить дату создания фотографии или дату последнего изменения файла.
+С ее помощью можно манипулировать информацией о дате и времени создания/редактирования JPEG, CR2, NEF, ARF CRW и CIFF EXIF файлов, устанавливая нужное время или удаляя его (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 января 2017Разработчик: PublicspaceПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6FA430063E3C9D56AF65A6F5D30B1670D27317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097671   (914166) от 27.01.2017
 
 Membrane Pro - Cover image maker 1.0.5 [En]
@@ -6,7 +59,7 @@ Membrane Pro - Cover image maker 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914166.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ LensFlare Studio 5.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914154.jpg" />
 </div>
 
 
@@ -64,7 +117,7 @@ Superstring 2 Pro - Lyric video maker 2.8.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914075.jpg" />
 </div>
 
 
@@ -93,7 +146,7 @@ FileMaker Pro 19 v19.3.2.206 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913939.jpg" />
 </div>
 
 
@@ -120,7 +173,7 @@ Affinity Photo 1.8.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913932.jpg" />
 </div>
 
 
@@ -146,7 +199,7 @@ Ringer - Ringtone Maker 2.1 Beta [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913917.jpg" />
 </div>
 
 
@@ -173,7 +226,7 @@ Folder Color - Design Custom Folder Icons 3.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913912.jpg" />
 </div>
 
 
@@ -202,7 +255,7 @@ Boxshot Ultimate 4.12 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913685.jpg" />
 </div>
 
 
@@ -229,7 +282,7 @@ WidsMob FilmPack 2.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912515.jpg" />
 </div>
 
 
@@ -255,7 +308,7 @@ StuffIt Deluxe 16.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912503.jpg" />
 </div>
 
 
@@ -281,7 +334,7 @@ Wing Pro 8 v8.0.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912366.jpg" />
 </div>
 
 
@@ -307,7 +360,7 @@ Athentech Perfectly Clear Complete (St and Plug-in for Lr) 3 v3.10.0.1766 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912271.jpg" />
 </div>
 
 
@@ -335,7 +388,7 @@ RizomUV 2019.1.14 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912193.jpg" />
 </div>
 
 
@@ -362,7 +415,7 @@ Disk Diet - Clean your drive 5.4.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912135.jpg" />
 </div>
 
 
@@ -391,7 +444,7 @@ Wolfram Mathematica 12.1.0 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911892.jpg" />
 </div>
 
 
@@ -417,7 +470,7 @@ Infographics Lab for PowerPoint - Templates Bundle 1.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911628.jpg" />
 </div>
 
 
@@ -443,7 +496,7 @@ PicConvert 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911081.jpg" />
 </div>
 
 
@@ -469,7 +522,7 @@ Disk Keeper Pro v1.4.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910491.jpg" />
 </div>
 
 
@@ -498,7 +551,7 @@ Pixellu SmartAlbums 2 v2.1.13 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910096.jpg" />
 </div>
 
 
@@ -524,7 +577,7 @@ Disk Drill Media Recovery 4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908608.jpg" />
 </div>
 
 
@@ -551,7 +604,7 @@ Movavi Screen Recorder 21.5.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908602.jpg" />
 </div>
 
 
@@ -577,7 +630,7 @@ iStatistica 3.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908516.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ IntelliJ IDEA Ultimate Edition 15.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907488.jpg" />
 </div>
 
 
@@ -632,7 +685,7 @@ NCH DeskFX Plus 3.16 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907285.jpg" />
 </div>
 
 
@@ -643,60 +696,6 @@ NCH DeskFX Plus 3.16 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5703BB2395FE497252E5AADCFE6D5A54C2A1812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098749   (907059) от 31.01.2017
-
-Decloner — a fast and reliable duplicate file finder 1.6.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Decloner поможет найти и устранить дубликаты файлов на вашем Mac быстро и надежно.
-Для вашего удобства, Decloner позволяет сканировать несколько каталогов одновременно, и может автоматически обнаруживать библиотеки Iphoto или Aperture.  Decloner автоматически группирует повторяющиеся файлы, отображает информацию о выбранном в данный момент файле и позволяет открыть (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 января 2017Разработчик: Svetlana Fedosova t/a PixelEspressoПоддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F6804054E18FE855C4EDAB114E3B200BBF6288B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492049   (906911) от 27.08.2021
-
-Viscosity 1.9.4 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viscosity является OpenVPN клиентом для Mac, с простым и понятным интерфейсом пользователя для создания, редактирования и управления VPN соединениями. Приложение обеспечивает полную поддержку решения OpenVPN для macOS и не требует никакого дополнительного программного обеспечения.
-Viscosity может подключаться к любому серверу OpenVPN серверу и позволяет полностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08..2021Разработчик: SparkLabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B782D3FDCA904D1F4512C1B7E84C61C4E13B1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1546000   (46562) от 17.08.2024
+
+POSTAL 4: No Regerts (2022) [En] (1.4.0) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращение легенды спустя семь лет. Чувак возвращается в этот мир вместе со своим псом. Он имеет самые добрые намерения, и хочет начать нормальную жизнь. Ведь его всё это время лечили. По приезду в новый город - чувака обворовывают. Однако у него хватает терпения и выдержки на то, чтобы снова начать копить деньги и начать адекватную жизнь. Весь сюжет завязан на (   Читать дальше...   )Тип издания: LicenseРазработчик: Running With ScissorsЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, КитайскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D67DACE3D2DE55FA8D88FF7FB2607CD84B51965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744174   (46240) от 20.08.2024
+
+Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Decepticon [Complete Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghostrunner - эта жестокая игра-слэшер от первого лица с супердинамичным сюжетом, разворачивающимся в мрачном киберпанковом мире футуристической сверхконструкции. Взбирайтесь вверх по башне Дхарма, ставшей последним убежищем человечества после всемирной катастрофы. Пройдите путь снизу доверху, встретьтесь с тираном Кимастером и воздайте ему по заслугам.Тип издания: RepackРазработчик: One More Level, 3D Realms, Slipgate IronworksЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8187B9B874371660451D9AAF8994447A4C5002C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525179   (45626) от 26.08.2024
 
 Succubus (2021) [Ru/Multi] (1.15.18327/dlc) License GOG [Ultimate Edition] [18+]
@@ -6,7 +58,7 @@ Succubus (2021) [Ru/Multi] (1.15.18327/dlc) License GOG [Ultimate Edition] [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45626.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ DOOM (2016) [Ru/Multi] (Build 13954591/dlc) Lossy Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45525.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ FOOTAGE BODYCAM / FOOTAGE REC (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45325.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Borderlands The Pre-Sequel (2014) [Ru/Multi] (2.0/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44977.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44893.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (1.02.18/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44382.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44168.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Wagner
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44069.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Son and Bone (2024) [En] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43961.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ I Am Your Beast (2024) [En] (1.0) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43933.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Diluvian Ultra (2023) [Ru/Multi] (3.5.24) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43846.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Crysis 2 (2011) [Ru/En] (1.9) Repack dixen18 [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43622.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43615.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Far Cry (2004) [Ru/En] (1.04) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43613.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack Wagner
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43564.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Borderlands: Trilogy (2013-2019) [Ru/Multi] (1.5.0/1.8.5/1.0.9/dlc) Repack dixen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43542.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Son and Bone (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43508.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Far Cry 2 (2008) [Ru/En] (1.03) Repack dixen18 [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43507.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ I Am Your Beast (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43501.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Bioshock Dilogy / Дилогия Bioshock (2007-2010) [Ru/En] (1.1/1.1/dlc) Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43409.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Borderlands (2019) [Ru/En] (1.5.0/dlc) Repack xatab [Game of the Year Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43226.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43195.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Far Cry 3 Dilogy (2012-2013) [Ru/En] (1.05/1.02/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43121.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43118.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack dixen18
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4632B52417CA9803258F17F01EEFE1CC2CC3A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750394   (43109) от 19.09.2024
-
-Half-Life: Alyx (2020) [Ru/Multi] (1.5.4/dlc) Repack dixen18 [VR]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Half-Life: Alyx - это возвращение Valve во вселенную Half-Life в виртуальной реальности. Это история невозможной борьбы с жестокой расой пришельцев, известной как Альянс. События происходят между Half-Life и Half-Life 2. Вы играете за Аликс Вэнс, и вы - единственный шанс человечества на спасение. Контроль Альянса за планетой после инцидента в Чёрной Мезе только усилился: (   Читать дальше...   )Тип издания: RepackРазработчик: ValveЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AAFEDACEC2000187A7CDBAB4B6586F67FB6AF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750386   (43104) от 19.09.2024
-
-Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испытай все прелести размазывания по стенам мерзких слизняков-пришельцев. Почувствуй всем телом блаженную ностальгию. Тебя ждет отборная жесть. Стань самым злобным ублюдком из всех «героев» планеты, чей уровень тестостерона можно измерить лишь числом пуль, всаженных в тех, кто встает у тебя на пути. Пальба, грохот и звуки разрушения – музыка для твоих ушей. Заставь (   Читать дальше...   )Тип издания: RepackРазработчик: Cobble GamesЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD87D8C47D0B1366C0BDA17B034FD4AA74E6E94
 ```
 
 https://mybot314.ru/tekegram_catalog/

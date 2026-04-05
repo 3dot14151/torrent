@@ -6,7 +6,7 @@
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757166.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757165.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757162.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757098.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757094.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757092.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753636.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753548.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753439.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751638.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747867.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746654.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744855.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741719.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741646.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741637.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738131.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738111.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738016.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737800.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734220.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730490.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729453.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729452.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729451.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729450.jpg" />
 </div>
 
 

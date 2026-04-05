@@ -1,48 +1,22 @@
-###  Публикация: 1161834   (1006419) от 16.07.2021
+###  Публикация: 749081   (1006922) от 12.07.2021
 
-ARK: Survival Evolved (2017) [Ru/Multi] (332.9/dlc) License CODEX
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будучи выброшенным голым на берег таинственного острова под названием ARK, замерзая и умирая с голоду, вам придется охотиться, собирать ресурсы, создавать предметы, выращивать урожай, исследовать технологии и строить укрытия, чтобы противостоять погодным условиям.Тип издания: LicenseРазработчик: Studio Wildcard, Instinct Games, Efecto Studios, Virtual Basement LLCЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B11EE4A6B405EAB69A1598A60FD79AAD94DC61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476701   (1006418) от 16.07.2021
-
-Локи / Loki (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) LostFilm
+Чёрные паруса / Black Sails (2014) HDTVRip (сезон 1, серии 1-8 из 8) LostFilm
 
 >>След.
->>Сериалы Marvel Comics
+>>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Локи попадает в таинственную организацию «Управление временными изменениями» после того, как он украл Тессеракт, и путешествует во времени, меняя историю.Производство: США / Marvel Studios Inc.Жанр: фантастика, фэнтези, боевик, приключенияРежиссер: Кейт ХерронАктеры: Том Хиддлстон, Оуэн Уилсон, Гугу Эмбата-Ро, Вунми Моссаку, Эрика Коулмэн, Софи Ди Мартино, Ричард Э. Грант, Джон Ливайн, Аарон Билнер, Саша Лэйн и другие.Перевод: Многоголосый профессиональный (LostFilm)Язык озвучки: русский, английскийСубтитры: русские (Forced, full), английские (SDH)Продолжительность: ~00:51:00 серия
+1715 год. Золотой век - вершина пиратства в Карибском море. Остров бывшей британской колонии Нью-Провиденс является территорией беззакония, контролируемый самыми известными пиратскими капитанами в истории. Самым грозным из них является капитан Флинт. Но британский флот возвращается в эти воды, угрожая уничтожить Флинта и его команду. Движимый глубокими, сложными, (   Читать дальше...   )Производство: ЮАР, США / Film Afrika Worldwide, Platinum Dunes, Quaker Moving PicturesЖанр: драма, приключенияРежиссер: Стив Бойум, Алик Сахаров, Лукас ЭттлинАктеры: Тоби Стивенс, Ханна Нью, Люк Арнольд, Джессика Паркер Кеннеди, Шон Майкл, Зак Макгоуэн, Клара Пэджет, Хаким Кае-Казим, Том Хоппер, Марк РайанПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: РусскийПродолжительность: ~00:56:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E357181F560C163E191073D562731711711E11D
+magnet:?xt=urn:btih:A9B08AE9F15170C72D0EB4E1B5F66F6C81DBD60A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,24 +24,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483988   (1006417) от 17.07.2021
+###  Публикация: 749108   (1006921) от 12.07.2021
 
-The Crown of Yamhad - Epilogues For The Fallen (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Folk Metal, Female Vocal>
+Черные паруса / Black Sails (2014) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) LostFilm
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Glorious Dead (06:51)
-02. Skull In The Mirror (07:41)
-03. The Loss Of Light (07:41)
-04. Beyond The Sky (06:57)(   Читать дальше...   )Жанр: Symphonic Gothic Folk Metal, Female VocalПродолжительность: 00:39:30
+1715 год. Золотой век - вершина пиратства в Карибском море. Остров бывшей британской колонии Нью-Провиденс является территорией беззакония, контролируемый самыми известными пиратскими капитанами в истории. Самым грозным из них является капитан Флинт. Но британский флот возвращается в эти воды, угрожая уничтожить Флинта и его команду. Движимый глубокими, сложными, (   Читать дальше...   )Производство: ЮАР, США / Film Afrika Worldwide, Platinum Dunes, Quaker Moving PicturesЖанр: драма, приключенияРежиссер: Стив Бойум, Алик Сахаров, Лукас ЭттлинАктеры: Тоби Стивенс, Ханна Нью, Люк Арнольд, Джессика Паркер Кеннеди, Шон Майкл, Зак Макгоуэн, Клара Пэджет, Хаким Кае-Казим, Том Хоппер, Марк РайанПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: Русский, английскийПродолжительность: ~00:56:00 серия
 
 ## Скачать торент
 ```bash
@@ -79,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483992   (1006416) от 17.07.2021
+###  Публикация: 1264486   (1006920) от 12.07.2021
 
-Confined to Oblivion - Resumption (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+Книжная серия | Межавторский цикл «Вселенная «МЕТРО» [141 книга] (2005-20..) [EPUB]
 
->>
->>
+>>Художественная литература
+>>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In Abeyance (03:35)
-02. No Place Like Home (03:28)
-03. A Line Has Been Crossed (04:37)
-04. Silent Witness (03:38)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:52
+С небес обрушилась кара, но… небеса промахнулись. В исправительной колонии особого режима для пожизненно осужденных выжили очень многие. Не только сотрудники и чудом спасшиеся гражданские, но и организаторы банд, массовые убийцы, жестокие насильники и, конечно же, те, кто уверен, что ни в чём не виноват. Однако абсолютно для всех время превратилось в прямую линию (   Читать дальше...   )Жанр: ПостапокалипсисФормат: EPUB
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:56A2C86DB7EB8D492B8A3BE98A6F4A1F5350CFBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,402 +76,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483579   (1006415) от 17.07.2021
+###  Публикация: 1483358   (1006919) от 13.07.2021
 
-Stillhead - Iceberg (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006415.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stillhead - Sunset Over Estonia 03:28
-2. Stillhead - Knife Edge 03:46
-3. Stillhead - Stillhead feat. Mu Vonz - Maybe We Aint Dead 03:53
-4. Stillhead - Breathe Me Out 04:24(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40A23E86803727ED4E47A415C43157B5B4B14914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483859   (1006414) от 17.07.2021
-
-Almancestral - Almancestral (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Padre
-02. Soldado Ancestral
-03. Dolorosa Traicion
-04. Fabula Medieval I(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD251DB10B9D6FCE379FAA7B5E42FC5954BE444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484048   (1006413) от 17.07.2021
-
-Megalizz - Hope (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Would (05:16)
-02. New Generation (06:08)
-03. What Does Life To Me (06:39)
-04. Frank And Free (05:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1385675822DFA62610A61B880CD76035EE5F6E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483852   (1006412) от 17.07.2021
-
-Doomsday - Leyendas (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Neoclassical>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El callejon del beso
-02. Llorona (La llorona p.1)
-03. La condesa
-04. El ultimo viaje de Biggus Dickus e Incontinentia Buttocks(   Читать дальше...   )Жанр: Power Metal, NeoclassicalПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484082   (1006411) от 17.07.2021
-
-Suidakra - 3 Albums (2019-2021) [MP3|320 Kbps] <Melodic Death, Folk Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Life in Chains [00:05:17]
-02. The Inner Wolf [00:05:43]
-03. Darcanian Slave [00:04:47]
-04. Faoladh [00:06:04](   Читать дальше...   )Жанр: Melodic Death, Folk MetalПродолжительность: 3CD, 02:28:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484065   (1006410) от 17.07.2021
-
-Goya - Gotta Outbreak Your Ass (2021) [MP3|320 Kbps] <Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Your Momma [00:03:11]
-02 - Fame [00:03:46]
-03 - Bipolar [00:04:04]
-04 - Geez On My Way [00:03:40](   Читать дальше...   )Жанр: Nu MetalПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10CD1C717F5CD5F6EE5E4BDE4E9A4BE373F4DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484072   (1006409) от 17.07.2021
-
-Times Of Grace - 2 Albums (2011-2021) [MP3|320 Kbps] <Alt. Metal, Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Burden of Belief [00:05:39]
-02. Mend You [00:04:16]
-03. Rescue [00:03:42]
-04. Far From Heavenless [00:06:00](   Читать дальше...   )Жанр: Alt. Metal, Melodic MetalcoreПродолжительность: 2CD, 01:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AF81E7F888A8CDE6D6204F39A13A1E1F0F96BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484122   (1006408) от 17.07.2021
-
-Бобби Бампс и аист / Bobby Bumps and the Stork (1916) WEBRip
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну вот, теперь Бобби и Фидо всегда вместе. Вот только Па все никак не примирится с новым жильцом и по любому поводу грозит разлучить сына с его щенком. Что бы такое придумать, чтобы отец принял нового друга? Надо убедить Па, что это сама судьба свела их, что сами небеса принесли им этот дар. Отличный план! :)Производство: США, Bray Studios Inc.Жанр: Рисованная анимация, детскийРежиссер: Эрл ХердПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:05:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484039   (1006407) от 17.07.2021
-
-Resurrection Kings - Skygazer (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skygazer 05:35
-02. World's On Fire 03:31
-03. Tears 03:14
-04. Fight Against Our Pride 04:10(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4494079986BC0C3B029E9BAFDC80450AFF3C29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484088   (1006406) от 17.07.2021
-
-Пи4алька - Молитва за самониубийцу (2021) 2CD, Deluxe Edition [MP3|320 Kbps] <Progressive Screamo, Post-Rock, New Wave Emo>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я+ты [00:04:21]
-02. Перекрыло [00:03:16]
-03. Эмо песня 2.0 [00:03:14]
-04. 5:42 [00:04:09](   Читать дальше...   )Жанр: Progressive Screamo, Post-Rock, New Wave EmoПродолжительность: 2CD, 01:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEAC95D0AF53F987CF6E06BAAF518DB4C020DF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484045   (1006405) от 17.07.2021
-
-Walk The Walk - Walk The Walk (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven's On It's Way Down
-02. Running From You
-03. Are You There?
-04. Two Miles To Go(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C53961DA4081067218B5AD19730836A27B51CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484052   (1006404) от 17.07.2021
-
-Bolt - All Hands Unite (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Hands Unite (04:52)
-02. My Serenity (04:10)
-03. Hold On (05:10)
-04. Mental Breakdown (03:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCEA44B1B69372604DFC7CC04384D903C3BA0FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484079   (1006403) от 17.07.2021
-
-Vandor - 2 Albums (2019-2021) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...Darkness Looms [00:00:33]
-02. Mountains of Avagale [00:06:04]
-03. River of Life [00:06:17]
-04. Endless Sea [00:05:55](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 2CD, 01:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2C40D417C2EFA22C7FECEC1F77D11FC05BEFE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483693   (1006402) от 17.07.2021
-
-Teena Marie - Super Hits (2002) Compilation [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
+David Lahm - Jazz Takes On Joni Mitchell (1999) Arkadia Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.If I Were A Bell
-02.Dear Lover
-03.My Dear Mr. Gaye
-04.Just Us Two(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:56:34
+01. Solid Love [7:04]
+02. Song for Sharon [6:45]
+03. Edith & The Kingpin [6:14]
+04. Coyote [5:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2580248D075C3927C68418409B8A885D65422CC7
+magnet:?xt=urn:btih:E540BA1AC00F0DF5628877D2A68F65225BF878E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,48 +105,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484036   (1006401) от 17.07.2021
+###  Публикация: 1483359   (1006918) от 13.07.2021
 
-Kenka Banchou Otome: Girl Beats Boys | Боевой главарь банды: Девушка бьёт парней [2017, TV, 12 эп.] BDRip 1080p raw+eng
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006401.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий оригинальной игры девушка-сирота Хинако Накаяма неожиданно воссоединилась со своим братом-близнецом, Хикару. Он просит ее занять его место в академии «Львиный Рык», частной школе для парней. О ней ходит дурная молва из-за жестокого учсовета, установившего свою диктатуру. Хикару принадлежит к влиятельному клану якудза, и он обязан стать лидером академии (   Читать дальше...   )Производство: Project No.9Жанр: приключенияРежиссер: Сайто НориакиПеревод: официальный (Crunchroll)Язык озвучки: Японский и английскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 8 мин.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484109   (1006400) от 17.07.2021
-
-Эй Джей Гнюзи | Девочка из стен (2021) [MP3, Михаил Лукашов]
+Bob Enevoldsen - The Music of Bob Enevoldsen: Smorgasbord (1955) 2006, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Все тайное становится явным. Элиза знает каждый дюйм этого дома. Какие доски скрипят, где трещины в стенах – идеальные убежища для маленькой девочки. Это ведь ее пристанище. Дом, купленный родителями незадолго до автокатастрофы. Только здесь она чувствует себя защищенной.
-Эдди изо всех сил пытается игнорировать девочку, которую видит краем глаза. Даже старший брат (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 09:58:59
+01. Iron Works [3:56]
+02. Loaded with Bass [5:04]
+03. Topsy [5:28]
+04. Blues & Rhythm [8:30](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:01:08
 
 ## Скачать торент
 ```bash
@@ -564,80 +134,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484123   (1006399) от 17.07.2021
+###  Публикация: 1483252   (1006917) от 13.07.2021
 
-Анна Даунз | Укромный уголок (2021) [MP3, Ирина Патракова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006399.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЭМИЛИ НЕ В ПОРЯДКЕ
-Эмили Праудман не везет на актерском поприще. Она потеряла своего агента, работу и квартиру – все за день. Один ужасный день.
-ЭМИЛИ В ОТЧАЯНИИ
-У Скотта Денни, успешного и обаятельного генерального директора, есть проблема. Его деловая хватка и банковские счета бессильны. А потом он встречает Эмили.(   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПродолжительность: 14:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC96BDAF0FA651E37D5FDB4011845624CE97FE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464013   (1006398) от 17.07.2021
-
-Behzad (Behzad Aghabeigi) - Discography (1997-2019) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapture of Massy (5:20)
-02. Your Tranquillity Matilda (4:51)
-03. Simmering Souls (6:01)
-04. Gypsy Renaissance (4:42)(   Читать дальше...   )Жанр: Flamenco, Acoustic Guitar |Продолжительность: 04:48:21 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B58A024D6B9B6B8FF89C86AB3AED31A07E1F320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484095   (1006397) от 17.07.2021
-
-Privacy Eraser Free 5.13.2 Build 3956 + Portable [Multi/Ru]
+Dream Troll - Quest For Steel (2019) EP [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
-Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. We Fight The Night
+02. Midnight Wolf (The Hellhound Fury)
+03. In The Name Of Isabella
+04. The Battle For Enki's Tower(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:34:50
 
 ## Скачать торент
 ```bash
@@ -649,25 +163,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484094   (1006396) от 17.07.2021
+###  Публикация: 1483362   (1006916) от 13.07.2021
 
-Telegram Desktop 2.8.10 + Portable [Multi/Ru]
+Focus Professional 1.12.2 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и др.
+Полезная утилита специально разработана, чтобы помочь вам сосредоточиться на своей работе и избегать любых других отвлекающих факторов путем блокировки различных веб-страниц.
+Facebook, IM, Pinterest, Twitter, Instagram, Tumblr, Reddit и YouTube, Vimeo и другие подобные сайты и сервисы являются отличным дополнением к нашей общественной жизни, но они также могут отвлекать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.07.2021Разработчик: Brad JasperПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDE8708EB084381A0623D22B1D0F5A9B231B06A0
+magnet:?xt=urn:btih:76B039D5403273664B897C99A08584723F1940F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,28 +190,110 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484097   (1006395) от 17.07.2021
+###  Публикация: 1483367   (1006915) от 13.07.2021
 
-The Fall - Are You Are Missing Winner (2021) 4CD, Deluxe Edition [MP3|320 Kbps] <Garage Rock, Post Punk>
+Notebooks – Write and Organize 2 v2.4.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notebooks является единственным блокнотом, который когда-либо может вам понадобиться. Он позволяет создавать огромное количество записей. Он станет одним и единственным хранилищем не только для всех журналов, идей, заметок, черновиков, рассказов и дневников, но и для ваших проектов, списков задач, документов, файлов и все остального, что вы хотите хранить под рукой. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2021Разработчик: Alfons SchmidПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2840DA04D69003030D6EE987B9A3833900B53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483400   (1006914) от 13.07.2021
+
+Bloko Ono - Kev’s Dead (2021) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2019 (02:30)
+ 02. Percussia (04:49)
+ 03. Marischal (05:37)
+ 04. WitchbricksЖанр: Ambient, IDM, GlitchПродолжительность: 00:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089E855D8EB924BC8923A7C59FB81B1DE25C34E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483460   (1006913) от 13.07.2021
+
+Exposure Software Blow Up 3 v3.1.4.387 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exposure Software Blow Up плагин для Adobe Photoshop, Elements и Lightroom. Blow Up производит увеличение до 3600% без появления ступенчатых артефактов и свечений. Высококачественное изменение размеров изображений, лучшее чем бикубическая интерполяция и при изменении размера изображения, сохраняет гладкие четкие края и линии.
+Blow Up работает с Photoshop, Elements, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.07.2021Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3247A6981B9A6443A0E14AE7AFEF9D1A1EDE28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483259   (1006912) от 13.07.2021
+
+Dream Troll - The Knight Of Rebellion (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. To Nkroachment: Yarbles (Live, ATP, Camber Sands, 28 April 2002) [00:03:32]
-02. 2 Librans (Live, ATP, Camber Sands, 28 April 2002) [00:04:01]
-03. The Joke (Live, ATP, Camber Sands, 28 April 2002) [00:04:22]
-04. And Therein (Live, ATP, Camber Sands, 28 April 2002) [00:04:32](   Читать дальше...   )Жанр: Garage Rock, Post PunkПродолжительность: 4CD, 03:49:40
+01. Time For Vengeance
+02. Velvet Drawbridge
+03. Mons Ominosus
+04. Lost In The Pages(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:49:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2995E57CE9B2C72DE0920CDE53957EDBFB11F1E9
+magnet:?xt=urn:btih:55FA36CA433F41E96FB909A068C194C0FFDB161B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -704,25 +301,401 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484049   (1006394) от 17.07.2021
+###  Публикация: 1483440   (1006911) от 13.07.2021
 
-Сесилия Ахерн | Postscript (2019) [MP3, Алла Човжик]
+Gary Rees - Southwest Passage (2021) Triplicate Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прошло семь лет с тех пор, как умер Джерри, муж Холли Кеннеди. И шесть лет с тех пор, как она прочитала его последнее письмо, призывающее Холли найти в себе мужество начать новую жизнь. Она преодолела боль, заново научилась дышать, любить, верить, у неё есть все основания гордиться тем, как она повзрослела, каким человеком стала за эти годы. Но тут её покой нарушают (   Читать дальше...   )Жанр: Зарубежные любовные романы, Современные любовные романыПеревод: Эвелина Д. МеленевскаяПродолжительность: 09:31:09
+01. A Little Perdition (07:14)
+ 02. Capistrano (04:00)
+ 03. Say When (01:06)
+ 04. Flora & Fauna (02:52)(   Читать дальше...   )Жанр: IDM, DowntempoПродолжительность: 00:42:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:086F545324433F92D9AAA07EFE4C9D8639382EA2
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483463   (1006910) от 13.07.2021
+
+Exposure X6 v6.0.8.237 [En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редактор фотографий для творческих людей, который обрабатывает каждый шаг вашего процесса. От передачи  к организации и редактированию,  упрощает выполнение повседневных задач и предоставляет богатый набор инструментов для разработки красивых фотографий. Exposure  вписывается в любой рабочий процесс. Exposure легко интегрируется с Photoshop и Lightroom, а со своей новой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.07.2021Разработчик: Exposure Software, LLCПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483364   (1006909) от 13.07.2021
+
+iMap Builder: Organisation 3.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006909.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMap Builder - незаменимое приложение, предназначенное для упорядочивания Ваших мыслей. Соберите все Ваши идеи воедино и составьте удобную карту мыслей.Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: New TechnologiesПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F19A6E42B980A517DCC61DC402E170DF85F04000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483386   (1006908) от 13.07.2021
+
+HoudahSpot 6 v6.1.3 [En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006908.jpg" />
+</div>
+
+
+###  Подробнее
+
+HoudahSpot - расширяем возможности Spotlight.
+HoudahSpot - надстройка над Finder, значительно расширяющая его возможности при поиске файлов. Вы будете приятно удивлены, когда обнаружите файлы, о которых вы давным-давно забыли. Приложение поможет вам составить детализированные запросы (которые можно сохранить) для поиска нужного файла.
+HoudahSpot помогает вам управлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.07.2020Разработчик: Houdah SoftwareПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483255   (1006907) от 13.07.2021
+
+Dream Troll - Second To None (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steel Winged Warrior
+02. I Will Not Die Today
+03. The Lawmaker
+04. Chrome Skull Viper(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D339CA7FF76A6BF56F81BCA09D73B256EEF76A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483417   (1006906) от 13.07.2021
+
+Растровый клипарт - Сборник клипарта #15 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 249x1220-6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2205460E2BF695BF913A185C801ADEEC856E9CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483462   (1006905) от 13.07.2021
+
+Exposure Software Snap Art 4 v4.1.3.379 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Snap Art 4 - этот плагин предназначен для превращения фотографий в картины и рисунки, нарисованные от руки различными стилями. Содержит большую библиотеку предварительных заготовок, которые дают возможность одним щелчком мыши создавать картины, написанные или нарисованные маслом, углем, акварелью, цветными карандашами, ручкой и чернилами, пастельными мелками, а также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.07.2021Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B4F37710FB4EC5408AD9A0E19A6B8F08C8BA54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483369   (1006904) от 13.07.2021
+
+Find Any File (FAF) 2.3.1 b2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2021Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDD5A1948F038A81F4639DE9952619C4CB47CF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483394   (1006903) от 13.07.2021
+
+HoudahGeo 6 v6.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006903.jpg" />
+</div>
+
+
+###  Подробнее
+
+HoudahGeo – программа для размещения географических координат в EXIF-тегах цифровых фотографий.
+HoudahGeo поддерживает множество методов геокодирования, начиная с автоматического до ручного. Используйте журнал GPS трека, справочные фотографий, сделанных с iPhone или выберите места на встроенных картах. HoudahGeo пишет метаданные EXIF, XMP, IPTC и в JPEG и RAW изображениях. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2021Разработчик: Houdah SoftwareПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2BAB881C2B7F2379A9915DDA4DA06240FBAFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483464   (1006902) от 13.07.2021
+
+Елена Патрикеева | Профессия мама (2020) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Профессия мама» – это книга о мамах, это книга для мам. Это книга о сложных эмоциональных состояниях в материнстве, с которыми сталкивается каждая вторая мама.
+
+Чем отличается эта книга от сотен других книг на ту же тему? Найду ли я в этой книге ту самую инструкцию и волшебный пульт управления от моего ребенка? Усмирит ли эта книга мою бесконечную тревогу (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, Семейная психологияФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011BFB46AA153B6B1FD55D2C2E9806FCC28AED9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483420   (1006901) от 13.07.2021
+
+Растровый клипарт - Сборник клипарта #16 [PNG, TIF, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 218x1108-6271x6645
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2C6A0B214881A5961559C13D8A89FABB70533C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483422   (1006900) от 13.07.2021
+
+Растровый клипарт - Сборник клипарта #17 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 211x512-4592x3448
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63DC03218DFCF3786182F0111E1D5E51BE951E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483423   (1006899) от 13.07.2021
+
+Растровый клипарт - Сборник клипарта #18 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 201x217-5679x4731
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18F311EB2C4C0D707D1E3970FA2F279E80BA114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483345   (1006898) от 13.07.2021
+
+Святитель Николай (Могилевский) | Не поклонимся греху. Святоотеческое учение о борьбе со страстями (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор предлагаемой книги, митрополит Николай (Могилевский; 1874†1955), — блестящий интеллектуал и в то же время человек святой жизни, подвижник и молитвенник. Ему суждено было пройти лагеря, тюрьмы и ссылки. В 1945 году его назначили на Алма-Атинскую и Казахстанскую кафедру, которой он управлял в течение последних десяти лет своей жизни. В 2000 году священноисповедник (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FC6C8A8B345B7F9B26F9F26C2B5F8FEFF12842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483424   (1006897) от 13.07.2021
+
+Растровый клипарт - Сборник клипарта #19 [PNG, TIF, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 248x750-9186x3496
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4246598305F5920510E24D6F14034CD885FC7136
 ```
 
 https://mybot314.ru/tekegram_catalog/

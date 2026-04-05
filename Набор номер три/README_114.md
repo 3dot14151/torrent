@@ -1,3 +1,162 @@
+###  Публикация: 992355   (898626) от 03.03.2016
+
+Мобильный интернет в России признан одним из самых дешевых в мире
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия заняла второе место по стоимости мобильного интернета
+Мобильный интернет в России признан одним из самых дешевых. По дешевизне мобильного интернета Россия уступила лишь Ирану и заняла второе место в рейтинге стран, составленном аналитическим агентством Content Review.Стоимость гигабайта трафика во многих развитых странах оказалась гораздо выше, чем в России. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492720   (898571) от 01.09.2021
+
+Акции провайдера спутниковой связи взлетели из-за слухов об iPhone 13
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акции американского провайдера Globalstar взлетели на бирже после появления слуха, что новый iPhone 13 будет поддерживать спутниковую связь, сообщает CNBC.По состоянию на 30 августа ценные бумаги компании подорожали на 55 процентов и торговались по 2,2 доллара за штуку. Причиной тому стало сообщение аналитика TFI International Securities Минг-Чи Ко.Он заявил, что (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 102120   (898499) от 14.03.2010
+
+Gekijouban Kara no Kyoukai: The Garden of Sinners / Граница пустоты: Сад грешников [2007-2009, 7] 5xDVD5, 2xDVD9
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта серия родилась из обширного (900 стр.) додзинси-романа Киноко Насу. В принципе, роман был рыхлым и слабым, поэтому позже автор переписал его как визуальную «Легенду полнолуния о Лунной принцессе», с которой началась история Type-Moon. После раскрутки фирмы с серией игр Fate, вспомнили и о «Границе», которую объявили альтернативным миром вселенной Type-Moon и (   Читать дальше...   )Жанр: триллер, мистика, ужасыРежиссер: Такидзава СинсукэФормат: DVD-5 (оригинальные диски с добавленным русским войсовером, релизПродолжительность: 119 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492682   (898473) от 01.09.2021
+
+Рогозин предположил, что США на Starship будут перебрасывать спецназ
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корабль Starship, создаваемый компанией SpaceX Илона Маска для полетов на Луну и Марс, может использоваться в интересах Пентагона для межконтинентальной переброски спецназа, считает генеральный директор Роскосмоса Дмитрий Рогозин."Новые разработки, которые он (Маск - ред.) реализует, связаны с Пентагоном. Например, красивая идея, которую сразу поддержали наши (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992865   (898435) от 03.03.2016
+
+WinPE 10 Sergei Strelec (x86/x64) 2016.03.03 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск WinPE 10 - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, и антивирусы.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43239C7EEE93F1D45F4CB24705A5A8BF7FC5DAA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992747   (898429) от 03.03.2016
+
+ESET Smart Security + NOD32 Antivirus 9.0.375.1 Repack by SmokieBlahBlah [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898429.jpg" />
+</div>
+
+
+###  Подробнее
+
+ESET NOD32 Antivirus - новое антивирусное решение от ESET, предлагающее улучшенный эвристический анализ неизвестных угроз, "облачные" технологии ESET Live Grid для определения репутации файлов и обновленный интерфейс.
+
+ESET Smart Security - новая версия комплексного антивируса с облачной технологией ESET Live Grid. Решение "все-в-одном" с многоуровневой (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E9661433242CD3C1F137419A1C4C15133F0165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417049   (898422) от 01.09.2021
 
 Marvel’s Avengers (2020) [Ru/Multi] (2.0.2.1) Steam-Rip InsaneRamZes [Endgame Edition]
@@ -6,7 +165,7 @@ Marvel’s Avengers (2020) [Ru/Multi] (2.0.2.1) Steam-Rip InsaneRamZes [Endgame 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898422.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 03.2016 2 DVD [R
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898418.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ Windows 10 32in1 (21H1 + LTSC 1809) x86/x64 +/- Office 2019 x86 by SmokieBlahBla
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898413.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ Mount & Blade II: Bannerlord (2020) [Multi] (1.6.1.280285) License GOG [Early Ac
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898410.jpg" />
 </div>
 
 
@@ -111,7 +270,7 @@ Far Cry 4 (2014) [Ru] (1.10/dlc/tr) Repack =nemos= [Gold Edition]
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898408.jpg" />
 </div>
 
 
@@ -137,7 +296,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898406.jpg" />
 </div>
 
 
@@ -163,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898405.jpg" />
 </div>
 
 
@@ -189,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898120.jpg" />
 </div>
 
 
@@ -215,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898008.jpg" />
 </div>
 
 
@@ -241,7 +400,7 @@ Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu / Не люб
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897960.jpg" />
 </div>
 
 
@@ -267,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897944.jpg" />
 </div>
 
 
@@ -293,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897934.jpg" />
 </div>
 
 
@@ -320,7 +479,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/Multi] (1.6.5/dlc) Repack Other s [Gold E
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897930.jpg" />
 </div>
 
 
@@ -346,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897846.jpg" />
 </div>
 
 
@@ -374,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897732.jpg" />
 </div>
 
 
@@ -403,7 +562,7 @@ Alien Skin Software Master Bundle collection 2011 (32/64 bit) [Eng]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897348.jpg" />
 </div>
 
 
@@ -429,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897229.jpg" />
 </div>
 
 
@@ -455,7 +614,7 @@ Kali Linux 1.1.0 (ex. BackTrack) (Аудит безопасности, хаки�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897105.jpg" />
 </div>
 
 
@@ -483,7 +642,7 @@ Dilogy Sacred 2-3 [PS3] [EUR/USA] [Multi5] [2.60, 4.55] [5 DLC] [Cobra ODE / E3 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897089.jpg" />
 </div>
 
 
@@ -509,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897081.jpg" />
 </div>
 
 
@@ -520,166 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:355055605082F45DD1643942459072AFFF6D635E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 687864   (897064) от 11.02.2015
-
-The Cat Lady / Кошатница (2012) [Ru/Multi] (1.5) RePack Let'sPlay
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сьюзен Эшворт, одинокая женщина 40 лет… устала жить. Она больше не видит ни в чём смысла и единственное, чего она сейчас хочет — это просто перестать существовать. «Спасибо за ничего» — завершает она предсмертную записку и принимает огромную дозу снотворного. Чувствуя долгожданные покой и умиротворение, миссис Эшворт безболезненно умирает. Кажущееся бесконечным поле (   Читать дальше...   )Тип издания: RePackРазработчик: Harvester GamesЖанр: Adventure / Survival horror / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Финский, Венгерский, Бразильский (Португальский)Язык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Финский, Венгерский, Бразильский (Португальский)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488F6F3AEEBA84C66A94E05F824199CD7D1D49C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 794902   (897051) от 11.02.2015
-
-Андрей Журавлев | Андрей Журавлев  Adobe Photoshop. Базовый уровень (2014) [PCRec]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чему Вы научитесь?
-Курс Adobe Photoshop. Базовый уровень является первым курсом в серии по направлению Adobe Photoshop. Курс закладывает фундамент в обработке растровых изображений и изучает основной функционал программы. Полученные знания позволят пользователю ориентироваться в программе, понимать сущность растрового изображения и выполнять базовые операции с растровыми изображениями.
-
-Разберетесь с основами получения растровых изображений
-Сможете исправлять основные дефекты в фотографиях(   Читать дальше...   )Жанр: ОбучениеПродолжительность: 25:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8869A42F3C26D4863A47F77338729D0D85D7369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868410   (897048) от 11.02.2015
-
-ABBYY Lingvo x6 Professional 16.2.2.64 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программный пакет ABBYY Lingvo отличают богатейшая лексическая база и множество функций для удобного и качественного перевода. С ABBYY Lingvo миллионы пользователей во всем мире смогли убедиться, что профессиональный перевод слов и фраз за считанные секунды – это реальность. Новая версия словаря ABBYY Lingvo x6 воплотила расширенные, в том числе и интерактивные, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392BEC2E09EA054F6D8727A2A813021DD21FB18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100934   (897001) от 05.02.2017
-
-Resident Evil / Biohazard HD Remaster (2015) [Ru] (1.0) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Признанная классика жанра ужасов снова с нами! Встречайте обновленное издание игры Resident Evil в формате HD. В 1998 году для расследования странных убийств в окрестности города Раккун-сити направлен отряд особого назначения. На бойцов нападает стая кровожадных псов-мутантов, и они пытаются спастись в усадьбе неподалеку. Но и там все пропитано запахом смерти. Боеприпасов (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F5529B38CF286E551407C787260D9415467460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867155   (896997) от 05.02.2017
-
-VLC for Android 2.1.0 Beta [Ru] - Медиаплеер
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из простых видеоплееров для Android, поддерживающий практически все форматы. На данный момент видеоплеер находиться в статусе бета-версии, так как программа пока нестабильна, но это дело времени.Тип издания: FreeРелиз состоялся: 05.02.17Разработчик: VideolabsПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:840844E38DDFD744D7562A8D52783F7E4B5835BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000842   (896996) от 05.02.2017
-
-Викинги / Vikings (2016) WEB-DL [H.264/720p-LQ] (сезон 4, серии 1-20 из 20) NewStudio
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896996.jpg" />
-</div>
-
-
-###  Подробнее
-
-История повествует о приключениях величайшего героя своего времени – Рагнара Лодброка. В сериале показан Рагнар со своим племенем братьев-викингов и его семьёй в процессе становления королём всех племён викингов. Рагнар – бесстрашный воин, и религиозный викинг, который объединяет все племена и распространяет среди них поклонение скандинавским богам. Согласно легенде, (   Читать дальше...   )Производство: Ирландия, Канада / World 2000 Entertainment, Take 5 Productions, Shaw MediaЖанр: боевик, драма, историяРежиссер: Кен Джиротти, Киаран Доннелли, Джефф ВулнафАктеры: Трэвис Фиммел, Клайв Стэнден, Густаф Скарсгард, Кэтрин Уинник, Джордж Благден, Джессалин Гилсиг, Мод Хирст, Алисса Сазерленд, Джефферсон Холл, Александр Людвиг и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FCD6A3C41E50B85E634D94C584394E5819DF015
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523383.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520331.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519371.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519272.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Anathema – Universal (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518342.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518261.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518229.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517216.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517033.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516593.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516056.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Iron Maiden - Flight 666 (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516008.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Slipknot / Live At Download (2009/2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515357.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Muse - Live At Rome Olympic Stadium (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513660.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511742.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Heaven and Hell - Radio City Music Hall Live! (2011) BDRip 1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505415.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Metallica - Live @ Moscow (2019) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504942.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Gary Moore - Live at Montreux (2010) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504157.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504152.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ U.D.O. - Navy Metal Night (2014/2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503258.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502318.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Gary Moore - Blues for Jimi (2007/2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502152.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502149.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Madonna - Sticky and Sweet Tour (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502136.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Rammstein - Live @ Moscow (2019) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502114.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502093.jpg" />
 </div>
 
 

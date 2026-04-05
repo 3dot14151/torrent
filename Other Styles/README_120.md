@@ -1,3 +1,61 @@
+###  Публикация: 1068170   (380281) от 01.11.2016
+
+Gianni Marchetti - Le Notti Porno Nel Mondo N. 2 (Original Motion Picture Soundtrack) (1978) Remastered, Limited Edition, 2011, Beat Records Company [MP3|320 Kbps] <Smooth Jazz, Jazz-Funk, Easy  ...
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seq. 1
+02. Seq. 2
+03. Seq. 3
+04. Seq. 4(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, Easy ListeningПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA477C5C6EFD2B63D96D07E5C2787F2FB3D10AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833941   (380072) от 24.10.2014
+
+Ennio Morricone - The Very Best Of (2000) [WavPack|Lossless|image + .cue] <Score>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Fistful of Dollars (2:58)
+02. For a Few Dollars More (2:31)
+03. The Good, the Bad and the Ugly (2:38)
+04. Chi Mai (5:06)(   Читать дальше...   )Жанр: Stage & Screen, ScoreПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEC71659A8BB8552300EC50CF0B22E19EB8EBE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067981   (380009) от 01.11.2016
 
 Santiano - 3 Альбома (2012 - 2015) [FLAC|Lossless|tracks + .cue | image + .cue] <Folk, Rock, World>
@@ -6,7 +64,7 @@ Santiano - 3 Альбома (2012 - 2015) [FLAC|Lossless|tracks + .cue | image +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380009.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Constance Demby - Sanctum Sanctuorum (2003) [FLAC|Lossless|tracks + .cue] <NewAg
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379614.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Constance Demby - Faces of the Christ (2000) [FLAC|Lossless|tracks + .cue] <NewA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379613.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Constance Demby - Spirit Trance (2004) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379526.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Constance Demby - Set Free (The Definitive Edition) (2006) [FLAC|Lossless|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379525.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Constance Demby - Ambrosial Waves – Healing Waters (2011) [FLAC|Lossless|image
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379442.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Selectio
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377887.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377656.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ David Arkenstone - David Arkenstone: The Collection (2020) [FLAC|Lossless|WEB-DL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376535.jpg" />
 </div>
 
 
@@ -270,7 +328,7 @@ Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376456.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376345.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376341.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Hans Zimmer - Themyscira (OST from Wonder Woman 1984) (2020) [FLAC 2.0|44/24|tra
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376176.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376166.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ Gregorian Prayers - 50 Must-Have Mystic Gregorian Pop Remixes (2012) [MP3|320 Kb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376026.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ Hans Zimmer - Eclipse (OST from Dune) [Trailer Version] (2020) [FLAC 2.0|44/24|t
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376011.jpg" />
 </div>
 
 
@@ -461,7 +519,7 @@ David Lanz - Norwegian Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375962.jpg" />
 </div>
 
 
@@ -490,7 +548,7 @@ V.A. - Bappi Lahiri - Disco Dancer, Kasam Paida Karne Wale Ki, Tarzan (2000) [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_375539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375539.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Howard Drossin & RZA - Человек с железными кулаками (20
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375454.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Music of the Shamans (Музыка шаманов)
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_375013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_375013.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Armik - Cafe Romantico (2004) [MP3|320 Kbps] <Flamenco>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374945.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Kike Fernandez - 100 Tangos Inolvidables (2010) [MP3|192 кб/с]<Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374863.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Astral Dreams. Insomnia Help Sleeping Music (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374343.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373682.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEC783B8217B130F3EC14A8A9C8429B36FEB1B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069433   (373679) от 04.11.2016
-
-Sarah Schachner - Call of Duty: Infinite Warfare (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthropic Universe (04:22)
-02. Home (01:47)
-03. Rising Threat (05:29)
-04. Olympus Mons (04:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E2F1E3B9808ADDE778D2DB3912BBCD2B2C53EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254369   (373007) от 14.10.2018
-
-Caravelli - Caravelli in Moscow (1982) 1999, Reissue, Boheme Music [MP3|320 Kbps] <Pop, Folk, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Starlit Summer (2:47)
-02. Love Has Come (4:38)
-03. The Moon Is Shining (3:50)
-04. It Was Long Ago (3:53)(   Читать дальше...   )Жанр: Pop, Folk, Easy ListeningПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A54D4DC0B28E118F440F5056390EE37A9BB8E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

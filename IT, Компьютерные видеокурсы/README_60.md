@@ -1,29 +1,3 @@
-###  Публикация: 528731   (452914) от 12.08.2022
-
-А. Севастьянов | Сброс пароля администратора в Windows [2011] PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452914.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном видеоуроке, рассмотрим пример сброса пароля администратора в Windows, что позволит выполнить вход в систему с привилегированными правами.Жанр: Обучающее видеоПродолжительность: 00:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E01468873D86D823D36A7CA28A31ABD1F33D6BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409005   (450753) от 14.09.2020
 
 Специалист | Введение в DevOps: инфраструктура как код, использование Docker и Kubernetes (2020) PCRec
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450753.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Lynda.com | Основы программирования: объектно-ор
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447755.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446845.jpg" />
 </div>
 
 
@@ -115,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446659.jpg" />
 </div>
 
 
@@ -142,7 +116,7 @@ Laracasts | Skills (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444809.jpg" />
 </div>
 
 
@@ -171,7 +145,7 @@ ITVDN | Тестирование ASP.NET Core MVC приложений (2020) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444637.jpg" />
 </div>
 
 
@@ -199,7 +173,7 @@ Oleg Lav | Загрузка  WinPE 10-8 Sergei Strelec с жесткого ди�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438678.jpg" />
 </div>
 
 
@@ -227,7 +201,7 @@ Jeffrey Way | Perfect Workflow in Sublime Text 2 [2012] PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438173.jpg" />
 </div>
 
 
@@ -255,7 +229,7 @@ ITVDN | React Essential (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437727.jpg" />
 </div>
 
 
@@ -283,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436987.jpg" />
 </div>
 
 
@@ -312,7 +286,7 @@ Lynda.com | Trapcode Particular Essential Training [Sep 27, 2012] PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435694.jpg" />
 </div>
 
 
@@ -338,7 +312,7 @@ NFP | Цикл вебинаров «Переход с 1С:УПП на 1С:ERP» 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435659.jpg" />
 </div>
 
 
@@ -365,7 +339,7 @@ ITVDN | STL - стандартная библиотека шаблонов. Те
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435648.jpg" />
 </div>
 
 
@@ -392,7 +366,7 @@ ITVDN | SQL Essential (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435638.jpg" />
 </div>
 
 
@@ -419,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435489.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ ITVDN | ASP.NET Core SignalR (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435488.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ ITVDN | Django Starter (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433298.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433289.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ HTML Academy | Интенсивный онлайн-курс «Продвинут
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431999.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ ITVDN | Решение практических задач на C++ (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431283.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431256.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431233.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429297.jpg" />
 </div>
 
 
@@ -667,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429022.jpg" />
 </div>
 
 
@@ -693,7 +667,7 @@ Java Course | Java EE. Профессиональная разработка (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428451.jpg" />
 </div>
 
 
@@ -704,6 +678,32 @@ Java Course | Java EE. Профессиональная разработка (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4EF02A5FC0B16E6E9218BE9435A1D2DF8F721FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166091   (427881) от 15.09.2017
+
+ITVDN | Программирование на платформе UWP (2017) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс состоит из двух частей – теории и практики. В теоретической части вы познакомитесь с историей, описанием и предназначением той или иной части технологии или ее составляющей. На практических занятиях, для явной визуализации функциональности части технологии, вы узнаете о главных свойствах и методах, а также рассмотрите примеры.Производство: ITVDNЖанр: Программирование, Windows, UwpПродолжительность: 13:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA54CD45A14E0D0AD4A20619FA83282DE416611
 ```
 
 https://mybot314.ru/tekegram_catalog/

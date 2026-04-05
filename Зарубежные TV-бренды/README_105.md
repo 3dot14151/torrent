@@ -6,7 +6,7 @@ NGW. Странная природа: сумасброды / Stranger than Natur
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220981.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC. Как устроены шикарные отели. Эм-Джи-Эм (Ма
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220854.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Осушить океан: Подводные лодки-убийцы / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220832.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG:  В поисках Атлантиды / Finding Atlantis (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220809.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220650.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRip (сезон 1, сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220273.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219969.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NG. Потерянный и найденный / Lost and Found (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219715.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NG. Петра: тайны древних строений / Petra. Secrets of t
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219602.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219451.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NG: Суперсооружения. Корейская Супермагистр�
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219167.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC: Детские хирурги: совершая чудеса / Baby Surgeon
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219090.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218729.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NGW: Зов малыша белухи / Call of the Baby Beluga (2016) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217814.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Discovery. Османы и христиане: Битва за Европу / Ot
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217775.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217738.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ NG: От Парижа до Питтсбурга / Paris to Pittsburgh (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217659.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ BBC. Скрытые вершины (Заповедник Бен-Эй) / The Hidd
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217608.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ BBC. Космическая гонка 21 века / The 21st Century Race for S
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217361.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2015) HDTV 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217306.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Discovery: Я не должен был выжить / I Shouldn't Be Alive (2005
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217276.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ NG: Инстинкт выживания. Экстремальные джунгл
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217213.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ BBC: День Д: Последние слова / D-Day: Last Words (D-Day in 14
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216934.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ NG. Тутанхамон: Цветная Версия / King Tut In Colour (2020
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216385.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ BBC. Африканские Драконовы горы / BBC: Africa's Dragon M
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215931.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Discovery: Разрушители легенд. Челюсти: месть / Myt
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215930.jpg" />
 </div>
 
 

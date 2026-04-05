@@ -1,3 +1,32 @@
+###  Публикация: 1427597   (180664) от 01.12.2020
+
+Portishead - Dummy (1994) 2008, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Trip Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180664.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mysterons
+A2 Sour Times
+A3 Strangers
+A4 It Could Be Sweet(   Читать дальше...   )Жанр: Trip HopПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6902D2FA54D225761699AFFA2FC04E7EA9361DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665828   (180623) от 02.10.2023
 
 Мираж - Не в первый раз... (2004 / 2023) hand made, remastered [FLAC|44/16|tracks|CD-Rip] <Pop, Dance, Disco>
@@ -6,7 +35,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180623.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Massive Attack - Mezzanine  (1998) 2013, Europe, Reissue [FLAC 2.0|96/24|tracks 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180596.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Creed (Tremonti, Scott Stapp) - Studio Albums (4 releases) (1997-2009) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180375.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ October Falls - The Womb of Primordial Nature (2008) [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_180368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_180368.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Benassi Bros. feat. Dhany - Every single day (2005) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180259.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Wolf - Studio Albums (9 releases) (2000-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_180248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_180248.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Benassi Bros. feat. Dhany - Hit My Heart (2004) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180228.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180116.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180013.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179695.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Mago De Oz - Ira Dei (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179676.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Steeler - Strike Back (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179068.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Steeler - Undercover Animal (1988) [WavPack|24/192|image + .cue|Vinyl-Rip] <Heav
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179060.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Steeler - Rulin' The Earth (1985) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179036.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Scar Symmetry - Studio Albums (7 releases) (2005-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178953.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ The Riverboat Minstrels - Stereo Minstrel Show (1971) [FLAC 2.0|24/96|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178416.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Steeler - Steeler (1983) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178333.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Roxy Music - Manifesto (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Art Rock,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178227.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177947.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Pretty Maids - Studio Albums (17 releases) (1983 - 2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177838.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177798.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177613.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Strawbs - Ghosts (1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177080.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Kate Smith - Today (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Ballad>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177006.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176509.jpg" />
 </div>
 
 
@@ -716,33 +745,6 @@ CD-1 (48:51)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32C3F8BE03473FF7EE213FBC12A9EE58910032A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667818   (176139) от 09.10.2023
-
-Psygnosis - AAliens (2015) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176139.jpg" />
-</div>
-
-
-###  Подробнее
-
-A - FIIIX 3.0
-B - Man Ov SteelЖанр: Industrial, Progressive Death MetalПродолжительность: 00:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECD61F490627987AC99F4D9587F97C78D9D5D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ openSUSE 13.1.1 Education Li-f-e [i686] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226455.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ROSA Desktop Fresh LXQT R6 [i586, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225010.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ ROSA Enterprise Desktop (RED) X2 2014.1 [i586, x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219544.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Sabayon 14.01 [x86] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218257.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sabayon 14.01 [amd64] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218181.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ PCLinuxOS 2014.12 KDE FullMonty [x32, x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215748.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ openSUSE Leap 15.4 [x86_64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213377.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kali Linux 2022.2 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213178.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.4
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212758.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Debian Edu - Skolelinux 11.4.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212719.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Kubuntu 22.04 LTS (Jammy Jellyfish) [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212267.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Slax 15.0 [amd64] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211179.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Parrot Security OS 5.1 [Хакинг, аудит, безопасность] 1xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206132.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Network Security Toolkit (NST 36 SVN:13232) 36-13232 [x86 x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205995.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Zorin OS 18 Pro 18.0 [X86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205667.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Kali Linux 2022.3 [amd64, i386, arm] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205387.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Fedora 38 Workstation Server Spins [x86_64] 12xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199502.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Debian GNU/Linux 11.7.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199121.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Kali Linux 2023.1 [amd64, i386, arm64] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199112.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Debian Edu - Skolelinux 11.7.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199068.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Debian GNU/Linux 11.7.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199054.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ UncomOS 2023.03.13-desktop [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197950.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ openSUSE Leap 15.5 [x86_64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197285.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Red Hat Enterprise Linux 9.2 [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197230.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Kali Linux 2023.2 [amd64, i386, arm64] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194848.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ AltLinux 8 СП [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194149.jpg" />
 </div>
 
 

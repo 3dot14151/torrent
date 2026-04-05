@@ -1,3 +1,32 @@
+###  Публикация: 1409627   (442870) от 18.09.2020
+
+Disciple - Love Letter Kill Shot (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuff the Criminal (3:32)
+02. Reanimate (3:39)
+03. Wake Up (3:31)
+04. Panic Room (feat. Andrew Schwab) (4:30)(   Читать дальше...   )Жанр: Alternative Metal, Modern Hard RockПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC57C554D2BF891DCDC4BE200FB7CEEE56FF73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409759   (442864) от 18.09.2020
 
 Cindy Blackman Santana - Give the Drummer Some (2020) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ Cindy Blackman Santana - Give the Drummer Some (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442864.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442840.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442684.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Manticora - The Black Circus Part 2 - Disclosure (2007) [APE|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442676.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Manticora - The Black Circus Part 1 - Letters (2006) [APE|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442671.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Manticora - Safe (2010) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442670.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Almendra - En vivo en el Teatro del Globo (2004) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442668.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Cream - Wheels Of Fire (1968) Originally released 2CD /1986, Polydor/[FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442583.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ After All - Cult Of Sin (2009) [APE|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442469.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ ZZ Top - Afterburner (1985) SHM-CD, 2013, Warner Music [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442460.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ ZZ Top - Eliminator (1983) SHM-CD /2013, Warner Music/ [FLAC|Lossless]<Blues Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442452.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Beggar's Bride - 3 Albums (2006-2010) [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442406.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442340.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Nothgard - The Sinner's Sake (2016) [MP3|320 Kbps] <MDM, Epic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442151.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Billy F Gibbons (Zz Top) - The Big Bad Blues (2018) [MP3|320 Kbps] <Blues Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442040.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Obscenity - The 3rd Chapter (1996) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442023.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Obscenity - Where Sinners Bleed (2006) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442022.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Entrails - World Inferno (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442013.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ VA - Свободная культура. Звуки Северной столи
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441971.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Big & Rich - Hillbilly Jedi (2012) [MP3|320 кб/с]<Country Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441912.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441783.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ Ritchie Blackmore - Best Tracks (1995) Japanese Edition [WavPack|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441778.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441777.jpg" />
 </div>
 
 
@@ -678,7 +707,7 @@ Sum 41 - 13 Voices (2016) Japanese Edition [FLAC|Lossless|tracks +.cue] <Punk Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441605.jpg" />
 </div>
 
 
@@ -707,7 +736,7 @@ R.E.M. - Document (1987) 2012 (25th Anniversary Edition) Deluxe Edition, 2 CD [M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441539.jpg" />
 </div>
 
 
@@ -718,41 +747,6 @@ R.E.M. - Document (1987) 2012 (25th Anniversary Edition) Deluxe Edition, 2 CD [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9B01EFBCEBD2B4369AF9EF9238340946F890024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553859   (441530) от 29.09.2012
-
-Alvin Lee - Still On The Road To Freedom (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still On The Road To Freedom
-02. Listen To Your Radio Station
-03. Midnight Creeper
-04. Save My Stuff
-05. I'm A Lucky Man
-06. Walk On, Walk Tall
-07. Blues Got Me So Bad
-08. Song Of The Red Rock Mountain
-09. Nice & Easy
-10. Back In 69(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDED31788E81E7AFB1B74E453277E761F059D4D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

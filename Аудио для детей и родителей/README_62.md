@@ -1,3 +1,31 @@
+###  Публикация: 415218   (326794) от 25.11.2011
+
+Михаил Булгаков | Собачье сердце (2007) [MP3, Александр Андриенко]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Школьная библиотека.
+Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик русской литературы ХХ столетия.
+«Школьная библиотека» продолжает знакомить своих слушателей с творчеством замечательного русского писателя Михаила Афанасьевича Булгакова. Предлагаем вашему вниманию его мудро-печальную повесть – «Собачье сердце». Вы услышите удивительный (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АудиокнигаПродолжительность: 03:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:164CA8D82770DC6511587189728A27B4205E1573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 414925   (326678) от 25.11.2011
 
 Илья и Елена Челноковы - 5 альбомов (2002-2008) [MP3|128-320 kbps]<Детские песни и минусовки>
@@ -6,7 +34,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326678.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ VA - Новогоднее рождество (2008) [MP3|320 kbps]<Детски�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324007.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ VA - Новогоднее волшебство (2009) [MP3|320 kbps]<Детск�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323902.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323887.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322211.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ VA - Новогодний хоровод (2008) [MP3|320 kbps]<Детские п
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321720.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ VA - Новогодний карнавал (2008) [MP3|320 kbps]<Детские 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321602.jpg" />
 </div>
 
 
@@ -201,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321402.jpg" />
 </div>
 
 
@@ -227,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319873.jpg" />
 </div>
 
 
@@ -256,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319760.jpg" />
 </div>
 
 
@@ -282,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319447.jpg" />
 </div>
 
 
@@ -311,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319399.jpg" />
 </div>
 
 
@@ -337,7 +365,7 @@ Baby Einstein - Baby Mozart (2000) [MP3|192 kbps]<Классическая му�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319313.jpg" />
 </div>
 
 
@@ -366,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319229.jpg" />
 </div>
 
 
@@ -395,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318153.jpg" />
 </div>
 
 
@@ -421,7 +449,7 @@ VA - Хор Венских мальчиков (2000) [MP3|320 kbps]<Класси
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318147.jpg" />
 </div>
 
 
@@ -447,7 +475,7 @@ VA - Новогодний подарок (2006) [MP3|192 kbps]<Детские п
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318139.jpg" />
 </div>
 
 
@@ -476,7 +504,7 @@ VA - Союз Детский 3 (2016) [MP3|320 Kbps] <Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317188.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316780.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316380.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316354.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315637.jpg" />
 </div>
 
 
@@ -612,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315534.jpg" />
 </div>
 
 
@@ -639,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314941.jpg" />
 </div>
 
 
@@ -665,7 +693,7 @@ VA - Осенних песен листопад... (2015) [MP3]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314914.jpg" />
 </div>
 
 
@@ -679,35 +707,6 @@ VA - Осенних песен листопад... (2015) [MP3]<Детские �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2CF4FBDD874F351B6E90940A0C571F593850C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736535   (314913) от 06.11.2020
-
-VA - Песенки-веселушки (2012) [MP3|320 kbps] <детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01+/-13. Часики с кукушкой;
-02+/-14. Шлепал дождик;
-03+/-15. Почемучка;
-04+/-16. Лоскутковая страна;(   Читать дальше...   )Жанр: детские песни и минусовкиПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5E49642E027F433B90331EE4A211B2960DB12B
 ```
 
 https://mybot314.ru/tekegram_catalog/

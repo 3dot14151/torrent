@@ -1,3 +1,55 @@
+###  Публикация: 1665686   (181512) от 01.10.2023
+
+Журнал | Саша и Маша №6 (105) (июнь 2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181512.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Саша и Маша» - это развлекательный, познавательный журнал для мальчишек и девчонок 5-8 лет. В каждом номере увлекательные путешествия вокруг света с героями журнала. А также увлекательные комиксы, невероятные лабиринты, задания для настоящих следопытов и удивительные приключения. Приглашаем играть, отгадывать, путешествовать вместе с Сашей и Машей.Жанр: Детский журналИздательство: ООО «Издательский дом «Толока»Формат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEECEC8E60CC7776909E6CD9828FEFBACD09017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428209   (180968) от 01.12.2020
+
+Елена Соковенина | Импровизаторы. Саквояж мадам Ренар (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка начала XX века и Россия наших дней. Двое друзей-авантюристов (если не сказать шарлатанов) не хотят «работать на дядю». Их мечта – заниматься любимым делом и зарабатывать много денег. Благодаря смекалке и редкому дару убеждения друзья становятся рекламщиками и без зазрения совести проворачивают одну авантюру за другой, обдуривая доверчивых людей. Куда заведут (   Читать дальше...   )Жанр: Приключения для детей, Книги для подростковФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1D1A0A9B048043CC280FEC483AE83CE2FB097C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428204   (180944) от 01.12.2020
 
 Антон Березин | Гадский гаджет (2020) [EPUB]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180944.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180916.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180913.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180849.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180830.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180747.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180716.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180482.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180064.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180058.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180050.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180040.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180037.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179984.jpg" />
 </div>
 
 
@@ -385,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179980.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179965.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179876.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179666.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179653.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179574.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179557.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179476.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179375.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179368.jpg" />
 </div>
 
 
@@ -638,60 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F412D8C920711DC116211BE8A6AF1A965F40BE00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428665   (179360) от 03.12.2020
-
-Анна Зенькова | Григорий без отчества Бабочкин (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Григорий Бабочкин и Герман Сто… нет, Герман Бабочкин и Григорий Столяров. Два совершенно непохожих подростка. Один мечтает стать хоккеистом, идёт к этому семимильными шагами, попутно становясь любимцем всех вокруг. Другой – объект всеобщих насмешек, но при этом как будто… бесстрашный? безрассудный?
-Две противоположности сходятся, открывают друг в друге что-то, чего (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказы, Книги для подростковФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D27FA71CB554F6D2615555BCF0BA11871E43DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428671   (179345) от 03.12.2020
-
-Памела Трэверс | Мэри Поппинс с Вишневой улицы (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая сказочная повесть английской писательницы П.Л. Трэверс о необыкновенной няне Мэри Поппинс, которая появляется неизвестно откуда вместе с восточным ветром и исчезает, когда ей заблагорассудится. Ее любят дети во всех странах мира. И неудивительно! Ведь она понимает язык зверей и птиц, знает, как клеят на небо звезды, и может даже взлететь под потолок.
-В (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детей, СказкиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1F515366E09D55ADCA78BE32E158ADD4580E7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

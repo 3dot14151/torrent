@@ -1,3 +1,61 @@
+###  Публикация: 1214777   (763296) от 23.03.2018
+
+VA - Ambient Chill Session 6 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Makia Blue  -  Heal Me  3:42
+02.  Mirko Lovato  -  In The Island (Cut Version)  2:14
+03.  Dmitry Sapelnik  -  Gloria  1:06
+04.  Massivan  -  Come To Me (Ganga Remix)  7:38(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AE47BF7BF43A6C0C90B488CAE618ED60841BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214853   (763178) от 23.03.2018
+
+VA - Music And Wine Vol.1 (25 SoulSetters) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  James Butler  -  Jazzabel (Original Mix)  3:05
+02.  Daniele Soriani  -  Baleares (D-Soriani Jazzy Mix)  4:36
+03.  Velvet Dreamer  -  1000 Miles Away (Simon & Florzinho Remix)  7:12
+04.  Mo'jardo  -  Loose Change (Original Mix)  4:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7077D78305988C34DE462F5BF4A606B666E90CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214763   (763172) от 23.03.2018
 
 VA - Coffee Bar Lounge Vol.4 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Coffee Bar Lounge Vol.4 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763172.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Cherry Blossoms Springtime Chill Vol 1 (Finest Ambient And Background Music
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763168.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - XXX Club Bouncer (2016) [MP3|320 кб/с] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763036.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Dieter Meier (Yello) - Out Of Chaos (2014) [FLAC|Lossless]<Electronic, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762895.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Waveshaper - Station Nova (2016) [MP3|320 кб/с] <Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762641.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Winter 2019: Best Of Inception (2019) [MP3|320 Kbps] <Progressive House, De
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762222.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - 50 Top Hits Remixed Vol.1 (2020) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762202.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Nordlight - A Deep Dive (2009) Spintwist Records [FLAC|Lossless|tracks+.cue] <Do
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762128.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Deep House Hits (Armada) (2019) [MP3|320 Kbps] <House, Deep House, Vocal Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762123.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Johan Tronestam - Luther (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Sp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761920.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Riccicomoto - Huge Distances (2021) LP [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761915.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Johan Tronestam - Cosmic Steps (2021) [FLAC|Lossless|WEB-DL|tracks] <Berlin-Scho
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761909.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Back To Love 03.02 (2002) [FLAC|Lossless|tracks] <House, Breakbeat, Hip-Hop
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761819.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Uplifting Trance Sessions Vol.06 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761812.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Infrasonic Miami (2018) [MP3|320 Kbps] <Progressive House, Progressive Tran
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761811.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Ferry Corsten Presents Corsten's Countdown March (2018) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761807.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Chill Out/La Noche (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761688.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Future Vocal Trance Vol.2 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761548.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Dance Party - Ready For The Summer (2016) [MP3|320 кб/с] <House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761235.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Bali Chill Out Groove (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Lis
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761233.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Afternoon - Acid Jazz & Chill Out (2016) [MP3|320 кб/с] <Lounge, Chill O
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761226.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Groovedelicious, Vol. 2 (40 Deep & Tech House Sounds) (2016) [MP3|320 кб/
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761224.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Future EDM Essentials Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761115.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ CИTROPY - CИTROPY (2018) Sun Sea Sky Productions [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760629.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ CИTROPY - CИTROPY (2018) Sun Sea Sky Productions [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:675E27D93EE99449597FB3CE0C9965AC0F89333B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280525   (760628) от 03.02.2019
-
-Fortunato & Montresor - Imagine (Original & Reissue) (1997 / 2003) Elektrolux, Bedrock Records [FLAC|Lossless|tracks+.cue, tracks] <Progressive House, Breaks, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (Radio Edit) (03:49)
- 02. Imagine (Imagination 1) (06:42)
- 03. Imagine (Chris Fortier Dub) (08:29)
- 04. Imagine (Chris Fortier Remix) (10:42)(   Читать дальше...   )Тип издания: CD, WebЖанр: Progressive House/Breaks/Deep HouseПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BC443775FFBD0ECB1A0B570127AA91425895F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280313   (760542) от 03.02.2019
-
-VA - Total Trance Selections, Vol. 15 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UDM- Free Fall (Original Mix)
-02. Astony- Fujita (Original Mix)
-03. Roman Messer- Antipode (Original Mix)
-04. Ramzi Benlakehal- Hope The Second Chapter (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB38E1A0EF47E9550F2D0052E32D1402E9AF71A
 ```
 
 https://mybot314.ru/tekegram_catalog/

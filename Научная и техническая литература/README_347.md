@@ -1,133 +1,3 @@
-###  Публикация: 1314452   (518183) от 15.07.2019
-
-И.Н. Храпунов | Древняя история Крыма (2007) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для преподавателей, студентов, учащихся средних школ, всех, интересующихся историей Крыма. В доступной для неспециалистов форме излагается история первобытных племен, древних греков, римлян, тавров, скифов, сарматов, готов и других народов, в разное время населявших наш полуостров. Описаны выдающиеся археологические памятники, цитируются (   Читать дальше...   )Жанр: Учебное пособие, ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9FD041BA918DCABB27F53EA7B899402B62EB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314633   (518177) от 15.07.2019
-
-Тоби Уолш | 2062: время машин (2019) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518177.jpg" />
-</div>
-
-
-###  Подробнее
-
-2062 год – что это за дата? Ведущие эксперты по искусственному интеллекту и робототехнике предсказывают: в 2062 году мы сможем создать искусственный разум, который превзойдет возможности человека. Еще в начале 1990-х Гарри Каспаров уверен, что «в классических шахматах на серьёзном уровне компьютерам ничего не светит в XX веке»… и в 1997 году проигрывает компьютеру (   Читать дальше...   )Жанр: Высокие технологии, Информатика и вычислительная техника, Научно-популярная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B4EC75B5CE01C604CD97FB701FDB5E2203DB96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314654   (518173) от 15.07.2019
-
-А. Бродский (ред.) | Завод-ВТУЗ имени Сталина в рисунках художников (1932) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающаяся роль Завода имени Сталина в развитии советской электропромышленности, его достижения в области овладения техникой строительства сложных и мощных машин доставили ему громкую известность не только в Союзе, но и за пределами его. Опыт завода приобрел огромную ценность. Ряд заводских инженеров и квалифицированных рабочих, прошедших производственную свою школу (   Читать дальше...   )Жанр: История, политология, публицистика, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF9AC031AE846DFAC5880FAE164B1F59A6E6987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314455   (518085) от 15.07.2019
-
-Е.О. Попов | 1500 русских и 1500 немецких идиом, фразеологизмов и устойчивых словосочетаний (2012) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518085.jpg" />
-</div>
-
-
-###  Подробнее
-
-В словарь включены устойчивые немецкие словосочетания с переводом их значения или с наиболее точными эквивалентами в русском языке. Для наглядности немецкие идиомы сопровождаются примерами их употребления в разговорной и письменной речи. Книга будет полезна как для детей, так и для взрослых, изучающих немецкий язык.Жанр: СловарьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA43DA79BB0B7CF4F043EDAD1EC741E17BAE9D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314437   (518078) от 15.07.2019
-
-А.Н. Фомин и др. | Общая теория радиолокации и радионавигации. Распространение радиоволн (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518078.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном учебнике рассмотрены физические процессы, происходящие при распространении радиоволн вблизи поверхности и в атмосфере Земли. Особое внимание уделено описанию физических процессов, происходящих в линиях передачи энергии СВЧ-диапазона. Подробно изложены в теоретическом и практическом плане конкретные типы согласующих устройств, которые применяются в прямоугольных (   Читать дальше...   )Жанр: РадиолокацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F0203B9049E10EBCE955967A25F878C6561771B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314640   (517972) от 15.07.2019
 
 Л.А. Потапов | Теоретические основы электротехники: краткий курс (2016) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517972.jpg" />
 </div>
 
 
@@ -163,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517966.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517746.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517698.jpg" />
 </div>
 
 
@@ -241,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517689.jpg" />
 </div>
 
 
@@ -267,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517633.jpg" />
 </div>
 
 
@@ -295,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517475.jpg" />
 </div>
 
 
@@ -321,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517347.jpg" />
 </div>
 
 
@@ -347,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517333.jpg" />
 </div>
 
 
@@ -373,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517293.jpg" />
 </div>
 
 
@@ -399,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516781.jpg" />
 </div>
 
 
@@ -425,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516775.jpg" />
 </div>
 
 
@@ -451,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516700.jpg" />
 </div>
 
 
@@ -477,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516594.jpg" />
 </div>
 
 
@@ -503,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516576.jpg" />
 </div>
 
 
@@ -529,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516476.jpg" />
 </div>
 
 
@@ -556,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516455.jpg" />
 </div>
 
 
@@ -585,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516393.jpg" />
 </div>
 
 
@@ -613,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516350.jpg" />
 </div>
 
 
@@ -639,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516348.jpg" />
 </div>
 
 
@@ -665,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516339.jpg" />
 </div>
 
 
@@ -678,6 +548,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95AFB41D39D97FD8296A1462E2885955CEAD828C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929946   (516309) от 22.08.2015
+
+Ф.И. Тарасов | Кенотроны (1964) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра содержит справочные сведения (параметры, режимы, характеристики) о наиболее распространенных отечественных кенотронах, выпускаемых в настоящее время для приемников, телевизоров и других радиоэлектронных устройств.Жанр: Электроника, радиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D9556A0E76F9921B691A7D43AD0EED6590E6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929875   (516302) от 22.08.2015
+
+Ф.И. Тарасов | Триоды (1965) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра содержит справочные сведения (параметры, режимы, характеристики) о наиболее распространенных  отечественных ламповых триодах различного назначения.Жанр: Электроника, радиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA44644692815B67498B4D5CE92385BF2B6152E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930223   (516301) от 22.08.2015
+
+В.А. Аржанов, А.П. Науменко | Линейный тракт радиоприемных устройств (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы построения структурных схем линейного тракта радиоприемных устройств различного назначения. Изложены вопросы теории и расчета отдельных узлов линейного тракта приема. Систематизирован материал по резонансным усилителям, преобразователям частоты и избирательным устройствам.
+ Предназначено для студентов радиотехнических специальностей.Жанр: РадиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41ED0F9901D31AE3D5E3FC0C1627C9A92690C754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929672   (516298) от 22.08.2015
+
+М.Д. Гуревич, М.Д. Гуревич | Электро - вакуумные приборы (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516298.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены работа и устройство большинства электровакуумных приборов, применяемых в радиотехнических устройствах. Особое внимание уделено электровакуумным приборам ультракоротковолнового диапазона, а также импульсным приборам, работа которых недостаточно освещена в учебной литературе.Жанр: Электроника, радиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96ED263A4EAEE6EBA5219A581F5A8C9D765D09DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929814   (516269) от 22.08.2015
+
+Э.П. Борноволоков | Выпрямители для питания приемников от сети переменного тока (1956) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516269.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей брошюре описывается несколько схем самодельных выпрямителей к радиолюбительским и фабричным приемникам.Жанр: Электроника, радиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81280537A8122A8E52A5E80F336EB06EF92D36D
 ```
 
 https://mybot314.ru/tekegram_catalog/

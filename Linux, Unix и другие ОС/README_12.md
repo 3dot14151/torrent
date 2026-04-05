@@ -1,29 +1,3 @@
-###  Публикация: 1030728   (671718) от 01.07.2016
-
-Phoenix OS 1.0.9 RC [x86] 1xCD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phoenix OS - проект по портированию ОС Android на персональные компьютеры с архитектурой Intel и x86, использует кодовую базу Android-x86. Позволяет запускать мобильную операционную систему от Google на ПК, будь то стационарная машина или ноутбук. Phoenix OS является отдельной веткой разработки известной системы Remix OS и проекта Android-x86, которые имеют общую (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD96F307A7DA564BCE905EB1A11DB05A72C5F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 798376   (670892) от 21.06.2014
 
 Red Hat Enterprise Linux Server 7.0 [x86-64] 1xDVD
@@ -32,7 +6,7 @@ Red Hat Enterprise Linux Server 7.0 [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670892.jpg" />
 </div>
 
 
@@ -64,7 +38,7 @@ Openfiler 2.99.1 + 2.99.2 [x86_64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666993.jpg" />
 </div>
 
 
@@ -91,7 +65,7 @@ Rescatux 0.41b1 [i386, i486, x86-64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664036.jpg" />
 </div>
 
 
@@ -119,7 +93,7 @@ Fedora 22 Live (KDE, XFCE, MATE Compiz, LXDE, SoaS) [i686] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663122.jpg" />
 </div>
 
 
@@ -145,7 +119,7 @@ Fedora 22 Server + Server netinstall [i386, x86-64] 2xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663071.jpg" />
 </div>
 
 
@@ -171,7 +145,7 @@ Fedora 22 Workstation Live [i686, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663052.jpg" />
 </div>
 
 
@@ -197,7 +171,7 @@ CentOS 7.5 (1804) [x86-64] 5xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662667.jpg" />
 </div>
 
 
@@ -225,7 +199,7 @@ JonDo 0.9.80 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661998.jpg" />
 </div>
 
 
@@ -253,7 +227,7 @@ ROSA Desktop Fresh R9 GNOME Desktop Fresh R9 [i586, x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661927.jpg" />
 </div>
 
 
@@ -280,7 +254,7 @@ Rockstor 3.9.1 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655436.jpg" />
 </div>
 
 
@@ -308,7 +282,7 @@ FreeNAS 11.1-U4 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655372.jpg" />
 </div>
 
 
@@ -334,7 +308,7 @@ Sabayon 15.06 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654254.jpg" />
 </div>
 
 
@@ -360,7 +334,7 @@ Allegorithmic Substance Designer 6.0.3 build 181 (Linux) [x64] (rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653668.jpg" />
 </div>
 
 
@@ -386,7 +360,7 @@ Parted Magic 2019.03.17 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652088.jpg" />
 </div>
 
 
@@ -412,7 +386,7 @@ Calculate Linux 14.16.2 [i686] 2xCD, 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651355.jpg" />
 </div>
 
 
@@ -440,7 +414,7 @@ Slackware 14.2 [x32, x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650912.jpg" />
 </div>
 
 
@@ -468,7 +442,7 @@ Calculate Linux 14.16.2 [x86-64] 1xCD, 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649051.jpg" />
 </div>
 
 
@@ -496,7 +470,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 18.05.2015) [amd64] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648899.jpg" />
 </div>
 
 
@@ -524,7 +498,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 18.05.2015) [i386] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648893.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ Remix OS for PC 2.0.402 Beta [x86, x86-64] 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647093.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Ubuntu ServerPack 16.04 (февраль 2019) [i386, amd64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646454.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Debian GNU/Linux 8.1.0 Jessie [i386] 3xDVD, update DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645325.jpg" />
 </div>
 
 
@@ -631,7 +605,7 @@ Debian GNU/Linux 8.1.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645316.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ Debian GNU/Linux 8.1.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645047.jpg" />
 </div>
 
 
@@ -683,7 +657,7 @@ Linux Mint 17-v2 Qiana Cinnamon [32bit, 64bit] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643844.jpg" />
 </div>
 
 
@@ -698,6 +672,32 @@ Linux Mint — дистрибутив операционной системы Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A26B7E3D22F3F0976B917599B1C24112675C5DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906750   (643217) от 09.06.2015
+
+Debian GNU/Linux 8.1.0 Jessie [i386] 2xDLBD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вчера вышло обновление релиза Debian 8.0 до версии 8.1.0 под кодовым названием Jessie. Новый релиз содержит существенно больше программ - добавлено больше 12 000 пакетов. Всего в этом выпуске больше 43 500 пакетов. Большая часть пакетов, а именно - больше 24 500, обновлена (это примерно 66% от пакетной базы Wheezy). Еще 5441 пакет был удалён по разным причинам. Рабочее (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12F7F4650E69852853BF8B9EFC66D06EE7F67E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

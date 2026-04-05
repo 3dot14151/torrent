@@ -1,3 +1,164 @@
+###  Публикация: 278247   (959856) от 03.01.2011
+
+Три Богатыря и Шамаханская царица [5+] (P) [Ru] 2010
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательная игра для детей и взрослых, созданная по мотивам одноименного полнометражного мультфильма. Знаменитые былинные богатыри Алеша Попович, Добрыня Никитич и Илья Муромец собрались вместе, чтобы защитить землю русскую! Обрушилась на сказочную Русь нежданная беда — захватила княжеский престол коварная Шамаханская царица, в очередной раз доказав, что красота (   Читать дальше...   )Тип издания: ПираткаРазработчик: PIPE StudioЖанр: Детская играЯзык озвучки: русскийЯзык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 278079   (959851) от 03.01.2011
+
+[Mode, v.6.008] S.T.A.L.K.E.R.: Shadow Of Chernobyl - New Level Changer. The Beginning / STALKER: Тень Чернобыля - NLC. Начало [Ru] 2010 | Сяк Сотоварищи
+
+>>3
+>>16
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_959851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основная задача главного героя – понять, кто же он такой, какое у него прошлое, что происходит в настоящем, что представляет собой это образование – Зона. Тот ли он Стрелок, о котором ходит так много историй и слухов. Поиск «своего» жизненного пути, своего места в среде сталкеров, тех, кто приходит в Зону на некоторое время и иногда остается здесь навсегда, – вот главный стимул, который движет нашим героем пройти весь путь…Тип издания: модификация (неофициальная)Жанр: Action (Shooter) / 3D / 1st Person / ModeЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838791BE536053ECDF7336875BD730A85D44AFA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622035   (959748) от 22.02.2013
+
+HellGate: London [Ru/En] (RIP/1.2) 2007 | R.G. Механики
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рая больше нет...
+
+Беспрецедентный проект от создателей StarCraft, WarCraft и Diablo сочетает в себе все лучшее, что есть в арсенале ролевых игр, боевиков и ужасов. Огромный город, застрявший между двух реальностей, стал местом эпохальной битвы людей и демонов. Мир здесь меняется на глазах, фантастические герои трансформируют оружие и снаряжение, обучаются магии и бросают вызов тысячам невероятных монстров. Ад повсюду и попасть в него можно еще при жизни! Вы готовы сразиться за свою душу?
+Библейские пророчества о конце света оказались правдой. Открывшийся в самом центре Лондона портал впустил на Землю легионы Тьмы. Все, на что упала тень Сатаны, погрузилось в вечный мрак, жители превратились в бездушных мертвецов, а города — в пылающие руины. Солнце скрыли багровые тучи, а рай остался лишь на мозаике разрушенных храмов…Остатки выживших ведут ожесточенную борьбу с ужасными демонами, и вам предстоит стать лидером сопротивления! (   Читать дальше...   )Тип издания: RipЖанр: Action (Shooter) / RPG (Rogue/Action) / 3D / 1st Person / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E05466483D9F21478A46D3E8C173481F9CA3BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979360   (959603) от 26.01.2016
+
+Начаты работы по созданию чипа-имплантата, способного преобразовать сигналы всех нейронов мозга в двоичный код
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представители Управления перспективных исследовательских программ Пентагона DARPA объявили о начале новой программы, нацеленной на создание чипа-имплантата, способного стать высокоэффективным "мостом" между человеческим мозгом и цифровыми электронными устройствами. Технологии, разработанные в рамках программы Neural Engineering System Design (NESD), позволят (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979061   (959537) от 26.01.2016
+
+Найдено новое простое число с рекордным количеством цифр, которое составляет 22.3 миллиона знаков
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые-математики из университета Центрального Миссури (University of Central Missouri), возглавляемые профессором математики и информатики Кертисом Купером (Curtis Cooper), рассчитали очередное простое число, количество знаков в котором столь велико, что для его распечатки потребуется приблизительно 6 тысяч стандартных листов бумаги. Это новое число является 49-м известным числом ряда простых чисел Мерсенна и четвертым, рассчитанным учеными из этого университета.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979534   (959371) от 26.01.2016
+
+Wifislax 4.10.1 [Аудит безопасности, хакинг] [x86, х64] 1xDVD [ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз Wifislax – специализированного Slackware-based Live CD с комплектом инструментов для проверки безопасности компьютерных сетей. Главной особенностью Wifislax является интеграция в ядро Linux значительного количества неофициальных сетевых драйверов – тем самым «из коробки» обеспечивается поддержка многих проводных и беспроводных сетевых карт.
+
+За время разработки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22648C5E7C8F6F2D7292E39B366F4FB8B3A9565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979229   (959370) от 26.01.2016
 
 Макбет / Macbeth (2015) HDRip [H.264] [Line]
@@ -6,7 +167,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959370.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>19
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959367.jpg" />
 </div>
 
 
@@ -58,7 +219,7 @@ Topaz Video Enhance AI 1.0.2 RePack (& Portable) by TryRooM [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959074.jpg" />
 </div>
 
 
@@ -84,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959072.jpg" />
 </div>
 
 
@@ -113,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959070.jpg" />
 </div>
 
 
@@ -140,7 +301,7 @@ F-Secure Freedome VPN 2.32.6293 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958954.jpg" />
 </div>
 
 
@@ -166,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958948.jpg" />
 </div>
 
 
@@ -194,7 +355,7 @@ WPI БлагоТворитель
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958766.jpg" />
 </div>
 
 
@@ -221,7 +382,7 @@ NVIDIA Forceware GeForce Release 263.14 WHQL (Драйвер для видеок
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_958654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_958654.jpg" />
 </div>
 
 
@@ -247,7 +408,7 @@ Uninstall Tool 2.9.7 build 5118 RePack by Captain Evidence + Portable [Eng+Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958632.jpg" />
 </div>
 
 
@@ -273,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958613.jpg" />
 </div>
 
 
@@ -299,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958438.jpg" />
 </div>
 
 
@@ -325,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958419.jpg" />
 </div>
 
 
@@ -352,7 +513,7 @@ Full Screen Caller ID PRO 10.1.1 - Фото на контакт /обновле�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958263.jpg" />
 </div>
 
 
@@ -378,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958146.jpg" />
 </div>
 
 
@@ -404,7 +565,7 @@ NVIDIA GeForce Desktop 361.75 WHQL + For Notebooks [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958120.jpg" />
 </div>
 
 
@@ -430,7 +591,7 @@ ESET Endpoint Security | Antivirus 6.3.2016.1 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958076.jpg" />
 </div>
 
 
@@ -456,7 +617,7 @@ LEGO Marvel’s Avengers (2016) [Ru/Multi] (1.0) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958067.jpg" />
 </div>
 
 
@@ -482,7 +643,7 @@ XMind 7 Pro 3.6.1.201512240104 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958064.jpg" />
 </div>
 
 
@@ -509,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957780.jpg" />
 </div>
 
 
@@ -520,168 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360775   (957767) от 17.02.2020
-
-Microsoft признала, что февральское обновление безопасности KB4524244 для Windows 10 содержит критические ошибки
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновление KB4524244 распространялось Microsoft в рамках ежемесячного обновления Patch Tuesday и стало доступно пользователям 11 февраля 2020 года. Согласно описанию обновления, оно должно было улучшить систему безопасности Windows 10 (версии 1909, 1903, 1809 и 1607) и исправить уязвимости в менеджерах загрузки, созданных сторонними производителями ноутбуков и ПК, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360850   (957765) от 17.02.2020
-
-С прискорбием сообщаем, ушел из жизни один из ведущих документалистов, alf62
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957765.jpg" />
-</div>
-
-
-###  Подробнее
-
-С прискорбием сообщаем.
-Родные и близкие, сообщество релизеров и зрители понесли невосполнимую утрату. Ушел из жизни прекрасный человек, отец и замечательный релизер Александр, известный большинству как Alf62.Более 10 лет своей жизни он посвятил релизам военно-исторической тематики.
-Он создал и оставил в сети без малого 1500 релизов, в nnmclub - 1336 релизов, касающихся (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994382   (957758) от 17.02.2020
-
-Михаил Гринберг | Как с помощью вспышки сделать необыкновенные кадры (2015) PCRec [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из курса вы узнаете, как работать с накамерной вспышкой и использовать её для получения интересных, креативных и дорогих кадров. Мы поговорим о технических деталях, приёмах использования одной или нескольких портативных вспышек, разберём кучу примеров и авторскую систему съёмки Михаила Гринберга, а также многое другое.Жанр: ИнтенсивПродолжительность: 08:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27AF632BC582CAF75AF2882AA50526FD2C819A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 171418   (957676) от 01.02.2010
-
-Черная молния (2009) DVDRip  [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие картины разворачивается в наши дни, где главный герой, двадцатилетний Дима Майков, получает в подарок от отца старенькую «Волгу-21» и внезапно обнаруживает, что его машина летает, как настоящий истребитель. Герой бесцельно парит над столичными пробками и беззаботно наслаждается полетами, пока однажды беда не заставляет его по-другому взглянуть на мир.
-
-Теперь (   Читать дальше...   )Производство: Россия,  ГК Bazelevs (Базелевс)Жанр: Фантастика, боевик, мелодрама, комедия, приключенияРежиссер: Александр Войтинский, Дмитрий КиселёвАктеры: Григорий Добрыгин, Екатерина Вилкова, Иван Жидков, Юозас Будрайтис, Екатерина Васильева, Валерий Золотухин, Игорь Савочкин, Виктор Вержбицкий, Сергей Гармаш, Михаил ЕфремовПродолжительность: 01:46:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 171908   (957674) от 01.02.2010
-
-ZukoBonus 7 (Обновления для Windows 7)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957674.jpg" />
-</div>
-
-
-###  Подробнее
-
-ZukoBonus7_-_Win7.RTM.January2010.Updates-Zuko
-Обновления безопасности и программного обеспечения для Windows 7 не включённые в RTM. Часть из них как предполагается вообще не выйдет и будет включена в Service Pack1.
-Все обновления разбиты по папкам в зависимости от архитектуры. Устанавливать нужно только обновления для своей архитектуры.Язык интерфейса: Все
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278917   (957496) от 05.01.2011
-
-Star Wolves 3: Civil War / Звездные волки 2: Гражданская война [Ru] (L) 2010
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957496.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Звездные волки 2: Гражданская война» — продолжение популярной стратегии в реальном времени с ролевыми элементами. Оригинальный масштабный сценарий, сюжетно связанный с первой частью межгалактической эпопеи, позволяет игроку влиять на развитие событий и предопределить один из множества вариантов концовки. Свобода передвижения, свобода выбора заданий, свобода в формировании (   Читать дальше...   )Тип издания: лицензияРазработчик: Elite GamesЖанр: Strategy (Real-time) / RPGЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EEC30E95B1CE7B91461E56373124D1C0C44518
 ```
 
 https://mybot314.ru/tekegram_catalog/

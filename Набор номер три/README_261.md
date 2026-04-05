@@ -1,3 +1,159 @@
+###  Публикация: 1027086   (697552) от 18.06.2016
+
+Сумрак / Dusk (2016) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Уитмор просыпается, чтобы найти свою жену Энн, которая исчезла из своей постели ночью. Но похитители оставили сообщение с выкупом...Производство: США / Dog Day FilmsЖанр: триллер, драмаРежиссер: Майкл МанейАктеры: Джон МакГлотлин, Форд Д'Априкс, Джулиана Харкви, Тодд Литцингер, Рон Кидд, Роберт Павлович, Кен Раннее, Джон ШеллерПеревод: Любительский многоголосый (Parovoz Production)Субтитры: ОтсутствуютПродолжительность: 01:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3123761D4A819272091B41A3314CA1628C722F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 800914   (697549) от 18.06.2016
+
+Call of Duty: Modern Warfare 2 (2009) [Ru/En] (5.09/MP Only/dlc) Rip X-NET [SE5 BattleFrame]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультиплеер со всеми картами Sherkan от Battleframe. Новый клиент, новые карты! Новое оружие. В игру введены cod points для покупки оружия в самой игре. Игра на данный момент имеет бета статус, интернет подключение обязательно.Тип издания: RipРазработчик: Infinity WardЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27A1AE285A5C4BD0AA0E055C44A446684D682EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027184   (697548) от 18.06.2016
+
+Video Copilot Element - Element 3D 2.2.2.2147 [En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Element 3D 2.2.2.2147 - плагин для After Effects, предназначенный для визуализации 3D-объектов в After Effects в реальном времени, имеет быстрый, переработанный движок Open GL визуализации. Разработка от компании VideoCopilot, специализирующейся на дополнительных инструментах для создания видео эффектов и обучающих материалов по по программе After Effects. Element (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A3ED04C15D5C7BDCB2CAE1DE046D7F16A30AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533985   (697286) от 28.02.2022
+
+Ученые считают, что наша Вселенная может быть закольцована: ни конца, ни края
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проанализировав данные о древнейшем излучении во всей Вселенной, физики остались в недоумении и предположили, что мироздание может быть замкнуто в петлю.Представьте себе, что вы отправляетесь в космическое путешествие. Вы проплываете мимо Марса, Нептуна, Плутона, пронзаете пространство Млечного пути, вылетаете за пределы галактики, затем галактического кластера... (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016149   (697279) от 28.02.2022
+
+Как поднять миллион. Исповедь Z@drota (2014) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женя живет в маленьком провинциальном городке. Он просиживает за компьютерами сутками, не отвлекаясь на еду и сон. Однажды Женя выясняет: на виртуальной реальности можно неплохо заработать. Начав с порносайтов, юноша вскоре получает свои первые деньги. Это в корне меняет его жизнь: больше он — не школьный изгой. Вчерашние недруги здороваются первыми, а самые красивые (   Читать дальше...   )Производство: Россия, Марс Медиа Энтертейнмент, Магнум ФильмЖанр: ДрамаРежиссер: Клим ШипенкоАктеры: Виктор Грудев, Дмитрий Калязин, Соня Карпунина, Анастасия Акатова, Николай Амосов, Александр Самойленко, Лидия Байрашевская, Михаил Бабичев, Любовь Толкалина, Михаил ДовженкоПеревод: Не требуется (русский)Продолжительность: 01:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB66C039492D4F4403B8D9E70EC0E8531E8C18BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 84001   (697277) от 28.02.2022
+
+Worms 3D (2003) [Ru] (1.0) License
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарные "червяки" возвращаются! Бравые вояки получили новую степень свободы! Трехмерные сражения до зубов вооруженных червяков-коммандос, веселых, злобных и готовых на все ради победы стали еще более насыщенными и красочными. Трехмерный игровой мир позволяет использовать массу тактических приемов, открывает простор для новых видов вооружений и всевозможных (   Читать дальше...   )Тип издания: LicenseРазработчик: Team17Жанр: Логические, СтратегияЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4B4F2F5766BAD8484E36611936DD1F1D999116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 407776   (697274) от 28.02.2022
 
 Пятницкий (2011) SATRip (серии 1-32 из 32)
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_697274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697274.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697189.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Microsoft опубликовала на GitHub исходный код Каль�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_697070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697070.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_697069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697069.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_697061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697061.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Adobe Photoshop CC 2019 v20.0.4 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697055.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Generation П (2011) DVDRip [H.264]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697014.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696838.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696837.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ Wolfenstein: The Old Blood (2015) [Ru/Multi] (1.0) SteamRip R.G. Origins
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696836.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696835.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ ESET Smart Security 10.1.204.5 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696474.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_696391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696391.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ Google прокомментировал сообщения о блокировк
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_696379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696379.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ Malwarebytes Anti-Malware Premium 3.1.2.1733 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696370.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_696363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696363.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696362.jpg" />
 </div>
 
 
@@ -453,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696350.jpg" />
 </div>
 
 
@@ -479,7 +635,7 @@ Windows 7 SP1 (x86/x64) 13in1 +/- Office 2016 by SmokieBlahBlah 11.05.17 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696343.jpg" />
 </div>
 
 
@@ -505,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696339.jpg" />
 </div>
 
 
@@ -516,171 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F2DAA6138A77202A1ACCA7CA48354DA6546766A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132859   (696338) от 11.05.2017
-
-Фантастическая любовь и где ее найти / This Beautiful Fantastic (2016) WEB-DL [H.264/720p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете ли вы, что все события, происходящие в нашем мире, даже самые незначительные, взаимосвязаны самым удивительным образом?
-Как полет бабочки может вызвать где-то мощный ураган, так и странные поступки тихой и одинокой девушки, живущей в мире своих фантазий, могут навсегда изменить жизнь совершенно разных людей, подарив им счастье и раскрасив окружающий мир яркими, (   Читать дальше...   )Производство: Великобритания, СШАЖанр: Фэнтези, Драма, Мелодрама, КомедияРежиссер: Саймон ЭбаудАктеры: Джессика Браун-Финдлэй, Джереми Ирвин, Эндрю Скотт, Том Уилкинсон, Анна Чэнселлор, Шила Хэнкок, Эйлин Дейвис, Шарлотта Эспри, Пол Блэкуэлл, Тиа ШентонПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957267707B29FD1235A23F7F94B66C2C2861AE6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 673701   (696251) от 28.06.2013
-
-Cryostasis: Sleep of Reason / Анабиоз: Сон Разума (2008) [Ru/En] (1.0.2.608) RePack R.G. Механики
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анабиоз: Сон Разума
-Мертвый холод, тьма одиночества и забвения — в замкнутом пространстве погибшего корабля остановилось время и замерло все, что некогда было живым и разумным. Блуждая в огромном лабиринте трюмов и отсеков, наводненных страхом и отчаянием, герою предстоит узнать драматическую историю капитана и его команды и, преодолевая соблазн погрузиться в летаргию (   Читать дальше...   )Тип издания: RePackРазработчик: Action FormsЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C13160FFC397BC8F230ECDDCECE70AFF3E93050B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535565   (696250) от 28.06.2013
-
-[Программа] (Android 2.3.3+) jetAudio Plus 3.2.0 - Музыкальный плеер /обновлено 28.06.13/
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_696250.jpg" />
-</div>
-
-
-###  Подробнее
-
-jetAudio это музыкальный плеер с поддержкой BBE/BBE ViVA/Wide/Reverb/X-Bass и 10 полосным эквалайзером
-jetAudio для Windows это наилучший и больше всего загружаемый плеер (по версии CNET.COM) и, вы теперь можете слушать звук очень высокого качества на вашем Андроиде.
-Плеер воспроизведет все ваши файлы (.wav, .mp3, .ogg, .flac, .m4a, .mpc, .tta, .wv, .ape, .mod, .spx и др.) в наилучшем качестве с разнообразными эффектами и улучшалками такие BBE, BBE ViVA, Wide, Reverb, X-Bass.
-В плеере 32 настройки эквалайзера, (   Читать дальше...   )Разработчик: Team JetЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 146909   (696145) от 19.06.2010
-
-[JAP] Дрейфующее интернет-кафе / Hyoryu Net Cafe (2009) DVDRip (9 из 11) [RU sub]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_696145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный, ничем не примечательный день, заканчивается грозой и ливнем, метро не работает и Токи Коичи приходится заночевать в интернет-кафе. В тот день, из-за грозы, многим пришлось заночевать в этом кафе, в том числе и бывшей однокласснице Токи - Тоно, к которой Токи не равнодушен.
-На утро, когда все вышли из кафе, в надежде пойти по своим обычным делам, они обнаружили, что находятся в лесу, метро и такси там конечно нет, еды тоже. Что с ними случилось? Куда все подевались (или это они куда-то перенеслись)? И что теперь делать? А кто этот подозрительный парень, и вот тот как-то странно себя ведёт...Жанр: Мистика, драмаАктеры: # Ito Atsushi - Токи Коичи
-# KIKI - Кахо Тоно
-# Asami Reina
-# Takahashi MaiФормат: MP4Продолжительность: 11 эпизодов по 46 минут
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971301   (695778) от 19.06.2016
-
-Окей, Блокнотик v1.9.2 [Ru] - быстрые напоминания голосом
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окей, Блокнотик - это быстрые напоминания голосом. Например, скажите: «Заплатить за интернет 20 числа, повторяй каждый месяц», чтобы программа напоминала ежемесячно оплачивать интернет. С приложением "Окей, блокнотик" достаточно сказать, что и когда нужно сделать в привычной для вас форме. Блокнотик всё поймёт и напомнит о важном деле. Больше не нужно никаких (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 16.06.2016Разработчик: Dmitriy V. LozenkoПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF601208FD6021C855E21C708F69074965051FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027433   (695777) от 19.06.2016
-
-Red Giant Magic Bullet Suite 12.1.5 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет плагинов, состоящий из семи мощных инструментов финальной редакторской обработки, используемых для профессиональной цветокоррекции, освещения, улучшения и производства фильмов в After Effects, Premiere Pro, Avid и Sony Vegas Pro. В пакет включены следующие плагины: Magic Bullet Looks 3, Magic Bullet Colorista III, Magic Bullet Film, Magic Bullet Mojo 2, Magic (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB61BC178BB18F5969D966B210BFD787BDC330D
 ```
 
 https://mybot314.ru/tekegram_catalog/

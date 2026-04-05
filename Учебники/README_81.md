@@ -1,3 +1,55 @@
+###  Публикация: 1625516   (241234) от 10.04.2023
+
+А.В. Кругликов (ред.) | Интеллектуальные технологии трансформации бизнес-моделей (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие посвящено изучению базовых методик трансформации бизнес-моделей. Трансформация представляет собой весьма сложный процесс преобразований. Конкуренция в бизнесе переходит в сферу бизнес-моделирования и создания экосистем. Выбор модели трансформации, ее адаптация к особенностям компаний и последующее управление изменениями требуют профессионального подхода, (   Читать дальше...   )Жанр: БизнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BD906370B8179D507B80326398C631AE922B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545102   (240880) от 18.04.2022
+
+С.Г. Прохоров, О.В. Шиндор | Аналоговая электроника в приборостроении. Руководство по решению задач (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие предназначено для практических занятий по аналоговой электронике и курсового проектирования. Подробно рассмотрены принципы работы схем на пассивных и активных элементах. Рассмотрены примеры расчетов аналоговых схем на транзисторах и операционных усилителях, используемых в современной технике: расчет усилительных каскадов на транзисторах по постоянному и переменному (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D39075D5C5AF5CC65275CA9A9B0F74323CE9BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626633   (240547) от 15.04.2023
 
 О. Иванов, С. Климчук | Математический анализ для первокурсников (2014) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240547.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240219.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239893.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239453.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239116.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239074.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238854.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238710.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238687.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238567.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238222.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237316.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235961.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235341.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235076.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234915.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234889.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234819.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234716.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234700.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234366.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234272.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233986.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233728.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4D402B12BCA502590F9F3F24FB4394179AFBB9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634221   (233541) от 19.05.2023
-
-А.А. Брылёва | Программные средства создания интернет-приложений (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233541.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии с учетом межпредметных связей с учебными дисциплинами «Конструирование программ и языки программирования» и «Базы данных и СУБД» изложены следующие основные разделы: «Технология создания веб-документа», «Основы технологии CSS», «Веб-программирование на стороне клиента», «Веб-программирование на стороне сервера». Тематика разделов соответствует типовой (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0DC747ECAEFD415B5177DF85AE6885E7A5D7D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634504   (233413) от 20.05.2023
-
-Е.О. Степанов | Кросс-платформенные и многозвенные технологии (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233413.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время аппаратные и программные платформы и технологии стремительно развиваются, непрерывно появляются все новые и новые возможности. В то же время, налицо тенденция к интероперабельности (interoperability) платформ и совместимости технологий.
-В данном курсе рассматриваются основные тенденции этого развития, а также основные технологии, предназначенные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631B7A448324979398F0FF174981A3B19AF65750
 ```
 
 https://mybot314.ru/tekegram_catalog/

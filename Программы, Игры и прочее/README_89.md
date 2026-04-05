@@ -1,3 +1,109 @@
+###  Публикация: 1631680   (235858) от 06.05.2023
+
+Polarr v6.7.9 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя миллионы фильтров Polarr, созданных создателями Polarr по всему миру, или создавайте собственные фильтры и делитесь ими с друзьями. Фильтры Polarr — это гораздо больше, чем ваши обычные фильтры. В дополнение к редактированию цветов вы можете включать свои собственные наложения, корректировать лица или изменять определенные объекты с помощью ИИ в (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 05.05.2023Разработчик: PolarrПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFAE4BBF82A0DB0907BED27C24DB4F456A9F789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544155   (235820) от 12.05.2022
+
+VTC Radio - Lactose / Дорожное радио 6.8 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235820.jpg" />
+</div>
+
+
+###  Подробнее
+
+VTC Radio - настоящее виртуальное дорожное радио, для тех кто путешествует по виртуальным мирам.Тип издания: FreeРелиз состоялся: 10.05.2022Разработчик: Max380 IncПоддерживаемая ОС: Android 5.1 +Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23446DBC3EDE31FED0717032C3EE3DC3D0C086B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419456   (235561) от 13.05.2022
+
+Звуки для сна v1.1.1.57 [Ru/Multi] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страдаете от бессонницы? Хотите избавиться от стресса и беспокойства? Расслабьтесь и засыпайте под любой из более чем 30 звуков для сна. Научно доказано, что они помогают легче засыпать, снижают уровень стресса и избавляют от бессоницы и звона в ушах. Создавайте свои сочетания звуков природы, белого шума, мелодий для расслабления и успокаивающих звуков. Спите так (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 22.03.2022Разработчик: Leap Fitness GroupПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F116803B9120CD1D34B2A39797991E95DBEE3586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576518   (235196) от 14.09.2022
+
+AR GPS Compass Map 3D Pro 1.8.1 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235196.jpg" />
+</div>
+
+
+###  Подробнее
+
+AR GPS Compass Map 3D Pro - 3D-компас дополненной реальности со встроенной картой с разделенным экраном!
+Определение ориентиров (например, по широте / долготе) никогда не было проще благодаря зеленой стрелке в верхней части компаса, которая всегда указывает на выбранный в данный момент ориентир!
+Наш уникальный алгоритм слияния и фильтрации, который объединяет значения (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 7 авг. 2022 гРазработчик: CodeKonditorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F9C68C84320CCEACC607F74F9F7311C19DFDA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642026   (235178) от 25.06.2023
 
 Конвертер Валют Плюс / Currency Converter Plus 2.7.6 Mod by 0x7d, maxi123444 [Ru/Multi]
@@ -6,7 +112,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235178.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235104.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ Niagara Launcher 1.9.9 Mod by Taz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235007.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Unit Converter Pro / Конвертер единиц Pro 2.2.36 Mod by Balatan [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234998.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ AudioBaby v4.9.4 [Ru] - Детские аудиосказки, музыка, д�
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234875.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ GIF Maker - GIF Editor 1.8.4 Mod by Balatan, Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234571.jpg" />
 </div>
 
 
@@ -168,7 +274,7 @@ iScanner - Сканер Документов v3.68.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234562.jpg" />
 </div>
 
 
@@ -196,7 +302,7 @@ Briar v1.4.11 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234455.jpg" />
 </div>
 
 
@@ -222,7 +328,7 @@ BimmerCode for BMW and MINI 4.13.2-11165 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234383.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ Librera PRO: Читалка для книг 8.4.56 Mod by foobnix [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234317.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ SmartOffice Pro 3.13.10 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234199.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ AirBrush: ИИ Фоторедактор 5.8.0 Mod by 0x7d, alenka_persikova [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234016.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ Pocket 8.1.1.0 Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233987.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ KineMaster - Видеоредактор 7.1.0.30516.GP Mod by Shadow_Patcher, ba
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233934.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ Music Editor / Музыкальный редактор 5.8.1 Mod by maxi123444 [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233781.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ GeoZilla v6.36.12 [Ru/Multi] – найти мой телефон. Семейн�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233635.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ BimmerLink for BMW and MINI 2.29.0-5264 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233569.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ RAR for Android v6.22 build 115 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233550.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ ElectroBox - Electronics 15 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233150.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ Bright - учить английский язык 1.4.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232945.jpg" />
 </div>
 
 
@@ -539,7 +645,7 @@ Spelling Master: Spell & Vocab 2.21 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232798.jpg" />
 </div>
 
 
@@ -568,7 +674,7 @@ English Pronouncing Dictionary 5.6.60 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232712.jpg" />
 </div>
 
 
@@ -579,111 +685,6 @@ Cambridge English Pronouncing Dictionary (CEPD) представляет соб�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1C97F74F98EEB1280E1076294CB115C76BFE94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579962   (232323) от 29.09.2022
-
-1.1.1.1: Faster & Safer Intern 6.17 b2698 (ZeroTrust, Unlimited) [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232323.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.1.1.1 — общедоступный преобразователь DNS , управляемый Cloudflare, который предлагает быстрый и конфиденциальный способ просмотра Интернета. В отличие от большинства преобразователей DNS, 1.1.1.1 не продает пользовательские данные рекламодателям. Кроме того, 1.1.1.1 считается самым быстрым доступным преобразователем DNS.
-Разблокируйте любой сайт.Тип издания: ModРазработчик: Cloudflare, Inc.Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49F5845B9F20DDA720212319A15DD130CE3ED59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579904   (232277) от 29.09.2022
-
-Urban VPN proxy Unblocker 1.0.51 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разблокируйте любой сайт. Оставайтесь анонимными и безопасными с неограниченным Premium VPN для Android! Всего один щелчок - и вы в пути!Тип издания: ModРелиз состоялся: 6 сент. 2022 г.Разработчик: Urban VPNПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EC512221743F331CFFC6016978371BE26A2193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497841   (231795) от 02.10.2022
-
-Erudite v12.10.0 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Erudite - это приложение для изучения английского, в котором сочетаются англо-русский словарь, переводчик , дидактические карточки, разговорник и упражнения. Если хотите изучать английский наиболее эффективным способом, нет лучшего выбора, чем Erudite!Тип издания: PremiumРелиз состоялся: 31.08.2022Разработчик: EruditeПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F061E0344A2481C0380027A0944B4B7C514E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530464   (231727) от 02.10.2022
-
-Universal Copy v6.3.3 Мод by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда вы хотите копирования текста из приложения и вы не можете использовать Android долгое нажатие по умолчанию? Универсальный Copy принимает эту роль на себя! Активируйте режим универсального копирования и выберите текст, который вы хотите скопировать, это все! Скопируйте текст из любого приложения: Facebook, Twitter, Instagram, YouTube, Tumblr... Легко. Просто.Тип издания: PremiumРелиз состоялся: 27.08.2022Разработчик: Camel CorporationПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE689AC0726013A54087E13E577468B29839A9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,141 +1,3 @@
-###  Публикация: 1716476   (59665) от 15.04.2024
-
-Вячеслав Дубынин | Мозг и его потребности 2.0. От питания до признания (Обновленное издание) (2024) [PDF, FB2, RTF, EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновленное издание знаменитого бестселлера.
-Эта книга – самый полный путеводитель по работе мозга и биологическим потребностям человека. Написанная профессором, нейрофизиологом Вячеславом Дубыниным, она приближает читателя к пониманию собственного организма, учит управлять природными механизмами тела, чтобы реализовать личную одаренность.
-Книга объясняет:
-– Почему (   Читать дальше...   )Жанр: Нейробиология, нейрофизиология, нейропсихологияИздательство: ЭксмоФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C564BA30D170716F325F0F38519A818DD6769061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716474   (59635) от 15.04.2024
-
-Гарретт Райан | Обнаженные статуи, толстые гладиаторы и боевые слоны. Необычные истории о жизни в Древней Греции и Риме (2024) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59635.jpg" />
-</div>
-
-
-###  Подробнее
-
-В серии коротких юмористических эссе Гарретт Райан, профессор Мичиганского университета, исследует историю Древнего мира через частную и социальную жизнь обычных людей. Что они ели и пили? Как развлекались и занимались спортом? Как создавали семьи и расставались? Познакомьтесь с историей Древней Греции и Рима через увлекательные подробности повседневной жизни!
-
-Из (   Читать дальше...   )Жанр: Зарубежная образовательная литератураПеревод: А. В. ЯконюкИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DED35A80B3F739F33C26643BBFB210F1CCA19EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716443   (59623) от 15.04.2024
-
-Д. Босуэлл, М. Константино | Преднамеренная практика в когнитивно-поведенческой терапии (2023) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отработка ключевых навыков в КПТ на практике
-В центре внимания этой книги находится проблема, с которой сталкиваются многие психотерапевты, от студентов-начинающих, до опытных специалистов, — разрыв между теоретическими знаниями о психотерапии и способностью надежно проводить ее, применяя эти знания на практике. Для преодоления этой проблемы авторы предлагают использовать (   Читать дальше...   )Жанр: ПсихологияИздательство: Видавець ТОВ "Науковий Світ", КиївФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5C36BCE9EC6FBD883C6F0F9ADE4654BBBD0671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708776   (59315) от 18.04.2024
-
-П.А. Ионкин | Сборник задач по теоретическим основам электротехники (1982) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание задачника охватывает все разделы теории линейных и нелинейных цепей и теории электромагнитного поля курса теоретических основ электротехники и соответствует утвержденной программе.
-В сборнике приведены задачи, как иллюстрирующие тот или иной метод расчета, так и возникающие при исследовании реальных электротехнических устройств. Все задачи имеют ответы, (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергоатомиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A63185DE97D1F2751D58521A75EC6B0A8929BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717779   (59036) от 21.04.2024
-
-Р.М. Марстон | Circuits Manual [10 книг] (1987 - 1998) [PDF] [En]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство по схемам — бесценное руководство для инженеров и технических специалистов. Он также окажется полезным руководством для студентов и экспериментаторов, а также предоставит опытным любителям и любителям DIY множество идей.
-Как и во всех руководствах по схемам Рэя Марстона, стиль книги прост для чтения и не содержит математической информации, с упором на (   Читать дальше...   )Жанр: ЭлектроникаЯзык: АнглийскийИздательство: NewnesФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD629EA962AD0C88C590796057AB02D7011378CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678233   (58988) от 21.04.2024
 
 В.В. Пасынков, В.С. Сорокин | Материалы электронной техники (1986) [DJVU]
@@ -144,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58988.jpg" />
 </div>
 
 
@@ -170,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58587.jpg" />
 </div>
 
 
@@ -196,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58576.jpg" />
 </div>
 
 
@@ -222,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58540.jpg" />
 </div>
 
 
@@ -248,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58278.jpg" />
 </div>
 
 
@@ -275,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58178.jpg" />
 </div>
 
 
@@ -301,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57941.jpg" />
 </div>
 
 
@@ -327,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57806.jpg" />
 </div>
 
 
@@ -353,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57636.jpg" />
 </div>
 
 
@@ -380,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57531.jpg" />
 </div>
 
 
@@ -406,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57499.jpg" />
 </div>
 
 
@@ -432,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57437.jpg" />
 </div>
 
 
@@ -460,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57421.jpg" />
 </div>
 
 
@@ -486,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57357.jpg" />
 </div>
 
 
@@ -512,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57291.jpg" />
 </div>
 
 
@@ -539,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57286.jpg" />
 </div>
 
 
@@ -565,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57189.jpg" />
 </div>
 
 
@@ -591,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57005.jpg" />
 </div>
 
 
@@ -620,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56917.jpg" />
 </div>
 
 
@@ -648,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56890.jpg" />
 </div>
 
 
@@ -674,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56446.jpg" />
 </div>
 
 
@@ -685,6 +547,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E78AF7557CC1181BE9A48079F12B03D4AE52459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723575   (56390) от 16.05.2024
+
+С.Л. Вальдгард | Занимательная электротехника (1961) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56390.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в популярно-занимательной форме излагаются понятия об электричестве и его применении в различных производствах, в автоматике; приводятся интересные примеры, сопоставления, факты из различных областей электротехники; рассказывается о технике будущего. Содержание книги основано на современных достижениях науки в области физики и электротехники.
+Книга рассчитана (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ПрофтехиздатФормат: DJVUКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEA6621BF22FA4E9C7CA1FF78B1A1E18096DBB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723801   (56230) от 17.05.2024
+
+П.А. Ионкин, В.С. Пантюшин, В.А. Смирнов | Сборник задач и упражнений по общей электротехнике (1951) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие для неэлектротехнических вузов и факультетов.Жанр: ЭлектротехникаИздательство: Советская наукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBA7AB9B108DC8AE7630202AACD47C8FB0A0FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724277   (56100) от 19.05.2024
+
+С.В. Архиреев | Начальная военная подготовка (2-е изд.) (2024) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовность гражданина защищать свою Родину предполагает наличие у него соответствующей минимально необходимой специальной подготовки. Именно поэтому в советских школах старшеклассникам преподавали учебную дисциплину «Начальная военная подготовка» (НПВ). Начальной военной подготовкой принято называть курс занятий, на которых знакомят с оружием, учат оказывать первую (   Читать дальше...   )Жанр: Военное делоИздательство: ООО НПП «НОК»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC233742B1DEFF906451AA16C1A140507C99E06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724550   (55843) от 21.05.2024
+
+Moore Martin | Oxford Grammar for Schools 1. Student's Book (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55843.jpg" />
+</div>
+
+
+###  Подробнее
+
+A 5-level series with clear explanations and communicative activities to help young learners and teenagers understand and practise grammar. Oxford Grammar for Schools gives students the opportunity to explore grammar for themselves and encourages them to be aware of their progress through regular self-evaluation and review. As students activate their grammar through (   Читать дальше...   )Жанр: УчебнаяЯзык: английскийИздательство: Oxford University PressФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC4C2D3965F1402124DBD89A8CAF9836906514D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724996   (55765) от 22.05.2024
+
+Г.С. Ландсберг | Элементарный учебник физики. Том 1. Механика. Теплота. Молекулярная физика (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из лучших курсов элементарной физики, завоевавший огромную популярность. Достоинством курса является глубина изложения физической стороны процессов и явлений в природе и технике.
+
+Для старшеклассников и учителей общеобразовательных и средних специальных заведений, а также лиц, занимающихся самообразованием и готовящихся к поступлению в ВУЗ.Жанр: Учебная литература по физикеИздательство: ФИЗМАТЛИТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF7F9CC09FE1C9DD55D4AE7DBB0BC80467E0060
 ```
 
 https://mybot314.ru/tekegram_catalog/

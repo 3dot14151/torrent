@@ -1,134 +1,3 @@
-###  Публикация: 1453662   (1026716) от 12.03.2021
-
-Д.А. Бухтияров, А.П. Горбачев | Многоэлементные директорные антенны с возбудителями дипольного вида (2020) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа посвящена проектированию директорных антенн, которые могут быть использованы как отдельно установленные самостоятельные антенны, так и как новая элементная база активных фазированных антенных решеток. Основой этих антенн являются возбудители дипольного вида, питаемые либо на удаленных концах, либо одном удаленном и одном смежном конце. При этом только один (   Читать дальше...   )Жанр: Антенны, радиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB9173E8E24F253D42B3EB5FBCE9CAABA5D5EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454035   (1026581) от 13.03.2021
-
-В.Ф. Гузик и др. | Сети и телекоммуникации (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие охватывает вопросы лекционного курса дисциплины «Сети и телекоммуникации».  Основной материал учебного пособия посвящен архитектуре современных компьютерных сетей и средств телекоммуникаций, также рассматриваются: классификация компьютерных сетей; особенности реализации физической среды передачи данных; методы доступа к среде передачи данных и современные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282920FC49B75753C131E96A9E062A7455AE33D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454130   (1026577) от 13.03.2021
-
-Андрей Буровский | Холокост. Были и небыли (2010) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свобода слова всегда была для Запада чем-то вроде дешевых стеклянных бус, на которые можно выменивать несметные богатства у простодушных дикарей-аборигенов, но которые не станешь носить у себя дома. Громогласно распинаясь о «свободе прессы» и навязывая ее другим, Запад в то же время беспощадно преследует собственных инакомыслящих. Так, в большинстве европейских стран (   Читать дальше...   )Жанр: историяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6C605E9760928E264D011B94300EF56BFD7FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454068   (1026569) от 13.03.2021
-
-С.А. Плотников и др. | Математическое моделирование систем управления (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие посвящено основам теории управления и математического моделирования. Представлены шесть лабораторных работ с последовательно увеличивающейся сложностью, начиная от исследования устойчивости линейных систем управления, заканчивая исследованием устойчивости систем управления с запаздываниями. Пособие предназначено для студентов, обучающихся по направлениям (   Читать дальше...   )Жанр: Теория управления, математическое моделированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8862900E1DC9FCDADF0F97B5AC24C9D442F70ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454100   (1026554) от 13.03.2021
-
-И.Ю. Сахаров и др. | Физико-химические и взрывчатые свойства аммиачной селитры (2016) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены физико-химические свойства аммиачной селитры, технические требования к различным маркам аммиачной селитры и её взрывчатые свойства в составах промышленных взрывчатых веществ.Приведены стандартизованные методики изучения и анализа физико-химических свойств и методы определения взрывчатых свойств аммиачной селитры в составах взрывчатых веществ.
-Предназначено (   Читать дальше...   )Жанр: Химия, физикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1EDD75C7F36AD89723AC14BDA2EB1395B1E37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454135   (1026535) от 13.03.2021
 
 Александр Ведяхин | Сильный искусственный интеллект: На подступах к сверхразуму (2021) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026535.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ Mig Jimenez | Энциклопедия бронетехники. Техники 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026518.jpg" />
 </div>
 
 
@@ -191,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026369.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026324.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026091.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026090.jpg" />
 </div>
 
 
@@ -296,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026071.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025952.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025788.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025779.jpg" />
 </div>
 
 
@@ -400,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025777.jpg" />
 </div>
 
 
@@ -426,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025764.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025741.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025724.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025600.jpg" />
 </div>
 
 
@@ -531,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025582.jpg" />
 </div>
 
 
@@ -557,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025571.jpg" />
 </div>
 
 
@@ -583,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025564.jpg" />
 </div>
 
 
@@ -611,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025551.jpg" />
 </div>
 
 
@@ -640,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025471.jpg" />
 </div>
 
 
@@ -666,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025447.jpg" />
 </div>
 
 
@@ -678,6 +547,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E515CB2ACF763BE514D90F846A88AAC106454001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455851   (1025436) от 20.03.2021
+
+Ирина Сергиевская | Москва античная. Мифы Древней Эллады на каменных книгах столицы (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гуляя по старым улочкам Москвы, можно с удивлением заметить, что здесь обитают не только любопытные туристы и спешащие москвичи, но и необычные создания – таинственные «каменные жители», безмолвно застывшие в самых причудливых позах. За нами с высоты неустанно наблюдают мудрые боги и славные герои, прекрасные девы и молчаливые рыцари, резвящиеся путти и убеленные (   Читать дальше...   )Жанр: Краеведение, Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F34F8327BF39B029FEE88E46BA2A46BBEAC4398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455959   (1025433) от 20.03.2021
+
+Энтони Бивор | Арденнская операция. Последняя авантюра Гитлера (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025433.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 декабря 1944 года Гитлер начал свою последнюю операцию на границе Бельгии и Германии, в заснеженных лесах и ущельях Арденн. Он полагал, что сможет расколоть союзников, продвинувшись до самого Антверпена, а затем вынудить их отказаться от участия в войне. В качестве места для прорыва Гитлер выбрал Арденны, поскольку помнил успех атаки 1940 года на этот сектор и (   Читать дальше...   )Жанр: Военная историяПеревод: В.А. ИзмайловФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6681A433C94CCA2E400D3EEC8C34D23BED9FDCCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455968   (1025426) от 20.03.2021
+
+Наталья Потапова | «Харбинская» операция НКВД СССР 1937–1938 гг. Механизмы, целевые группы и масштабы репрессий (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена «харбинской» операции, проводимой органами НКВД в рамках так называемых национальных репрессивных кампаний периода Большого террора. Карательная акция реализовывалась на основании приказа НКВД СССР № 00593 от 20 сентября 1937 г., подписанного наркомом внутренних дел Н. И. Ежовым. Целевыми группами должны были стать бывшие служащие Китайско-Восточной (   Читать дальше...   )Жанр: Военная историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4628EB31F9DC3A09E9A6BC98A5AAE3E6B623478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455646   (1025416) от 20.03.2021
+
+Александр Север | Бандера и бандеровщина (2014) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Степан Бандера и его сторонники – «бандеровцы» стали символами борьбы за «самостийность Украины» и радикального западноукраинского национализма, одно из проявлений которого – вооруженная борьба с советской властью и террор по отношению к мирному населению.
+Согласно данным современных украинских историков: «ОУН и УПА провело 14424 акции, в т. ч. 4904 теракта, 195 (   Читать дальше...   )Жанр: ИсторияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A2DDBFCABFCFE760E53FBF53461B6E699D9659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455727   (1025409) от 20.03.2021
+
+Айн Рэнд | Философия: Кому она нужна? (2021) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник эссе стал последней работой Айн Рэнд, над которым она работала перед смертью в 1982 г. В нем она обобщает и отстаивает свои философские взгляды, которые легли в основу ее бестселлеров «Атлант расправил плечи» и «Источник». Согласно ее идеям, разум — это не просто отличительная, но фундаментальная черта человека, благодаря которой он выживает.
+Для Айн (   Читать дальше...   )Жанр: Книги по философииФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876A3E93852F61895828C772653EF80F70C34239
 ```
 
 https://mybot314.ru/tekegram_catalog/

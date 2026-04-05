@@ -1,3 +1,85 @@
+###  Публикация: 1050425   (538169) от 08.09.2016
+
+Кристофер Бэйч  | Круги жизней. Реинкарнация и паутина жизней (2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - одна из лучших книг в мире на тему кармы и реинкарнации.
+Автор, серьезный ученый, просто и убедительно раскрывает разные стороны этих вопросов, сопровождая их тщательно проверенными примерами.
+Книга рассчитана на широкий круг читателей, интересующихся этой темой.
+Свидетельства сторонников реинкарнации весьма впечатляющи, и, как утверждает Бэйч, их невозможно (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 12:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AA39521BA566D7656BB4A7FE4BA6248C4FAC81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239201   (536865) от 06.08.2018
+
+Анджей Иконников-Галицкий | Хроники петербургских преступлений. Чёрные тени красного города 1917-1922 (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного историка и публициста А.А.Иконникова-Галицкого посвящена одному из трагических периодов в истории Петербурга-Петрограда-Ленинграда и в истории России - годам революции и Гражданской войны. Автор рассказывает о разгуле преступности, охватившей Петроград после Февральской и в особенности после Октябрьской революции, о политических силах и лидерах, (   Читать дальше...   )Жанр: История. Исторические наукиПродолжительность: 10:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2626A64E120DC9442EDE0FE470429AF2A64CE560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926046   (535480) от 09.08.2015
+
+Сборник | Жизнь и творчество Аркадия Аверченко (1994-2006) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три записи о известном русском писателе, сатирике, театральной критике.
+Написал более пятисот юмористических рассказов, пользовавшихся популярностью в России и за рубежом. Основатель и редактор журналов «Сатирикон» и «Новый Сатирикон», Аверченко был и остается самым выдающимся сатириком отечественной литературы ХХ века. Автор более 200 фельетонов в периодической (   Читать дальше...   )Жанр: ДокументалистикаПродолжительность: 04:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1EA81D3EF99F400DD57547B0AD498348A1BBE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050673   (534540) от 10.09.2016
 
 Джейн Робертс | Природа личной реальности (2016) [MP3]
@@ -6,7 +88,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534540.jpg" />
 </div>
 
 
@@ -33,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524762.jpg" />
 </div>
 
 
@@ -59,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517101.jpg" />
 </div>
 
 
@@ -85,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515520.jpg" />
 </div>
 
 
@@ -114,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512516.jpg" />
 </div>
 
 
@@ -140,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511484.jpg" />
 </div>
 
 
@@ -166,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509216.jpg" />
 </div>
 
 
@@ -193,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509117.jpg" />
 </div>
 
 
@@ -220,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496508.jpg" />
 </div>
 
 
@@ -247,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494776.jpg" />
 </div>
 
 
@@ -273,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494558.jpg" />
 </div>
 
 
@@ -299,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493330.jpg" />
 </div>
 
 
@@ -325,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492713.jpg" />
 </div>
 
 
@@ -351,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491523.jpg" />
 </div>
 
 
@@ -377,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489522.jpg" />
 </div>
 
 
@@ -403,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488549.jpg" />
 </div>
 
 
@@ -430,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488531.jpg" />
 </div>
 
 
@@ -456,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488462.jpg" />
 </div>
 
 
@@ -484,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487415.jpg" />
 </div>
 
 
@@ -510,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485614.jpg" />
 </div>
 
 
@@ -536,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483392.jpg" />
 </div>
 
 
@@ -562,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482510.jpg" />
 </div>
 
 
@@ -590,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481765.jpg" />
 </div>
 
 
@@ -601,86 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D877CE1BFAA4F24737520080326785CF96C820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 49391   (467999) от 01.10.2016
-
-П. Сергеич | Искусство речи на суде (2007) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_467999.jpg" />
-</div>
-
-
-###  Подробнее
-
-П.Сергеич - псевдоним известного русского юриста и судебного деятеля П.С.Пороховщикова.
-"Искусство речи на суде" - классика судебного ораторского искусства. Богатейший опыт П.С.Пороховщикова по ведению уголовных процессов делает его книгу необычайно полезным практическим руководством для юристов в работе над судебной речью, а также для бизнесменов и политиков, (   Читать дальше...   )Жанр: Юриспруденция,  ПсихологияПродолжительность: 15:25:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057815   (467865) от 01.10.2016
-
-Алекс Мэй | Секреты удовлетворения женщин (2011) [MP3, JPG]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алекс Мэй — ведущий международный эксперт в области секса и отношений из Нидерландов. Создатель трансформационных программ для мужчин и женщин. Признанный авторитет в области секса и отношений.
-Представляет свой практический аудиотренинг охватывающий все моменты общения мужчины и женщины до, во время и после секса.Жанр: СексологияПродолжительность: 09:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1183A2298CBDF7201F1AFCB456BA70BAA6957AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568175   (466016) от 06.08.2022
-
-Кейтлин Даути | Съест ли меня моя кошка? И другие животрепещущие вопросы о смерти (2021) [MP3, Екатерина Соловьёва]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466016.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой ироничной и откровенной книге эксперт в вопросах смерти Кейтлин Даути отвечает на самые интригующие вопросы об умирании и мёртвых телах.Жанр: зарубежная образовательная литература, истории из жизни, культурология, популярно о медицинеПеревод: Екатерина СоловьёваПродолжительность: 05:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77FB2BE97DFD95DF5558491C02F7C34BE43ED5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

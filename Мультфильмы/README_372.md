@@ -1,3 +1,133 @@
+###  Публикация: 480772   (99236) от 10.04.2012
+
+Приключения казака Энея (1969) SATRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм снят к 200-летию И. Котляревского по мотивам его сатирической поэмы "Энеида".Жанр: Рисованная анимация, Детский, Для взрослыхРежиссер: Нина ВасиленкоПродолжительность: 00:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D304186B67E44010108967C1F67D6B26FB769D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822163   (98597) от 05.10.2025
+
+Зомби Marvel / Marvel Zombies (2025) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-4 из 4) LostFilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсериал рассказывает об альтернативной временной линии, когда вселенная Marvel попадает в пучину глобального зомби-апокалипсиса, вызванного вирусом под названием «Голод».Производство: США / Marvel Animation, Marvel StudiosЖанр: мультфильм, ужасы, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Брайан ЭндрюсАктеры: Иман Веллани, Тодд Уильямс, Дэвид Боут, Робин Аткин Даунс, Терри Дуглас, Петр Вальчук, Мэттью Ян Кинг, Эндрю Моргадо, Эшли Пелдон, Кари УолгренПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55F74C68B4A02BE12D8C95A0684808F84A757D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467951   (96651) от 14.03.2012
+
+Неудачники (1983) TVRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для детей. История благородного пса-спортсмена.Жанр: ДетскийРежиссер: Александр ДавыдовПродолжительность: 00:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2139B8314781CA2C7C97B82EDEC090C22DC850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460695   (95127) от 02.03.2012
+
+Девочка и клоун (1989) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: СССР, САРАТОВТЕЛЕФИЛЬМЖанр: Кукольный мультфильмРежиссер: Юрий ЗаболотневПерсонажи: Анюта Петрусенко, Александр ПруссПродолжительность: 00:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23185D5D43C689B13D7463FB656D3C6C62DA911B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822000   (94751) от 04.10.2025
+
+Плохие парни 2 / The Bad Guys 2 (2025) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плохие парни пытаются адаптироваться к новой жизни, когда их просят вернуться к криминальной жизни и выполнить последнее задание.Производство: США / Universal Pictures, DreamWorks Animation, Scholastic EntertainmentЖанр: мультфильм, боевик, комедия, криминал, детектив, приключения, семейныйРежиссер: Пьер Перифел, Джейпи СансАктеры: Сэм Рокуэлл, Марк Мэрон, Аквафина, Крэйг Робинсон, Энтони Рамос, Зази Битц, Даниэль Брукс, Наташа Лионн, Мария Бакалова, Алекс Борштейн, Ричард АйоадиПеревод: Дублированный (Продубляж)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CC52E1A98B473BB307D80B4071EB21B2A647EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821999   (94749) от 04.10.2025
 
 Плохие парни 2 / The Bad Guys 2 (2025) BDRemux [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94749.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94747.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94643.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94611.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93427.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93421.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93065.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91691.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91683.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91569.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91374.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91363.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91299.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91258.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90483.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90441.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90261.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90005.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89873.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89729.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89702.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12ACB99A8DC5CA9FCEAC7AC391B5ACABD6E1A4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485694   (89580) от 20.04.2012
-
-Кто получит ананас? (1978) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тигренок шел в гости к слоненку и нес в подарок ананас, но хитрая обезъяна выманила и съела угощение.Жанр: Детский, Рисованная анимацияРежиссер: Елена БариноваПерсонажи: Андрей Игнатенко, Л. ДзюбПродолжительность: 00:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76402FF340461B9DE8310774CEED79ADEF68B3B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485248   (89554) от 19.04.2012
-
-Легенда о Костоломе / Legend of the Boneknapper Dragon (2010) [720p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иккинг и юные Викинги отправляются в путешествие со своим наставником Плевакой, чтобы помочь ему победить своего заклятого врага - легендарного дракона Костолома.Жанр: мультфильм,Режиссер: Джон ПуглисиАктеры: Джей Барушель, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, ТиДжей Миллер, Кристофер Минц-Плассе, Кристен Уиг, Джон Ди Маджио, Кевин Майкл РичардсонПеревод: Многоголосый закадровыйПродолжительность: 00:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE309C54CCE929360F264E7CC3B08AE8E869624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485009   (89543) от 19.04.2012
-
-Чип и Дейл спешат на помощь / Chip 'n Dale Rescue Rangers (1989-1992) SATRip (1 канал)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый мультсериал Уолта Диснея о захватывающих приключениях отважных спасателей - Чипа, Дэйла, Рокфора, Гайки и Вжика, которые всегда готовы отправиться навстречу неожиданным опастностям и невероятным приключениям лишь бы помочь в беде.Жанр: Рисованная анимация, Детский, ПриключенияРежиссер: Кори Бартон, Питэр Каллэн, Джим Каммингс и другиеПерсонажи: Чип, Дейл, Рокфор, Гайка, Вжик и другиеПеревод: Профессиональный (дублированный): Останкино 1991 (1-23, 25-53) + Невафильм (24, 54-65).Продолжительность: ~ 22:04:00 (65 серий)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB9C7B3E91E1CA62E0492BFD7997E90B5236F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484667   (89222) от 18.04.2012
-
-Ивашко и Баба-Яга (1938) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм для детей по мотивам русской народной сказки. Баба-Яга похитила Ивашку, который рыбачил на озере, и собралась его зажарить и съесть, но хитрый мальчик усадил вместо себя на печную лопату злого ворона. Гуси-лебеди, благодарные за спасение птенца, отнесли его домой на радость бабе с дедом, дождавшимся внука.Жанр: Детский, Рисованная анимацияРежиссер: Валентина Брумберг, Зинаида БрумбергПерсонажи: Осип Абдулов, Людмила КореневаПродолжительность: 00:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DACA425966D068CC1C997ECECFB0F48E1D8843F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484075   (88932) от 16.04.2012
-
-Легенды и мифы древней Греции (1969-1995) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник мультфильмов, производства киностудии «Союзмультфильм», снятые по мотивам легенд и мифов Древней Греции.Жанр: Детский, Для взрослых, Рисованная анимацияРежиссер: Анатолий ПетровПродолжительность: 00:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CFF68DE5B49818B62D62AD615986B3204CC226
 ```
 
 https://mybot314.ru/tekegram_catalog/

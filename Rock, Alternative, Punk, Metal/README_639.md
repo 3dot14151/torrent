@@ -1,3 +1,32 @@
+###  Публикация: 1571987   (427517) от 24.08.2022
+
+Voodoo Kiss - Voodoo Kiss (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beauty and the Beast (03:14)
+02. The Killer (02:45)
+03. Nice Guys (03:36)
+04. The Prisoner (03:29)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE8D78FBDA99ED1236C7DE6CB15AB2C984C0E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571873   (427515) от 24.08.2022
 
 Berzerker Legion - Obliterate The Weak (2020) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +35,7 @@ Berzerker Legion - Obliterate The Weak (2020) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427515.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Parasite Inc. - Cyan Night Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427508.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - One Way Street: A Tribute To Aerosmith (2001) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427504.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427479.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ Atlas - Parallel Love (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427478.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427467.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427463.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ Deftones - Ohms (2020) [FLAC|Lossless|WEB-DL|tracks]<Alternative, Nu-Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427460.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ Freaks And Clowns - We Set the World on Fire (2022) [FLAC 2.0|48/24|tracks|WEB-D
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427432.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ Centvrion - V (2015) [MP3|320 кб/с]<Heavy, Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427370.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ Out Of The Earth - Out Of The Earth (2015) [MP3|320 кб/с]<Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427364.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ Rehab Allstars - Feel The Blues (2015) [OGG| 521-558 кб/с]<Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427358.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Deftones - Ohms (2020) [FLAC|Lossless|WEB-DL-24Bit|tracks] <Alternative, Nu-Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427351.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427348.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ THR3E - 30 Day Hop (2015) [OGG| 505-529 кб/с]<Rock'n'Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427312.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427280.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Almas Militares - Almas Militares (2006) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427197.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Almas Militares - Nubes De Gloria (2004) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427195.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Almas Militares - Tormenta Solar (2012) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427194.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Finsterforst - Weltenkraft (2007) 2CD, Reissued, 2008 [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427193.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Fortíð - Völuspá Part III: Fall of the Ages (2010) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427191.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Demonical - Chaos Manifesto (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427187.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427100.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426988.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ Stefan Berggren - 2 Albums (2014-2016) [FLAC|Lossless|image + .cue] <Classic Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426987.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ Stefan Berggren(   Читать дальше...   )Жанр: Classic Rock, Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9779B8D923FE708609EDBEB0C99CF15349C6FAFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166337   (426919) от 16.09.2017
-
-Root - Hell Symphony (1991) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Belzebub              06:08
-02 - Belial                03:08
-03 - Lucifer               04:07
-04 - Abaddon               03:15(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94DB520E8678456F5A4EBB02D1CE3161AE7E04B
 ```
 
 https://mybot314.ru/tekegram_catalog/

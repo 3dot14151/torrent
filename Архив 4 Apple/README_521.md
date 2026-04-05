@@ -6,7 +6,7 @@ Bigasoft Video Downloader Pro for Mac 3.25.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237029.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CADintosh X 8.8.3 Beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237020.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Display Maid 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237009.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bigasoft Audio Converter for Mac 5.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236999.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ A Better Finder Rename 11 v11.29 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236989.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ GraphicConverter 11 v.11.7.1 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236985.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Reader for Mac 4.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236956.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Multitouch 1.24.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236944.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ DirEqual 5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236938.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ TaskPaper 3.8.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236931.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ SnapNDrag Pro Screensho‪t‬  4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236923.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ ON1 Photo Keyword AI 2023.5 v.17.5.1.14058 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236920.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236917.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ AnyMP4 Android Data Recovery for Mac 2.1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236913.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Find Any File (FAF) 2.3 b10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236905.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Cisdem Duplicate Finder 5.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236891.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Dynamic Wallpaper 14.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236890.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Aiseesoft Mac FoneLab for Android 5.0.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236887.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Mac FoneLab Android Data Recovery 3.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236869.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Data Guardian 6 v.6.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236866.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ MacMagic 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236858.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Live Wallpaper & Themes 4K Pro 16.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236857.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ File Juicer 4.93 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236849.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Affinity Designer 2 v.2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236848.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ BetterTouchTool 3.9993 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236846.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Network & Battery 12.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236836.jpg" />
 </div>
 
 

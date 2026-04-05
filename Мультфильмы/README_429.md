@@ -1,3 +1,133 @@
+###  Публикация: 1813891   (6487) от 22.08.2025
+
+Элио / Elio (2025) WEB-DLRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6487.jpg" />
+</div>
+
+
+###  Подробнее
+
+11-летний Элио, неудачник с богатой фантазией, случайно телепортируется в Коммуниверс — межпланетную организацию, объединяющую представителей далеких галактик. Ошибочно назначенный послом Земли и совершенно не готовый к такому давлению, Элио должен установить новые связи с эксцентричными инопланетянами, пройти ряд серьезных испытаний и узнать, кем ему суждено быть (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Эдриан Молина, Мадлен Шарафьян, Доми ШиАктеры: Йонас Кибриб, Зои Салдана, Реми Эджерли, Брэндон Мун, Брэд Гэррет, Джамила Джамил, Янг Дилан, Джейк Т. Гетман, Маттиас Швайгхёфер, Ана де ла РегераПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52B2A9E4949DC751064860FFDB56963AE788CEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814180   (6318) от 23.08.2025
+
+Дикие предки / Early Man (2018) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каменный век и даже более поздние цивилизации – всё равно дикие предки, но как же они были похожи на нас. У них тоже было слишком много родственников, а мужчины боролись за любимую женщину. Они тоже обожали драгоценности, играли в кожаный мяч, и каждый стремился стать первым…Производство: Великобритания, Франция / Aardman Animations, Amazon Prime Video, BFI Film Fund, Creative SkillsetЖанр: мультфильм, фэнтези, комедия, приключения, семейный, спортРежиссер: Ник ПаркАктеры: Эдди Редмэйн, Том Хиддлстон, Мэйси Уильямс, Тимоти Сполл, Мириам Маргулис, Роб Брайдон, Кайван Новак, Ричард Айоади, Селина Гриффитс, Джонни Вегас и другиеПеревод: Дублированный (iTunes)Язык озвучки: русский, английский, украинскийСубтитры: английскиеПродолжительность: 01:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578EBAA32B74D150DA2D9CA5DC401A5EB2850CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814358   (6237) от 24.08.2025
+
+Плохие парни 2 / The Bad Guys 2 (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плохие парни пытаются адаптироваться к новой жизни, когда их просят вернуться к криминальной жизни и выполнить последнее задание.Производство: США / Universal Pictures, DreamWorks Animation, Scholastic EntertainmentЖанр: мультфильм, боевик, комедия, криминал, детектив, приключения, семейныйРежиссер: Пьер Перифел, Джейпи СансАктеры: Сэм Рокуэлл, Марк Мэрон, Аквафина, Крэйг Робинсон, Энтони Рамос, Зази Битц, Даниэль Брукс, Наташа Лионн, Мария Бакалова, Алекс БорштейнПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBECBED3A0EEC3DD9736654724F177FCA205A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813367   (6226) от 24.08.2025
+
+Элио / Elio (2025) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6226.jpg" />
+</div>
+
+
+###  Подробнее
+
+11-летний Элио, неудачник с богатой фантазией, случайно телепортируется в Коммуниверс — межпланетную организацию, объединяющую представителей далеких галактик. Ошибочно назначенный послом Земли и совершенно не готовый к такому давлению, Элио должен установить новые связи с эксцентричными инопланетянами, пройти ряд серьезных испытаний и узнать, кем ему суждено быть (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney Studios Motion PicturesЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Эдриан Молина, Мадлен Шарафьян, Доми ШиАктеры: Йонас Кибриб, Зои Салдана, Реми Эджерли, Брэндон Мун, Брэд Гэррет, Джамила Джамил, Янг Дилан, Джейк Т. Гетман, Маттиас Швайгхёфер, Ана де ла РегераПеревод: Дублированный (MovieDalen, укр. LeDoyen)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, Full), английские (Full, SDH), украинские (Forced, Full)Продолжительность: 01:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934013D96D786577FD200CD9DC53B5093DC69D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671802   (6192) от 24.08.2025
+
+Ёжик в тумане (1975) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация замечательной сказки Сергея Козлова "Ежик в тумане". Каждый вечер встречались Ёжик и Медвежонок, пили чай с малиновым вареньем и любовались звездным небом. Но раз как-то пошел Ёжик к другу, да заблудился в тумане... Этот фильм нельзя рассказать, как музыку, как природу, как красоту...Производство: СССР, СоюзмультфильмЖанр: мультфильм, фэнтези, короткометражка, драмаРежиссер: Юрий НорштейнАктеры: Вячеслав Невинный, Мария Виноградова, Алексей БаталовСубтитры: Английские, японскиеПродолжительность: 00:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38E1A40FD93BC5C5330F087071F417A97B15768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814410   (6097) от 24.08.2025
 
 Смурфики / The Smurfs (2011 - 2017) BDRip 3D [H.264/1080p] [Коллекция] [Вертикальная анаморфная стереопара]
@@ -6,7 +136,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6097.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5991.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5899.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5889.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5834.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5815.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5802.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5622.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5592.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5544.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5394.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5367.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5294.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5036.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4935.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4828.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4701.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4661.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4608.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4577.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4559.jpg" />
 </div>
 
 
@@ -537,137 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:432AAFB86A4CA7F6C1BD851D7075415E4A2CF6F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816177   (4551) от 03.09.2025
-
-Элио / Elio (2025) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4551.jpg" />
-</div>
-
-
-###  Подробнее
-
-11-летний Элио, неудачник с богатой фантазией, случайно телепортируется в Коммуниверс — межпланетную организацию, объединяющую представителей далеких галактик. Ошибочно назначенный послом Земли и совершенно не готовый к такому давлению, Элио должен установить новые связи с эксцентричными инопланетянами, пройти ряд серьезных испытаний и узнать, кем ему суждено быть (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney Studios Motion PicturesЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Эдриан Молина, Мадлен Шарафьян, Доми ШиАктеры: Йонас Кибриб, Зои Салдана, Реми Эджерли, Брэндон Мун, Брэд Гэррет, Джамила Джамил, Янг Дилан, Джейк Т. Гетман, Маттиас Швайгхёфер, Ана де ла РегераПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD9C8F2C84EE37192C5F5274777D919C8034AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816173   (4548) от 03.09.2025
-
-Приключения запятой и точки (1965) IPTV [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив двойку, ученик пытается подделать исправления учителя, но этому мешают знаки препинания, возмутившиеся нечестной игрой.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Ефим ГамбургАктеры: Валентина Сперантова, Анатолий Папанов, Клара Румянова, Мария Виноградова, Георгий ВицинСубтитры: русскиеПродолжительность: 00:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F7732BCEB6EC8AF97B789E13CDC185409938E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816156   (4542) от 03.09.2025
-
-Ивашко и Баба-Яга (1938) WEB-DLRip [H.264] [реставрация]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Баба-Яга похитила Ивашку, который рыбачил на озере, и собралась его зажарить и съесть, но хитрый мальчик усадил вместо себя на печную лопату злого ворона. Гуси-лебеди, благодарные за спасение птенца, отнесли его домой на радость бабе с дедом, дождавшимся внука.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражка, детский, сказкаРежиссер: Зинаида Брумберг, Валентина БрумбергАктеры: Осип Абдулов, Клавдия КореневаСубтитры: отсутствуютПродолжительность: 00:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A758BEDC10F328AE12F2373CB781D74B87F68579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816385   (4445) от 04.09.2025
-
-Смурфики в кино / Smurfs (2025) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда злые волшебники Разамель и Гаргамель похищают Папу Смурфа, Смурфетта возглавляет группу смурфиков и отправляется в реальный мир, чтобы спасти его.Производство: США, Бельгия, Италия / Paramount Animation, Lupin Film, Lafig BelgiumЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Крис МиллерАктеры: Рианна, Джеймс Корден, Ник Офферман, Джон Пол Карлиак, Дэн Леви, Эми Седарис, Наташа Лионн, Сандра О, Джимми Киммел, Октавия СпенсерПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (2xForced, Full), английские (Forced, SDH), украинские (Forced, Full) и др.Продолжительность: 01:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4555227C2B7D336C18ED1F5D5F980B417C3DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799433   (4367) от 05.09.2025
-
-Рик и Морти / Rick and Morty (2025) WEB-DL [H.264/720p] (сезон 8, серии 1-10 из 10) Сыендук, TVShows, HDRezka, LE-Production, 1Win Studio, RedRussian1337
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4367.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета - школьник по имени Морти и его дедушка Рик. Морти - самый обычный мальчик, который ничем не отличается от своих сверстников. А вот его дедуля занимается необычными научными исследованиями и зачастую полностью неадекватен. Он может в любое время дня и ночи схватить внука и отправиться вместе с ним в безумные приключения с помощью построенной из разного (   Читать дальше...   )Производство: США, Harmonius Claptrap, Justin Roiland's Solo Vanity Card Productions, Starburns Industries, Williams StreetЖанр: мультфильм, комедия, фантастика, приключенияРежиссер: Пит Мишелс, Брайан Ньютон, Джон РайсПеревод: одноголосый (Сыендук, RedRussian1337)
-многоголосый (TVShows, HDRezka, LE-Production, 1Win Studio)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH), болгарские, чешские, датские, etc.Продолжительность: ~ 00:22:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12B8AD2D0F7B35CAB41C5BFCA2D12CC9D7DA9AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

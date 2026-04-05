@@ -1,56 +1,3 @@
-###  Публикация: 533009   (534234) от 09.08.2012
-
-Анатолий Приставкин | Ночевала тучка золотая (2006) [MP3, Александр Алексеев-Валуа]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534234.jpg" />
-</div>
-
-
-###  Подробнее
-
-О трагической судьбе двух братьев-сирот, в 1944 вывезенных вместе с другими детдомовцами из подмосковного города на Кавказ, откуда было депортировано чеченское население.Жанр: Драма
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD8AFCAB916C17FB4BFC572FB49463E01838256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155397   (533613) от 03.08.2017
-
-Молли Хейкрафт | Львиное сердце (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман о несчастной, а порой и трагической любви королей. Титул и корона обрекают людей на душевные терзания, несчастья, интриги, супружескую неверность..
-Рыцарство и Крестовые походы - основной предмет интереса канадской писательницы Молли Хейкрафт. Ее герои - чаще всего это женщины высшего общества, спутницы сильных мира сего, - моментально завладевают вниманием (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 14:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832318DA5E5B8356BCF7A36010CEDBC6046E5044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155529   (533129) от 03.08.2017
 
 Виктор Пелевин | t (2017) [MP3]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533129.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532669.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531687.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531390.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531293.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530828.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530732.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529784.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528623.jpg" />
 </div>
 
 
@@ -297,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528066.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527791.jpg" />
 </div>
 
 
@@ -350,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527362.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527342.jpg" />
 </div>
 
 
@@ -402,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527319.jpg" />
 </div>
 
 
@@ -429,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527190.jpg" />
 </div>
 
 
@@ -455,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527010.jpg" />
 </div>
 
 
@@ -481,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526402.jpg" />
 </div>
 
 
@@ -507,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525880.jpg" />
 </div>
 
 
@@ -533,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524591.jpg" />
 </div>
 
 
@@ -560,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524585.jpg" />
 </div>
 
 
@@ -586,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524511.jpg" />
 </div>
 
 
@@ -612,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524431.jpg" />
 </div>
 
 
@@ -638,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524349.jpg" />
 </div>
 
 
@@ -664,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523699.jpg" />
 </div>
 
 
@@ -675,6 +622,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8543FE9BB2ED308F136FDB08B4593B4529084C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369482   (523689) от 04.08.2011
+
+Виктор Пелевин | t [2009] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман повествует о пути мастера боевых искусств графа Т. (отсыл ко Льву Толстому), который с неведомой ему целью пробирается в Оптину Пустынь. На пути графу встречается каббалистическое существо, именующее себя Ариэль, которое утверждает, что создало мир и самого графа Т. Со слов Ариэля, граф T. есть литературный герой произведения, которое пишется самим Ариэлем. (   Читать дальше...   )Жанр: Социально-психологическая литература
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F98AD831A67B631BAE1A62C02B36DA0EC4DE74F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559728   (523604) от 26.06.2022
+
+Мариша Кель | «Ольденбургское поместье» Книга 1. Компаньонка (2021) [MP3, Алексей Грод]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая вдова графиня Мари Валевская осталась с маленьким сыном и матерью, не имея средств к существованию. Предложив свои услуги в качестве компаньонки для дочери князя Ольденбургского, она решает пойти на обман, дабы получить это место. Мари представляется дальней родственницей, почтенной вдовой высокого возраста и строгих правил. Но её маскарад разоблачён князем (   Читать дальше...   )Жанр: Исторический любовный романПродолжительность: 12:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967D3CF5A7F0A82A716522F91D699C724DF244C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

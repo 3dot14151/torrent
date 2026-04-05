@@ -1,31 +1,3 @@
-###  Публикация: 976422   (968354) от 18.01.2016
-
-Google Best Practices | Вместе лучше: Google AdWords + Google Analytics (2015) HDTV [H.264/720p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеокурс от Google из серии "Google Best Practices" поможет разобраться, в чём плюсы связывания аккаунтов Google AdWords+Google Analytics. Как использовать эти преимущества и что это даёт именно Вам!
-Важность связки Google AdWords и Google Analytics - Google Best Practices
-Оптимизируйте цели и аудитории в Google Analytics и AdWords - Google Best Practices (   Читать дальше...   )Производство: Google Inc.Жанр: образовательная программаПродолжительность: 00:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C36B3E40C84A196B98B64E22CFF7C9C9E4AB4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976767   (968197) от 18.01.2016
 
 SmartMe | React от А до Я (2015) PCRec [H.264/720p-1080p]
@@ -34,7 +6,7 @@ SmartMe | React от А до Я (2015) PCRec [H.264/720p-1080p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968197.jpg" />
 </div>
 
 
@@ -62,7 +34,7 @@ Al Sweigart | Автоматизация скучной работы прогр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968185.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ Shadrus | Джанго фреймворк видеоурок / Django framework 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966321.jpg" />
 </div>
 
 
@@ -114,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963403.jpg" />
 </div>
 
 
@@ -140,7 +112,7 @@ Google Best Practices | Расширения в Google AdWords (Ad extensions Go
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963238.jpg" />
 </div>
 
 
@@ -166,7 +138,7 @@ Udemy | The Ultimate Web Designer and Developer Course | Brad Hussey (2015) [H.2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963170.jpg" />
 </div>
 
 
@@ -194,7 +166,7 @@ Google Best Practices | Кампании Google AdWords для мобильны�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962032.jpg" />
 </div>
 
 
@@ -222,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961829.jpg" />
 </div>
 
 
@@ -248,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960605.jpg" />
 </div>
 
 
@@ -275,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958097.jpg" />
 </div>
 
 
@@ -302,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957501.jpg" />
 </div>
 
 
@@ -330,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956910.jpg" />
 </div>
 
 
@@ -356,7 +328,7 @@ Udemy | Practical PHP - Master the Basics and Code Dynamic Websites | Brad Husse
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953974.jpg" />
 </div>
 
 
@@ -382,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953193.jpg" />
 </div>
 
 
@@ -408,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951383.jpg" />
 </div>
 
 
@@ -434,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950829.jpg" />
 </div>
 
 
@@ -461,7 +433,7 @@ javascript.ru | Курс по Node.JS (2018-2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949117.jpg" />
 </div>
 
 
@@ -488,7 +460,7 @@ OTUS | Python для начинающих программистов (2018) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949026.jpg" />
 </div>
 
 
@@ -514,7 +486,7 @@ OTUS | Python QA Engineer (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949018.jpg" />
 </div>
 
 
@@ -542,7 +514,7 @@ Udemy | Миграция на Exchange Server 2016 (2016) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947830.jpg" />
 </div>
 
 
@@ -568,7 +540,7 @@ Hacking School, IT Security Academy | Взлом сайтов на практи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947792.jpg" />
 </div>
 
 
@@ -597,7 +569,7 @@ Webcademy | Сборка Gulp 4.0 (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947680.jpg" />
 </div>
 
 
@@ -623,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947620.jpg" />
 </div>
 
 
@@ -649,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947562.jpg" />
 </div>
 
 
@@ -675,7 +647,7 @@ Dmitry Tikhonkikh | OpenGL ES 2.0 (Части 1-17) (2018) HDRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945045.jpg" />
 </div>
 
 
@@ -686,6 +658,32 @@ Dmitry Tikhonkikh | OpenGL ES 2.0 (Части 1-17) (2018) HDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:213CA88D1157E672E021C2B9C3FB077C0B2F688F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362456   (944779) от 26.02.2020
+
+OTUS | JavaScript для начинающих программистов (2019) PCRec [H.264/1080p-LQ]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подготовка к курсам "Fullstack разработчик Javascript", "React.js-разработчик" и "Node.js-разработчик"Производство: Иван АфонченкоЖанр: Программирование, JavaScriptПродолжительность: 06:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16089AA4EF80BEF4503D9C57B0E0197F7A4ADC72
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1504843   (809611) от 24.10.2021
+
+Techworld With Nana, Nana Janashia | The Ultimate Kubernetes Administrator Course (CKA) (2021) WEB-DL [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте администратором K8s - Перейти от нуля к герою!
+Kubernetes - самая популярная платформа для оркестровки контейнеров. Все больше и больше компаний принимают его на вооружение. Итак, потребность в ИТ-специалистах, знающих Kubernetes, как никогда высока и растет с каждым годом.
+ Это означает, что если вы потратите время на изучение K8s и получение сертификата (   Читать дальше...   )Производство: Techworld With NanaЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 14:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9719E14220221690411B6DF4696CF97CED117A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198252   (809591) от 10.01.2018
 
 Digital-Tutors | Explaining Complex Topics with Motion Graphics in After Effects (2014) PCRec [H.264/720p-LQ]
@@ -6,7 +34,7 @@ Digital-Tutors | Explaining Complex Topics with Motion Graphics in After Effects
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809591.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Profileschool, Никита Чесноков | Cinema 4D. Базовый уро�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809489.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809403.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809240.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808007.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ Udemy, Scott Smith | Cisco CCIE Enterprise Infrastructure  (2021) WEB-DL [En / E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807934.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ TRX Force | Tactical Conditioning Program (2011) DVD5 [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807879.jpg" />
 </div>
 
 
@@ -195,7 +223,7 @@ TRX Performance | MMA Workout (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807876.jpg" />
 </div>
 
 
@@ -224,7 +252,7 @@ Kalachevaschool, Ирина Артамоновна и др. | Пастель «�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807818.jpg" />
 </div>
 
 
@@ -253,7 +281,7 @@ Kalachevaschool, Анна Эгида и др. | Скетчинг «Катало�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807811.jpg" />
 </div>
 
 
@@ -282,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807726.jpg" />
 </div>
 
 
@@ -308,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807624.jpg" />
 </div>
 
 
@@ -334,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807560.jpg" />
 </div>
 
 
@@ -361,7 +389,7 @@ Barre3 (2020) HDRip [H.264/1080p-LQ] (серий 126) [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807427.jpg" />
 </div>
 
 
@@ -388,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807038.jpg" />
 </div>
 
 
@@ -414,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806726.jpg" />
 </div>
 
 
@@ -443,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806636.jpg" />
 </div>
 
 
@@ -469,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806566.jpg" />
 </div>
 
 
@@ -495,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806557.jpg" />
 </div>
 
 
@@ -523,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806500.jpg" />
 </div>
 
 
@@ -549,7 +577,7 @@ Profileschool, Никита Чесноков | Cinema 4D. Продвинутый
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805707.jpg" />
 </div>
 
 
@@ -575,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805702.jpg" />
 </div>
 
 
@@ -604,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805697.jpg" />
 </div>
 
 
@@ -633,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805121.jpg" />
 </div>
 
 
@@ -659,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805120.jpg" />
 </div>
 
 
@@ -670,34 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF233D8B1CA27F8BBE0A53D8C414523CFDB985D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009572   (805116) от 23.04.2016
-
-Специалист | Oracle 12c. Ускоренный курс по администрированию, установке и обновлению (2016) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oracle – самая популярная база данных, которая используется в большинстве крупных компаний, банков и государственных учреждений.
-
-Специалисты со знанием Oracle востребованы везде. Хотите в кратчайшие сроки освоить работу с базой данных Oracle 12с? Представляем уникальный интенсив для инженеров техподдержки, технических администраторов, администраторов хранилищ данных, (   Читать дальше...   )Жанр: Базы данных, OracleПродолжительность: 21:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C2AB882D18B01A3096D4E8D1D23DF9B538951C
 ```
 
 https://mybot314.ru/tekegram_catalog/

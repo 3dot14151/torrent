@@ -1,32 +1,3 @@
-###  Публикация: 1620919   (245804) от 22.03.2023
-
-Laibach - Sketches Of The Red Districts (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Industrial, Neo-Classical, Experimental, Ambient, Spoken-Word>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 01. 06. 1924 [00:04:09]
-02 - Glück Auf! [00:06:33]
-03 - Moralna Zaslomba [00:05:09]
-04 - Smrt In Pogin [00:06:08](   Читать дальше...   )Жанр: Industrial, Neo-Classical, Experimental, Ambient, Spoken-WordПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2895E481C4B41BCAFB20D46CD884D8332EDAEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620006   (245766) от 20.03.2023
 
 Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
@@ -35,7 +6,7 @@ Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245766.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245564.jpg" />
 </div>
 
 
@@ -90,7 +61,7 @@ Suzi Quatro - If You Knew Suzi (1978/1982) Bulgaria [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245485.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245259.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245188.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ Roma Vayspapir - Traumerei (Reverie) (1988) [FLAC 2.0|48/24|image +.cue|MC-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245169.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ VA («Червоны гитары», М. Родович, Д. Фардон, Са�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245044.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244997.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ LondonBeat - Speak (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244978.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244756.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ ORM, Kamelie - Tropic (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244688.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ Dreamtale - Studio Albums (8 releases) (2002-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244082.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Seal - Seal (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Soul>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244039.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Robbie Williams - The Heavy Entertainment Show 2LPs (2016)  [FLAC 2.0|192/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244034.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Berlin - Pleasure Victim (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244011.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ David Essex - Rock On (1973) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244006.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music (Schubert, Tc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243948.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Bucks Fizz - Writing On The Wall (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243825.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Barclay James Harvest - Gone To Earth (1977) [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243704.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243695.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ Samantha Fox - Touch Me (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243651.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Lindemann (Rammstein, Pain) - Studio Albums (2015-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243620.jpg" />
 </div>
 
 
@@ -668,7 +639,7 @@ VA - The Absolute Sound (2013) Compilation [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Cl
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243610.jpg" />
 </div>
 
 
@@ -697,7 +668,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0|192/24|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243585.jpg" />
 </div>
 
 
@@ -726,7 +697,7 @@ Blazon Stone - Studio Albums (7 releases) (2013-2021) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243402.jpg" />
 </div>
 
 
@@ -739,6 +710,35 @@ Blazon Stone - шведская хэви-метал/пауэр-метал гру
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627110   (243370) от 17.04.2023
+
+Karel Zich - The Best Of Karel Zich (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk Rock, Soft Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243370.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Watching Your TV (Na Prvním Programu)
+A2 With Her Glasses On (Měla Na Očích Brýle)
+A3 You Taste Of The Meadow (Máš Chuť Majoránky)
+A4 Kilimanjaro (Kilimanžáro)(   Читать дальше...   )Жанр: Folk Rock, Soft Rock, Rock & RollПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A421E812EBF042767196AF5C4BAD1D13E7767FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

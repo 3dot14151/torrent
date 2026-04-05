@@ -1,3 +1,61 @@
+###  Публикация: 1269093   (223310) от 13.12.2018
+
+VA - Dissolution: Deep Space Electronic (2018) [MP3|320 Kbps] <Synthetic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trans Atlantic Crush - In the Name of Love
+02. Cajama - Exemption
+03. Claude Monnet - Iguana
+04. Common Information Model - Phop(   Читать дальше...   )Жанр: SyntheticПродолжительность: 04:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE98B9BE9C1617958534EF58BE1D398468172248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269162   (223304) от 13.12.2018
+
+VA - Interlude Music For Comfort (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223304.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ganga - Carry You Home
+002. David Arkenstone - Garden Of Eve
+003. AeTopus - This Is Our Home
+004. Kymaera - Ain't No Sunshine(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D573F678B9A20B7547636D8F1F61C0C04259BB23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965929   (222815) от 16.12.2015
 
 VA - Sunrise Avenue Vol 6 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Sunrise Avenue Vol 6 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222815.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Soothing Music Finest in Chillout (2015) [MP3|320 кб/с] <Downtempo, Chil
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222805.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Beatport Techno 01 (2019) [MP3|320 Kbps] <Techno, Edm>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222794.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Dream City: Urban Electro House (2019) [MP3|320 Kbps] <Electro House, Dance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222775.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - New Habitat: Synth Electronic Music (2019) [MP3|320 Kbps] <Synthwave, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222739.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - crazyДвиж number chetyre (2020) [MP3|320 Kbps] <Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222676.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Inner Miracle (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222582.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - After Christmas Lounge Chilled and Relaxed Lounge Tunes (2015) [MP3|320 к�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221171.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Bedroom Chillout and Ambient (2015) [MP3|320 кб/с] <Downtempo, Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221095.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - SVS Collection vol. 7 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220976.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - PromoDJ Top 100 Remix (2015) [MP3|224-320 кб/с] <Club house, Vocal house
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220805.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Madjestic Drum And Bass (2019) [MP3|320 Kbps] <Drum And Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220226.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Autumn Light Deep (2022) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219956.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Deep House Collection Vol.101 (2016) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219943.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Beatport Electro House: Sound Pack #563 (2022) [MP3|320 Kbps] <House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219877.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Glamorous Sport Music (2022) [MP3|320 Kbps] <Uplifting, Vocal-Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219854.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - D&B: Best New Electro Bass Hype Mix (2021) [MP3|320 Kbps] <Drum And Bass, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219719.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Hypnotic Techno (2021) [MP3|320 Kbps] <Techno, Electro Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219700.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - E-Dance: Clubbing Electro House (Vol.07) (2021) [MP3|320 Kbps] <Club, Dance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219659.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Hyperlandia Night Party (2021) [MP3|320 Kbps] <Club, Dance House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219612.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Deep Impact Positively: Clubbing Electro House (2021) [MP3|320 Kbps] <Club,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219589.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Clubbing Techno Energetic Mix (2021) [MP3|320 Kbps] <Techno, Tech House, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219573.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Beatport Funky House: Sound Pack #375 (2021) [MP3|320 Kbps] <Funky, Disco H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219561.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Frozen Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219554.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Frozen Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AA605B820CBE29C89EF254D861FC5434FAEF536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514026   (219445) от 02.12.2021
-
-VA - Beatport Synth Electronic: Sound Pack #378 (2021) [MP3|320 Kbps] <Syntwave, Electronic, New Wave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219445.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kevin Di Serna - Plexuria
-002. Jim Schwindel - Colibri
-003. Derek J. Turner - Navigation Beacon Delta
-004. Rheinzand - You Don't Know Me(   Читать дальше...   )Жанр: Syntwave, Electronic, New WaveПродолжительность: 10:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E921524BC5BDCFBAE72B27100CC84E942C02865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514148   (219299) от 02.12.2021
-
-VA - Vocal Trance Top 50 (2021) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SMR LVE, Roxanne Emery - Let the Light In (5:03)
-02. John Askew, Gary Go - Smile (4:47)
-03. Activa, Shannon Hurley - Return to Life (4:29)
-04. Yoshi & Razner, Cari - Angel (4:20)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5789D2E3F7DD6B8729AE70141E151584F3DA09
 ```
 
 https://mybot314.ru/tekegram_catalog/

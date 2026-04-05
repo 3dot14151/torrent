@@ -1,3 +1,32 @@
+###  Публикация: 1645943   (232494) от 12.07.2023
+
+System Trashed - Outlaw (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Screaming Through (04:38)
+02 - You Will Pay (04:04)
+03 - Outlaw (04:35)
+04 - War Dance (04:26)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B26BB825E7581FA1E643446FC502DC494091F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640039   (232493) от 15.06.2023
 
 Janet Gardner - Justin James - No Strings (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +35,7 @@ Janet Gardner - Justin James - No Strings (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232493.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232492.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Extreme - Six (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232491.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Sergeant Steel - Mister Sippi (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232488.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Ray Alder - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232484.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ System Trashed - Oxygen Thieves (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232479.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Metal Church - Congregation of Annihilation (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232475.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Talizman - Taken by Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232472.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Taskforce Toxicator - Skull Splitting Force (2023) Compilation [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232466.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ King Howl - Homecoming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232462.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Elegant Weapons - Horns For A Halo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232460.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ The Animal State - 3 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232459.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Admiral Justice - Admiral Justice (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232457.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Suotana - Ounas I (2023) [MP3|320 Kbps] <Melodic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232453.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Kill Ritual - Kill Star Black Mark Dead Hand Pierced Heart (2022) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232446.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Incitacion (Incitación) - Sabrosa (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232445.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Kill Command - Hostile Takeover (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232444.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Beneath The Hollow - Misery Loves You (2023) [FLAC|Lossless|WEB-DL|tracks] <Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232441.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Cottage Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232430.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Last Giant - Monuments (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232413.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Mega Bog - End of Everything (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232404.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Brian May - Star Fleet Sessions [2CD, Deluxe] (2023) [MP3|320 Kbps] <Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232402.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Witchfield - 2 Albums (2015-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232393.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Dreadhammer - Sovereign (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232381.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Rock-H (Рокаш) - 4 Albums + 3 Single (2012-2021) [FLAC|Lossless|tracks] <Fo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232368.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Rock-H (Рокаш) - 4 Albums + 3 Single (2012-2021) [FLAC|Lossless|tracks] <Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4AA91019459DDD6306CB611AA810BC876573CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643512   (232365) от 03.07.2023
-
-Квант ∞ - Голос ветра (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звуки тишины [00:01:39]
-02. Дорога домой [00:07:23]
-03. Тернистый путь [00:04:44]
-04. В поступь этой души [00:07:17](   Читать дальше...   )Жанр: Metalcore, Power MetalПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB13D7C6DC06528758EC53037CBCD54B31EC7BFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1179512   (346954) от 01.11.2017
+
+700 кг Золота - Снежное лето (2012) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Поверь
+02.Города сны
+03.Звонок
+04.Когда нибудь(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0269131D0CB6EDA92D59C4C51343500D443ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179444   (346953) от 01.11.2017
 
 700 кг Золота - Время (2016) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346953.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Philhelmon - Enjoy It While It Lasts (2012) [FLAC|Lossless|tracks + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346939.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Black Countess - Child Of The Demonic Moon (1999) 2006, MetalAgen / Soyuz Music 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346938.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Zeus - Attack Time (1981) LP [MP3|320 Kbps] <Electronic, Krautrock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346932.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Winery Dogs - Hot Streak (2015) [FLAC|image+.cue]<Hard Rock, Blues Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346833.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Devil You Know - They Bleed Red (2015) [MP3|320 кб/с]<Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346832.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Stigmata - Mainstream? (2017) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346807.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Steve Lee (Gotthard) - The Eyes of a Tiger: In Memory of Our Unforgotten Friend 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346803.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Irish Coffee - Heaven (2020) [MP3|320 Kbps] <Hard Rock, Classic Rock, Blues Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346799.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Geordie - Don't Be Fooled By The Name (1974) Japanese Edition /2006, Archive/ [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346718.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Celldweller - End of an Empire (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Indus
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346607.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Pink Floyd - The Endless River (2014) [MP3|320 кб/с]<Progressive Rock , Ambie
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346521.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Lacrimosa - Hoffnung (2015) [MP3|320 кб/с]<Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346486.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346317.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Inferno - Воскресни (2005) [MP3|320 кб/с]<Gothiс metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_346261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_346261.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Stratovarius - Eternal (2015) [OGG Vorbis|484 Kbps] <Rock, Power Metal, Ambient>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345939.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Stratovarius - Nemesis (2013) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345938.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Ville Laihiala - Ei meilla ole kuin loisemme (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345937.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Arsena - Blood Rusted Mother Earth (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345936.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Fool's Paradise - Living In A Fantasy (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345935.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Restless Oblivion - 2 Albums (2014-2022) [MP3|320 Kbps] <Gothic Metal, Melosic D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345934.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ VA - Rock Sound: Sound Check No. 118 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345929.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ VA - Rock Sound: Sound Check No. 121 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345925.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ VA - Rock Sound: Sound Check No. 116 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345921.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ VA - Rock Sound: Sound Check No. 102 (2007) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345919.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ VA - Rock Sound: Sound Check No. 102 (2007) [FLAC|Lossless|tracks + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62953E7DF1A167F685045660C1F5874F13264549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578338   (345860) от 23.09.2022
-
-Somnambular Dance - Городу - трещины (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Везувий [00:03:47]
-02. И я ослеп [00:04:44]
-03. Белый лес [00:04:53]
-04. И ветер стих [00:01:09](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BDC67CC8E91A44DDF2A6CEB7FEE0EAB9142B2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

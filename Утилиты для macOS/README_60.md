@@ -1,3 +1,31 @@
+###  Публикация: 1705338   (63652) от 08.03.2024
+
+App Cleaner & Uninstaller Pro 8.2.7 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63652.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Cleaner - это приложение для просмотра установленных приложений и деинсталлирования пакета файлов для полного удаления.
+App Cleaner - лучшее приложение для удаления файлов приложения службы на macOS X и деинсталляции приложений.
+Удалить служебные файлы приложения. Убедитесь, что они не съедают драгоценное пространство на вашем Mac с этим полезным приложением, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 NektonyПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808A4E3C6DDD03D8BB3CA30556CAACAEBF342333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705599   (63493) от 09.03.2024
 
 DCommander 3 Premium for Mac v.3.9.4 [En]
@@ -6,7 +34,7 @@ DCommander 3 Premium for Mac v.3.9.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63493.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.38 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63295.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ DearMob iPhone Manager 6.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63269.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ BetterDisplay Pro for Mac 2.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63239.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ Shottr for Mac 1.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63177.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ TG Pro (Temperature Gauge Pro) 2.92 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63097.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ BetterTouchTool 4.443 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63074.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ TechTool Pro 19 v.19.0.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63057.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ Parallels Desktop Business Edition 19 for Mac 19.3.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62937.jpg" />
 </div>
 
 
@@ -245,7 +273,7 @@ FonesGo WhatsApp Transfer for Mac 8.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62675.jpg" />
 </div>
 
 
@@ -271,7 +299,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62529.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ Commander One PRO - FTP client 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62483.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ Commander One PRO Pack 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62457.jpg" />
 </div>
 
 
@@ -351,7 +379,7 @@ Alfred PowerPack 5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62445.jpg" />
 </div>
 
 
@@ -378,7 +406,7 @@ CrossOver 24.0.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62280.jpg" />
 </div>
 
 
@@ -405,7 +433,7 @@ DaisyDisk 4.30 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62273.jpg" />
 </div>
 
 
@@ -432,7 +460,7 @@ Rectangle Pro 3.0.21 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61712.jpg" />
 </div>
 
 
@@ -458,7 +486,7 @@ ActiveDock 2 for Mac v.2.601 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61709.jpg" />
 </div>
 
 
@@ -484,7 +512,7 @@ Magic Disk Cleaner 2.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61707.jpg" />
 </div>
 
 
@@ -510,7 +538,7 @@ Dynamic Wallpaper Engine 17.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61623.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ Boom 3D 2.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61612.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ Wins for Mac 1.6.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61608.jpg" />
 </div>
 
 
@@ -588,7 +616,7 @@ VanDyke SecureCRT and SecureFX 9.5.1 ARM/iNTEL [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61533.jpg" />
 </div>
 
 
@@ -614,7 +642,7 @@ Ghost Buster Pro 3.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61489.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ Airbuddy for Mac 2 v.2.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61485.jpg" />
 </div>
 
 
@@ -651,33 +679,6 @@ AirBuddy переносит ту же версию AirPods, что и на iOS, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B2FE6EB95F4B33EB9016E632D4055546E8E3DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711005   (61484) от 28.03.2024
-
-Oka Unarchiver - Unzip ZIP RAR 2.1.8 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oka Unarchiver — это небольшая и простая в использовании утилита, которая может архивировать или разархивировать различные файлы.
-С помощью Oka Unarchiver вы можете сжать столько файлов, сколько захотите. Кроме того, вы можете защитить их паролем.Тип издания: macOS SoftwareРелиз состоялся: 27.03.2024Разработчик: © 2024 ChengHao WuПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A17E970B174F7CB71B287CEA96845735E0B9BDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

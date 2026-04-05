@@ -1,3 +1,133 @@
+###  Публикация: 1600265   (159069) от 26.12.2022
+
+Чарли Чейз. Сколько стоит Гуфи? / What Price Goofy? (1925) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая жена Джеймисона очень ревнива. Но мало этого - у неё есть глуповатая подруга-сплетница. И вот эта-то подруга запускает цепочку событий ( я бы сказал, обвал событий). Нелепых, глупых и забавных. Короче говоря, веселая неразбериха, которая так хорошо удается Чарли Чейзу.Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Кэтерин Грант, Люсьен Литтлфилд, Джейн Шерман, Бадди Дог, Марджори Гэй, Ной Янг, Фэй РэйПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F30188701CEA1C317B76B3CFDF3327E934BF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676303   (159030) от 12.11.2023
+
+Наша банда. Похитители колыбелей / Our Gang. Cradle Robbers (1924) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Банде вместо рыбалки приходится присматривать за своими младшими братиками-сестричками. Узнав, что младшая сестра Мэри выиграла приз на детском шоу, они решили устроить собственное детское шоу. Между тем родители, обнаружившие пропажу своих малышей, предположили, что их похитили. А тут как раз мимо цыгане проходили. Ну, на кого первое подозрение? Ясно дело, цыгане (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Эрнест Моррисон, Dick Henchen, Сонни Лой, Лэсси Лу Ахерн, Пегги ЭхернПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774E3640686236C64FF1B7A29F12AF78FBAF2A09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600207   (159012) от 26.12.2022
+
+Мы - женщины / Siamo Donne / We, the Women (1953) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четыре новеллы повествуют о предполагаемых событиях личной жизни известных актрис. В пятой части, являющейся прологом, рассказ о конкурсе девушек на участие в фильме.Производство: Италия / Film Costellazione Produzione, TitanusЖанр: драма, комедияРежиссер: Джанни Франчолини, Альфредо Гуарини, Роберто РосселлиниАктеры: Ингрид Бергман, Анна Маньяни, Иза Миранда, Алида Валли, Анна Амендола, Эмма Даниели, Кристина Дория, Кристина Фантони, Мадлен Фишер, Luciana GalloПеревод: Многоголосый любительский (Kinouvas)Язык озвучки: русский, итальянскийСубтитры: русские, английские (отдельно)Продолжительность: 01:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD92D4C358E6AE69B5BA18EEF58AA6EF753A4522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600170   (159004) от 26.12.2022
+
+Туманные звёзды Большой Медведицы / Vaghe stelle dell'Orsa… (1965) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американец Эндрю сопровождает молодую жену Сандру в её итальянский дом в Вольтерре. Из шкафов благопорядочного итальянского семейства начинают появляться скелеты. Сандру осаждают воспоминания о погибшем в Освенциме отце, враждебные отношения с матерью и кровосмесительные — с братом Джанни.Производство: Италия / Vides CinematograficaЖанр: драма, детектив, военныйРежиссер: Лукино ВисконтиАктеры: Клаудия Кардинале, Майкл Крейг, Жан Сорель, Мари Белл, Ренцо Риччи, Фред Уильямс, Амалия Тройани, Витторио Манфрино, Ренато Моретти, Паола ПишиниПеревод: Многоголосый профессиональный (РенТВ)Язык озвучки: русский, итальянскийСубтитры: отсутствуютПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950D77E2E5ED360AA09D7AD91D128A4327FB1033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600189   (158982) от 26.12.2022
+
+Ночные игры / Nattlek (1966) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ян возвращается со своей невестой в дом своего детства. Здесь он мысленно возвращается к своему детству двадцатилетней давности, когда он жил ничем не ограниченной жизнью, за которой присматривали странная двоюродная бабушка и пренебрежительные мать и отец. В настоящем его отношения с невестой становятся всё более напряжёнными, поскольку его прошлое начинает влиять (   Читать дальше...   )Производство: Швеция, SandrewsЖанр: драмаРежиссер: Май СеттерлингАктеры: Ингрид Тулин, Кеве Эльм, Ёрген Линдстрём, Лена Брундин, Найма Вифстранд, Моника Сеттерлунд, Лауриц Фальк, Руне Линдстрем, Кристиан Брэтт, Лисси Аланд...Перевод: любительский одноголосый (Andi999)Субтитры: русские, английскиеПродолжительность: 01:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B50F1AE63BBE3CA7C0901EF7E7D5FEC205E3EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676269   (158949) от 12.11.2023
 
 Береговой плацдарм / Beachhead (1954) HDTVRip [H.264]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158949.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158929.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158923.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158875.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158202.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158193.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158174.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157779.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157678.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157628.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157598.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157491.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157131.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157022.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156891.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156517.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156140.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155843.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155689.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155511.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155302.jpg" />
 </div>
 
 
@@ -540,137 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53368DA4E6E55C4820126F674795A19A7236DAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194362   (155219) от 25.12.2017
-
-Леди и разбойник / The Lady And The Highwayman (1989) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация произведения Барбары Картленд.
-Середина XVII в., времена английской революции. Молодая леди Пантея Вайн вынуждена согласиться на брак с местным кромвелевцем, чтобы спасти арестованного брата, который на самом деле уже казнён. Однако сразу же после венчания разбойник Серебряный Клинок, он же её кузен Люсиус, соратник будущего Карла II, убивает негодяя (   Читать дальше...   )Производство: Великобритания. Кинокомпания: Gainsborough Pictures, The Grade CompanyЖанр: Мелодрама, ПриключенияРежиссер: : Джон ХафАктеры: Эмма Сэммс, Хью Грант, Клер Блум, Лизетт Энтони, Майкл Йорк, Джон Миллз, Йен Бэннен, Оливер Рид, Кристофер Кейзнов, Роберт Морли, Бернард Майлз, Гордон Джексон, Гарет Хант, Стефани Питт, Флойд Беван и др.Перевод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828BF088AA77FECB228490CD3EEC12415120D2F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194534   (155091) от 25.12.2017
-
-Мир без конца / World Without End (1956) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155091.jpg" />
-</div>
-
-
-###  Подробнее
-
-2200 год. Четыре космонавта командир Джон Борден, Херберт Эллис, доктор Элдоном Галбрайт и Генри Джаффе, возвращающихся из первой миссии человечества на Марс. Ракета RXM становится жертвой случайного ускорения, и на скорости свыше 100 миль в секунду проваливается сквозь искривлённое пространство в будущее и приземляется в цепи заснеженных гор на планете, чья атмосфера (   Читать дальше...   )Производство: США / Allied Artists Pictures CorporationЖанр: Фантастика, Мелодрама, ПриключенияРежиссер: Эдвард БерндсАктеры: Хью Марлоу, Нэнси Гейтс, Нельсон Ли, Род Тейлор, Ширли Паттерсон, Лиза Монтелл, Кристофер Дарк, Бут Колман, Эверетт Гласс, Стэнли ФрайзерПеревод: Одноголосый закадровый (Rollinghead)Субтитры: Русские, английскиеПродолжительность: 01:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74294D209A0C80D8B68F2BD8D2AA1CCF7ED24CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766111   (155007) от 20.12.2018
-
-Инопланетное семя / Alien Seed (1989) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэри Джордан, невинная 18-летняя студентка, обнаруживает, что она загадочным образом беременна после необъяснимого одиннадцатичасового исчезновения в глухой сельской местности. Расследование постепенно приоткрывает завесу над планом инопланетян по появлению "мессии", которому суждено подчинить себе весь мир. MJ-12, секретная правительственная организация, (   Читать дальше...   )Производство: США, Action International Pictures (A.I.P.)Жанр: ФантастикаРежиссер: Боб ДжеймсАктеры: Эрик Эстрада, Хайди Пейн, Стивен Блэйд, Шилли Блок, Дэвид Хэйес, Терри Филлипс, Стив Джеллман, Бен Мардел, Ник Гриззли, Джоди Блант.Перевод: Одноголосый закадровыйПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF66F2ABD80B42C5A53E7AE243BFE7F602757ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433962   (154872) от 22.12.2020
-
-Морская звезда / L'etoile de mer (1928) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154872.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Нет ничего более поэтического, чем встреча зонтика и швейной машинки на операционном столе", - эти слова французского поэта Лотреамона вдохновляли многих деятелей Второго Авангарда. Вот и знаменитый фотограф Ман Рэй взялся экранизировать стихотворение Робера Десноса "Морская звезда", а вернее, представить его в виде образов, которые оно у него (   Читать дальше...   )Производство: ФранцияЖанр: Короткометражный, драма, авангард, немое киноРежиссер: Ман РэйАктеры: Алис Прен, Андре де ла Ривьер, Робер ДесносЯзык озвучки: НемойСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 00:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DE94B14200050AD35864E716057ACDD1DCE5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676938   (154758) от 15.11.2023
-
-Наша банда. Компания "Заходящее солнце" / Our Gang. The Sun Down Limited (1924) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вроде как общеизвестно, что первые детские железные дороги были созданы в Советском Союзе. Но вот эта забавная кoмедия ставит под сомнение эту информацию...Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Энди Сэмюэл, Сонни Лой, Лэсси Лу Ахерн, Пегги Эхерн, Айвадэлл КартерПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3FAF5B4699CDFE668D12A9E834DA7E9AD101BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

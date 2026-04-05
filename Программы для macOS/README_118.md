@@ -1,3 +1,58 @@
+###  Публикация: 1267226   (267276) от 05.12.2018
+
+Micro Snitch 1.3.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь задумывались если приложение записывает аудио через встроенный микрофон вашего Mac без вашего ведома? Или если камера захватывает видео без веских оснований?
+
+С Micro Snitch больше нет сомнений. Это ультра-легкое приложение в строке меню работает незаметно в фоновом режиме. Он отслеживает и сообщает о любой активности микрофона и камеры, чтобы помочь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: Objective DevelopmentПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7C2C0C00C85DA547387437BECBDC71E8B395C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339151   (267127) от 18.11.2019
+
+Antivirus Cyber Byte Pro 3.7.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mac, как правило, считается безопасным и надежным, и существует ряд причин, по которым Mac считаются более безопасными, чем ПК, но существует множество рисков, которых Mac не удалось полностью избежать.
+Мы, в CyberByte ™, помимо нашего консалтингового опыта в области безопасности, изучаем эволюцию вредоносного ПО, и мы наблюдали, что вредоносное ПО Mac увеличилось (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CyberByte™ AntivirusПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78ADDF539BAE1538F1D5FBAEF93A920AE243089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339274   (267054) от 18.11.2019
 
 TunesKit Audio Converter 3.2.0 [En]
@@ -6,7 +61,7 @@ TunesKit Audio Converter 3.2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267054.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Liquid | Flow Pro 15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266920.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ TunesKit Apple Music Converter 2.0.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265687.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ Cookie 6.0.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265369.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ Declutter 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265367.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265341.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ Capo 3.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265311.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ LRTimelapse Pro 5.0.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265072.jpg" />
 </div>
 
 
@@ -225,7 +280,7 @@ MonthlyCal 1.5.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264702.jpg" />
 </div>
 
 
@@ -251,7 +306,7 @@ Movavi Photo Manager 2.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264237.jpg" />
 </div>
 
 
@@ -277,7 +332,7 @@ Logic Pro X 10.3.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264064.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ Paste 2.5.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263980.jpg" />
 </div>
 
 
@@ -329,7 +384,7 @@ Motion 5.4 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263694.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ liquivid Exposure and Effects 1.2.3 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263620.jpg" />
 </div>
 
 
@@ -385,7 +440,7 @@ MKVToolNix 40.0.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263585.jpg" />
 </div>
 
 
@@ -411,7 +466,7 @@ Proxifier for Mac 2.26 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263547.jpg" />
 </div>
 
 
@@ -437,7 +492,7 @@ Nimble Commander 1.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263379.jpg" />
 </div>
 
 
@@ -463,7 +518,7 @@ iSkysoft Video Converter 6.1.0.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262922.jpg" />
 </div>
 
 
@@ -489,7 +544,7 @@ NeoOffice 2017.19 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262823.jpg" />
 </div>
 
 
@@ -517,7 +572,7 @@ SMART Utility 3.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262731.jpg" />
 </div>
 
 
@@ -544,7 +599,7 @@ Movavi Video Editor 5 Plus 5.1.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262433.jpg" />
 </div>
 
 
@@ -570,7 +625,7 @@ PhpStorm 2017.3.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_262385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262385.jpg" />
 </div>
 
 
@@ -596,7 +651,7 @@ ON1 Photo RAW 2019.7 (build 13.7.0.8098) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262333.jpg" />
 </div>
 
 
@@ -622,7 +677,7 @@ ON1 Resize 2019.7 (build 13.7.0.8098) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262318.jpg" />
 </div>
 
 
@@ -633,59 +688,6 @@ ON1 Resize 2019 (ранее известный как Perfect Resize Standard) -
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C760835636202B228E0B9F01584A70AA6EF2B85F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341383   (262292) от 28.11.2019
-
-Kodak Preps 8 v8.4.0 (build 128) [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Preps — это лидирующее в отрасли программное обеспечение для безошибочного создания спуска полос. Оно поддерживает сложные задания для цифровой и традиционной печати, принимая элементы контента и данные, поступающие из различных источников, включая сторонние решениями. Как часть унифицированных рабочих потоков KODAK, ПО Preps может обеспечить полностью автоматизированный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Eastman Kodak CompanyПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923220C9AE5C599F454FEF882835B017DA8CE791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193087   (262232) от 20.12.2017
-
-Romanysoft SpeedTest 7.0.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Romanysoft Speed Test -  проверить скорость интернет. Тест скорости Интернет без Flash.
-У любого человека подключенного к глобальной сети (а таких в наше время большинство) рано или поздно возникает вопрос — как проверить скорость Интернета ? Кто-то хочет протестировать новый тариф своего провайдера – не обманывает ли? Соответствует ли завяленная скорость фактической? (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: декабрь 2017Разработчик: Romanysoft LAB.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222C621ADDBADF338BAA5200BDCDA68B60340126
 ```
 
 https://mybot314.ru/tekegram_catalog/

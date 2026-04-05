@@ -1,169 +1,3 @@
-###  Публикация: 603871   (996592) от 16.01.2013
-
-В.Байдаков, В.Дранищев | 1С: Предприятие 8.2. Руководство разработчика прикладных решений [2009] [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство содержит описание общей концепции системы 1С:Предприятие 8, принципов администрирования системы 1С:Предприятие 8 и служебных режимов работы, а также рассказывает о приемах работы с объектами системы, о создании индивидуальных пользовательских интерфейсов и наборов прав пользователей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CF11ABD419EEA0F2F4884CB26F65769FE05F5D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604827   (996013) от 18.01.2013
-
-Робин Никсон | Ubuntu для всех [2011] [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга - полное руководство по работе в операционной системе Ubuntu. Описаны все варианты ее установки, конфигурирование рабочего стола, в том числе настройка клавиатуры, мыши, монитора, управление принтерами. Обсуждаются файловая система Linux, работа с командной строкой, установка и удаление программ, администрирование, многопользовательская среда, безопасность системы. Рассматриваются сетевые возможности - общий доступ к файлам и папкам, работа в Интернете, новый сервис Ubuntu One. Кратко описаны пакет OpenOffice.org, мультимедийные и игровые возможности, совместимость с другими популярными ОС, запуск Windows-приложений с помощью Wine.
-Книгу отличает простой и понятный стиль изложения с минимальным употреблением профессионального жаргона.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF872137E9755C4CF5EEFBC8317E24B409DF69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605188   (995754) от 19.01.2013
-
-Jeremy Keith | The Mobile Book by Smashing Magazine [2012] [PDF] [En]
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга будет полезна веб-дизайнерам и дизайнерам для мобильных устройств. Наглядно описаны современные тенденции в сфере отзывчивых мобильных веб-сайтов и мобильных интерфейсов. Даны оперделения базовым паттернам для отзывчивых вебсайтов, особенности проектирования и создания интерфейсов для планшетов и смартфонов. Советы при верстке и создании отзывчивых вебсайтов. Описаны примеры удачного взаимодействия развития мобильных устройств в повседневной жизни.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E33F3816C44B1AF3FA173BA08C6712F15A77B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605180   (995705) от 19.01.2013
-
-Т. Крамарская | Microsoft SQL Server 2008 R2 для поддержки системы «1С:Предприятие 8» [2011] [JPEG]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс рассчитан:
-
-на администраторов и системных инженеров, занимающихся установкой, конфигурированием и поддержкой систем 1С, использующих Microsoft SQL Server.
-Цель обучения:
-
-овладеть знаниями и навыками администрирования и сопровождения SQL Server 2008 R2 для поддержки системы " 1С:Предприятие 8":
-Изучить особенности установки SQL Server 2008 R2 для системы "1С:Предприятие 8".
-Освоить практику управления файлами базы данных системы "1С:Предприятие 8".
-Научиться настраивать безопасность и политику аудита базы данных системы "1С:Предприятие 8".
-Научиться разрабатывать стратегию восстановления данных.(   Читать дальше...   )Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69996174C32E4C37E3782A715096A71818BEE3CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607432   (994625) от 22.01.2013
-
-Orin Thomas | Windows Server 2008 R2 Secrets / Секреты Windows Server 2008 R2 [2011] [PDF] [En]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга для системных администраторов, работающих в сети на Windows Server 2008. Изложены малоизвестные приемы по развертыванию и обслуживанию сервера: общий доступ и безопасность, удаленное управление, AD, резервное копирование, управление IIS и др.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6AE036AACA7B251A846DCDD4B33E35DD972989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607080   (994401) от 23.01.2013
-
-«ProTechnologies» | Введение в Creo Parametric [2011] [DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит 28 модулей, позволяющих освоить основной функционал программы. В дополнение к книге к каждому модулю есть файлы моделей Creo, на которых предлагается выполнять упражнения.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494116C4FD96C68469334811713E11B11B533F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608025   (993868) от 24.01.2013
 
 Р.С. Мартин, М.Мартин | Принципы, паттерны и методики гибкой разработки на языке C# [2011] [PDF]
@@ -172,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993868.jpg" />
 </div>
 
 
@@ -200,7 +34,7 @@ SЕО Монстр 2013 [2012] [PDF]
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993413.jpg" />
 </div>
 
 
@@ -228,7 +62,7 @@ Russell Barnes (ред.) | Android: Tips, Tricks & Apps (vol.1) / Андроид
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992727.jpg" />
 </div>
 
 
@@ -254,7 +88,7 @@ Dave Harfield (ред.) | Андроид: Советы, трюки, прилож
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992669.jpg" />
 </div>
 
 
@@ -281,7 +115,7 @@ Mike Wooldridge, Brianna Stuart | Teach Yourself Visually Adobe Photoshop CS6 / 
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992557.jpg" />
 </div>
 
 
@@ -307,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991259.jpg" />
 </div>
 
 
@@ -333,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990543.jpg" />
 </div>
 
 
@@ -359,7 +193,7 @@ Willie Pritchett, David De Smet | BackTrack 5 Cookbook / Рецепты BackTrac
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990032.jpg" />
 </div>
 
 
@@ -385,7 +219,7 @@ Mark L. Murphy / Марк Л. Мерфи | Elements of Android Room / Элеме
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989761.jpg" />
 </div>
 
 
@@ -411,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989647.jpg" />
 </div>
 
 
@@ -437,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989590.jpg" />
 </div>
 
 
@@ -464,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989589.jpg" />
 </div>
 
 
@@ -491,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989586.jpg" />
 </div>
 
 
@@ -517,7 +351,7 @@ Mark L. Murphy / Марк Л. Мерфи | Elements of Android Jetpack / Эле�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988933.jpg" />
 </div>
 
 
@@ -543,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988742.jpg" />
 </div>
 
 
@@ -570,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987965.jpg" />
 </div>
 
 
@@ -597,7 +431,7 @@ Daryl Wise, Linda Hellfritsch | Секреты экспертов Corel Painter 
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987782.jpg" />
 </div>
 
 
@@ -624,7 +458,7 @@ Kirupa Chinnathambi / Кирупа Чиннатхамби | Javascript Absolute 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987772.jpg" />
 </div>
 
 
@@ -650,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987756.jpg" />
 </div>
 
 
@@ -676,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987092.jpg" />
 </div>
 
 
@@ -687,6 +521,165 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC2887DB2124B81B6709A8C12182C8E3F4FA1428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971270   (987087) от 02.01.2016
+
+А.А. Овчаров | Linux Mint 17.3 Rosa и её Xfce (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное практическое пособие, написано в стиле для «чайников» и предназначено для начинающих пользователей, которые впервые знакомятся с рабочим окружением Xfce дистрибутива Linux Mint 17.3 Rosa. Имеющиеся в Пособии объяснения, написаны простым и доступным языком. Для быстрого ориентирования в материале книги, используются пиктограммы и скриншоты рабочих окон системы (   Читать дальше...   )Жанр: Практическое пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF6311134A9B3569023FA88D4EB1A957E078DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612442   (986391) от 01.02.2013
+
+"CoolReader" | Руководство пользователя Cool Reader 3 [2013] [FB2]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986391.jpg" />
+</div>
+
+
+###  Подробнее
+
+CoolReader — это удобная программа для чтения электронных книг.
+Незаменима для тех, кому приходится читать большой объем текста с экрана. CoolReader создан для того, чтобы сделать чтение текстовых файлов (электронных книг) удобным и комфортным.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A55F7703920331AB13CCE1BCEEA0B1F548A45D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354912   (985784) от 24.01.2020
+
+Tom Steele, Chris Patten / Том Стил, Крис Паттен | Black Hat Go. Go Programming For Hackers and Pentesters / Black Hat Go. Программирование для хакеров и пентестеров (2019) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Hat Go исследует более скрытую сторону популярного языка программирования, почитаемого хакерами за его простоту, эффективность и надёжность. Он предоставляет арсенал практической тактики с точки зрения специалистов по безопасности и хакеров, чтобы помочь вам протестировать свои системы, создать и автоматизировать инструменты в соответствии с вашими потребностями, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4527C7BE31DA48597C98E4E3EF80A08AF898CA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355178   (984486) от 25.01.2020
+
+Кирупа Чиннатхамби | Javascript полное руководство для начинающих (2020) [[FB2] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга рассчитана для тех, кто впервые знакомится с jаvascript. Не для того, чтобы говорить на нем, а для того, чтобы использовать его как язык программирования. Не будем вдаваться в подробности о значении и использовании этого языка в масштабах программирования как специальности. Просто скажем, что это - один из стандартов, который необходимо знать программисту. (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D325AAEF8543D6EBC105ED4EA3A74DA349F79E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951053   (984306) от 25.01.2020
+
+Дебу Панда и др. | EJB 3 в действии (2015) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фреймворк EJB 3 предоставляет стандартный способ оформления прикладной логики в виде управляемых модулей, которые выполняются на стороне сервера, упрощая тем самым создание, сопровождение и расширение приложений Java EE. Версия EJB 3.2 включает большее число расширений и более тесно интегрируется с другими технологиями Java, такими как CDI, делая разработку еще проще. (   Читать дальше...   )Жанр: программирование для профессионаловФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9ED3C0B53E07B9AF5521A341455EF8B8B90B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356165   (980355) от 29.01.2020
+
+Артём Слаква | Руководство по Freestyle (версия 1.0 по Blender 2.79) (2018) [PDF, EPUB]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980355.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге собрано все, что имеет хоть какое-то отношение к движку рендеринга Freestyle.
+Freestyle — это нефотореалистичный движок рендеринга ребер и линий.
+NPR - Non-Photorealistic Rendering (нефотореалистичный рендеринг) - область компьютерной графики, посвященная созданию методов имитации большого разнообразия выразительных стилей в цифровом искусстве. В отличие (   Читать дальше...   )Жанр: 3D моделирование, Нефотореалистичный рендерингФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A0FD79FDD61CD3BB976A4DEF6F74BE27B3D396
 ```
 
 https://mybot314.ru/tekegram_catalog/

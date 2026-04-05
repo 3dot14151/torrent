@@ -1,32 +1,3 @@
-###  Публикация: 1699226   (117949) от 12.02.2024
-
-The Pineapple Thief - It Leads To This (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Crossover Prog>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Put It Right (5:31)
-02. Rubicon (4:37)
-03. It Leads to This (4:44)
-04. The Frost (5:41)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5AEEB2F6B0B14AD43EB6F0B2CB71D58F32B9D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699112   (117933) от 12.02.2024
 
 Galleons - Violent Delights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock, Experimental, Progressive>
@@ -35,7 +6,7 @@ Galleons - Violent Delights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117933.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Riot - Fire Down Under (1981) Reissue, 2023, Rhino[FLAC 24/192|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117928.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Gregory Aigersson - White Morning & Valentine Coffee (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117922.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Crush++ - Power Pleasure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117920.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Iolanda Lomuscio - Jazzscape Harmony (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117918.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Die Sterne - Grandezza (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117789.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Seth James - Lessons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117780.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Lyna Mahyem - Mon âme (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul/Funk/R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117776.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Romantic Moods Academy - Happy Valentine's Day 2024 (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117656.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Jazz Sax Lounge Collection, Magical Memories Jazz Academy - Best Sexy Saxophone 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117648.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Positive Music Universe, Most Relaxing Music Academy - Relaxing Sunday Brunch: S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117627.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Smooth Jazz Music Ensemble, Background Instrumental Music Collective - A Cup of 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117622.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Cafe Chill Jazz Background, Jazz Music Lovers Club, Jazz Erotic Lounge Collectiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117606.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Italian Romantic Piano Jazz Academy, Sexy Lovers Music Collection, Romantic Even
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117600.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Testament - Studio Albums (14 releases) (1987-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117589.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Witherfall - What Have You Done? (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117578.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Chris Shooter - Big Fat Bloke With A Hat (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117438.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Pain of Salvation - The Perfect Element- Part I (2000) Anniversary Mix, 2020, In
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117434.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Pain of Salvation - Remedy Lane (2002) Reissue, 2014, Inside Out Music [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117433.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Birds of Vale - Limbo (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117399.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Honeymoon Suite - Alive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117383.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117378.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Ahmed Mouici - Tribute To Goldies, Vol II (Pinte de blues production) (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117372.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Electric Gypsy - Dragoons Wander At Night (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117371.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ King Me Blues - Your Move (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117364.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ King Me Blues - Your Move (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE5A137A7FC7420297B9F120080B0E9E5D79A026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700082   (117363) от 15.02.2024
+
+Illumishade - Another Side of You (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter the Void [00:01:51]
+02. ELEGY [00:04:55]
+03. ENEMY [00:04:53]
+04. In the Darkness [00:04:23](   Читать дальше...   )Жанр: Symphonic Metal, Gothic Metal, Progressive MetalПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243EA286ADD4308260C88CB388E40E18EB15780C
 ```
 
 https://mybot314.ru/tekegram_catalog/

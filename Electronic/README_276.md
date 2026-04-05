@@ -1,3 +1,119 @@
+###  Публикация: 1155332   (533532) от 03.08.2017
+
+VA - Deep and Soulful House Summer 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hardage - There's Enough For All Of Us (Luca Elle remix feat Michael Franti)
+02.  Luca Elle - Let Me Be Crazy
+03.  Ben Hur - Friends Always (Paolo Madzone Zampetti And Steve Paradise Darksax dub remix feat Jocelyn Brown)
+04.  Britalics - I Can C Through U (Face Off remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71D5702A9803E7F6A146F01A4AC4F040D9E7BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155479   (533518) от 03.08.2017
+
+Knock Out - Buddha Bells (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fascinating Place (Intro) (2:30)
+02. Buddha Bells (7:07)
+03. Veil Of The Mind (7:04)
+04. Cosmic Experience (7:12)Жанр: Psy-TranceПродолжительность: 00:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCEF40ECC4382E06E45FF0EC22D33EEB97D74FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239934   (533353) от 08.08.2018
+
+VA - Ibiza House (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reza - Kongo (D.O.N.S. & Rio De La Duna Remix) 7:12
+02. Filatov - Back In The Love (Swanky Tunes Remix) 6:36
+03. DANEV - Shaggy (Extended Mix) 5:21
+04. Alessandro Cenatiempo - Do U Really (Original Mix) 4:42(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E92BCA8708CD6080A3B2CCCC91C8709B75C9AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155417   (533348) от 03.08.2017
+
+VA - Aly & Fila - Future Sound Of Egypt 507 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.London & Niko - Burning Down (Noel Sanger Remix)
+02.L.S.G. - Netherworld (Rise And Fall Remix)
+03.Solid Stone & Michael Gin - Xonic
+04.Solid Stone - Watchmen(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF090B83F835ED95BECA3D3384ACD540FB5858E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239537   (533241) от 08.08.2018
 
 Modjo - Lady (Hear Me Tonight) (2000) Maxi-Single [FLAC|Lossless|tracks + .cue] <House>
@@ -6,7 +122,7 @@ Modjo - Lady (Hear Me Tonight) (2000) Maxi-Single [FLAC|Lossless|tracks + .cue] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533241.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Alex Humann - Discography 7 Releases (2014-2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533230.jpg" />
 </div>
 
 
@@ -63,7 +179,7 @@ Tony Igy - It's Beautiful… It's Enough... (2017) [MP3|320 Kbps] <Electronic, D
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533223.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ deadmau5 - Mau5ville: Level 1 (2018) EP & Maxi Single [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533164.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ plot. - 2 Albums (2005-2008) Ryoondo-Tea [FLAC|Lossless|tracks+.cue, tracks] <Gl
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533158.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ Be Such - Ambient (2016) [MP3|320 Kbps] <Ambient, Drone>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532937.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ VA - A State Of Trance Radio Top 20 - August / September (2016) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532698.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ VA - Cafe Deluxe Chillout Nu Ibiza Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532693.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ VA - Only Silk 04 (Mixed by Shingo Nakamura & Max Flyant) - 2016 [MP3|~245 Kbps 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532692.jpg" />
 </div>
 
 
@@ -263,7 +379,7 @@ Jeremiah Kane - Discography 6 Releases (2017-2018) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532563.jpg" />
 </div>
 
 
@@ -292,7 +408,7 @@ VA - Uplifting Trance Sessions Vol.15 (2019) [MP3|320 Kbps] <Trance, UpliftingTr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532557.jpg" />
 </div>
 
 
@@ -321,7 +437,7 @@ VA - Armada Today - Ibiza 2022 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531786.jpg" />
 </div>
 
 
@@ -350,7 +466,7 @@ VA - FSOE pres. Ibiza (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531682.jpg" />
 </div>
 
 
@@ -379,7 +495,7 @@ VA - Ori Uplift - Uplifting Only 234 (2017) [MP3|320 Kbps] <Trance,Uplifting Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531678.jpg" />
 </div>
 
 
@@ -408,7 +524,7 @@ Hauschka - What If (2017) [FLAC|Lossless|WEB-DL|tracks] <Prepared Piano, Modern 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531576.jpg" />
 </div>
 
 
@@ -437,7 +553,7 @@ VA - Armada Trice - Ibiza (2017) [MP3|320 Kbps] <House,Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531572.jpg" />
 </div>
 
 
@@ -466,7 +582,7 @@ VA - Infrasonic Summer Selection (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531398.jpg" />
 </div>
 
 
@@ -495,7 +611,7 @@ VA - The Best Of Critical Uprising 003 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531396.jpg" />
 </div>
 
 
@@ -524,7 +640,7 @@ VA - Sunrise Shore: Volume 02 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531395.jpg" />
 </div>
 
 
@@ -553,7 +669,7 @@ VA - Miami Music (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531392.jpg" />
 </div>
 
 
@@ -582,7 +698,7 @@ VA - Trance Energy (Mixed by Cosmic Gate & Ben Nicky) (2018) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531384.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ And One - Full CD Discography (1990-2014) 39 Releases / 48CD [FLAC|Lossless]<EBM
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531310.jpg" />
 </div>
 
 
@@ -625,122 +741,6 @@ And One - Full CD Discography (1990-2014) 39 Releases / 48CD [FLAC|Lossless]<EBM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4C6954D510E08295D19C0C04A12C143B7A012A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240088   (531284) от 09.08.2018
-
-VA - Heartwarming Beats - Mood Uplifting & Emotional Tracks (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Williams - In The Breeze (Original Mix)
- 02. Michael Musco - Longing Something (Original Mix)
-03. Ben Harris - Cryin For You (Original Mix)
- 04. Eric Bode - Going Home (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99291E9403E6A6836F1692C2B626E4A4565FDF37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312602   (530960) от 05.07.2019
-
-Ed Lynam - Live @ Infected, Odense, Denmark 2019-06-22 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - I Feel Love (Nicholson Remix)
-02. Sash! - Mysterious Times (Nicholson Remix)
-03. Michael Splint Feat. Sasja - You Set Me Free (DJ Choose & F's Remix)
-04. Walt - Let The Music Play (David Rust Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E63E4CBA4623138432713A2C90CB2F784D90072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312596   (530957) от 05.07.2019
-
-Daniel Lesden - Live @ Night Terrace, Aglomerat Moscow, Russia 2019-06-28 [MP3|320 Kbps] <Trance, Progressive House. Psy Trance>>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Cell – Mute The Silence (Pacco & Rudy B Remix)
-02. Ewan Rill, K Loveski – Elau (Subandrio Remix)
-03. Ivanshee – Serpantine (Luciano Scheffer Remix)
-04. San – Ultima Thule (Matan Caspi Remix)(   Читать дальше...   )Жанр: Trance, Progressive House. Psy TranceПродолжительность: 02:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5E02588A8DE4E3F6A5D7D316E60457D818AFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312708   (530952) от 05.07.2019
-
-Richard Clayderman - When Love Songs Were Love Songs (1992) [MP3|320 Kbps] <Easy Listening, Instrumental Pop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bewitched (3:36)
-02. Embraceable You (2:34)
-03. Stardust (3:59)
-04. Night & Day (2:48)(   Читать дальше...   )Жанр: Easy Listening, Instrumental PopПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51081B13FDD8C602360DD3423EC35633DF28D06
 ```
 
 https://mybot314.ru/tekegram_catalog/

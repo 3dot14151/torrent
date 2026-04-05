@@ -1,3 +1,60 @@
+###  Публикация: 1617568   (201596) от 07.03.2023
+
+Rebelway, Saber Jlassi | Abstract FX in Houdini Using Karma (2021) WEB-DL [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201596.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом видеоуроке Сабер Джласси исследует несколько продвинутых техник абстрактных эффектов в Houdini с использованием Karma в Houdini 19.
+
+Большинство художников по спецэффектам работают над проектами, включающими взрывы, дым, обломки и тому подобные кадры. Тем не менее, абстрактные эффекты иногда могут быть одними из самых впечатляющих эффектов, даже если они в (   Читать дальше...   )Производство: RebelwayЖанр: 3D ГрафикаЯзык озвучки: Английский, РусскийПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31B720CFFED474646314B11F5C8525EDDEE2495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618206   (201541) от 10.03.2023
+
+Nexttut Education Pvt.Ltd., Shahzad Ahmad | Houdini for Absolute Beginners (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здравствуйте, меня зовут Шахзад Ахмад. Я художник Houdini FX. Я увлечен созданием визуальных эффектов (взрывы, дым, огонь, облака, пыль, частицы, магия и т. д.), а также всевозможных разрушений и жидкостей. Я художник-самоучка. И я люблю смотреть научные документальные фильмы и научно-фантастические фильмы!
+
+К концу этого курса:
+- Вы сможете уверенно работать в Houdini.(   Читать дальше...   )Производство: Nexttut Education Pvt.Ltd.Жанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 15:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A53BDBDC3E6854BC4ABD7DB4A0A20B9AAEECBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618023   (201508) от 09.03.2023
 
 Kalacheva School, Вера Соколова | Новый английский курсив (2023) WEB-DL [RU]
@@ -6,7 +63,7 @@ Kalacheva School, Вера Соколова | Новый английский к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201508.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ FXPHD, Andrew Lowell | HOU220 – Houdini FX, Particle Fundamentals and Fuzzy Lo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201143.jpg" />
 </div>
 
 
@@ -63,7 +120,7 @@ Dream&Draw, Анастасия Козлова | Марафон по акваре
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201126.jpg" />
 </div>
 
 
@@ -92,7 +149,7 @@ ArtiGood, Николай Солодов | Акварельный курс «Зи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201071.jpg" />
 </div>
 
 
@@ -120,7 +177,7 @@ Vertex School, Keith Kamholz | Houdini FX & Redshift (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201050.jpg" />
 </div>
 
 
@@ -149,7 +206,7 @@ Udemy, Pirate Sheep | Houdini Hacks: 3D Dynamics for Absolute Beginners (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201039.jpg" />
 </div>
 
 
@@ -178,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201020.jpg" />
 </div>
 
 
@@ -207,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201019.jpg" />
 </div>
 
 
@@ -233,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200999.jpg" />
 </div>
 
 
@@ -262,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200961.jpg" />
 </div>
 
 
@@ -290,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200939.jpg" />
 </div>
 
 
@@ -317,7 +374,7 @@ Skillshare, Derek Davidson | 3D Creature Modeling with Nomad Sculpt (2023) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200935.jpg" />
 </div>
 
 
@@ -345,7 +402,7 @@ Skillshare, Jake Fleming | Vector To Pixel Art (2020) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200810.jpg" />
 </div>
 
 
@@ -371,7 +428,7 @@ Class101, Studio Pants | Retro Video Game Like Illustrations: Pixel Art for Begi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200795.jpg" />
 </div>
 
 
@@ -397,7 +454,7 @@ DESIGNLINE, Сергей Гуров | Поиск и реализация виз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200771.jpg" />
 </div>
 
 
@@ -423,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200769.jpg" />
 </div>
 
 
@@ -452,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200766.jpg" />
 </div>
 
 
@@ -481,7 +538,7 @@ Udemy, Alan Ayoubi | After Effects Animated Graphics Beast (2020) WEB-DL [AD] [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200736.jpg" />
 </div>
 
 
@@ -507,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200683.jpg" />
 </div>
 
 
@@ -536,7 +593,7 @@ Kalacheva School, Аксинья La Paloma | Подозрительные лиц
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200666.jpg" />
 </div>
 
 
@@ -564,7 +621,7 @@ Maria Sw, Мария Приходько | Рисую как Maria Sw 2.0. Тар
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200612.jpg" />
 </div>
 
 
@@ -593,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200590.jpg" />
 </div>
 
 
@@ -621,7 +678,7 @@ CGcircuit, David Anastácio Ferreira | Houdini Elements - Particles FX (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200572.jpg" />
 </div>
 
 
@@ -648,7 +705,7 @@ Geometrium studio, Павел Герасимов | Техническое зад
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200543.jpg" />
 </div>
 
 
@@ -662,58 +719,6 @@ Geometrium studio, Павел Герасимов | Техническое зад
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC5332A5DDDFC6138A5CF6199C3FDB12D38B36C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623487   (200509) от 01.04.2023
-
-class101, tfvkne | From Visualization to Illustration: Understanding Basic Anatomy and Rendering (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200509.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом классе будут затронуты такие темы, как анатомия человека и то, как изображать свои работы с вниманием к деталям. Мы изучим мой образ мышления, а также советы и рекомендации о том, как начать с продуктивной визуализации концепции до иллюстрирования ее на чистом холсте с нуля. Научитесь поддерживать свой рабочий процесс и мотивацию для завершения работы!Производство: class101, tfvkneЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 08:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123A51D75E65CBDBCAD2186A9255BDC3E428657C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623011   (200495) от 31.03.2023
-
-Ольга Кондратова | Интенсивный курс по дизайну. Часть I (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс рассчитан на широкую аудиторию. Будет полезен как практикующему дизайнеру (в том числе новичку), так и просто интересующимся темой обустройства своего дома (квартиры). Всё с самого начала - от оценки пространств и его обмера, через оси к дверям и внутренним окнам, по напольным покрытиям и материалу стен, к цвету и освещению. 20 статей, способных перевернуть (   Читать дальше...   )Жанр: Дизайн интерьераЯзык озвучки: РусскийПродолжительность: 00:16:05Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467981E8172EA359BE7176DB516A8A8488AF5D40
 ```
 
 https://mybot314.ru/tekegram_catalog/

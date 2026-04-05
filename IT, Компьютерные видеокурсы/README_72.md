@@ -1,29 +1,3 @@
-###  Публикация: 1266871   (268257) от 04.12.2018
-
-javascript.ru | Курс по React.JS (2018) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268257.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы с вами шаг за шагом пройдем от знакомства с основными идеями до использования самых новых инструментов и инфраструктуры React, на практике будем развивать одностраничное приложение. Начнем с построения простых компонентов, научимся тестировать компоненты, поговорим про системы сборки и особенности работы с ES2017 синтаксисом.Производство: javascript.ruЖанр: Программирование, JavaScriptПродолжительность: 13:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA994EC5463E71CB04276F69FA9558E7AB01AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190391   (267497) от 09.12.2017
 
 Convert Monster | Яндекс.Директ 2017 (2017) PCRec [H.264]
@@ -32,7 +6,7 @@ Convert Monster | Яндекс.Директ 2017 (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267497.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ ProfIT | Что нового в PHP (7.3) (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267421.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Webcademy | Gulp Сборка (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267395.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ ProfIT | PhpStorm для самых маленьких (2018) PCRec [H.264/720p-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267379.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Udemy | Парсеры, роботы, автоматизация, Selenium, Phan
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267326.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266784.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Udemy | Unity 5 Professional Guide Mastering C# Programming / Профессио
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265614.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ CodeDojo | Основы Redux (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264932.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ MonsterLessons | Интернет-магазин на React/Redux (2017) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264327.jpg" />
 </div>
 
 
@@ -273,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264325.jpg" />
 </div>
 
 
@@ -299,7 +273,7 @@ Lynda.com | Основы программирования: Алгоритмы / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263134.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262996.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ Geekbrains | Как стать программистом (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262977.jpg" />
 </div>
 
 
@@ -379,7 +353,7 @@ SmartMe University | Изучаем Ruby (2015) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262679.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ SmartMe University | JAVAGR8 (2016) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262675.jpg" />
 </div>
 
 
@@ -434,7 +408,7 @@ R&D-лаборатория Devhands, Владимир Перепелица | И�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261660.jpg" />
 </div>
 
 
@@ -463,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261623.jpg" />
 </div>
 
 
@@ -489,7 +463,7 @@ Udemy, Арнольд Оберлейтер | Всё об AI: ChatGPT, Midjourney
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261618.jpg" />
 </div>
 
 
@@ -515,7 +489,7 @@ Udemy, Арнольд Оберлейтер | RAG Agents: создание при
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261616.jpg" />
 </div>
 
 
@@ -542,7 +516,7 @@ Udemy, Арнольд Оберлейтер | Голосовые ИИ-Агент�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261615.jpg" />
 </div>
 
 
@@ -568,7 +542,7 @@ Udemy, Арнольд Оберлейтер | AI-Автоматизация: Со
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261612.jpg" />
 </div>
 
 
@@ -594,7 +568,7 @@ Udemy, Арнольд Оберлейтер | AI-агенты: автоматиз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261611.jpg" />
 </div>
 
 
@@ -620,7 +594,7 @@ Udemy, Арнольд Оберлейтер |  MCP: Создание агенто
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261542.jpg" />
 </div>
 
 
@@ -648,7 +622,7 @@ WebDesign Master | Three.js Большой практический курс (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260889.jpg" />
 </div>
 
 
@@ -674,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260881.jpg" />
 </div>
 
 
@@ -685,6 +659,34 @@ C++ — это один из самых живучих языков програ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:266FDF14EAFDB169EEA2324E072768430FBDBA35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838361   (260877) от 23.11.2025
+
+Purpleschool, Антон Ларичев | JavaScript с нуля - основы языка и практика для начинающих (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Базовый курс по современному JavaScript в 2025 году для начинающих. С нуля до проекта на реальных примерах и упражнениях.
+
+Курс актуален на 12 апреля 2025 года.Производство: PurpleschoolЖанр: видеокурс, обучающий курс, программирование, JavaScript (JS)Язык озвучки: русскийПродолжительность: 12:06:54Реклама: наложение на видео (плашка спонсоров)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7513E0E247F4655722E01376390A8631A7796B5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

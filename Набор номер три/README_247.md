@@ -1,3 +1,160 @@
+###  Публикация: 1531530   (718188) от 17.02.2022
+
+В России начали тестировать цифровой рубль
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Банк России и участники рынка приступили к тестированию платформы цифрового рубля. Об этом говорится в сообщении, опубликованном на сайте регулятора. Участие в тестировании будут принимать 12 банков.«Сейчас три банка из пилотной группы уже подключились к платформе. Два из них успешно провели полный цикл операций по переводу цифровых рублей между клиентами с использованием (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531812   (718174) от 17.02.2022
+
+Google представил Chrome OS Flex, пригодный для установки на любое оборудование
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Google представила операционную систему Chrome OS Flex, представляющую собой новый вариант Chrome OS, предназначенный для использования на обычных компьютерах, а не только на изначально поставляемых с Chrome OS устройствах, таких как Chromebook, Chromebase и Chromebox.В качестве основных областей применения Chrome OS Flex упоминается модернизация уже имеющихся (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145179   (718166) от 17.02.2022
+
+Домашний видеоархив / Коллекция музыкальных клипов / Music Videos Collection (1980-2010) [VOB] [DVD5, DVD9]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромная коллекция музыкальных клипов разных лет, стилей и направлений.Жанр: Dance, Pop, Club, Trance, Eurodance, Rock, Hard Rock, Metal, Nu Metal, Breakbeat, Trip-Hop, Dance Punk, etc.Формат: VOB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DCCE515821DD04FBEEAD701AACA7C951DFDF420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129895   (718133) от 30.04.2017
+
+В Китае ввели регистрацию по паспорту для участников онлайн-игр
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_718133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Власти Китая вводят паспортную регистрацию для игроков онлайн-игр
+В Китае власти ввели обязательную регистрацию по удостоверению личности для участников онлайн-игр. Правила регистрации опубликовало Минкультуры КНР, сообщает Life. Новые правила регистрации геймеров вступают в силу с 1 мая.Отмечается, что администраторы онлайн-площадок будут обязаны хранить регистрационные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116745   (717873) от 30.04.2017
+
+Watch Dogs / Watch_Dogs (2014) [Ru/En] (1.06.329/dlc) Repack R.G. Origami [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все друг с другом связаны. Мы зависим от новинок рынка высоких технологий, ведь лишь с их помощью узнаем, что происходит в мире. Но у прогресса есть и темная сторона. Каждое наше действие оставляет след: каждый наш шаг, каждая остановка, все, что нам нравится или не нравится. И дело не только в нас. Мегаполисы опутаны цифровыми сетями. Городская инфраструктура контролируется (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montréal, Ubisoft Reflections и Ubisoft RomaniaЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589461CB0AD26C770628967C33655ACDDE702BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130004   (717867) от 30.04.2017
+
+CorelDRAW Graphics Suite 2017 19.0.0.328 HF1 Portable by conservator [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717867.jpg" />
+</div>
+
+
+###  Подробнее
+
+CorelDRAW Graphics Suite 2017 — новейшее и самое передовое программное обеспечение для графического дизайна. В состав пакета входят все признанные в индустрии инструменты, представленные в CorelDRAW Graphics Suite X8, а также множество других функций. Забудьте о набросках на бумаге и сканировании рисунков! Замечательный новый инструмент LiveSketch™ позволяет мгновенно (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EECB45207AB8DB3621DB5C4B523A8E593FAFC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129744   (717863) от 30.04.2017
 
 Викинг (2016) BDRip [H.264/1080p] [UNRATED]
@@ -6,7 +163,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717863.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717862.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717860.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ Mafia 2/II - Best Mods 4 (2010) [Ru] (1.0.0.1 upd5/dlc) Repack Mr.Bakardi [Ра�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717859.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717856.jpg" />
 </div>
 
 
@@ -140,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717682.jpg" />
 </div>
 
 
@@ -167,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717549.jpg" />
 </div>
 
 
@@ -198,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717241.jpg" />
 </div>
 
 
@@ -225,7 +382,7 @@ The Way (2016) [Ru/Multi] (1.06) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717230.jpg" />
 </div>
 
 
@@ -251,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717224.jpg" />
 </div>
 
 
@@ -277,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717148.jpg" />
 </div>
 
 
@@ -304,7 +461,7 @@ Adobe Creative Suite 5.5 Master Collection [Multi/Rus]
 >>20
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717132.jpg" />
 </div>
 
 
@@ -330,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_717038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_717038.jpg" />
 </div>
 
 
@@ -356,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716912.jpg" />
 </div>
 
 
@@ -382,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716906.jpg" />
 </div>
 
 
@@ -409,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716896.jpg" />
 </div>
 
 
@@ -435,7 +592,7 @@ Microsoft Windows 10 Version 1803 Redstone_4 RTM Build (ESD) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716895.jpg" />
 </div>
 
 
@@ -461,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716894.jpg" />
 </div>
 
 
@@ -487,7 +644,7 @@ DFX Audio Enhancer 11.400 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716826.jpg" />
 </div>
 
 
@@ -513,7 +670,7 @@ Uninstall Tool 2.9.7 Build 5118 [Русский(ML)]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716755.jpg" />
 </div>
 
 
@@ -526,167 +683,6 @@ Uninstall Tool - ультра маленькая программа,
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400222   (716613) от 06.08.2020
-
-Маск: мозговые чипы позволят услышать неуловимые звуки
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основатель компании SpaceX и генеральный директор Tesla Илон Маск рассказал, что мозговые чипы его нового стартапа Neuralink позволят людям слышать звуки, которые ранее были вне диапазона «обычных частот»,  пишет The Independent.Также они помогут восстановить движение человеку с повреждённым спинным мозгом. Конечная цель технологии, однако, состоит в том, чтобы обеспечить (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892715   (716550) от 27.04.2015
-
-Twonky Media Server 8.0.3 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Twonky Media Server - это приложение, которое позволит создать собственный мультимедиа-сервер. Представьте себе ситуацию: у вас есть телевизор c Wi-Fi модулем, планшет или смартфон, на котором вы хотите посмотреть фильм, хранящийся на компьютере. Обычно, в такой ситуации приходится изначально записывать нужное видео на переносной носитель или конвертировать его в поддерживаемый вашим гаджетом формат. Но гораздо проще будет воспользоваться программой Twonky Media Server, настроить свой сервер, установить доступ (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77F505662457BBF60BD66048E4A8C8B4930247C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892523   (716547) от 27.04.2015
-
-Windows 8.1 Assistant 6.3.9600.17557 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа является инструментом для загрузки оригинальной Windows 8.1 с автоматической конвертацией образа из формата ESD в ISO.
-Загрузчик даёт возможность выбора версии, разрядности и локализации Windows 8.1.
-В результате Вы получаете выбранную версию Windows 8.1 с обновлениями.
-На момент этой раздачи обновления от октября 2014 года.
-Присутствуют два варианта загрузки. ISO-файл для записи на DVD-диск и прямая запись на USB-устройство.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE1FE2B21E43C9C1190E4826292CE38E72C608F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892555   (716539) от 27.04.2015
-
-Снайпер / American Sniper(2014) BDRemux [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация мемуаров морского пехотинца из Техаса Криса Кайла, который служил снайпером в Ираке и стал рекордсменом по числу убитых солдат противника, за что иракцы прозвали его дьяволом. Помимо описания военных действий, книга состоит из отрывков воспоминаний жены Криса, ставшей свидетельницей того, как росла привязанность мужа к его соратникам и войне.Производство: США / Warner Bros., Village Roadshow Pictures, Mad Chance ProductionsЖанр: боевик, драма, военный, биографияРежиссер: Клинт ИствудАктеры: Брэдли Купер, Сиенна Миллер, Кайл Галлнер, Коул Конис, Бен Рид, Элиз Робертсон, Люк Саншайн, Трой Винсент, Брэндон Сальгадо, Кейр О’ДоннеллПеревод: ДублированныйОзвучка / Автор перевода: (Чистый звук)+TScr. Присутствует около 6 минут вставок звука с TS. (Спасибо, WetY)Язык субтитров: АнглийскийПродолжительность: 02:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F61EEADF87F01D152054F87917B888E7FE08845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892212   (716520) от 27.04.2015
-
-Битва за Севастополь / Незламна (2015) DVD9
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любовь под нескончаемым огнем противника, дружба с Элеонорой Рузвельт, выступление на конференции, повлиявшее на исход Второй мировой войны, желание жить и страх потерять любимого человека — справится ли со всем этим хрупкая женщина?
-Это реальная история Людмилы Павличенко — легендарной женщины-снайпера. Солдаты шли в бой с ее именем на устах, а враги устроили на (   Читать дальше...   )Производство: Россия, УкраинаЖанр: Военный, Боевик, Мелодрама, ДрамаРежиссер: Сергей МокрицкийАктеры: Юлия Пересильд, Евгений Цыганов, Олег Васильков, Никита Тарасов, Джоан Блэкэм, Полина Пахомова, Владимир Лилицкий, Анатолий Кот, Нателла Абелева-Таганова, Валерий Гришко...Перевод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA71E007E80F65A8234ECEF4A1A5CE731A61E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892733   (716518) от 27.04.2015
-
-STDU Viewer 1.6.375 + Portable [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716518.jpg" />
-</div>
-
-
-###  Подробнее
-
-STDU Viewer – программа для просмотра DjVu, PDF и TIFF файлов. В последнее время большой популярностью пользуются электронные книги в формате DjVu. Файлы в этом формате, как правило, меньше по размеру, чем документы в формате PDF. Однако программы для просмотра PDF не поддерживают DjVu, из-за чего приходится работать сразу с двумя вьюверами. STDU Viewer делает просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF743BF02E117FD389AA93C4A59D46D0428B36B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

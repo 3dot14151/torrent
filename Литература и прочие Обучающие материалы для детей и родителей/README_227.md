@@ -1,3 +1,57 @@
+###  Публикация: 1151210   (575804) от 17.07.2017
+
+Н. Э. Варавва, О. В. Мешкова | ЕГЭ. Химия (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит теоретические сведения по всем темам, проверяемым на ЕГЭ по химии. После каждого раздела приводятся тренировочные задания разных типов с ответами. Наглядное и доступное изложение материала позволит быстро найти нужную информацию, устранить пробелы в знаниях и в кратчайшие сроки повторить большой объем информации.
+Издание окажет помощь старшеклассникам (   Читать дальше...   )Жанр: ЕГЭ. ХимияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0031C353B694E2DF9A4709668AA1410AEEBE8041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151145   (575608) от 17.07.2017
+
+Самиздат | Мегаколлекция раскрасок для детей (2017) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мегаколлекция раскрасок для детей с героями любимых сказок, мультфильмов и комиксов,а также модели разнообразной техники(машинки,самолеты,корабли).
+2500 раскрасокЖанр: РаскраскиФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5DFA5BA98E59B2BAF04A3B0E24679AB28D7E484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303078   (575554) от 19.05.2019
 
 Роберт Кийосаки | Богатый папа, бедный папа для подростков (2014) [PDF, FB2]
@@ -6,7 +60,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575554.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575495.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575485.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575383.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575020.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574970.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574924.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574843.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574791.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574666.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574398.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573747.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573744.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573693.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573638.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573609.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573571.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573513.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573507.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573486.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573338.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573155.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573104.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573092.jpg" />
 </div>
 
 
@@ -629,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F40DD435C0F8E564881A2AE48873C74FBE8890D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303300   (573024) от 21.05.2019
-
-Елизавета Водовозова | Из русской жизни и природы [2 книги] (1871-1872) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ознакомление с природой. Занимательное естествознание. Занимательное природоведение.
-
-Рассказы для детей младшего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B64B321E370305EECBFE0CC6804C0ECD5AD5FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043426   (572996) от 16.08.2016
-
-В. Львович | Когда бессильны пушки (1930) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, посвященная событиям, связанным с так называемым Рурским конфликтом 1922-1923 гг., в ходе которого произошла оккупация Рурской области Германии, продолжавшаяся до 1925 г. Для лучшего понимания обстановки, в которой происходили описываемые события, в книгу добавлена вступительная статья «Рурский конфликт и оккупация Рурской области 1922-1925 гг.", написанная (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433B000F0DEDA90512B7F2F40A6EF94CBE143BBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

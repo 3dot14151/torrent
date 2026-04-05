@@ -1,3 +1,32 @@
+###  Публикация: 811107   (282481) от 22.11.2018
+
+Alice in Chains - 7 альбомов, 2 EP  (1990 - 2018) [FLAC|Lossless|image + .cue|tracks + .cue]<Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два года Alice In Chains потратила на концерты в местных клубах, а в 1989-м при помощи демо "The Treehouse Tapes" ей удалось попасть под крышу Columbia Records. Пробный миньон We Die Young породил серьезный хит для радио, и лейбл поспешил загнать музыкантов обратно в студию для подготовки дебютного альбома. Вышедший в августе 1990-го Facelift поначалу не (   Читать дальше...   )Список альбомов:
+Alice In Chains - 1990 - Facelift
+Alice In Chains - 1992 -  Dirt
+Alice In Chains - 1994 - Jar Of Flies & SapЖанр: GrungeПродолжительность: 07:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2BB17150A82ED678FEF4A0065B43468456106A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964203   (282422) от 11.12.2015
 
 Anastacia - Anastacia (2004) [FLAC|tracks+.cue]<Pop Rock>
@@ -6,7 +35,7 @@ Anastacia - Anastacia (2004) [FLAC|tracks+.cue]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282422.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Catharsis - Зеркало Судьбы (2019) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282394.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Cigarettes After Sex - Cry (2019) Partisan Records [FLAC|Lossless|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282384.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282308.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282305.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Blondie - The Curse Of Blondie (2003) [FLAC|tracks+.cue]<Pop Rock, Synth-pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282240.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Texas - The Greatest Hits (2000) [FLAC|tracks+.cue]<Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282231.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282125.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Billy Joel - Greatest Hits Volume III: 1986-1997 (1997) [FLAC|tracks+.cue]<Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282097.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281819.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Count Five - Psychotic Reaction (1966) Remastered, 2007, Repertoire Records [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281238.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281163.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Pagan's Mind - 5 Albums, 2 Lives (2000 - 2015) 13 CD [FLAC|APE|Lossless|tracks +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281160.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ In The Woods... - Cease The Day (2018) [MP3|320 Kbps] <Doom Metal, Atmospheric B
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281155.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Dymna Lotva - 1 Album, 7 Singles & EP (2016 - 2018) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281151.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281080.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Overdoze - Supreme Dosage (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281058.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Realeaf - Possibly Not (2007) [FLAC|Lossless|tracks + .cue] <Psychedelic, Space 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281048.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280981.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ W. Angel's Conquest - Taste of Life (2015) [FLAC|image+cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280934.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Change of Loyalty - Breathtaker (2015) [MP3|320 кб/с]<Progressive Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280926.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Falling Up - Falling Up (2015) [OGG|475-507 кб/с]<Alternative rock, Christian
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280924.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Cry Of Love - Brother (1993) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280920.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Frankie Valli & The 4 Seasons - Greatest Hits, Vol.2 (1991) [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280814.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Know - Niebo Sie Podarto (2015) [MP3|320 кб/с]<Nu-Metal, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280793.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Know - Niebo Sie Podarto (2015) [MP3|320 кб/с]<Nu-Metal, Rapcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C1D87C1477EA1EA6BB003792167A2B00EB3F1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964624   (280783) от 12.12.2015
-
-Eloy - Destination (1992) Japanese Edition /1993, Victor [FLAC|image+.cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Of The Wild 7:01
-02. Racing Shadows 7:11
-03. Destination 7:41
-04. Prisoner In Mind 4:27(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC8A7090D896895A098A043AF3FFE9D0EEC97ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

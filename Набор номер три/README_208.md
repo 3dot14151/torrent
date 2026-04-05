@@ -1,3 +1,161 @@
+###  Публикация: 1277616   (774027) от 23.01.2019
+
+Роскосмос сформирует отряд женщин-космонавтов
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскосмос сформирует отряд женщин-космонавтов для полётов на орбиту, сообщил агентству ТАСС анонимный источник в ракетно-космической отрасли: «Будет сформирован полноценный отряд космонавтов из числа молодых женщин — специалистов ракетно-космической отрасли». Источник добавил, что «госкорпорация будет вести поиск кандидаток в инициативном порядке, а не ждать, когда (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277599   (774024) от 23.01.2019
+
+Rolls-Royce строит самый быстрый в мире электросамолет
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аэрокосмическая компания Rolls-Royce Pls (не имеет прямого отношения к автопроизводителю Rolls-Royce Motor Cars, принадлежащему BMW) работает над самым быстрым в мире электрическим самолетом. Проект носит название Accelerating the Electrification of Flight (ACCEL).Самолет разрабатывается в рамках совместного предприятия, созданного Rolls-Royce, британским производителем (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212881   (774007) от 14.03.2018
+
+TinyPNG and TinyJPG Photoshop Plugin 2.3.9 (x64-x86) [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плагин оптимизирует изображения прямо из Photoshop с идеальным балансом качества и размера файла.
+Используются интеллектуальные методы сжатия с потерями. Уменьшая количество цветов 24-битные PNG-файлы преобразоваваются в гораздо меньшие 8-битные индексированные цветные изображения. Все ненужные метаданные также удаляются. Разница в большинстве случаев мало заметна (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188EFA6F18D6918F4C31AE04193C2492BBEE0A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212981   (774004) от 14.03.2018
+
+Смерть Сталина / The Death of Stalin (2017) BDRemux [H.264/1080p] [AVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774004.jpg" />
+</div>
+
+
+###  Подробнее
+
+СССР, 1953 год. Страна трепещет от страха перед одним человеком. 5 марта Генсек умер. Когда уходит великий вождь, наступает время борьбы за власть. Гонка началась!Производство: Франция, Великобритания, Бельгия, eOne, Gaumont, Quad Productions, Main Journey, France 3 Cinema, Canal+, Panache ProductionsЖанр: КомедияРежиссер: Армандо ИаннуччиАктеры: Ольга Куриленко, Андреа Райзборо, Руперт Френд, Джейсон Айзекс, Стив Бушеми, Джеффри Тэмбор, Ричард Брэйк, Пэдди Консидайн, Майкл Пэйлин, Джонатан АрисПеревод: Одноголосый закадровый, авторскийОзвучка / Автор перевода: Михаил ЯроцкийСубтитры: Русские (Full), английские (Full, SDH)Продолжительность: 01:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5F5903F0BE5326AC75C613A8F4899934520CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212601   (774003) от 14.03.2018
+
+Почту России подозревают в воровстве смартфонов
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посылки со смартфонами для жителей Омска нашли вскрытыми и выброшенными в Москве
+Пользователи соцсетей уличили сотрудников предприятия в краже большой партии гаджетов, заказанных из-за рубежа.Пользователь "Пикабу" под ником downpr заявил об обнаружении доказательств того, что Почта России ворует посылки клиентов. Мужчина нашёл свалку вскрытых бандеролей (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212787   (774000) от 14.03.2018
+
+Adobe Photoshop CC 2018 19.1.2.45971 RePack by KpoJIuK  [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB51B49E6047283D9F503BD7DCB903D75CE365B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 20935   (773999) от 14.03.2018
 
 BBC: Он и Она - Секреты отношений/ BBC: Secrets of the Sexes (2005) DVDRip
@@ -6,7 +164,7 @@ BBC: Он и Она - Секреты отношений/ BBC: Secrets of the Sex
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773999.jpg" />
 </div>
 
 
@@ -34,7 +192,7 @@ Adobe Illustrator CC 2018 22.1.0.314 RePack by KpoJIuK  [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773995.jpg" />
 </div>
 
 
@@ -60,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773994.jpg" />
 </div>
 
 
@@ -87,7 +245,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 21.02.18 [Ru
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773993.jpg" />
 </div>
 
 
@@ -115,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_773958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_773958.jpg" />
 </div>
 
 
@@ -141,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773950.jpg" />
 </div>
 
 
@@ -167,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773949.jpg" />
 </div>
 
 
@@ -194,7 +352,7 @@ The Surge (2017) [Ru/Multi] (1.0/dlc) Repack xatab [Complete Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773948.jpg" />
 </div>
 
 
@@ -220,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_773875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_773875.jpg" />
 </div>
 
 
@@ -246,7 +404,7 @@ Advanced SystemCare Pro 9.3.0.1119 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773831.jpg" />
 </div>
 
 
@@ -272,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773826.jpg" />
 </div>
 
 
@@ -298,7 +456,7 @@ Revo Uninstaller Pro 3.1.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773824.jpg" />
 </div>
 
 
@@ -324,7 +482,7 @@ ABBYY FineReader 12.0.101.483 Professional & Corporate RePack by KpoJIuK [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773823.jpg" />
 </div>
 
 
@@ -350,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773821.jpg" />
 </div>
 
 
@@ -376,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773820.jpg" />
 </div>
 
 
@@ -402,7 +560,7 @@ Serious Sam Gold Edition / Крутой Сэм Золотое Издание [Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773664.jpg" />
 </div>
 
 
@@ -429,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773658.jpg" />
 </div>
 
 
@@ -456,7 +614,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (DLC) RePack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773131.jpg" />
 </div>
 
 
@@ -482,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773117.jpg" />
 </div>
 
 
@@ -508,7 +666,7 @@ City Navigator Russia NT 2014.10 (Navicom)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773115.jpg" />
 </div>
 
 
@@ -522,163 +680,6 @@ City Navigator Russia NT 2014.10 (FID 2878)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124763   (772892) от 13.04.2017
-
-Сенатор заявила, что ей нравится использовать торренты
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_772892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сенатор Бокова: «мне нравится использовать торренты»
-Член Совета Федерации Людмила Бокова назвала дешевизну скачивания видео одним из преимуществ торрент-трекеров по сравнению с походом в кинотеатр. Такое мнение сенатор озвучила, выступая на мероприятии «Интернет и закон», организованном «Коммерсантом».«Мне нравится использовать торренты, потому что они предоставляют (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212875   (772773) от 15.03.2018
-
-В России правообладателями заблокирован фильм «Смерть Сталина». Минкульт рекомендовал пройти по ссылке в «Одноклассниках», где выложена «Смерть Сталина»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_772773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мосгорсуд по жалобе правообладателя вынес определение об ограничении доступа к нелегальному распространению кинокартины "Смерть Сталина", и теперь ссылки с копией фильма блокируются в РФ.Ситуацию с нашумевшим фильмом «Смерть Сталина» можно назвать анекдотичной. С одной стороны, власти в лице Министерства культуры отозвали прокатное удостоверение на картину, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 847346   (772750) от 06.04.2015
-
-Red Faction Guerrilla (2009) [Ru/En] (1.0.2.1/dlc) SteamRip Let'sPlay [Steam Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло 50 лет после событий оригинального Red Faction. В Red Faction: Guerrilla вы сможете примкнуть к повстанцам из Красной бригады, которые сражаются с Силами Обороны Земли (СОЗ) за свободу. Red Faction прославилась уникальной разрушаемостью окружения, и в Red Faction: Guerrilla разрушения стали еще масштабнее и реалистичнее. Но главное — в игре появилась недоступная (   Читать дальше...   )Тип издания: SteamRipРазработчик: Volition, Reactor Zero, Nordic GamesЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F94F67B72B98D3881762AE066A805FBD1305661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885849   (772745) от 06.04.2015
-
-Need for Speed: Carbon (2006) [Ru/En] (1.4) Repack R.G. Механики [Collector's Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стальные красавицы сверкают хромом у стартовой черты. Моторы соревнуются в громкости. Гитарными струнами натянуты нервы. Взмах изящной женской ручки — и все участники с бешеной скоростью срываются в стремительный полет, оставляя лишь дымный след от раскаленных шин. Молнией проскакивая квартал за кварталом, забудьте неуверенность и страх. В вашей власти нечеловеческая (   Читать дальше...   )Тип издания: RepackРазработчик: EA Black BoxЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B13F37D3822593EAA09211E080A2E115C40DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295924   (772734) от 13.04.2017
-
-Планета бурь (1962) DVD5
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772734.jpg" />
-</div>
-
-
-###  Подробнее
-
-На планету Венера отправляется первая советская космическая экспедиция из трех кораблей. При подходе к Венере один из кораблей гибнет. Экипажи двух других кораблей, среди которых находятся иностранец и робот "железный Джон", благополучно совершают посадку. Две группы движутся по направлению друг к другу. При этом на орбите остается один корабль с космонавтом (   Читать дальше...   )Производство: СССРЖанр: Фантастика, ПриключенияРежиссер: Павел КлушанцевАктеры: Владимир Емельянов, Георгий Жженов, Геннадий Вернов, Юрий Саранцев, Кюнна Игнатова, Георгий ТейхСубтитры: русские, английкие.Продолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE308CABA554732193BB500854CC5B7B67D3AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124886   (772718) от 13.04.2017
-
-Великая стена / The Great Wall (2016) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великую стену воздвигли, чтобы оградить Поднебесную от любых угроз, но с таким врагом не сталкивались даже самые отважные ее защитники. Если вторжение не остановить — мир будет уничтожен.Производство: Китай, США, Legendary East, Atlas Entertainment, China Film Group, Kava Productions, Le Vision Pictures, Legendary EntertainmentЖанр: Фэнтези, Боевик, Триллер, ПриключенияРежиссер: Чжан ИмоуАктеры: Мэтт Дэймон, Цзин Тянь, Уиллем Дефо, Энди Лау, Педро Паскаль, Чжан Ханьюй, Лухан, Кенни Линь, Эдди Пэн, Хуан СюаньПеревод: Дублированный (iTunes)Субтитры: Русский (надписи - хардсаб)Продолжительность: 01:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4491D26C33806A4C4E54637D16BC6EA93DAD3F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

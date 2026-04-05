@@ -1,3 +1,29 @@
+###  Публикация: 1498846   (852625) от 29.09.2021
+
+kalachevaschool, Анна Расторгуева | Экстрим-скетчинг 2 (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых популярных тем в скетчинге — зарисовки в кафе. Ведь там столько интересного! Натюрморты из чашек и десертов, уютные интерьеры, и разнообразные пейзажи из окна. Каждый, кто хоть раз доставал блокнот в кафе, знает, что пятиминутный скетч может вырасти в целую серию работ!Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 02:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C030DB90C72EBFF62872AA916BDAD8C43BA133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498848   (852624) от 29.09.2021
 
 kalachevaschool, Анна Эгида | Экстрим 5. Портрет города (2018) PCRec
@@ -6,7 +32,7 @@ kalachevaschool, Анна Эгида | Экстрим 5. Портрет горо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852624.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ kalachevaschool, Вероника Калачева и тд | Экстрим ск
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852543.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ kalachevaschool, Анна Эгида | Летний экстрим-скетчи�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852540.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ kalachevaschool, Анна Эгида | Онлайн-курс «Летний эк
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852534.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ kalachevaschool, Анна Эгида | [Анна Эгида] Онлайн-кур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852528.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852432.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852312.jpg" />
 </div>
 
 
@@ -203,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851874.jpg" />
 </div>
 
 
@@ -230,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851806.jpg" />
 </div>
 
 
@@ -259,7 +285,7 @@ Michael Hartl | RUBY ON RAILS TUTORIAL (3RD ED.) (2014) PCRec [H.264] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851716.jpg" />
 </div>
 
 
@@ -286,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851610.jpg" />
 </div>
 
 
@@ -312,7 +338,7 @@ LoftSchool | Комплексное обучение разработке на A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851609.jpg" />
 </div>
 
 
@@ -341,7 +367,7 @@ Udemy, Neil Bettison | Создание средневековой катапу�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851380.jpg" />
 </div>
 
 
@@ -368,7 +394,7 @@ YanSculpts | Скульптинг для начинающих в Blender 2.79 и
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851276.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Udemy, Диана Голяш | Профессия SEO специалиста с 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850678.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ FL Studio | FL Studio Guru (Fruity Loops - 47 Видеоуроков) [2010] HDT
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850598.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Profileschool | Введение в предметную съемку (2015) PCR
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850322.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850032.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849948.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ ProfIT | Git для профессионалов (2016) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849940.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Pluralsight.com | Объединение и фильтрация данных в
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849715.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Pluralsight.com | JavaScript объекты, прототипы и классы 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849700.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ kalachevaschool, Анна Михеева | Стильные аксессуары
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849533.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ kalachevaschool, Анна Михеева | Вечерние платья (2018) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849530.jpg" />
 </div>
 
 
@@ -664,7 +690,7 @@ kalachevaschool, Светлана Плакасова | Красный пион (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849528.jpg" />
 </div>
 
 
@@ -675,32 +701,6 @@ kalachevaschool, Светлана Плакасова | Красный пион (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C2AC226DC0251AC33B0B00490878F50D9E0A98D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499241   (849526) от 01.10.2021
-
-kalachevaschool, Светлана Плакасова | Синий ирис (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849526.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Китае ирис обозначает уважение, доверие и верность. Синий — цвет сосредоточенности, помогающей вершить великие дела. Цветок символизирует лето. Специалисты по фэншуй считают ирис символом жизни, не знающей старости, символом веры и надежды.Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61238F259DCEFFDF44097290355B2A1DFA2D59A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

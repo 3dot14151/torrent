@@ -1,3 +1,57 @@
+###  Публикация: 1140731   (653857) от 08.06.2017
+
+Ю.Г. Бабаскин | Строительство земляного полотна автомобильных дорог (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит основные разделы технологии строительства земляного полотна. Изложены общие сведения о земляном полотне, описаны работы, выполняемые в подготовительный период, при устройстве дренажных сооружений и водопропускных труб.
+Особое внимание уделено перераспределению земляных масс и выполнению основных работ по возведению насыпи и устройству выемки. Раскрыты вопросы (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D136C8BC23122C6A28454F1C342249CFE0876B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141017   (653752) от 08.06.2017
+
+С.Н. Фурсенко и др. | Автоматизация технологических процессов (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскрыта теория построения систем автоматизированного управления и регулирования. Подробно изложена методика синтеза систем автоматического управления поточными технологическими линиями, показаны принципы их реализации на программируемых логических контроллерах.
+ Приведены требования к документации проекта автоматизации. Описаны автоматизированные системы управления (   Читать дальше...   )Жанр: Автоматизация техпроцессовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA54E939BBF3E443654DD3E02C64B6A68CB3450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140916   (653741) от 08.06.2017
 
 Е.М. Офман, Э.Л. Лещина (ред.) | Трудовое право. Том I. Часть общая (2017) [RTF, FB2]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653741.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653675.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653667.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652486.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652451.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652449.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652446.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652321.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651714.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650347.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650311.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650199.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650198.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650192.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650099.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648609.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648605.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648604.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647789.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647627.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646806.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646632.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646616.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646612.jpg" />
 </div>
 
 
@@ -631,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9B74080470FC593F43473C19017283C611CCBB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141922   (646606) от 12.06.2017
-
-А.Н. Игнатов | Микросхемотехника и наноэлектроника (2011) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены физические основы полупроводниковых электронных приборов. Рассмотрены основные типы радиокомпонентов, элементы и узлы аналоговых и цифровых микроэлектронных устройств и систем, интегральные схемы высоких степеней интеграции. Показана целесообразность и возможности перехода от классической электроники к наноэлектронике.
-Рассмотрены физические и технологические (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D91BE9C208A93364F5CE006B3690EB352BAB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227482   (646596) от 26.05.2018
-
-А.А. Барыбин и др. | Физико-технологические основы макро-, микро, и наноэлектроники (2011) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена основным физическим явлениям и закономерностям, лежащим в основе технологических методов и процессов современной электроники. Особое внимание уделено наноматериалам и перспективным направлениям нанотехнологии. Изложение построено так, чтобы дать читателю возможность самостоятельно сформировать общие физико-технологические представления, как правило, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3F2847D0EC6500D0FCD6B2CBAB4BB71552AF93
 ```
 
 https://mybot314.ru/tekegram_catalog/

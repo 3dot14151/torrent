@@ -1,3 +1,29 @@
+###  Публикация: 1284296   (727544) от 22.02.2019
+
+Людмила Петрановская | Лекция по психологии «Про возрастные кризисы у детей» (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727544.jpg" />
+</div>
+
+
+###  Подробнее
+
+На лекции известного психолога Людмилы Петрановской поговорим о том, какие бывают возрастные кризисы у детей и подростков. В чем смысл и назначение кризиса? Почему «без них нельзя»? Кризисы «тихие» и «громкие» – как понимать их и правильно реагировать? Что общего между трехлетками и подростками – почему они так похожи? Что происходит после кризиса и как понять, что (   Читать дальше...   )Жанр: Детская психологияПродолжительность: 01:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA64BCE5ACB5A2B4F1A83981DBF50AB0028DBE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284526   (727534) от 22.02.2019
 
 Людмила Петрановская | Лекция по психологии «Родительский невроз» (2018) [MP3]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727534.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ VA - Любимому малышу. (2010) [MP3|128-256 kbps]<Классика  
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725561.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725238.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725153.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725151.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725150.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725147.jpg" />
 </div>
 
 
@@ -202,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_725128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725128.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725083.jpg" />
 </div>
 
 
@@ -257,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_724880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_724880.jpg" />
 </div>
 
 
@@ -286,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724853.jpg" />
 </div>
 
 
@@ -312,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724848.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ VA - Спят Усталые Игрушки. Колыбельные Песни (
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_724754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_724754.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724713.jpg" />
 </div>
 
 
@@ -395,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724181.jpg" />
 </div>
 
 
@@ -421,7 +447,7 @@ VA - Моцарт для малышей (2005) [MP3|256 кб/c]<Детская, 
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724178.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ VA - Классическая музыка для малышей (2009) [MP3|320
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724041.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723154.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723151.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ VA - Эффект Моцарта - Музыка для малышей (от 3 м
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722425.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722351.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721657.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721643.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721406.jpg" />
 </div>
 
 
@@ -671,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721404.jpg" />
 </div>
 
 
@@ -682,32 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91CEA176A980B05DB99B6071636690D3373B4AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206592   (721009) от 06.06.2010
-
-Джанни Родари | Приключения Чиполлино (1962) [MP3, Эраст Гарин и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_721009.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чиполло» по-итальянски значит «лук», а где лук – там и слёзы. Но когда у Чиполлино ни за что ни про что приговаривают к пожизненному заключению отца, мальчик-луковка решает бороться и свергнуть власть правителя сказочной страны, принца Лимона. После того, как Чиполлино заставил плакать кавалера Помидора и спрятал домик кума Тыквы в лесу, ловко обманув сторожевого (   Читать дальше...   )Жанр: СказкаПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

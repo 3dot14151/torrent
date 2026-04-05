@@ -1,3 +1,55 @@
+###  Публикация: 915198   (594769) от 04.07.2015
+
+Е.В. Васильева | Развиваем речь ребенка с помощью стихов (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие предназначено для работы учителей-логопедов, воспитателей, гувернеров и родителей, которые хотят, чтобы их дети лучше овладели звуковым анализом слов, развили фонематический слух, чувство мелодики и ритма родного языка, грамотность и творческие способности. Приведенные в книге речевые игры могут использоваться как на занятиях по развитию речи, так и в сценариях (   Читать дальше...   )Жанр: Общая психология, Детская психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAAC856D54A3745EB8A767B1D0C8A8D2A43124A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039878   (594681) от 02.08.2016
+
+Владимир Мирнев | Живое дерево (1988) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть о жизни мальчика в сибирской деревне о его стремлении к справедливости, жажде приключений и подвига. Психологическая линия в повести (общение мальчика с отцом, мамой, товарищами) сочетается с приключенческой - похищением красавца коня и возвращением его колхозу.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75383DA5BF6872484929EBA6F49062211164602D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915311   (594654) от 04.07.2015
 
 Елена Андрющенко | Английский для малышей. Легко и просто (2011) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594654.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594649.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594552.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594546.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594540.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594539.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594501.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594413.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594409.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594363.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594351.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594277.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594051.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594023.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593995.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593781.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593701.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593643.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593641.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593535.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593471.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593470.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593355.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593343.jpg" />
 </div>
 
 
@@ -623,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BB76837C1B0F74173BBA808BC8EC9770664160D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549583   (593322) от 07.05.2022
-
-О.Н. Земцова | Дошкольная мозаика. Развиваем внимание 4-5 лет (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вашему малышу развить зрительное восприятие и произвольное внимание. Стимулируйте речевую активность ребёнка - беседуйте с ним во время занятий. Пусть малыш больше говорит. В процессе работы задавайте ему дополнительные вопросы по картинкам. Ребёнок с удовольствием поделится своими впечатлениями -расскажет, какие задания показались ему самыми трудными, (   Читать дальше...   )Жанр: Рабочая тетрадь, Развивающая литература для дошкольниковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFDEF04C79F03256FC38E9110309AA7722E2623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549580   (593304) от 07.05.2022
-
-Анатолий Шапиро | Секреты знакомых предметов. Спички. Кубики (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знания привыкли передавать ребёнку в основном через глаза и уши. Автор этой книги стремится к тому, чтобы они приходили и через руки, через деятельность, а тем самым мы смогли бы подарить ребёнку радостное удивление, пытливый анализ, первый окрыляющий успех естествоиспытателя.
-Эта книжка может стать интересной как для малыша 5-6 лет, так и для младшего школьника. (   Читать дальше...   )Жанр: Детский досуг, Опыты, Эксперименты, ФокусыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6006F632CF3463DEED53374EEE92D2E68EF947C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

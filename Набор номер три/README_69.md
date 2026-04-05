@@ -1,3 +1,169 @@
+###  Публикация: 619006   (967050) от 16.02.2013
+
+В Челябинской области упал метеорит
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 07:30 по московскому времени (09:30 по местному) в Челябинской области произошел взрыв.В Челябинске за минуту до этого в небе произошла резкая вспышка на 2 секунды: "встало светло как днем летом, и до темно-желтого (оранжевого) оттенка и до обычного оттенка. После прошла взрывная волна, были выбиты в большей части стекла нижних этажей, преимущественно со южно-западной стороны."
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618923   (967046) от 16.02.2013
+
+Metal Gear Rising: Revengeance [XBOX360] [Region Free] [En] [LT+3.0] (XGD3 / 15574) 2013
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Metal Gear Rising: Revengeance является шестой игрой в серии Metal Gear Solid и восьмой в серии Metal Gear. Первый анонс этой игры сделал летом 2009 года Хидзо Кодзима, легендарный гейм-художник. Он же заявил, что непосредственного участия в создании Metal Gear Solid: Rising он принимать не будет, довольствуясь продюссерством.
+Слоган игры «молниеносный экшн». То есть это классический прямолинейный шутер типа «стреляй во все, что видишь». В игре Metal Gear Solid: Rising вы играете за Рейдена, который пытается противостоять всевозможным военным компаниям. Ликвидирует врагов Рейден своим собственным мечом. Но разработчики добавили функцию замедления времени, чтобы удары меча могли стать наиболее точными. Игроку на выбор предлагаются разные «планы рассечения». Кстати, кроме врагов, Рейден своим могучим мечом крушить может все подряд.
+По сравнению с предыдущими сериями игры, в Metal Gear Solid: Rising Рейден выглядит несколько по-другому, у него даже изменился цвет глаз и оттенок кожи. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: PlatinumGames и Kojima ProductionsЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619536   (967041) от 16.02.2013
+
+Tom Clancy's H.A.W.X. 2 [Ru] (RePack/1.01) 2010 | R.G. Revenants
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение популярного симулятора полетов, в котором представлено еще больше всяческой современной и футуристической технически.
+В игре вы увидите F-35, бомбы с лазерным наведением и много другого. Полетать предстоит над Москвой, Персидским заливом, Арктикой и Индийским океаном.
+
+Tom Clancy's H.A.W.X. 2 дает возможность поучаствовать в ближних воздушных баталиях, ночных бомбардировках и нанесении тихих ударов при использовании беспилотных летательных аппаратов. Также вам предстоит совершать взлеты и посадки на базы и авианосцы, а во время некоторых миссий даже дозаправляться прямо в полете.
+(   Читать дальше...   )Тип издания: RePackЖанр: Simulation / Flight Combat / 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096B31ACE1FCC1D78AD6691F548E310242F4FD87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613839   (967039) от 16.02.2013
+
+Светофор (2013) SATRip (5 сезон 1-20 серии из 20)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда тебе за тридцать, ты вдруг замечаешь, что твоя жизнь похожа на сигналы светофора. Если ты холостяк, для тебя всегда горит зеленый свет, все вокруг в движении, и ты свободно едешь. Куда хочешь. И с кем хочешь. Если ты встречаешься с девушкой, тебе уже мигает желтый свет. С одной стороны, ты еще в движении, а с другой, уже готовишься остановиться. А если ты женат (   Читать дальше...   )Производство: Россия, Yellow, Black&WhiteЖанр: КомедияРежиссер: Роман ФокинАктеры: Ольга Медынич, Джемал Тетруашвили, Дмитрий Миллер, Александр Макогон, Ирина Низина, Сергей Лобынцев, Александр Никольский, Евгения Каверау, Антонина КомиссароваСубтитры: УкраинскиеПродолжительность: ~ 00:24:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358827   (966918) от 09.02.2020
+
+Windows 10 PRO VL 1909 x64 Rus by OneSmiLe [18363.628]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru_windows_10_business_editions_version_1909_updated_jan_2020_x64_dvd_a4affd95
+Интегрированы последние обновления на 09.02.20.
+Удалены все модерн приложения, вместе с магазином(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3BBA520BC714681D8EAF1AA645873BE6DE44377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358809   (966917) от 09.02.2020
+
+Forza Motorsport 7 (2017) [Ru/Multi] (1.141.192.2/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ощутите опасность и красоту настоящей гонки на максимальном пределе возможностей в самой реалистичной автомобильной игре Forza Motorsport 7. Соберите более 700 машин, включая огромную коллекцию Ferrari, Porsche и Lamborghini. Проявите свое мастерство в 30 известных локациях, где погодные условия могут меняться каждый раз, когда вы участвуете в гонке.Тип издания: RepackРазработчик: Turn 10 StudiosЖанр: Racing, Arcade, Simulator, 3DЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC41494C0F9437A4693CFA56110E655A660D06EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357753   (966916) от 09.02.2020
 
 BELOFF 2020 [Ru] (Авторская раздача)
@@ -6,7 +172,7 @@ BELOFF 2020 [Ru] (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_966916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_966916.jpg" />
 </div>
 
 
@@ -32,7 +198,7 @@ WinPE 10 x64 by LEX v.20.2.8 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966915.jpg" />
 </div>
 
 
@@ -58,7 +224,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.17.2/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966914.jpg" />
 </div>
 
 
@@ -84,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966810.jpg" />
 </div>
 
 
@@ -110,7 +276,7 @@ The Banner Saga (2014) [En] (1.0) License RELOADED
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966804.jpg" />
 </div>
 
 
@@ -136,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_966401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_966401.jpg" />
 </div>
 
 
@@ -165,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966327.jpg" />
 </div>
 
 
@@ -193,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966325.jpg" />
 </div>
 
 
@@ -219,7 +385,7 @@ Resident Evil 0 HD Remaster (2016) [En/Multi] (1.0/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966256.jpg" />
 </div>
 
 
@@ -245,7 +411,7 @@ Engvid | Уроки английского (2010-2015) WEBRip [H.264/1080p]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966252.jpg" />
 </div>
 
 
@@ -271,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966236.jpg" />
 </div>
 
 
@@ -300,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966235.jpg" />
 </div>
 
 
@@ -329,7 +495,7 @@ Re-Loader Activator 2.2 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966234.jpg" />
 </div>
 
 
@@ -355,7 +521,7 @@ OS X El Capitan 10.11.3 (15D21) [Multi/Ru] (Installer)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966233.jpg" />
 </div>
 
 
@@ -382,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966232.jpg" />
 </div>
 
 
@@ -408,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966231.jpg" />
 </div>
 
 
@@ -434,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966230.jpg" />
 </div>
 
 
@@ -460,7 +626,7 @@ Magic Desktop 9.2 (2015) [Ru/Multi] (9.2.0.130) License Табличка
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966229.jpg" />
 </div>
 
 
@@ -488,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966228.jpg" />
 </div>
 
 
@@ -514,7 +680,7 @@ Smart Office Full 2.4.6 (build 8437)[Ru/Multi] - Офисный пакет
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966227.jpg" />
 </div>
 
 
@@ -525,164 +691,6 @@ Smart Office Full 2.4.6 (build 8437)[Ru/Multi] - Офисный пакет
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:425F491362C54DA72F14440D092FFA4BE4D0F2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619973   (965862) от 17.02.2013
-
-Mipko Employee Monitor 7.6.3.1814 [Русский, Английский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Mipko Employee Monitor перехватывает все нажатия клавиш, периодически делает снимки экрана рабочего стола сотрудника, сохраняет запускаемые и закрываемые программы, а также записывает все посещаемые сайты. Доступ к этим записям можно получить локально или удаленно; нет никакой нужды оставлять свое кресло, чтобы проверить, чем занимаются сотрудники. Mipko (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358289   (965829) от 10.02.2020
-
-Xiaomi, Huawei, Oppo и Vivo решили создать свой аналог Google Play Store.
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китайские производители Xiaomi, Huawei Technologies, Oppo и Vivo решили совместно создать платформу для разработчиков за пределами Китая, которая сможет конкурировать с Google Play. Инициатива производителей получила название «Глобальный альянс разработчиков услуг» (GDSA — Global Developer Service Alliance).По мнению компаний, создание платформы позволит использовать (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358993   (965823) от 10.02.2020
-
-Бесстрашные / Deliler (2018) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Середина XV века. Расцвет Османской империи. Преданный империи Влад Цепеш одобрен султаном Фатихом Мехмедом II на правление в вассальской Валахии. Но вскоре молодой господарь начал жестоко расправляться с турками и вытеснять их со своих земель, а отправленного разгневанным султаном гонца возвращает с колом в голове. Фатих создал специальный отряд, прозванный отрядом (   Читать дальше...   )Производство: Турция / Angel Film YapimЖанр: история, военныйРежиссер: Осман КаяАктеры: Джем Учан, Эркан Петеккая, Нур Феттахоглу, Йеткин Дикинджилер, Гюльшах Шахин, Исмаил Филиз, Batin Deniz Ucan, Namik Rüstem Khanli, Берат Эфэ Парлар, Камиль ГюлерПеревод: Многоголосый профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623180E60F313B072098607056AB88C7D81E7C55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 169312   (965426) от 25.01.2010
-
-Официальная конференция клуба
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы рады сообщить, что у клуба появилась своя конференция.
-Конференция реализована на стороннем сервере, поэтому если вдруг что-то (*постучал по дереву*) - всю информацию о происхдящем можно будет получить там.Свой сервер нам любезно предоставил evadim, за что ему большое спасибо.
-Он же является главным админом конференции.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977241   (965407) от 21.01.2016
-
-Китай ускоряет программу реализации миссии на "темную сторону" Луны
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласно информации китайского государственного агентства Цинхуа, на прошлой неделе руководство китайского Государственного оборонного управления науки, технологий и промышленности (State Administration of Science, Technology and Industry for National Defence, SASTIND) в лице директора Луи Джижонга объявило о своих планах по запуску в 2018 году исследовательской (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977842   (965298) от 21.01.2016
-
-Акулосьминог против птеракуды / Sharktopus vs. Pteracuda (2014) BDRip [H.264/1080p] [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский гениальный ученый хотел как лучше (как обычно), создавая наполовину птеродактиля, наполовину барракуду: получилась Птеракуда. Когда существо неизбежно ускользает, остановить его может только ранее выведенный Шарктопус, он же акулоосьминог. Предстоит смертельная битва.Производство: США, New Horizons PictureЖанр: Ужасы, ФантастикаРежиссер: Кевин О’НиллАктеры: Роберт Кэрредин, Акари Эндо, Тони Евангелиста, Марио Артуро Эрнандес, Райб Хиллс, Алан Надал Пиантини, Конан О’Брайен, Аманда ФилипсонПеревод: Одноголосый закадровый любительский ( Хихикающий доктор)Продолжительность: 01:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5279A3B22D443748EAFCE79FB0CC6752C995717
 ```
 
 https://mybot314.ru/tekegram_catalog/

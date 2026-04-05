@@ -6,7 +6,7 @@ SUPER EURO SMASH - 5 альбомов (2012-2013) /Doujin/ [FLAC|tracks] <Eurobe
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371002.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ RAMPANT - 2 albums (2008-2010) [FLAC|Lossless]<Jrock,metalcore,alternative metal
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_368064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_368064.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Crystal Lake (JAP) - 6 Albums, 4 Maxi-Singles (2012-2020) [FLAC|Lossless|WEB-DL|
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367336.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Guitar Romantic (1992) [MP3|320 кб/с]<Instrumental>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366122.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Ikuro Fujiwara - 2 albums (2005, 2009) [MP3|320 кб/с]<New age, Instrumental, 
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365921.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PSY - Gangnam Style (CD Single) (2012) [FLAC|Lossless]<K-Pop, Hip-Hop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365148.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Beautiful Butterflies (2003) [MP3|320 кб/с]<Instrumental>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363935.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Zhou Zhi Hong - The Poems With Flowers (2011) [MP3|320 кб/с]<Instrumental, Et
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363419.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Utsu-P - ALGORITHM (2014) [FLAC|Lossless] <Vocaloid, Death Metal, Hardcore>
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361617.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Wang Jian Lin - Yin Hua Chan Di (2012) [MP3|320 кб/с]<Instrumental, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355390.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Wang Xun - Romantic Guzheng (1993) [MP3|320 кб/с]<Instrumental, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355276.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ MELL - MIRAGE (2010) [FLAC|Lossless]<J-pop, J-Rock>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354579.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - NieR: Automata Original Soundtrack (2017) [FLAC 2.0 24/48|Lossless|tracks] 
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352850.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Chiyomaru SHIKURA - THE WORKS ~Chiyomaru Shikura Music Collection~: VA (2008-200
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_352615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352615.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Sigh - Shiki (2022) [FLAC|Lossless|image + .cue] <Avant-garde, Black Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350174.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ ZONE - 4 albums (2002-2006) Discography [FLAC|Lossless]<J rock,girl.band>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_348216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_348216.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Seikima-II - Bloodiest (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347917.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Masayoshi Takanaka - The Rainbow Goblins (1981) 2013, Universal [FLAC|Lossless|t
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346467.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Koda Kumi - 10 альбомов, 5 компиляций, 6 Remix Albums, 58 си
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_345000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345000.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Masayoshi Takanaka - Saudade (1982) 1995, Kitty Records [FLAC|Lossless|tracks + 
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344235.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Babymetal - Metal Galaxy (2019) Japanese Edition [MP3|320 Kbps] <Heavy Metal, J-
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342830.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Masayoshi Takanaka - Ukulele Seychelles (2011) Lagoon Records [FLAC|Lossless|tra
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341959.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Akisai - Images (2015) [OGG| 466-546 кб/с]<Electronic, Instrumental, Ambient,
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341793.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Akisai - Colors (2014) [OGG| 432-502 кб/с]<Electronic, Instrumental, Ambient,
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341678.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ SYU - You Play Hard (2016) [MP3|320 Kbps] <Instrumental Neoclassical Power Metal
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340082.jpg" />
 </div>
 
 
@@ -765,7 +765,7 @@ VA - Lovely String (1999) [MP3|320 кб/с]<Instrumental, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337919.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016354.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Caliban - Intoleranz [Клип] (2021) WEBRip [H.264/1080p-LQ] <Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016145.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016143.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016139.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Thundercloud - Lightning Queen (2021) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016062.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015771.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Beatles: Я счастлив просто потанцевать с тобо
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015757.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015718.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nightwish: Decades - Live in Buenos Aires (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015714.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014812.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014655.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014521.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ New Order – Education Entertainment Recreation (2021) BDRip [EN]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014497.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ New Order – Education Entertainment Recreation (2021) BDRemux [H.264/1080i] [E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014487.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Motley Crue: The End – Live in Los Angeles (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014112.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Mick Fleetwood And Friends - Celebrate The Music Of Peter Green And The Early Ye
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013977.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Swinging Bach - Bobby McFerrin and Guests (Live in Leipzig) (2000) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013935.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Greatest Irish Artists - Gaelforce (1997) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013832.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ The Beatles: Любовь нельзя купить 2 / Can't Buy Me Love (A Har
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013830.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Motley Crue - The End: Live in Los Angeles (2016) BDRip [H.264/1080p-LQ] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013806.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Lindemann: Live in Moscow / Lindemann: Live in Moscow (2021) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013800.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013344.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013162.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ The Beatles: Вся моя любовь / All My Loving (A Hard Day's Night) (19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012993.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012947.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Lindemann - 21 Music Videos (Censored / Uncensored Versions) (2018-2021) WEB-DL 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012926.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - 100 Classics For Relaxation - A Glorious Sunrise (2008) CD, Compilation [FL
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11602.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Classical Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1786.jpg" />
 </div>
 
 

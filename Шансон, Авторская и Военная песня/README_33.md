@@ -1,3 +1,32 @@
+###  Публикация: 1409461   (444989) от 17.09.2020
+
+Михаил Гулько - Песни из нашей жизни (2002) [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Москва златоглавая
+02. Синее небо России
+03. Институтка
+04. Мама(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B97AB32E719A5F15D224ACAA2A0992C2357FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553185   (443175) от 28.09.2012
 
 Владимир Высоцкий - Я спою... Золотая коллекция (2005) 6 CD [WavPack|Lossless]<Pop, Chanson, Ballad, CCCP>
@@ -6,7 +35,7 @@
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443175.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ VA - Балаганчик 2 (2000) [FLAC|Lossless|tracks + .cue]<Шансон>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440737.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439368.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439177.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436478.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429947.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425937.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422611.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421210.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420216.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417926.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ VA - Попутчик (Группа М. Круга) - Песни высшей п
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416349.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ VA - Группа Малолетка - Песни высшей пробы (2010)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416344.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414719.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_413424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_413424.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ VA - Чисто за жизнь-сходка 2 (1998) [FLAC|Lossless|tracks + .c
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412713.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ VA – Три года ночному такси (1997) [FLAC|Lossless|tracks + 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412709.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411333.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411168.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410653.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Charles Aznavour - Duos (2008)(2CD) [FLAC|Lossless|image + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408987.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408521.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408459.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407665.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ VA - 3D коллекция Бутырка, Иван Кучин, Сергей Н�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406262.jpg" />
 </div>
 
 
@@ -728,41 +757,6 @@ VA - 3D коллекция Бутырка, Иван Кучин, Сергей Н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4B42866CECC64F16103BA98492EE18EB01474E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563174   (404442) от 21.10.2012
-
-Mireille Mathieu - Platinum Collection (2005) [FLAC|Lossless]<Pop, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bravo, Tu As Gagne [04:41]
-02. Tu Chanteras Demain [03:10]
-03. Nos Souvenirs [03:50]
-04. New-york, New-york [03:02]
-05. Trois Milliards De Gens Sur Terre [03:26]
-06. On Est Bien [03:20]
-07. Les Avions, Les Oiseaux [03:09]
-08. Made In France [03:32]
-09. Apres Toi [04:04]
-10. Rencontres De Femmes [03:57](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:09:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

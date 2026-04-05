@@ -1,3 +1,29 @@
+###  Публикация: 941608   (775398) от 09.05.2016
+
+Thief (2014) [Ru/En] (1.7 build 4158.21/upd8/dlc) Repack =nemos= [Master Thief Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стелс-экшен, в котором игроку предстоит играть за вора Гаррета, который охотно грабит обитателей индустриального города, охваченного чумой. Как и в предыдущих частях серии, герою нужно будет действовать скрытно, но спрятаться от охранников будет труднее — они серьезно поумнеют и научатся тщательно обыскивать даже самые укромные уголки. Из оружия вор получит лишь (   Читать дальше...   )Тип издания: RepackРазработчик: Eidos-MontrealЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645D869F3C8AB8952EDE07160537EBCC9A2EB79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015223   (775397) от 09.05.2016
 
 Need For Speed: The Run (2011) [Ru] (1.1.0.0) Repack =nemos= [Limited Edition]
@@ -6,7 +32,7 @@ Need For Speed: The Run (2011) [Ru] (1.1.0.0) Repack =nemos= [Limited Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775397.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775049.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ NVIDIA подозревается в использовании монополь
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_774975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774975.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Windows 7 Ultimate SP1 (x86/x64) Elgujakviso Edition (v.21.01.19) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774786.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774681.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Bombshell (2016) [En] (1.2/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774679.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_774119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_774119.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ TinyPNG and TinyJPG Photoshop Plugin 2.3.9 (x64-x86) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774007.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774004.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Adobe Photoshop CC 2018 19.1.2.45971 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774000.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ BBC: Он и Она - Секреты отношений/ BBC: Secrets of the Sex
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773999.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_773875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_773875.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Advanced SystemCare Pro 9.3.0.1119 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773831.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773826.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Revo Uninstaller Pro 3.1.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773824.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ ABBYY FineReader 12.0.101.483 Professional & Corporate RePack by KpoJIuK [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773823.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773821.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Serious Sam Gold Edition / Крутой Сэм Золотое Издание [Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773664.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (DLC) RePack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773131.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773117.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Red Faction Guerrilla (2009) [Ru/En] (1.0.2.1/dlc) SteamRip Let'sPlay [Steam Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772750.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772734.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772718.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_772641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_772641.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772607.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD0D73E3AE4982BEC658FF7F95295879EFFB2C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212792   (772604) от 15.03.2018
-
-Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86) RePack by SPecialiST v18.3 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1A6CE870D586211245C219C978DE36D36D935F
 ```
 
 https://mybot314.ru/tekegram_catalog/

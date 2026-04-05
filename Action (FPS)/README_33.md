@@ -1,3 +1,55 @@
+###  Публикация: 1839048   (261654) от 26.11.2025
+
+Green Hell (2019) [Ru/Multi] (2.9.4) Repack Necros
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симулятор выживания в открытом мире, чье действие происходит в неизведанном уголке джунглей Амазонки. Вы оказались одни в джунглях, без еды и снаряжения. Из всего снаряжения у вас есть только рация, и вы идете вперед на знакомый голос любимого человека, преодолевая бесконечные опасности джунглей... постепенно, кусочек за кусочком, складывая картину того, что же с (   Читать дальше...   )Тип издания: RepackРазработчик: Creepy JarЖанр: Экшен от первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E083A201F7E405602E624DA4D23A79A57F49AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838557   (260755) от 23.11.2025
+
+Killbug (2023) [En] (1.5) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жук-убийца, добро пожаловать в тайный мир насекомых, где кишащие массы ведут непрерывную битву за власть. Ваша сила устрашила врагов. Они обрезали вам крылья и отправили в изгнание, но и этого им оказалось мало. Они хотят убить вас - берегитесь засады. Клинок и ствол жаждут крови. Они грезят сладким нектаром мести. Заставьте их страдать. Не щадите панцири и щиты. (   Читать дальше...   )Тип издания: LicenseРазработчик: Samurai Punk, Nicholas McDonnellЖанр: ЭкшеныЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B577F470F55B21695F7E23D3B7B37990CFF6377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838597   (260733) от 23.11.2025
 
 Battlefield 6 (2025) [En] (1.0.387.51411.SP) Scene Rune
@@ -6,7 +58,7 @@ Battlefield 6 (2025) [En] (1.0.387.51411.SP) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260733.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Battlefield 6 (2025) [En] (1.0.387.51411.SP) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260717.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Battlefield 6 (2025) [Multi] (1.1.2.0 Build 20800939/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260672.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Red Orchestra 2: Heroes of Stalingrad [Ru] (RePack) 2011 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260144.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Quake II (1997) [Ru/Multi] (1.0.6002.0/dlc) Repack Necros [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258064.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.4.0#840/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257615.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Warhammer 40 000: Fire Warrior [Ru] (RePack) 2003 | RG Games (Pilotus)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257057.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Defcon 5 [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256996.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Zero Hour (2020) [Ru/Multi] (Build 20792172/dlc) Repack FitGirl [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256773.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Resident Evil Village (2021) [Ru/Multi] (10415597/dlc) Repack dixen18 [Gold Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254971.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Karagon (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254932.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ Dread Templar (2023) [Ru/Multi] (1.0.2b_fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252285.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Crysis 2 Remastered (2022) [Ru/En] (1.0) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251975.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ Quake 4 (2005) [Multi] (1.4.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251971.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ System Shock (2023) [Ru/Multi] (1.0.16944) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251855.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ Homefront (2011) [Ru/Multi] (1.5.500001.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251797.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.17.38829.471) Scene FAIRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251796.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (rc2/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251795.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Slayers X: Terminal Aftermath: Vengance of the Slayer (2023) [Ru/Multi] (1.0.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251771.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ Metal Garden (2025) [Multi] (2.4.0) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250930.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Repack FitGirl [Bundles Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250482.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ Painkiller / Крещёный кровью (2004) [Ru] (1.64) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250348.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack FitGirl [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249053.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Decepticon [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249048.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Decepticon [Ultimate 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8B1047DD5742147C9A3660F61D6EA8D1A22B62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834316   (249047) от 03.11.2025
-
-Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack seleZen [Ultimate Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249047.jpg" />
-</div>
-
-
-###  Подробнее
-
-По Лос-Анджелесу разносится смертоносный вирус, превращающий носителей в зомби. Укус, заражение и больше чем просто иммунитет: узнайте правду об эпидемии и выясните, кем - или чем - вы стали. Выживание и эволюция - таков путь истребителя зомби!Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1265A75BF25EE9F32EAA69C5E178DA2D6122DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834318   (249040) от 03.11.2025
-
-Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Other s [Ultimate Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249040.jpg" />
-</div>
-
-
-###  Подробнее
-
-По Лос-Анджелесу разносится смертоносный вирус, превращающий носителей в зомби. Укус, заражение и больше чем просто иммунитет: узнайте правду об эпидемии и выясните, кем - или чем - вы стали. Выживание и эволюция - таков путь истребителя зомби!Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E98B6CD85DC99E014D30FB6120449952B284D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

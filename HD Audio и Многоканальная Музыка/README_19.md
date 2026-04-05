@@ -1,32 +1,3 @@
-###  Публикация: 1524431   (741879) от 17.01.2022
-
-Комиссар - Наше Время Пришло (1991) Питон, со вставками Звук [DSD2.0|11,28MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco, Dance, Techno>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741879.jpg" />
-</div>
-
-
-###  Подробнее
-
-[0:35] 01. Студия ПИТОН представляет!
-[5:05] 02. Ты уйдешь
-[3:51] 03. Наше время пришло
-[4:56] 04. Всё изменится(   Читать дальше...   )Жанр: Pop, Disco, Dance, TechnoПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9152FEA6FA7194A80CEAA962B55981D0CC2995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 665781   (741424) от 08.06.2013
 
 Slayer - 13 альбомов (1983-2009) 14LP [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Thrash Metal>
@@ -35,7 +6,7 @@ Slayer - 13 альбомов (1983-2009) 14LP [FLAC 2.0 24/192 | image (Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741424.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Пулсиращи Ноти 3 (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740451.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Sky - Masterpieces - The Very Best Of Sky (1984) [FLAC 2.0|96/24|image +.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740426.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740002.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ B.B. King - Live At San Quentin (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739660.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ Raffaella Carra - Collections (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739595.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ James Last - Trumpet A Go Go (1966) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Eas
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738705.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ The Chemical Brothers - Dig Your Own Hole (1997) 2016 [FLAC 2.0|96/24|tracks +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738126.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ VA - 20 Power Hits (1973) As advertised on T.V. [FLAC 2.0|192/24|image+.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738047.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ The Sugarcubes - Life's Too Good (1991) Recorded April 1988 [FLAC 2.0|192/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737596.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737585.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ The Police - Дискография (1978 - 1983, 1993) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737329.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Kiss - Destroyer (45th Anniversary Super Deluxe) (1976) remix 2021 [DTS-ES Discr
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737294.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ Stone - Studio Albums (1988 - 1991) hand made [restored, declipped] [FLAC 2.0|Lo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736922.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ Armin van Buuren - Imagine (2008) 2LP Reissue 2021 [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736879.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ Mike Morton Non Stop Party Show Vol. 1 (1973) 30 Great Sounds [FLAC 2.0|192/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736425.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ VA - The Absolute Sound (2015) Japanese Edition [DSD64 2.0|1bit/2822,4kHz|SACD-R
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736366.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ Mindfeed - Studio albums (1997-1998) hand made [restored, declipped] [FLAC 2.0|L
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735388.jpg" />
 </div>
 
 
@@ -553,7 +524,7 @@ Opus - Up And Down (1984) [FLAC|FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735169.jpg" />
 </div>
 
 
@@ -582,7 +553,7 @@ Terror Universal - Make Them Bleed (2018) hand made [restored, declipped] [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734969.jpg" />
 </div>
 
 
@@ -611,7 +582,7 @@ The Police - Zenyatta Mondatta (1980) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Ne
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734968.jpg" />
 </div>
 
 
@@ -640,7 +611,7 @@ The Police - Ghost In The Machine (1981) Reissue 1982 [FLAC 2.0|192/24|image+.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734960.jpg" />
 </div>
 
 
@@ -669,7 +640,7 @@ Modern Soul Band - Meeting (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734306.jpg" />
 </div>
 
 
@@ -698,7 +669,7 @@ Diana Ross & The Supremes - Baby Love (1973) Compilation 1963-1966, Czechoslovak
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733570.jpg" />
 </div>
 
 
@@ -727,7 +698,7 @@ The Alan Parsons Project - Gaudi (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731843.jpg" />
 </div>
 
 
@@ -741,6 +712,32 @@ B1. Standing On Higher Ground (5:04)(   Читать дальше...   )Прои
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF8849ABAC2433115C8AA00E867F70C52A6B7F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 666321   (731394) от 09.06.2013
+
+VA - Red Wave - 4 Underground Bands From The USSR (1986) 2LP [FLAC 2.0 24/96 | image (Vinyl-Rip)<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731394.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Red Wave» - это первый официальный релиз на Западе 4-х рок-групп СССР, которые официально были практически запрещены в России. Чтобы издать эту музыку на Западе, американская энтузиастка Джоанна Стингрей, влюбившаяся в Россию и прожившая здесь более 15 лет, вывезла записи групп из СССР и в 1986 году на фирме "Big Time Records" (Калифорния) тиражом 10 тыс.экз. (   Читать дальше...   )Жанр: RockПродолжительность: 00:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D258B93B68CDDE11AC870264B3455F73AFD0778
 ```
 
 https://mybot314.ru/tekegram_catalog/

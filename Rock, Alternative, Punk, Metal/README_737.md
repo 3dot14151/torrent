@@ -1,3 +1,32 @@
+###  Публикация: 1582082   (324603) от 08.10.2022
+
+Knorkator - Sieg der Vernunft (2022) [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche Harte>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Welt wird nie wieder so, wie sie vorher war [00:03:55]
+02. Sieg der Vernunft [00:03:49]
+03. Der Hofstaat [00:04:04]
+04. Ihr habt gewonnen [00:03:59](   Читать дальше...   )Жанр: Neue Deutsche HarteПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2160909CF592579E0C2BA01F9CD3417D714D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582206   (324602) от 08.10.2022
 
 King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms and Lava (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Garage Rock, Doom>
@@ -6,7 +35,7 @@ King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms and Lav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324602.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Big Mouth - Hands Of Time (1997) Japanese Edition, Reissue, 1998, Avalon [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324601.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sleeping Romance - We All Are Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324600.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ She Bites - Super Hero (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324597.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Haven of Echoes (Frequency Drift family) - he Indifferent Stars (2022) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324596.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Wednesday 13 - Horrifier (2022) [MP3|320 Kbps] <Heavy Metal, Horror Punk, Glam M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324595.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Queensryche - Digital Noise Alliance (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324594.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ I Drink My Coffee Alone - Nichts (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimen
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324592.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Taboo - Taboo (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324590.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Magic Dance - New Eyes (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324588.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Caravan - Back To Front (1982) Japanese Edition, Reissue, 2022, Belle Antique [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324584.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Hawkwind - We Are Looking In On You (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324498.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Woods Of Wonders - Lost (2022) The Metal Opera [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324497.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Caravan - The Album (1980) Japanese Edition, Reissue, 2022, Belle Antique [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324496.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324495.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ginevra - We Belong To The Stars (2022) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324494.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Lamb Of God - Omens (2022) [MP3|320 Kbps] <Groove Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324485.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Slade - Crackers (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324481.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Can (The Can) - 18 albums, 5 Box sets, 92 CD (1969-2014) [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324406.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Mark Knopfler - The Studio Albums 2009-2018 (2022) 5CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324352.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324346.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324339.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Gall - Anonym (2010) [FLAC|image+.cue]<Neo-Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324001.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Zonder Kennedy & The Scoville Junkies - Hot Water Music (2015) [MP3|320 кб/с]
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323986.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Phantasma - The Deviant Hearts (2015) [MP3|320 кб/с]<Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323958.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Phantasma - The Deviant Hearts (2015) [MP3|320 кб/с]<Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:389B8480F8482BBE646084C0163088DE9C70A23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 416545   (323858) от 28.11.2011
-
-V.A. - Rock Hearts Collection (2011) (4CD Box Set) [FLAC|Lossless]<Rock ballads>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ten Years After - I'd love to change the world
- 02. Deep Purple - Lalena
- 03. Whitesnake - Is this love
- 04. Jethro Tull - Bouree(   Читать дальше...   )Жанр: Rock ballads |Продолжительность: 01:08:17
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

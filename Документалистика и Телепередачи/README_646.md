@@ -1,3 +1,160 @@
+###  Публикация: 1645411   (209372) от 09.07.2023
+
+Боком по стране (2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пилоты соревнуются в управляемом силовом скольжении на автомобилях. Зрелищный док о приемах и техниках дрифта.
+Путешествие в мир дрифта вместе с пилотом Андреем Аюхаевым — от тренировок до финала соревнований. Фильм покажет зрелищные заезды и расскажет, как и чем живет российское дрифт-коммьюнити.Производство: Россия | «ИРИ»Жанр: Документальный, короткометражкаРежиссер: Иван ГусаровЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C57F4E3F9DFA8348E90D21AD77BB595300B8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645391   (209361) от 09.07.2023
+
+Музыкальная шкатулка. DMX: Не пытайся понять / DMX: Don't Try to Understand (2021) WEB-DL [H.264/1080p] [MVO]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о жизни и творчестве знаменитого рэпера DMX.Производство: США / HBO Documentary Films, Mass Appeal, Mercury StudiosЖанр: документальныйРежиссер: Кристофер Фрирсон, Кларк СлэйтерУчастники: Joseph Cassiere, DMX, Пейдж Херд, Ташира Симмонс, Ксавьер Симмонс, Касим Дин, Тара Томас, Iyanla Vanzant, Форест УитакерПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D9C1BFA846DD6E39DA15F0BA2B2C96A403A260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645516   (209328) от 09.07.2023
+
+Невозможные животные / Impossible Animals (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-3 из 3) SDI Media
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал о самых поразительных животных планеты. Каждая среда обитания на Земле - уникальна и сложна. Природа постоянно "подкидывает" проблемы, которые животным нужно решать. Некоторые из них развили невероятные способности, помогающие выживать в самых трудных условиях. "Невозможные животные" - самое подходящее для них описание. Разум (   Читать дальше...   )Производство: США / Offspring FilmsЖанр: документальный, природаРежиссер: Лара БикертонУчастники: Патрик АрьеПеревод: Одноголосый профессиональный (SDI Media)Язык озвучки: Русский, АнглийскийСубтитры: РусскиеПродолжительность: ~00:44:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F8DD678D5FCA8F09300720B36AAA3AB3E8CABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645541   (209310) от 09.07.2023
+
+Астероидный бум / Asteroid Rush (2022) HDTVRip (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мало того, что большие астероиды могут столкнуться с нашей планетой, они также хранят невероятные секреты... 65 миллионов лет назад, предположительно, огромный астероид уничтожил 80% живых организмов на Земле, включая динозавров. Сегодня астероиды так же представляют реальную угрозу. Каждый день, в среднем, 230 астероидов проходят курсом, близким к нашей планете (   Читать дальше...   )Производство: Франция, Saint Thomas Productions, ARTE France, CuriosityStreamЖанр: документальный, космосРежиссер: Бертранд Луайе, Жак БедельПеревод: многоголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 2x ~00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FCAC41B167B0A21A086436833934D38BB374C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569692   (209301) от 31.08.2022
+
+Репетиция / The Rehearsal (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) Novamedia
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нэйтан Филдер создает правдоподобные симуляции важных моментов (по уникальному дизайну, конечно же), где «тренирует» клиентов вести себя «правильно». Правда, не факт, что после такой подготовки в реальной жизни все пройдет как по маслу. Как говорится, одна ошибка — и ты ошибся.Производство: США |  Rise Management, Home Box Office (HBO)Жанр: документальный, комедияРежиссер: Нэйтан ФилдерАктеры: Нэйтан Филдер, Гиги Бурдорф, Исаак Ламб, Чарли Черман, К. Тодд Фриман, Vincent Cefalu, Улла Фельдман, Тони Нейшн, Одри Гэлвин, Sawyer J. BellПеревод: Многоголосый профессиональный (Novamedia)Язык озвучки: русскийСубтитры: русские (Forced, Full), английскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99E047B7946E09E32BF4C145BBEE14B2A19FE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606804   (209196) от 24.01.2023
+
+Крот: Под прикрытием в Северной Корее / The Mole: Undercover in North Korea (2020) WEBRip [H.264/720p] [VO]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайный триллер из реальной жизни о двух обычных людях, которые отправляются на возмутительно опасную десятилетнюю миссию по проникновению в самую скрытную и жестокую диктатуру в мире: Северную Корею.Производство: Норвегия, Дания, Великобритания, Швеция / BBC Television Centre, Danmarks Radio (DR), Electric Parc, Norsk Rikskringkasting (NRK)Жанр: документальный, триллерРежиссер: Мадс БрюггерПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63DCC5F241B665ACC6E1F0A4F45D14A93B61C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645740   (209157) от 11.07.2023
 
 История отечественного кино (2019-2022) WEBRip [H.264/720p] (сезон 1, серии 1-7 из 7)
@@ -6,7 +163,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209157.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209124.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209109.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209044.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208957.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208912.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208900.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208870.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208818.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208779.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208608.jpg" />
 </div>
 
 
@@ -293,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208596.jpg" />
 </div>
 
 
@@ -319,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208522.jpg" />
 </div>
 
 
@@ -345,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208458.jpg" />
 </div>
 
 
@@ -371,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208375.jpg" />
 </div>
 
 
@@ -397,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208357.jpg" />
 </div>
 
 
@@ -423,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208348.jpg" />
 </div>
 
 
@@ -449,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208180.jpg" />
 </div>
 
 
@@ -475,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208169.jpg" />
 </div>
 
 
@@ -501,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208136.jpg" />
 </div>
 
 
@@ -512,162 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A79D1036543A0337FA3835200F1097F68D1A158C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648654   (208124) от 24.07.2023
-
-Нескучный сад / The Restless Garden (1993) WEB-DL [H.264/720p]
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальная хроника сексуальной революции в СССР накануне распада империи. Виктор Гинзбург («Generation “П”») через вереницу разных историй показывает, как общество раскрепощалось и преодолевало табу. Его героини — практически всегда это женщины — открывают не только тело, но и душу, пытаясь избавиться от оков устаревшей системы.Производство: Россия, Heartland FilmsЖанр: документальный, историяРежиссер: Виктор ГинзбургЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A27E62F1432AB8259EE84828BC184364AEB5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648728   (208078) от 24.07.2023
-
-Джим Моррисон — Последние дни в Париже / Jim Morrison, derniers jours a Paris (2021) WEB-DL [H.264/720p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм-расследование загадочной смерти Джима Моррисона, основанный на эксклюзивных интервью с окружением рок-идола. Более 50 лет назад в Париже в ночь со 2 на 3 июля 1971 года тело фронтмена The Doors было обнаружено в ванной комнате квартиры его американской подруги Памелы Курсон. Обстоятельства гибели Моррисона казались загадочными, несколько дней (   Читать дальше...   )Производство: Франция, Великобритания, Германия, ARTE GEIE, Matcha prod, Capa PresseЖанр: документальный, история, биография, музыкаРежиссер: Оливье МонссанУчастники: Джим МоррисонПеревод: двуголосый профессиональный (Эй Би-Видео)Язык озвучки: русскийСубтитры: русскиеПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F619FA385481EAA234F5560CC0E585996A358F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610985   (207807) от 09.02.2023
-
-Клятва / The Vow (2020) WEB-DL [H.264/1080p] (сезон 1, серии 1-9 из 9)
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о нашумевшем в США расследовании вокруг якобы сетевой компании NXIVM. Руководителям компании были предъявлены обвинения в торговле людьми в целях сексуальной эксплуатации.Производство: США, HBO Documentary Films, The OthrsЖанр: документальный, история, криминалРежиссер: Карим Амер, Джехен Нужейм, Омар МаликПеревод: многоголосый профессиональный (Amedia)Язык озвучки: русскийСубтитры: английскиеПродолжительность: серии ~00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EDE075B4C0DC1B60A0EB4F68C3DCC89BD11CA82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649638   (207806) от 28.07.2023
-
-Победитель победителей (2010) SATRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летом 1945 года Сталин принимал участие в Потсдамской конференции - здесь, на международной арене, наряду с главами стран-союзников, он выступал в роли победителя, олицетворяя собой героизм и славу всего советского народа. Между тем, уже в эти первые послевоенные месяцы он успел вступить и в еще одну - трагическую роль победителя победителей. Через армию за годы (   Читать дальше...   )Производство: Россия, НТВЖанр: документальный, история, военныйРежиссер: Алексей СмаглюкЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9CD4B368BE79BD2ACADFB2EA5D3BB0697460A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649664   (207774) от 28.07.2023
-
-Великолепные памятники Франции. Страсбург / Splendor Revealed The Monuments of France. Strasbourg (2020) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207774.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении веков крупные французские города приобрели культовый облик. От севера до юга старинные здания оставили свой отпечаток на городских ландшафтах, одновременно внедряя инновации, преодолевая архитектурные трудности и делая невозможное возможным.Производство: Франция, RMC Production, RMC Films, RMC DécouverteЖанр: документальный, познавательный, путешествияРежиссер: Оливье ЛаказеПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C226236B3ACE02CF05A353EA578D49F39042AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481017   (207741) от 18.09.2022
-
-Шоу Грэма Нортона / The Graham Norton Show (2007-2021) WEBRip [H.264/480p/720p/1080p -LQ]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу ориентированно на взрослую аудиторию, в нем принимают участие известные киноактеры, певцы, музыканты и фотомодели. В начале шоу ведущий кратко шутит на актуальные темы в стране. Гости всегда сидят компанией на красном угловом диване, около него стоит столик с выбранным напитком, в котором может быть алкоголь. Ведущий часто подкалывает гостей их фото из жизни (   Читать дальше...   )Телекомпания: (2007-2009) BBC Two, (2009-2021) BBC OneЖанр: ТВ-шоу, Телепередача, Юмор, Ток-шоуРежиссер: Стив Смит, Никки Парсонс, Тоби БэйкерПеревод: Одноголосый профессиональныйСубтитры: русские (hardsub в моментах, где есть жаргон, игра слов, местные шутки)Продолжительность: 132:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35B4E9F60B133657EBEBBBAFD31767B69B3CB0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

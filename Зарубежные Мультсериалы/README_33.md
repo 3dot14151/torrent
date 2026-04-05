@@ -1,3 +1,57 @@
+###  Публикация: 573387   (378102) от 11.11.2012
+
+Bugged (48 серий) / Bugged (2009-2010) SATRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский мультик про собачку, которая охотится за редким жуком, но безрезультатно. Чем больше охотится, тем больше злится.Жанр: мультфильм, фантастика, комедияРежиссер: Franck DemolliereПеревод: Без слов / НемойПродолжительность: 05:05:11 (48x~00:06:35)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDEC32CD1BF235F7996B03AA57F00BA22F7660B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833732   (377929) от 25.10.2014
+
+Огги и тараканы / Oggy et les cafards / Oggy and the Cockroaches (1998-2008) 4xDVD5 (Сезон 3, Серии 39 из 39)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Толстый добродушный обыватель, кот Огги хочет только одного: чтобы никто не мешал ему со вкусом наслаждаться спокойной и размеренной жизнью, с ее невинными радостями — вкусной едой, телевизором, мягким пуфом, на котором так уютно спится…
+
+Но бедного кота одолевают несносные соседи: три вредных таракана (Джой, Марки и Ди-Ди) постоянно отравляют ему жизнь жестокими (   Читать дальше...   )Жанр: Рисованная анимация, Комедия, ДетскийРежиссер: Оливье Жан МариПерсонажи: Коты Огги и Джек, тараканы Джои, Ди Ди, МаркиПеревод: Без слов / НемойСубтитры: ОтсутствуютПродолжительность: 78 серий ~ 00:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A80BCDDAAE7060C7C455330E11B8109ABAAD3FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254084   (377265) от 12.10.2018
 
 София Прекрасная / Sofia the First (2017) WEB-DL [H.264/720p-LQ] (Сезон 4, серий 26 из 26) [UKR, EN]
@@ -6,7 +60,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377265.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375759.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375618.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374763.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373655.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372353.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371961.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369664.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369654.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369529.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369436.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367393.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367380.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367379.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367251.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365906.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365404.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364741.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362371.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362163.jpg" />
 </div>
 
 
@@ -532,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361010.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359798.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359127.jpg" />
 </div>
 
 
@@ -611,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358565.jpg" />
 </div>
 
 
@@ -622,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9213941C72B2F75130A3FDCF8E39578219DA733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326012   (358386) от 02.10.2019
-
-Отмена / Undone (2019) WEB-DLRip (сезон 1, серии 1-8 из 8)  NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет расскажет о девочке, которая после автомобильной аварии получила возможность перемещаться во времени и пространстве. Она пытается использовать свои способности, чтобы спасти давно умершего отца.Производство: США, Amazon Studios, Minnow Mountain, Submarine, Tornante CompanyЖанр: Мультфильм, фэнтези, драмаРежиссер: Хиско ХулсингПеревод: Многоголосый любительский (NewStation)Субтитры: отсутствуютПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F324DA3948AA346C23242B917492928EEF7863E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326009   (358182) от 02.10.2019
-
-Отмена / Undone (2019) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8)  NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет расскажет о девочке, которая после автомобильной аварии получила возможность перемещаться во времени и пространстве. Она пытается использовать свои способности, чтобы спасти давно умершего отца.Производство: США, Amazon Studios, Minnow Mountain, Submarine, Tornante CompanyЖанр: Мультфильм, фэнтези, драмаРежиссер: Хиско ХулсингПеревод: Многоголосый любительский (NewStation)Субтитры: русские, английские, арабские, датские, немецкие, испанские, финские, французские, ивритские, индонезийские, итальянские, корейские, японские, норвежские, голландские, польские, португальские, шведские, тамильские, тайские, турецкие, китайскиеПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D50568F3A990A4D78A40CEF259DD261D6ACCBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

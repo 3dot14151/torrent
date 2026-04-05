@@ -1,3 +1,137 @@
+###  Публикация: 1312496   (532666) от 04.07.2019
+
+Журнал | Denver Colorado USA №2 (лето 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Denver Colorado Luxury Magazine - это первый в Колорадо роскошный журнал, в котором отмечаются знаменитости, красивые места и  модные вещи Денвера.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17957A3DBE2F2F130A50E53817545A4B20BBD994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 698051   (532663) от 07.09.2013
+
+Журнал | Computer Power User (CPU) №10 (октябрь 2013) [PDF] [En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячный популярный журнал, посвящённый компьютерной тематике, сопутствующим товарам, продуктам и услугам, цифровой технике, а также программному обеспечению. В каждом номере журнала представлены обзоры новинок компьютерных комплектующих, программного обеспечения и игр.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5300375B914BE0484D8794096333A8F0A8302837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533536   (532641) от 10.08.2012
+
+Газета | Известия Ефремовского Совета Крестьянских и Рабочих Депутатов № 23 [23 июня 1918] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немало сделала в популяризации идей коммунизма и всего нового, что несла с собой народная Советская власть, периодическая печать. Выход первой большевистской газеты в Ефремове совпал с началом работы Комбедов. До января 1919 года она называлась "Известия ефремовского Совета крестьянских и рабочих депутатов".
+ С 16 января 1919 г. вместо "Известий" стала издаваться новая газета "Коммуна", как совместный орган укома и уисполкома. Редактором ее был известный впоследствии драматург и публицист Анатолий Глебович Глебов (Котельников).
+ Его преемником оказался молодой талантливый журналист Николай Иванович Кочкуров (писатель Артем Веселый, автор повести "Страна родная", "Россия, кровью умытая", "Гуляй, Волга" и др.).
+ Кочкуров приехал в Тулу летом 1919 г. с отрядом самарских коммунистов, направлявшихся на борьбу с Деникиным. Здесь у него открылась старая рана, полученная на Восточном фронте в 1918 году. До окончательной поправки Н. И. Кочкурова направили в Ефремов. (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF43003DEE2F18A92E49C1556DC76A8E84F3B4D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312547   (532576) от 04.07.2019
+
+Журнал | Tatler UK №4 (апрель 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tatler журнал о светской жизни и моде
+это британский литературный и общественный журнал, созданный Ричардом Стилом в 1709 году.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECDD11BF2B82D4FE2D29179E7BA2FEACCF63DA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312586   (532574) от 04.07.2019
+
+Журнал | Дачный спец № 6 (2019) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный журнал для широкого круга читателей.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA03E3926B93F7B50B292996A7617C08FFACD3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312555   (532549) от 04.07.2019
 
 Подшивка журналов | В гостях у грядки (2019) [PDF]
@@ -6,7 +140,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532549.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532522.jpg" />
 </div>
 
 
@@ -58,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532445.jpg" />
 </div>
 
 
@@ -84,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532370.jpg" />
 </div>
 
 
@@ -111,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532363.jpg" />
 </div>
 
 
@@ -138,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532231.jpg" />
 </div>
 
 
@@ -164,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531677.jpg" />
 </div>
 
 
@@ -190,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531676.jpg" />
 </div>
 
 
@@ -216,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531609.jpg" />
 </div>
 
 
@@ -242,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531578.jpg" />
 </div>
 
 
@@ -268,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531564.jpg" />
 </div>
 
 
@@ -294,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531490.jpg" />
 </div>
 
 
@@ -320,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531484.jpg" />
 </div>
 
 
@@ -346,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531441.jpg" />
 </div>
 
 
@@ -372,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531435.jpg" />
 </div>
 
 
@@ -399,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531431.jpg" />
 </div>
 
 
@@ -425,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531413.jpg" />
 </div>
 
 
@@ -451,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531387.jpg" />
 </div>
 
 
@@ -477,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531304.jpg" />
 </div>
 
 
@@ -503,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531300.jpg" />
 </div>
 
 
@@ -529,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531296.jpg" />
 </div>
 
 
@@ -540,136 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D144066CBC4BC251D626B3195B2FAEB067D05EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240067   (531286) от 09.08.2018
-
-Журнал | Авиация и космонавтика: вчера, сегодня, завтра №5 (май 2018) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-популярный журнал - учрежден Военно-воздушными силами России, выходит при поддержке ЦАГИ. Публикует материалы о достижениях и перспективах авиационной и космической техники, опыте освоения и боевого применения отечественной и зарубежной авиационной техники, о предприятиях и авиакомпаниях, репортажи с авиасалонов, обзоры военной и гражданской авиации, статьи (   Читать дальше...   )Жанр: Авиация, космонавтикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659C9DFB1DC0E510551F5ED0FD8B3A86328E93B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240059   (531214) от 09.08.2018
-
-Журнал | Техника - молодежи №9 (2018) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техника молодежи - сенсации науки и техники, открытия, изобретения, патенты. История техники, футурология, фантастика, оружие, боевая техника. Компьютеры, самоделки и моделизм. Смелые проекты и гипотезы. Антология таинственных случаев. Загадки забытых цивилизаций.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F4892F7797C9DCABBD05CF6F1CF89E302DA891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051972   (530999) от 12.09.2016
-
-Журнал | Народный доктор №16 (470) (2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал о здоровье. Основа каждого номера журнала – письма читателей, в которых авторы делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления.Жанр: ЗдоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAC36A3B353B47B101893F3A2A71A622946A27C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051411   (530884) от 12.09.2016
-
-Журнал | Информация и Космос №2 (2016) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530884.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Информация и Космос» - Научно-технический журнал издается с 2001 года и освещает ряд вопросов по следующим направлениям: геоинформатика, связь, космос, безопасность, радиоэлектроника, нанотехнологии, философия. Подписчиками журнала являются как физические лица, так и организации – крупнейшие научные и военные учреждения нашей страны. Журнал является постоянным участником (   Читать дальше...   )Жанр: Научно-технический журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27EB1EBAB501F2A7A11B8E3230F54E9FC064FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051699   (530880) от 12.09.2016
-
-Журнал | Приусадебное хозяйство №9 [+ Приложения] (сентябрь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию животных (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609CA3BA36D45A01A314D603CEF4D56E4A05FC33
 ```
 
 https://mybot314.ru/tekegram_catalog/

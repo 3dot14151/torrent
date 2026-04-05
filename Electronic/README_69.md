@@ -1,3 +1,61 @@
+###  Публикация: 1091980   (941663) от 10.01.2017
+
+VA - Best Of Trancer 2016 (Mixed by Nick Turner) (2017) [FLAC|Lossless|WEB|tracks|image] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etasonic - Desire Of My Heart (8:59)
+02. Kir Tender - Always Alive (George Crusher Remix) (8:08)
+03. Alex Shevchenko & Blue Moon - Ivory Tower (Chronosapien Remix) (7:18)
+04. Syntouch & Alternate High - Hidden Loneliness (6:38)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616A3C525F77841759CF974D48F91754C4CD8C71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091762   (941661) от 10.01.2017
+
+VA - The Snowboarders Syndicate Of Chillout (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dr. Mondial - Missing You (Chillout Extended Edit)  4:19
+02.  Susy Seven - Come With Me  7:00
+03.  Sternenton - Lift Into The Sky  5:34
+04.  Time Away - Mnemba Reef  5:54(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484C65C20CFB4530D067062794CF1A4FC3EBCA27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091740   (941545) от 10.01.2017
 
 2muchachos - Forest Is Not What It Seems (2014) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Leftfield, Glitch>
@@ -6,7 +64,7 @@
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941545.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Planet Chill 2013-01 (Compiled By York) (2013) [MP3|320 кб/с]<Lounge, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941536.jpg" />
 </div>
 
 
@@ -68,7 +126,7 @@ VA - Daily Relaxing Vol.2 (Chill Out & Ambient Music In Perfection) (2017) [MP3|
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941534.jpg" />
 </div>
 
 
@@ -97,7 +155,7 @@ VA - The Lemongrass Remix Sessions (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941314.jpg" />
 </div>
 
 
@@ -126,7 +184,7 @@ BT - _ (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, IDM>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941210.jpg" />
 </div>
 
 
@@ -155,7 +213,7 @@ VA - Music For Sex: Erotic Music 2017 (2017) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941044.jpg" />
 </div>
 
 
@@ -184,7 +242,7 @@ Will Rees - Live @ Trance Room, Uniclub Buenos Aires, Argentina 2020-02-22 [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941025.jpg" />
 </div>
 
 
@@ -213,7 +271,7 @@ Freeze Etch - All Context Vanishes (2020) Voidstar Productions [FLAC|Lossless|WE
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941024.jpg" />
 </div>
 
 
@@ -242,7 +300,7 @@ La Roux - Supervision (2020) [FLAC|Lossless|tracks + .cue] <Synth-pop, Dance-pop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940927.jpg" />
 </div>
 
 
@@ -271,7 +329,7 @@ Boreal Network - Discography 11 Releases (2007-2016) Retronym, Illuminated Paths
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940922.jpg" />
 </div>
 
 
@@ -300,7 +358,7 @@ Panda Eyes - Continue (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dubstep,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940849.jpg" />
 </div>
 
 
@@ -329,7 +387,7 @@ VA - Trance Euphoria Vol.7 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Elec
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940843.jpg" />
 </div>
 
 
@@ -358,7 +416,7 @@ ScAnDroid Experiment's - Ortus et Occasus (2020) авторская раздач
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940733.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ Boris Brejcha - Space Diver (2020) [MP3|~245 Kbps (V0)] <Tech House, Minimal>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940556.jpg" />
 </div>
 
 
@@ -416,7 +474,7 @@ VA - Anthems II 1991-2009 (2008) 3CD Mixed [FLAC|Lossless|tracks + .cue] <House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940333.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940302.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ VA - Music for Pregnant Women: Soft Relaxing Chill for those expecting a baby (2
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940247.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ VA - Nu-Discoteque (Finest Nudisco and House) (2017) [FLAC|Lossless|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940246.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ Jordan F - Timelines (2016) [MP3|320 кб/с] <Dreamwave, Synthwave, 80s>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940163.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ VA - 12"/80s/2 (2005) 3CD Compilation [FLAC|Lossless|tracks + .cue] <New Wave, P
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940156.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ Visage - Demons To Diamonds (2015) [FLAC|Lossless|image + .cue] <Synthpop, New W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940115.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ VA - 12"/80s (2005) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Dub, Synth-po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939978.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ Cubicolor - Hardly A Day, Hardly A Night (2020) [FLAC|Lossless|tracks + .cue] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939609.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ Caribou - Suddenly (2020) [FLAC|Lossless|tracks + .cue] <Experimental, Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939603.jpg" />
 </div>
 
 
@@ -691,61 +749,6 @@ Caribou - Suddenly (2020) [FLAC|Lossless|tracks + .cue] <Experimental, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC15B3277B6A7BA61EF74B067E4FB1522C5F22E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 627798   (939587) от 08.03.2013
-
-Solar Fields - Origin #02 (2013) [Ultimae Records] [FLAC|Lossless]<Psybient, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364158   (939375) от 01.03.2020
-
-Sopor Aeternus & The Ensemble of Shadows - Island of the Dead (2020) [FLAC|Lossless|tracks + .cue] <Darkwave, Neo-Classical, Goth Rock>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minotaur (5:33)
-02. Poison (3:49)
-03. Black Magic Spell (5:45)
-04. DeathHouse (5:14)(   Читать дальше...   )Производство: Apocalyptic Vision – AV-048-BOXЖанр: Darkwave, Neo-Classical, Goth RockПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAA0CEF6AD705A803E023254DA21868555E8D90
 ```
 
 https://mybot314.ru/tekegram_catalog/

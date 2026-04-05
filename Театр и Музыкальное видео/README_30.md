@@ -6,7 +6,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884230.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Coldplay: Призрачные истории / Coldplay: Ghost Stories (2014) H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884207.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Testament - Children Of The Next Level (2020) WEBRip [VP9/2160p-LQ] <Thrash, Hea
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883628.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Hocico - 6 Music Videos (2008-2019) WEBRip [VP9/H.264/2160p/1080p/480p-LQ] <EBM,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883626.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Big Love Show. Грандиозный концерт ко Дню всех Влю
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883262.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) Blu-ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883204.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883182.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Big Love Show 2017. Грандиозный концерт ко Дню всех �
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882997.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Max Raabe & Palast Orchester - Heute Nacht oder Nie (2009) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881764.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881182.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881060.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881048.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Sarah Brightman - Angel (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_881012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881012.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_880802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880802.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880669.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880639.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880537.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880337.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Eternal Delyria - 6 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880231.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880217.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Babooshka (Александр Константинов) - Православны
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880139.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) BDRip [H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879644.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) BDRip [H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877893.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877667.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877550.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877063.jpg" />
 </div>
 
 

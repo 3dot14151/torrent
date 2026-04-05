@@ -1,3 +1,32 @@
+###  Публикация: 1154851   (534969) от 02.08.2017
+
+Мираж - Dance remix (1997) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я Больше Не Прошу
+02. Электричество
+03. Новый Герой
+04. Музыка Нас Связала(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5E88F44B721FD9427BD7FE79AB935D723FBEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240137   (531262) от 09.08.2018
 
 Black Jack - Hot Passion (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Disco>
@@ -6,7 +35,7 @@ Black Jack - Hot Passion (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531262.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525794.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525163.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525128.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525127.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Smokie - Midnight Cafe (1976) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Soft Rock, Pop R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522479.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522404.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Genesis - Abacab (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518478.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Eric Clapton - Reptile (2001) [FLAC 2.0|88.2/24|tracks|DVD-Audio] <Blues, Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518119.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Black Sabbath - Russian Vinyl Collection/Блэк Сэбэт - Русская к
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516602.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Luciano Pavarotti - The Essential Pavarotti (1991) [FLAC 2.0 24/192|image+.cue (
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516201.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Roger Hodgson - Hai Hai (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514025.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Vangelis - Spiral (1977) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<New Age>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512811.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512612.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508167.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Francoise Hardy - Star (1977) [FLAC 2.0 24/96 | image+.cue|(Vinyl Rip)]<Chanson>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508163.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Electric Light Orchestra - Time (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507968.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Antonio Vivaldi - The Four Seasons (1982) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507957.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ VA - Дискоклуб 4Б: Популярные русские песни и �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507063.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506070.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Francoise Hardy - Le Double Disque D'or De Francoise Hardy (1977) [FLAC 2.0 24/9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505286.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Megadeth - Countdown To Extinction (1992) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505200.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505126.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503192.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Kiss - Dynasty (1979) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Glam Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500208.jpg" />
 </div>
 
 
@@ -715,32 +744,6 @@ A4. Dirty Livin' (4:19)(   Читать дальше...   )Производст�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD6B8E15EEBBB4778040C7F6550D6E4867E9DF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235001   (498480) от 11.09.2010
-
-Pink Floyd - The Wall. 1979. (LPCM, 96 kHz, 24 bit, stereo) [Audio-DVD from Vinyl Rip]
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот Audio-DVD (музыкальный DVD-Video) диск был сделан мною на основе материала, предоставленного уважаемым Dr. Robert. Этот человек известен своим тщательнейшим отношением к звуку, да и техника, использованная им при риппинге, заслуживает глубочайшего уважения. Формат DVD-Video был выбран мною для авторинга из-за несомненных удобств, предоставляемых им: возможности (   Читать дальше...   )Жанр: Rock, какого не было
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1381932   (822770) от 09.05.2020
+
+VA - 2020 Disco Party (2020) [FLAC|Lossless|WEB-DL|tracks] <Jackin' House, House, Nu-Disco, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audio Jacker - Party Time Again (Original Mix) (5:39)
+02. Disko Junkie - This Disko Feelin' (Original Mix) (5:20)
+03. Discotron - Only Foolin' Yourself (Original Mix) (5:26)
+04. Boogie Freaks - Everybody Jumpin' (Original Mix) (6:25)(   Читать дальше...   )Жанр: Jackin' House, House, Nu-Disco, DiscoПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93BC13B0005811D28D1C31A8617001D8F313F6E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382076   (822663) от 09.05.2020
+
+VA - F....U Corona (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Afro House, Progressive House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exei - Ornament (Original Mix) (6:27)
+02. Alessa Khin - Solo Moon (Extended Mix) (5:49)
+03. Sunchain - Santiago (Kay Aka Khalil Touihri, Karben Remix) (7:00)
+04. Lunaar - Sinda (Original Mix) (7:04)(   Читать дальше...   )Жанр: Deep House, Afro House, Progressive House, TechnoПродолжительность: 01:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C541F81D804AFCDF22E1813CD039D49E7FD2A714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381981   (822661) от 09.05.2020
 
 VA - My Garden Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -6,7 +64,7 @@ VA - My Garden Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822661.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Progressive & Psy Trance Pieces, Vol. 23 (2020) [FLAC|Lossless|WEB-DL|track
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822660.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Early Morning Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822657.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ X-Men - Atmosfera (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822650.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Transire Recordings Best Of 2017 (Mixed by Lightform) (2017) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822554.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Focus On Nicholas Van Orton (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822552.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Mi Chan - In The Night (2017) [MP3|320 Kbps] <Trance,Progressive Trance,Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822547.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Ori Uplift - Uplifting Only 255 (Tune of the Year Vote - Top 25 Countdown) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822425.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Inner Symphony Gold 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822423.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Erotica (2000) [FLAC|Lossless|WEB-DL|tracks] <House, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822419.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ bvdub - Heartless (2017) [FLAC|Lossless|tracks + .cue] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822417.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Karl Maddison - On the Road to Tibet (2006) [FLAC|Lossless|image + .cue] <New Ag
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822403.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Glanko - Discography 10 Releases (2012-2020) Halbsicht Records [FLAC|Lossless|tr
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822375.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Single Cell Orchestra - Discography 10 Releases (1995-2020) Asphodel, Cyberset, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822360.jpg" />
 </div>
 
 
@@ -408,7 +466,7 @@ VA - Erotica Vol. 3 (Most Erotic Smooth Jazz And Chillout Tunes) (2018) [MP3|320
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822309.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ Cubering - Discography 14 Releases (2012-2020) Microcosmos, Uxmal Records, Minds
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822267.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ Ludovico Einaudi - 12 Songs From Home (2020) [FLAC 2.0|96.0/24|tracks|WEB-DL] <M
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822190.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ VA - The Big Ones Vol.8 (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821703.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ The New Deal - Live: Portland Me 12.17.99 (2000) [FLAC|Lossless|tracks + .cue] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821693.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ VA - Re:Recommended - Progressive House Edition Vol.7 (2016) [MP3|320 кб/с] <
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821511.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ The Motels & Martha Davis - 6 Albums (1979-1987) [MP3|320 кб/с] <New Wave, Po
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821408.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ VA - Beats For Life Vol 1 (20 House Machines) (2017) [MP3|320 Kbps] <Funky, Club
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821174.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ Booka Shade - Dear Future Self (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820887.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ VA - Silent Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820875.jpg" />
 </div>
 
 
@@ -683,64 +741,6 @@ VA - Silent Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BBA21778DF28365674597BF7548D0E92E902196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116946   (820809) от 21.03.2017
-
-VA - Serial Chillers (2017) [MP3|320 Kbps] <PsyChill, Ambient, Downtempo, Psychedelic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asura - Eternal Sunshine (ambient version) (6:54)
- 02. Kliment - Jaia Flower (7:38)
- 03. Suduaya - Nomad (7:36)
- 04. E-Mantra - Daydream (6:27)(   Читать дальше...   )Жанр: PsyChill, Ambient, Downtempo, PsychedelicПродолжительность: 07:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B325B262D56383AF3F4ACE8A2F9DF57C5853E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116935   (820665) от 21.03.2017
-
-Deadmau5 - Stuff I Used To Do (2017) [FLAC|Lossless|WEB|tracks] <Electro House, Glitch, IDM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Messages from nowhere (5:00)
-02. Digitol (3:55)
-03. Screen door (4:38)
-04. Squid (1:03)(   Читать дальше...   )Жанр: Electro House, Glitch, IDMПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59F4F487AE1DB8DA8BBEA13A22CB3EEF36787D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

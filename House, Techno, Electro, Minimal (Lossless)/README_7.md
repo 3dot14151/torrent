@@ -1,3 +1,32 @@
+###  Публикация: 1349468   (1004492) от 01.01.2020
+
+VA - Best of Winter 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wavekiki – Loosing Gravity | Hraach Remix (07:03)
+02. GESPONA – Dandarah | Silar Remix (07:03)
+03. Greenage – Esperanza (07:02)
+04. Wassu – Devi | Erdi Irmak Remix (06:28)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F9E03CE419349831A2D1B5524BE48CA0862259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487163   (1004147) от 03.08.2021
 
 Nils Hoffmann - Once in a Blue Moon (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
@@ -6,7 +35,7 @@ Nils Hoffmann - Once in a Blue Moon (Remixes) (2021) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004147.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Disco Deejays - Stayin' Alive / Night Fever (2006) [FLAC|Lossless|image + .cue] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004109.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Midub - The Story Dub (2017) [FLAC|Lossless|tracks] <Dub Techno, Deep Techno, Am
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003882.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ Troekurovo Recordings | Toki Fuko, Vadim Basov, Evgeny Vorontsov - Discography 3
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003625.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ Doyeq - Discography 43 Releases (2009-2021) [FLAC|Lossless|WEB-DL|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003220.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Fidem Community - Discography 20 Singles (2020-2021) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003071.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ Overmono - fabric presents Overmono | Unmixed + DJ Mix (2021) Fabric Worldwide [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003052.jpg" />
 </div>
 
 
@@ -205,7 +234,7 @@ DJ Eric Foster - Night Light (2004) [FLAC|Lossless|image + .cue] <House, Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003023.jpg" />
 </div>
 
 
@@ -234,7 +263,7 @@ Dinka - A Date With Dinka (2014) 2CD, DJ Mix, Compilation [FLAC|Lossless|tracks 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003012.jpg" />
 </div>
 
 
@@ -263,7 +292,7 @@ LTN - The Path Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002856.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ Saive - Closer (2021) Click Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002826.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ VA - Poker Flat Recordings: Best of 2019 (2019) Compilation [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002761.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ Faithless - All Blessed (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002284.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ TheFatRat - Discography (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, Glit
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002272.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ Blank & Jones - #WhatWeDoAtNight 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002170.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Anders Ilar - Discography 29 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001981.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ Lane 8 - Brightest Lights (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001952.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ VA - Ushuaia Ibiza The Album: 5th Anniversary (2015) 2CD [FLAC|Lossless|tracks +
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001684.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Me
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001359.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ Dominik Eulberg - Mannigfaltig (2019) [FLAC|Lossless|tracks + .cue] <Techno, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001086.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ VA - Parquet Goodies (2019) - 2020 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000890.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ Brooklyn Bounce - 9 Альбомов (1997 - 2004) [FLAC|Lossless]<Hard Trance, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000715.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ VA - Dance Decades - A Compete History Of Dance 1989-2004 (2004) [FLAC|Lossless]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999964.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ VA - Zirkus Zirkus: Elektronische Tanzmusik Vol.1 (2013) [FLAC|Lossless]<Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999668.jpg" />
 </div>
 
 
@@ -691,7 +720,7 @@ Savant - Alchemist (2012) [FLAC|Lossless]<Dubstep, Electro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997503.jpg" />
 </div>
 
 
@@ -707,33 +736,6 @@ Savant - Alchemist (2012) [FLAC|Lossless]<Dubstep, Electro House>
 8.  Witchcraft
 9.  Redemption
 10.  Konami Kode (feat. Donny Goines)(   Читать дальше...   )Жанр: Dubstep, Electro HouseПродолжительность: 01:42:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603052   (997154) от 14.01.2013
-
-Will.I.Am & Britney Spears - Scream & Shout (CD Single) (2013) [FLAC|Lossless]<House, Electro, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scream & Shout (Dirty Main)
-02. Scream & Shout (Clean Edit)Жанр: House, Electro, PopПродолжительность: 00:08:56
 
 ## Скачать торент
 ```bash

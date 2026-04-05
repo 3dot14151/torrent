@@ -1,3 +1,159 @@
+###  Публикация: 1815326   (4699) от 02.09.2025
+
+Меч / Ken (1964) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий основан на произведении Кэн («Меч») Юкио Мисимы... 60-е годы. Дзиро Кокубу, капитан университетского клуба кэн-до, каждый день и час жизни посвящает оттачиванию своего мастерства в фехтовании. Меч для него — символ веры, чистоты и целеустремлённости. Именно из-за его стремления к идеальной «жизни ради клинка» окружающие начинают считать его фетишистом. Измена (   Читать дальше...   )Производство: Япония / Daiei StudiosЖанр: драмаРежиссер: Кэндзи МисумиАктеры: Райдзо Итикава, Юсукэ Кавадзу, Хисая Морисигэ, Акио Хасегава, Норико Сэнгоку, Кэйдзю Кобаяси, Юка Конно, Ёсио Инаба, Риеко СумиПеревод: любительский двухголосый (neko и Tofsla)Язык озвучки: русский, японскийСубтитры: русские (перевод Kikkamon, редактирование neznayka , Yule, lil-kodomo), английскиеПродолжительность: 01:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABDCC0BC448088E26D61350A5ADF4DAD08D083E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816730   (4149) от 06.09.2025
+
+Ответственная гражданка / Yogamhan simin / Brave Citizen / Yonggamhan simin (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со Щи-мин, чемпионка в нескольких видах единоборств, устроилась временным учителем и мечтает получить постоянную должность. Вскоре она узнаёт, что сынок богатых и влиятельных родителей держит в страхе всю школу, издевается над учениками и ни в грош не ставит учителей. Коллеги советуют помалкивать, и после безуспешных попыток решить вопрос мирным путём женщина сама (   Читать дальше...   )Производство: Южная Корея / MindMark, Studio N, Vol Media, WavveЖанр: драма, боевик, комедияРежиссер: Пак Чин-пхё / Park Jin-pyoАктеры: Щин Хе-сон, Ли Джун-ён, Пак Чон-у, Пак Хёк-квон, Чха Чхон-хва, Ли Чхан-хён, Пэ Хён-джун, Ли Джун-ок, Чха У-мин, Кан Ан-наПеревод: Дублированный (DEEP)Язык озвучки: Русский, корейскийСубтитры: русские (Forced, Full), английские (Full)Продолжительность: 01:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F3249832AC54E5A2049E09DAE7C30BE6738AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816931   (3921) от 07.09.2025
+
+Ответственная гражданка / Yogamhan simin / Brave Citizen / Yonggamhan simin (2023) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со Щи-мин, чемпионка в нескольких видах единоборств, устроилась временным учителем и мечтает получить постоянную должность. Вскоре она узнаёт, что сынок богатых и влиятельных родителей держит в страхе всю школу, издевается над учениками и ни в грош не ставит учителей. Коллеги советуют помалкивать, и после безуспешных попыток решить вопрос мирным путём женщина сама (   Читать дальше...   )Производство: Южная Корея / MindMark, Studio N, Vol Media, WavveЖанр: драма, боевик, комедияРежиссер: Пак Чин-пхё / Park Jin-pyoАктеры: Щин Хе-сон, Ли Джун-ён, Пак Чон-у, Пак Хёк-квон, Чха Чхон-хва, Ли Чхан-хён, Пэ Хён-джун, Ли Джун-ок, Чха У-мин, Кан Ан-наПеревод: Дублированный (DEEP)Язык озвучки: Русский, корейскийСубтитры: русские (Forced, Full), английскиеПродолжительность: 01:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE0A2CEC2985082925D4E575669381BBE297E6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756155   (3904) от 07.09.2025
+
+Всегда: Закат на Третьей авеню 2 / Always zoku san-chome no yuhi (2007) BDRip [AV1/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3904.jpg" />
+</div>
+
+
+###  Подробнее
+
+1959 год. Токио. Задолго до небоскрёбов и неоновых огней. На Третьей авеню живёт пестрая публика: писатель-неудачник, торгующий сладостями и мечтающий стать классиком; вспыльчивый владелец автомастерской, который верит, что однажды будет президентом автомобильной компании; очаровательная владелица местной забегаловки, пытающаяся забыть свое прошлое; старушка из табачной (   Читать дальше...   )Производство: Япония / DENTSU Music And Entertainment, Imagica, Nippon Television Network (NTV)Жанр: драма, комедия, семейныйРежиссер: Такаси ЯмадзакиАктеры: Маки Хорикита, Хидэтака Ёсиока, Синъити Цуцуми, Коюки, Хироко Якусимару, Кадзуки Кошимизу, Кента Суга, Масая Такахаси, Кага Мотимару, Тору МасуокаПеревод: Одноголосый любительский (D.I.M.)Язык озвучки: Русский, японскийСубтитры: Русские (Akuli), английскиеПродолжительность: 02:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41258E14175D1C619401D45EBF8EAEA221F6548E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816977   (3895) от 07.09.2025
+
+Всегда: Закат на Третьей авеню 3 / Always san-chome no yuhi '64 (2012) BDRip [AV1/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3895.jpg" />
+</div>
+
+
+###  Подробнее
+
+1964 год. Токио готовится к проведению Олимпийских игр. Город охвачен строительной лихорадкой и радостным возбуждением. На Третьей улице события разворачиваются не столь масштабные, но не менее красочные и увлекательные. Писатель Рюноскэ Тягава женился на Хироми, и теперь они оба воспитывают приемного сына Дзюнноскэ, и, к тому же, ждут прибавления в семействе. Вот (   Читать дальше...   )Производство: Япония / Chukyo TV Broadcasting Company, Dentsu, Fukuoka Broadcasting SystemЖанр: драмаРежиссер: Такаси ЯмадзакиАктеры: Хидэтака Ёсиока, Синъити Цуцуми, Коюки, Маки Хорикита, Масако Мотаи, Томокадзу Миура, Хироко Якусимару, Ёсукэ Асари, Мицуру Хирата, Мотоки КобаясиПеревод: Одноголосый любительский (D.I.M.)Язык озвучки: РусскийСубтитры: Русский, АнглийскийПродолжительность: 02:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC13BC9A8B6ABAAF1487FE6D7A53F089D745C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816929   (3892) от 07.09.2025
+
+Ответственная гражданка / Yogamhan simin / Brave Citizen / Yonggamhan simin (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со Щи-мин, чемпионка в нескольких видах единоборств, устроилась временным учителем и мечтает получить постоянную должность. Вскоре она узнаёт, что сынок богатых и влиятельных родителей держит в страхе всю школу, издевается над учениками и ни в грош не ставит учителей. Коллеги советуют помалкивать, и после безуспешных попыток решить вопрос мирным путём женщина сама (   Читать дальше...   )Производство: Южная Корея / MindMark, Studio N, Vol Media, WavveЖанр: драма, боевик, комедияРежиссер: Пак Чин-пхё / Park Jin-pyoАктеры: Щин Хе-сон, Ли Джун-ён, Пак Чон-у, Пак Хёк-квон, Чха Чхон-хва, Ли Чхан-хён, Пэ Хён-джун, Ли Джун-ок, Чха У-мин, Кан Ан-наПеревод: Дублированный (DEEP)Язык озвучки: Русский, корейскийСубтитры: русские (Forced, Full), английскиеПродолжительность: 01:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428AEE5AF67E71FFECCAEC5DEA90C7751EB79293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817924   (2996) от 13.09.2025
 
 Чистый японец / Истинный японец / Pure Japanese (2022) BDRip [H.264/720p] [JP / RU Sub]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2996.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2537.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2188.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2015.jpg" />
 </div>
 
 
@@ -113,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1887.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1529.jpg" />
 </div>
 
 
@@ -166,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1008.jpg" />
 </div>
 
 
@@ -192,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_885.jpg" />
 </div>
 
 
@@ -219,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_861.jpg" />
 </div>
 
 
@@ -245,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_785.jpg" />
 </div>
 
 
@@ -271,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_610.jpg" />
 </div>
 
 
@@ -297,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_592.jpg" />
 </div>
 
 
@@ -323,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_569.jpg" />
 </div>
 
 
@@ -349,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89.jpg" />
 </div>
 
 

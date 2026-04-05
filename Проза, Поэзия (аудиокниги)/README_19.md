@@ -1,3 +1,29 @@
+###  Публикация: 1106165   (873526) от 19.02.2017
+
+Салман Рушди | Два года, восемь месяцев и двадцать восемь ночей (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это и сказка, и притча, и сатира. История о недалеком будущем, о так называемых небывалостях, которые начинают происходить в Нью-Йорке и окрестностях, о любви джиннии к обычному мужчине, о их потомстве, оставшемся на Земле, о войне между темными и светлыми силами, которая длилась тысячу и один день. Салман Рушди состязается в умении рассказывать истории с Шахерезадой, (   Читать дальше...   )Жанр: Магический реализм, Романы-притчи, Сатира, Философская прозаПродолжительность: 12:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACCF2048FFB2D38DC6E58349B06B145CEF6391C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106136   (873390) от 19.02.2017
 
 Олег Рой | Белый квадрат. Лепесток сакуры (2017) [MP3]
@@ -6,7 +32,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873390.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871568.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871184.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870376.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869940.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869686.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869086.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868580.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868236.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868126.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867271.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866797.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866688.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866583.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866354.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864904.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864263.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864005.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863998.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863930.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863072.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862955.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862860.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862850.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862845.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2955E4AF23C6E220062753ADE860390AED47179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999574   (862842) от 23.03.2016
-
-Джон Грин | Виноваты звезды (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подростки, страдающие от тяжелой болезни, не собираются сдаваться. Они по-прежнему остаются подростками – ядовитыми, неугомонными, взрывными, бунтующими, равно готовыми и к ненависти, и к любви. Хейзел и Огастус бросают вызов судьбе. Они влюблены друг в друга, их терзает не столько нависшая над ними тень смерти, сколько обычная ревность, злость и непонимание. Они (   Читать дальше...   )Жанр: РоманПродолжительность: 07:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4DDD9786E16930C1DD47E68B60F63F78091E9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 576697   (362861) от 17.11.2012
+
+Watchmaker / Тайна маятника (2002) [Ru] (1.0) License
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любите ли Вы тайные расследования и сопряженные с опасностью проникновения в «логово преступников»? Тогда Вам не составит особого труда раскрыть тайну гигантского маятника, спрятанного где-то в Австрии, в старинном замке. Правда, в настоящее время замок полностью обновлен, перестроен под гостиницу и поселиться в нем может каждый.Тип издания: LicenseРазработчик: TrecisionЖанр: Adventure, Detective, MysteryЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE20D932078AFA5E75BAF30CE21D7C34291025C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177462   (362437) от 25.10.2017
+
+Yomawari: Midnight Shadows (2017) [En/Jp] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темнота не место, чтобы быть одной. После красивой демонстрации вечернего летнего фейерверка две молодые девушки возвращаются домой. Однако ночной незнакомец отделяет их друг от друга, и теперь они обе должны выдержать опустившуюся на город ночь, заполненную страхом, найти друг друга и пережить темноту.Тип издания: LicenseРазработчик: Nippon Ichi Software, Inc.Жанр: Adventure, Strategy, 2DЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0014347F4D68FF23980B631594421A6CF85CE6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836800   (360529) от 01.11.2014
+
+The Longest Journey Dilogy (2000) [Ru/En] Repack R.G. Catalyst
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушке снятся драконы и говорящие деревья - к чему бы это… Обычная влюблённость? Начало шизофрении? Или она - очередная Избранная, которой нужно спасти мир? Эйприл Райан (18 лет, художница, не замужем) – главная героиня этого приключения. Ей не хочется спасать мир, но придётся. Причём сразу два: сказочный мир магии, и пахнущий бензином мир технологий. Бесконечное путешествие сведёт её со злыми волшебниками, психованными хакерами, тысячелетними жрецами, одним на редкость болтливым вороном и прочими колоритными личностями. Кто из них друг, кто – враг, а кто - лишь игра воображения, покажет финал.(   Читать дальше...   )Тип издания: RepackРазработчик: FuncomЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C5C40AC03AD6E8EAB6EA933655612D4218A242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177828   (360260) от 26.10.2017
 
 Reah: Face the Unknown (1999) [Multi] (1.0) License GOG
@@ -6,7 +84,7 @@ Reah: Face the Unknown (1999) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360260.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ GRIM - Mystery of Wasules (2017) [En/Tur] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359996.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359995.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Shiver (2017) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359987.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359719.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Silver Case (2016) [En/Jp] (1.01) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358846.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Fall: Mutant City [Ru/Ge] (RePack) 2011 | R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356990.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Cursed Mountain / Проклятая гора [Ru/En] (RePack) 2010 | R.G. Ме�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356989.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Reigns: Game of Thrones (2018) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355826.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Atlantis: The Lost Tales (1997) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354097.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Lifeless Planet (2014) [Ru/Multi] (1.5) License GOG [Premier Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353799.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u8) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353568.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Return of the Obra Dinn (2018) [Ru/Multi] (1.0.86) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353566.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ The Signifier (2020) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352672.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ Syberia. Cold Edition / Сибирь. Специальное издание (С�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350545.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Rayon Riddles  Rise of the Goblin King (2016) [En/Ge] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349370.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Pineview Drive (2014) [Ru/Multi] (2.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349240.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Remothered: Broken Porcelain (2020) [Multi] (0.14.43) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348543.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Schizm: Mysterious Journey / Щизм (2001) [Ru/Multi] (b744) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348497.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ The Walking Dead: The Telltale Definitive Series (2019) [Ru/En] (1.0) Repack Oth
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347298.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347248.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347081.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ Firewatch (2016) [Ru/Multi] (1.04) Repack R.G. Revenants
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346868.jpg" />
 </div>
 
 
@@ -602,85 +680,6 @@ Firewatch – игра о взрослых людях, ведущих взрос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:865F7404E7D56207BBA4CF167BDB412711EFFF42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073200   (346761) от 15.11.2016
-
-Silence: The Whispered World 2 (2016) [Ru/Multi] (1.0.19854) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Началась война. Во время авианалета 16-летний Ноа со своей младшей сестрой Рени укрылись в бункере. Здесь они нашли не только спасение от бомб, но и мир-перекресток между жизнью и смертью: Безмолвный мир. Сестра Ноа заблудилась, и мальчику пришлось отправиться на ее поиски в этой небезопасной, как оказалось, идиллии.
-В Безмолвном мире свои войны и страдания. Зловещие (   Читать дальше...   )Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: Adventure, IndieЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3001D5078D1147EDC8DD5E1CE888AE17374025A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179763   (346462) от 01.11.2017
-
-Cognition: An Erica Reed Thriller (2013) [Multi] (2.1.0.9/dlc) License GOG [GOTY Edition] [Episode 1-4]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cognition - это "эпизодический криминальный триллер". Девелоперы разбили игру на четыре эпизода. Игроку предстоит помочь агенту ФБР Эрике Рид. Много лет назад она потеряла брата из-за некоего серийного убийцы, которого так и не поймали. Стресс пробудил в героине странные способности, позволяющие ей видеть прошлое любого предмета, к которому она прикасается. (   Читать дальше...   )Тип издания: LicenseРазработчик: Phoenix Online StudiosЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Итальянский, НемецкийЯзык интерфейса: Английский, Итальянский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D62E855BD4891509DF23831BEAF00F79AFE3FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329301   (345113) от 08.10.2019
-
-The Wild Eight (2019) [Ru/Multi] (1.0.4) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Падение самолета — лишь начало. Восемь выживших остались брошенными посреди суровых лесов Аляски, полных секретов и тайн. The Wild Eight — это суровое приключение в случайно генерируемом мире, полном опасности и испытаний. Добывай ресурсы для выживания и исследуй локации в поисках спасения бок о бок с другими игроками. Или ты попробуешь выбраться отсюда в одиночку?Тип издания: LicenseРазработчик: HypeTrain DigitalЖанр: Simulator (Survival, Top-Down), RPG, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737DDAABBFCC90B968AF753F57B6DC03738F23BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

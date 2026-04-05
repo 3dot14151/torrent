@@ -1,3 +1,56 @@
+###  Публикация: 920349   (580181) от 22.07.2015
+
+Юрий Дмитриев | Путешествие на всю жизнь (1977) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580181.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1975 году в издательстве вышла книга «Солнцеворот», которая рассказывала читателю о растениях. Новая книга писателя как бы продолжение начатого разговора об охране природы. Приглашая читателя совершить путешествие в лес, в поле, на луг, берег водоема, автор поведет разговор о животных. Пользуясь книгой, пионерский актив, учитель биологии смогут организовать работу (   Читать дальше...   )Жанр: Природа и животныеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A8DC5693D30D5DB8665FD91B69C33888313EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302619   (580173) от 16.05.2019
+
+Подшивка журналов | Юный читатель [17 журналов] (1906) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+«Юный читатель» - иллюстрированный литературный и научно-популярный журнал для детей старшего возраста. Журнал «Юный читатель» выходит два раза в месяц: 1-го числа каждого месяца книжкой, заключающей в себе одно беллетристическое или научно-популярное произведение, и 15-го – книжкой такого же формата, но с разнообразным содержанием (рассказы, очерки, стихотворения, (   Читать дальше...   )Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0062C141074246F0335BE14F4847AC3C0617E2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554025   (580081) от 28.05.2022
 
 Штефани Герстенбергер | Фабрика чудес. Похититель волшебного дара. Книга 2 (2022) [FB2, EPUB, MOBI]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580081.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579404.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579254.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579081.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578944.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578865.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578859.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578788.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578661.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578657.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578653.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578635.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578629.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578585.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578448.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578440.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578320.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578272.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578205.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578183.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578086.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577981.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577743.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577712.jpg" />
 </div>
 
 
@@ -634,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B706A814AB153C1DBAB61E1A344CEB5541815348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303020   (577708) от 18.05.2019
-
-А.Н. Ядловский, Т.С. Шабан | Лучшие задачи на логику (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577708.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге представлены лучшие задачи, стимулирующие развитие логики. Задания на разрезание и перестановку, «магические» квадраты и пространственные загадки, упражнения на внимательность и сообразительность, головоломки из спичек и вопросы на смекалку – все это и много других задачек, способствующих развитию математического, объемно-пространственного, интуитивного (   Читать дальше...   )Жанр: Задачи, головоломкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A832B3F37070523C0AE9C94B6F89D1ABFF5F9DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150911   (577566) от 16.07.2017
-
-Б.В. Рыкунин | Юный конструктор (1957) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577566.jpg" />
-</div>
-
-
-###  Подробнее
-
-..Если юный техник хорошо владеет различными инструментами, знает свойство некоторых материалов, любит мастерить, он может стать юным конструктором. Но всё равно он должен заниматься моделированием, учиться конструировать сложные модели. Он должен внимательно изучать механизмы различных машин, приборов, аппаратов и установок, читать литературу по различным вопросам (   Читать дальше...   )Жанр: Самоделки, сделай самФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5878FC2645E2B692D2787B6B93633B89F45114
 ```
 
 https://mybot314.ru/tekegram_catalog/

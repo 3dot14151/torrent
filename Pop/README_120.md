@@ -1,177 +1,3 @@
-###  Публикация: 1026181   (706040) от 14.06.2016
-
-Roxette - Sleeping In My Car (1994) Single [FLAC|Lossless|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleeping In My Car    03:34
-02. The Look (Unplugged)    05:12
-03. Sleeping In My Car (The Stockholm Demo Version)    03:14
-04. Almost Unreal    03:56Жанр: Pop RockПродолжительность: 00:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4DA6396269369761E5D871DA31B7027CF67E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220327   (705996) от 18.04.2018
-
-My Indigo - My Indigo (2018) [MP3|320 Kbps] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Indigo
-02. Crash and Burn
-03. Out of the Darkness
-04. Indian Summer(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00811D942443650C6CEEBFFAC51C01BD8D507176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026188   (705876) от 14.06.2016
-
-Шоколад - Первый альбом (2004) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Для тебя сегодня я пою
-02. Забудь, прости, прощай
-03. Натали
-04. Елена(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9430F1C8809DBB7D4A1DADD2CE9DF1676FE4909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401428   (705484) от 12.08.2020
-
-Silent Circle - My Star (2020) [FLAC|Lossless|image + .cue] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch In The Night (05:18)
-02. Stop The Rain In The Night (03:34)
-03. Love Is Just A Word (03:18)
-04. Time For Love (Super Action Mix) (05:20)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7ADA778A148CAAAFF0B501445F2783F32DC7DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287205   (705358) от 06.03.2019
-
-VA - Disco Feeling (2019) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kc & The Sunshine Band - Keep It Comin' Love (4:30)
-02. Montana - I Love Music (4:35)
-03. The Braxtons - The Boss (5:57)
-04. Randy Crawford - Wishing On A Star (4:52)(   Читать дальше...   )Жанр: DiscoПродолжительность: 2:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B10CA53D45AF9ADCEEA4DE6C59F2D139A296308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131967   (705230) от 07.05.2017
-
-Daniel Grau - El Leon Bailarin (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Leon Bailarin (4:41)
-02. Con El Cielo En Tus Ojos (3:32)
-03. Apartate (6:40)
-04. Corre Caminos (4:32)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282A1C0F078C797753DD8999B861BC554FD27D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132016   (705228) от 07.05.2017
 
 The Raes - Dancing Up A Storm (1979) LP [MP3|320 Kbps] <Funk-Soul, Disco>
@@ -180,7 +6,7 @@ The Raes - Dancing Up A Storm (1979) LP [MP3|320 Kbps] <Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705228.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ VA - Love 101 - 101 Ways To Say I Love You (2009) Box Set, 6 CD, Compilation [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705207.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ Estimado - Here I Am (2016) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704938.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ VA - Greatest Classic Hits (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704854.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ Pavel Panchenko - To the Stars (2017) [MP3|320 Kbps] <Disco, Hi-NRG, Nu Disco, S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704506.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ Geoff Love And His Orchestra - Star Wars And Other Space Themes / Close Encounte
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704413.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ The Difference - High Fly (1979) LP [MP3|320 Kbps] <Funk, Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703932.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ Electronic Butterflies - Skylab (1977) LP [MP3|320 Kbps] <Electronic, Disco, Exp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703692.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Sugar & Candy - Come To The Party (1979) [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703626.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ Dido - Still on My Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703347.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ Mario Renzi - Un Violino In Discoteca (1978) LP [MP3|320 Kbps] <Electronic, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703326.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ Mylene Farmer - Dance Remixes (1992) Compilation, Reissue, 2000, Polydor [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703241.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ VA - ZYX Italo Disco New Generation Vol. 14 (2019) 2CD, Compilation [MP3|320 Kbp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703226.jpg" />
 </div>
 
 
@@ -557,7 +383,7 @@ PLS PLS - LP LP (2013) [MP3|256 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703190.jpg" />
 </div>
 
 
@@ -586,7 +412,7 @@ PLS PLS - Jet Black (2017) [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, Synt
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703060.jpg" />
 </div>
 
 
@@ -615,7 +441,7 @@ Julio Iglesias - Mexico & Amigos (2017) [FLAC|Lossless|tracks + .cue] <Pop, Lati
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702728.jpg" />
 </div>
 
 
@@ -644,7 +470,7 @@ Katy Perry - Chained to the Rhythm (2017) Single [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702659.jpg" />
 </div>
 
 
@@ -671,7 +497,7 @@ Alyzee - My Life (2017) [MP3|320 Kbps] <Alternative Pop, Ethnic Electronic Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702654.jpg" />
 </div>
 
 
@@ -700,7 +526,7 @@ Dennis Coffey - Back Home (1977) LP [MP3|320 Kbps] <Funk, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702456.jpg" />
 </div>
 
 
@@ -729,7 +555,7 @@ Thomas Anders - Lunatic (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702163.jpg" />
 </div>
 
 
@@ -743,6 +569,180 @@ Thomas Anders - Lunatic (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28FDE0AD8B9BC8649DEF75D165F3D73892E93127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026787   (701943) от 16.06.2016
+
+Scotch - Pictures Of Old Days (1987) Deluxe Edition, 2016, Deluxe CD Music [FLAC|Lossless|tracks] <Italo-Disco, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plus Plus (5:01)
+02. Rhythm Of Love (3:19)
+03. Pictures (5:23)
+04. Over The Rainbow (3:53)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DiscoПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4C889A15A5EF68B7399C4743DC7356DC1E8A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287715   (701868) от 08.03.2019
+
+Ахра - Карие глаза (2006) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карие глаза
+02. Моя любимая
+03. Небо и луна ( New Mix )
+04. Будь моей(   Читать дальше...   )Жанр: РорПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE6989C49C59AC9F5C5F31FADCD85443ABD6DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287642   (701760) от 08.03.2019
+
+VA - At Midnight! Disco Club Classics (2019) [MP3|320 Kbps] <Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T-Connection - At Midnight (5:07)
+02. Chic - Everybody Dance (12" Mix) (8:30)
+03. The Spinners - Are You Ready For Love (Single Version) (3:44)
+04. Norma Jean Wright - Saturday (6:06)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA4A48EDE47C4800A3AAB3488444FA1A0CFB9A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287717   (701759) от 08.03.2019
+
+Света - Сердце моё (2009) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не говори
+02. Сердце моё
+03. Рига
+04. Тайна(   Читать дальше...   )Жанр: РорПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5F0295DA43781E07ADD63C1B3EBC2272C8074E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401692   (701724) от 14.08.2020
+
+VA - Romantic Pop Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ellie Goulding - How Long Will I Love You (02:28)
+02. Justin Bieber - Purpose (03:30)
+03. Lewis Capaldi - Someone You Loved (03:04)
+04. Shawn Mendes - Mercy (Acoustic Guitar) (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D267E3C7C6610B11C17E3DF959C8EDEF0AF8B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026646   (701723) от 16.06.2016
+
+Евгений Осин - Разлука (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая метель
+02. Любимая
+03. На тропинке
+04. Рыбацкая песня(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6DF6A3F148F324085FFC19254581EC1F5F8571
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,137 +1,3 @@
-###  Публикация: 968180   (149215) от 26.12.2015
-
-В.А. Шахнов (ред.) | Проектирование источников электропитания электронной аппаратуры (2010) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены вопросы схемотехнического и конструкторского проектировании низковольтных и высоковольтных источников электропитания электронной аппаратуры различного назначения, а также их особенности, определяемые характеристиками систем автономного электроснабжения, характером нагрузки и условиями эксплуатации. Приведены справочные данные для курсового и дипломного (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F677B952A4465C4E997516D0509DB8FA68B528F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968878   (149213) от 26.12.2015
-
-О.В. Бесов | Лекции по математическому анализу (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник соответствует программе МФТИ и содержит теорию пределов, дифференциальное и интегральное исчисление функций одного и нескольких переменных, числовые и функциональные ряды, тригонометрические ряды Фурье, преобразования Фурье, элементы нормированных и гильбертовых пространств и другие темы. Он написан на основе лекций, читаемых в течение многих лет в МФТИ автором (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DCF829D35D31561CA40A88D7ECCC4D58943C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968504   (149202) от 26.12.2015
-
-Евгений Ланкин | Как выиграть выборы без административного ресурса. Рекомендации опытного политтехнолога (2015) [FB2, PDF, DOCX]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему книга достойна прочтения
-В этой книге автор раскрывает все тайные приемы политической борьбы. Он до мельчайших деталей разбирает такие важные моменты, как создание агитационной продукции, работа со СМИ, формирование главной идеи кампании, работа юристов, пиарщиков, агитаторов, самого кандидата.
-Вторая часть книги посвящена такой неоднозначной теме, как черный (   Читать дальше...   )Жанр: Психология, Публицистика, Политтехнологии, Пиар, Политика, БизнесФормат: FB2, PDF, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C65A9C45CD2EDA7C3A48F4C9E2562794662FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968912   (149168) от 26.12.2015
-
-Рэй Джаявардхана | Охотники за нейтрино. Захватывающая погоня за призрачной элементарной частицей (2015) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – захватывающий триллер, где действующие лица – охотники-ученые и ускользающие нейтрино. Крошечные частички, которые мы называем нейтрино, дают ответ на глобальные вопросы: почему так сложно обнаружить антиматерию, как взрываются звезды, превращаясь в сверхновые, что происходило во Вселенной в первые секунды ее жизни и даже что происходит в недрах нашей (   Читать дальше...   )Жанр: История наукиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6347AE7298D5BDA301E316443C6CD6D4D0BCB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519281   (149160) от 23.12.2021
-
-Кэтрин Шэнахан | Код метаболизма. Как перезапустить свой обмен веществ (2021) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто главный враг на кухне? Холодильник? Возможно. Но только в том случае, если в нем вы храните растительное масло промышленного производства. Именно оно, накапливаясь в организме, разрушает систему высвобождения энергии, делая нас усталыми и больными.
-
-Последние исследования в области нутрициологии доказали, что промышленные растительные масла мешают нам сжигать (   Читать дальше...   )Жанр: Здоровое и правильное питание, Здоровье, Похудение и диеты, Научно-популярная литератураПеревод: О. ЖуковаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF8EBAC63C40A396D943ADD5F2D61C84CAA4983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969190   (149150) от 26.12.2015
 
 С.В.Ерин, Ю.Л. Николаев | Автоматизация инженерных расчётов с использованием пакета Scilab (2015) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149150.jpg" />
 </div>
 
 
@@ -167,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149144.jpg" />
 </div>
 
 
@@ -193,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149072.jpg" />
 </div>
 
 
@@ -219,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149056.jpg" />
 </div>
 
 
@@ -245,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148994.jpg" />
 </div>
 
 
@@ -271,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148939.jpg" />
 </div>
 
 
@@ -297,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148938.jpg" />
 </div>
 
 
@@ -325,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148898.jpg" />
 </div>
 
 
@@ -351,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148877.jpg" />
 </div>
 
 
@@ -378,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148865.jpg" />
 </div>
 
 
@@ -404,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148827.jpg" />
 </div>
 
 
@@ -430,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148822.jpg" />
 </div>
 
 
@@ -456,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148733.jpg" />
 </div>
 
 
@@ -483,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148703.jpg" />
 </div>
 
 
@@ -509,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148676.jpg" />
 </div>
 
 
@@ -535,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148627.jpg" />
 </div>
 
 
@@ -561,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148623.jpg" />
 </div>
 
 
@@ -587,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148613.jpg" />
 </div>
 
 
@@ -615,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148608.jpg" />
 </div>
 
 
@@ -641,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148607.jpg" />
 </div>
 
 
@@ -667,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148548.jpg" />
 </div>
 
 
@@ -678,6 +544,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5F34DB6D15AC0387CE3C094D4F95E913FC63EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588982   (148516) от 15.12.2012
+
+Д.Л. Волковский | Собрание арифметических упражнений для гимназий и реальных училищ [1907] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собрание арифметических упражнений для гимназий и реальных училищ. Курсы приготовительного, первого и второго классов. Одобрено в качестве учебного пособия для средних учебных заведений и рекомендовано в число обязательных пособий для кадетских корпусов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8398F73FC874A8B79CC11DC21056FF81ABF0D60C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739314   (148491) от 27.12.2013
+
+Е. Кабо | Питание русского рабочего до и после войны (1926) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питание пролетариата в СССР после победы пролетарской революции, являясь одним из чувствительнейших показателей растущего благосостояния страны, представит, несомненно, громадный интерес для всех наших социологов и экономистов. Судя по этому показателю, наш пролетариат уже к концу 1924 года превзошел и в количественном, и в качественном отношении все довоенные нормы (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BAA1EB25D615473E52611A0BF09238156E6DCD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347606   (148289) от 24.12.2019
+
+Дэвид Кристиан | Большая история. С чего все начиналось и что будет дальше (2018) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая история – новое исследовательское направление, в рамках которого изучается единый преемственный процесс развития Вселенной – с момента Большого взрыва до настоящего времени.
+Междисциплинарный проект The Big History Project был основан Биллом Гейтсом и Дэвидом Кристианом с целью разработки целостного курса истории космоса, Земли, жизни и человечества и преподавания (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4109FB264F3640B4646EA81D0EF2367EC7A2146E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968680   (148253) от 26.12.2015
+
+А.Р. Гайдук и др. | Теория автоматического управления в примерах и задачах с решениями в Matlab (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148253.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии приведены методики решения всех типов рассматриваемых примеров и задач, а также задачи для самостоятельного решения по дисциплине «Теория автоматического управления». Материал пособия охватывает следующие разделы: основные математические методы теории управления, решение дифференциальных и разностных уравнений и систем; математические модели непрерывных (   Читать дальше...   )Жанр: АвтоматикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B415C98D7350AE545B21657B29BA2B6BD5D8C8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519504   (148231) от 24.12.2021
+
+Мерлин Шелдрейк | Запутанная жизнь. Как грибы меняют мир, наше сознание и наше будущее (2021) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под словом «гриб» мы обыкновенно имеем в виду плодовое тело гриба, хотя оно по сути то же, что яблоко на дереве. Большинство грибов живут тайной – подземной – жизнью, и они составляют «разношерстную» группу организмов, которая поддерживает почти все прочие живые системы. Это ключ к пониманию планеты, на которой мы живем, а также наших чувств, мыслей и поведения. (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Ольга ОльховскаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D6E87E717751FB7D0E495511320D4CB079A012
 ```
 
 https://mybot314.ru/tekegram_catalog/

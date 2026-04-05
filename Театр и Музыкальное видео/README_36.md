@@ -6,7 +6,7 @@ George Michael - Twenty Five (2006) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839796.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AC DC - Through the Mists of Time (2021) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839585.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Disco Дача. Весенний концерт (2013.05.01) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839499.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nightwish - Nemo (2008) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839236.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839067.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838986.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838899.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838442.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838344.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Giuseppe Verdi - NABUCCO (Teatre alla Scala) (2004) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838058.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Nightwish - Sleeping Sun (2005) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837993.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Nightwish - The Islander (2008) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837870.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Madonna: Rebel Heart Tour Showtime (09.12.2016) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837827.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837757.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837635.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Leonard Cohen: Songs from the Road (2010) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837383.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837321.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837001.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Beth Hart & Joe Bonamassa - Live in Amsterdam (2014) BDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836837.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Crematory - Greed (2004) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836561.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Crematory - Left The Ground (2006) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836559.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ WINX CLUB IN CONCERTO / Клуб Винкс - Школа волшебниц. К�
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836495.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836062.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835868.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Whitesnake - Made In Japan (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835653.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835162.jpg" />
 </div>
 
 

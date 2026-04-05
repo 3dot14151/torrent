@@ -1,55 +1,3 @@
-###  Публикация: 1013702   (777022) от 05.05.2016
-
-Дедушка легкого поведения / Dirty Grandpa (2016) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейсон, покладистый правильный парень, накануне свадьбы вляпывается в увеселительную поездку к морю со своим дедом, отставным генералом с легким нравом, бурной фантазией и вполне определенными потребностями… И, похоже, дедские каникулы изменят жизнь Джейсона навсегда!Производство: США / BillBlock Media, Covert Media, Josephson Entertainment, Lionsgate, Ninjas Runnin' Wild Productions, QED InternationalЖанр: КомедияРежиссер: Дэн МазерАктеры: Роберт Де Ниро, Зак Эфрон, Зои Дойч, Обри Плаза, Джейсон Манцукас, Дермот Малруни, Джулианна Хаф, Джеффри Бауэр-Чепман, Брэндон Майкал Смит, Джейк Пикинг, Майкл Хадсон, Адам Палли, Мо Коллинз, Генри Жебровский, Катрин Дайер, Дина Дилл, Лэйн Кэрлок, Кристофер Сеттикейс, Эрик Гойнс, Гэвин МуннПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D22BD54680E893165244F72D869D7C89FC232C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211647   (776990) от 08.03.2018
-
-Чудо / Wonder (2017) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776990.jpg" />
-</div>
-
-
-###  Подробнее
-
-С одной стороны мальчик Август Пулман такой же как и другие мальчишки его возраста — любит ходить на дни рождения к друзьям, играть в компьютерные игры, фанатеет от «Звездных войн», играет со своей собакой, ссорится и мирится со старшей сестрой. А с другой — он совсем не такой как другие мальчишки его возраста. Во-первых, Август никогда не ходил в обычную школу — (   Читать дальше...   )Производство: США / Lionsgate, Mandeville Films, Participant Media, Walden MediaЖанр: Драма, семейныйРежиссер: Стивен ЧбоскиАктеры: Джейкоб Тремблей, Оуэн Уилсон, Изабела Видович, Джулия Робертс, Марк Доцлав, Рукия Бернард, Дженнифер Марч, Мэнди Пэтинкин, Ноа Джуп, Брайс ГейзарПеревод: Дублированный (iTunes)Субтитры: Русские (full), английские (full, SDH)Продолжительность: 01:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155A79262E12D0C81D96305CFF14D358F36E3E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211615   (776980) от 08.03.2018
 
 Чудо / Wonder (2017) HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776980.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776791.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776772.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776723.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776718.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776665.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776649.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776618.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776382.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776358.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776322.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776296.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776277.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776276.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776265.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776228.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776000.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775923.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775912.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775900.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775893.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775879.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775736.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775659.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C35E642B8A6E15DC71EA743C772708706F48366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212520   (775657) от 12.03.2018
+
+Загнанный / Battle of the Drones (2017) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смесь "Неудержимых" и Команды «А» превращается в безудержный боевик про группу опытных наёмников, которых предаёт правительство США. Оказавшись в засаде, они вынуждены отбиваться от целой армии людей-киборгов...Производство: США / Film Tiger, Odyssey Media, OutPost MediaЖанр: БоевикРежиссер: Мишель ГулдАктеры: Доминик Суэйн, Наташа Мальте, Майкл Паре, Джейсон Эрлз, Луис Мэндилор, Олег Тактаров, Ричард Рейд, Дэн Сауфуорф, Стив Паунд, Джо МаррПеревод: Двухголосый закадровый, любительский (HiWay Grope)Субтитры: ОтсутствуютПродолжительность: 01:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20DA6F12020DC80889A5030F2E4C99A020627772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212567   (775578) от 12.03.2018
+
+Девушка в тумане / La ragazza nella nebbia (2017) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Холодной зимней ночью психиатра Аугусто Флореса срочно вызывают на работу, чтобы обследовать попавшего в аварию инспектора Фогеля. Инспектор ничего не помнит, на месте аварии ничто не указывает на ее причину и на ее жертв, однако рубашка Фогеля в пятнах свежей крови, и эта кровь не его. В ходе беседы начинает восстанавливаться цепь невероятных событий, начавшихся (   Читать дальше...   )Производство: Италия, Германия, Франция, Colorado Film ProductionЖанр: Триллер, КриминалРежиссер: Донато КарризиАктеры: Тони Сервилло, Жан Рено, Алессио Бони, Лоренцо Рикельми, Галатеа Ранци, Микела Ческон, Лукреция Гидоне, Даниэла Пьяцца, Якопо Ольмо Антинори, Марина ОккьонероПеревод: Дублированный (iTunes)Субтитры: Русские, английские, итальянские (SDH)Продолжительность: 02:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795EC140183DC624F59F5BED9766B46A944905EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

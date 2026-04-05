@@ -1,3 +1,58 @@
+###  Публикация: 101505   (214154) от 28.10.2022
+
+Товарищ Президент 1 и 2; Курск – подводная лодка в мутной воде; Норд-Ост (2004-2007) TVRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильмы рассказывают о движении В.В. Путина к власти, причины развязывания войны в Чечне и другие важные события до и во время правления В.В. Путина, а также рассказывает о доводах оппозиции, некоторые ложные факты из официальных заявлений..... (Борис Березовский, Евгений Киселёв, Виктор Шендерович, Борис Немцов и др.)Жанр: ДокументальныйПродолжительность: 03:45:00
+
+Видео: XviD, 384x288, 384 Kbps, 0,12 b/px
+Аудио: MP3, 64 Kbps
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9D2E063AFCB2C29EB643B0B2D0FF73FD8ED3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 140419   (213907) от 08.12.2019
+
+Последний дюйм (1958) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213907.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному рассказу Джеймса Олдриджа. Пожилой летчик Бен Энсли, нуждающийся в средствах, соглашается для телевидения сделать опасные подводные съемки. Вместе с 12-летним сыном Дэви он летит на легком спортивном самолете в Акулью бухту. В результате несчастного случая Бен не может управлять самолетом, помощи ждать неоткуда, и только Дэви может их спасти. Мальчик (   Читать дальше...   )Производство: СССРЖанр: Драма, ПриключенияРежиссер: Теодор Вульфович, Никита КурихинАктеры: Слава Муратов, Николай Крюков, Михаил Глузский, Алиага Агаев, Мухлис Джанни-Заде, Алексей РозановПеревод: Оригинальная русская озвучкаСубтитры: ОтсутствуютПродолжительность: 01:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D98373FEF0414B5D49B86CAFB22F91131D3D8776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653754   (213874) от 17.08.2023
 
 ABBYY FineReader PDF 16.0.14.7295 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +61,7 @@ ABBYY FineReader PDF 16.0.14.7295 RePack (& Portable) by TryRooM [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213874.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213513.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213256.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212781.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212484.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212106.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211897.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211217.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211087.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210192.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209861.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209474.jpg" />
 </div>
 
 
@@ -320,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209169.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209010.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208839.jpg" />
 </div>
 
 
@@ -400,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208790.jpg" />
 </div>
 
 
@@ -426,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208493.jpg" />
 </div>
 
 
@@ -452,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208066.jpg" />
 </div>
 
 
@@ -478,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207854.jpg" />
 </div>
 
 
@@ -504,7 +559,7 @@ Apple объяснила причины удаления «ВКонтакте» 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207022.jpg" />
 </div>
 
 
@@ -530,7 +585,7 @@ Microsoft начала тестировать в Edge встроенный VPN-�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206658.jpg" />
 </div>
 
 
@@ -556,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206406.jpg" />
 </div>
 
 
@@ -582,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206370.jpg" />
 </div>
 
 
@@ -608,65 +663,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205561.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Наверное, многие слышали историю британского программиста Джеймса Хауэллса, который в 2013 году по ошибке выбросил жёсткий диск компьютера, на котором было 7500 Bitcoin. У него в ящике стола хранилось два 2,5-дюймовых диска, и он случайно выбросил рабочий HDD с криптовалютой.С тех пор Джеймс Хауэллс безуспешно пытается вернуть накопитель. Он неоднократно обращался (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568206   (205528) от 06.08.2022
-
-Topaz Gigapixel AI 6.2.0 RePack (& Portable) by elchupacabra [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E1FAE14C421286EA77CAEA56B451C1998F6380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572027   (205377) от 27.08.2022
-
-Немецкая техподдержка Samsung предложила пользователю просверлить SSD или разбить его молотком в рамках гарантийного обслуживания
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Samsung подняла защиту данных на новый уровень. Во время переписки с одним из пользователей в Германии, который обратился за гарантийным обслуживанием, техподдержка компании предложила уничтожить твердотельный накопитель Samsung 980 Pro.Причём ему вполне серьёзно предложили просверлить накопитель или разбить его молотком, и отправить его в таком виде для (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

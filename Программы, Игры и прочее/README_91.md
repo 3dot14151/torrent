@@ -1,3 +1,111 @@
+###  Публикация: 1512867   (228483) от 26.11.2021
+
+Anatomy Learning 3D Full v2.1 Unlocked [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anatomy Learning - 3D анатомический атлас включает в себя анатомическую базу организма человек. Будет эффективным помощником как для первокурсников медицинских университетов, так и практикующим врачам. Атлас включает в себя возможность проведения проверки знаний по изученным базам, возможность управлять 3D-моделью: поворачивать и масшатбировать, убирать кожу для (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 01.04.2020Разработчик: Rodrigo Blanco SaladoПоддерживаемая ОС: Android 4.4 и вышеЯзык интерфейса: Русский, Английский, французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D790F21E292D81C6A0C2A420B70F8F93845FBDD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649596   (228362) от 29.07.2023
+
+Garmin: TopoActive Africa 2023 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ориентируйтесь на отдыхе в 58 африканских странах с помощью этой карты, составленной с использованием базы данных OpenStreetMap (OSM)
+- Включает маршрутизируемые уличные и внедорожные сети, международные границы, водные пути, природные объекты, зоны землепользования, исторические места, сооружения аэропортов, здания и многое другое
+- Отображает тысячи достопримечательностей, (   Читать дальше...   )Тип издания: разблокированоРелиз состоялся: ноябрь 2022Разработчик: GarminПоддерживаемая ОС: GarminЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C64AC7A452580C0EA608519CC8273324C1B5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964872   (227838) от 13.12.2015
+
+Garmin: TOPO Czech PRO v2.01 [Cz]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подготовтесь к вашему следующему большому приключению в Чешской Республике с этими топографическими картами. С ними можно планировать как пеший, так и велосипедный маршрут.
+- Масштаб 1:10000 , для более 326 000 км маршрутизируемых дорог
+- Содержат более 100 000 км не маршрутизируемых трасс и 26 000 дорожной сети за пределами территории Чешской Республики (в граничащих (   Читать дальше...   )Тип издания: карты заблокированы (таблетка есть в комплекте)Релиз состоялся: апрель 2015Разработчик: GarminПоддерживаемая ОС: GarminЯзык интерфейса: чешскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32DFC86DBDCBF60BE7E802EC63066320BF8F91B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424670   (226975) от 17.11.2020
+
+Drad Paradise: The Road Warrior v 1.7 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Dead Paradise: Road Warrior - это бесплатная игра-стрелялка с гонками на смерть с автомобильными сражениями на дорогах ярости! Выбирайте и повышайте уровень своей машины смерти, улучшайте стрелковое оружие и несите разрушение своему врагу! Станьте лучшим убийцей в гонке апокалипсиса. Заставь соперников дрожать от страха! Покажи им лучшую езду, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 11 ноября 2020 г.Разработчик: SMOKOKO LTDПоддерживаемая ОС: Android 4.4 и вышеЖанр: Racing (Гонка), Shooter (Шутер)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E47D207DDD47A439857E29B4FFEECFF81A3E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513090   (226700) от 27.11.2021
 
 Muscle & Motion - Yoga 2.2.5 premium [Ru/Multi]
@@ -6,7 +114,7 @@ Muscle & Motion - Yoga 2.2.5 premium [Ru/Multi]
 >>Прочее для мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226700.jpg" />
 </div>
 
 
@@ -35,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226636.jpg" />
 </div>
 
 
@@ -62,7 +170,7 @@ Malwarebytes Антивирус 3.11.1.113 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225056.jpg" />
 </div>
 
 
@@ -90,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224128.jpg" />
 </div>
 
 
@@ -116,7 +224,7 @@ Photo Tools Full v0.13 + Plugin [Ru] - Калькулятор для съёмо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224013.jpg" />
 </div>
 
 
@@ -142,7 +250,7 @@ VPN Proxy Master - Safer Vpn 2.3.1.1 (Pro) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223948.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ Lunafaqt v1.25 [Ru/Multi]- Лунный календарь
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223726.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ Medativo Meditation Timer v1.2.8 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223298.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ Glory of Generals 3 v1.0.0 [En] - Стратегическая игра о Вт�
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222073.jpg" />
 </div>
 
 
@@ -246,7 +354,7 @@ Garmin: TOPO Denmark v4 PRO [Dk]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221519.jpg" />
 </div>
 
 
@@ -272,7 +380,7 @@ Garmin: City Navigator Australia & New Zealand NT 2023.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221356.jpg" />
 </div>
 
 
@@ -298,7 +406,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221264.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ Garmin: Bulgaria OFRM Geotrade 2021 Q3 [Bg]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221240.jpg" />
 </div>
 
 
@@ -350,7 +458,7 @@ ArtRage Vitae Mobile Painting v1.0.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221226.jpg" />
 </div>
 
 
@@ -379,7 +487,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221224.jpg" />
 </div>
 
 
@@ -405,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221119.jpg" />
 </div>
 
 
@@ -431,7 +539,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220900.jpg" />
 </div>
 
 
@@ -457,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220883.jpg" />
 </div>
 
 
@@ -483,7 +591,7 @@ Smart Tools 2 v1.2.3 Mod by TryRoon [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220696.jpg" />
 </div>
 
 
@@ -509,7 +617,7 @@ Terraria 1.3.0.7.7 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220461.jpg" />
 </div>
 
 
@@ -536,7 +644,7 @@ Rally Fury  v1.71 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220280.jpg" />
 </div>
 
 
@@ -562,7 +670,7 @@ Mi Fit 2.2.9 [Ru] - Фитнес трекер и не только
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219832.jpg" />
 </div>
 
 
@@ -573,110 +681,6 @@ Mi Fit 2.2.9 [Ru] - Фитнес трекер и не только
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F945DBFA76BE050CED9BB624BC0A125BFC4DC14D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343290   (219515) от 05.12.2019
-
-Fitness Point Pro v2.8.3 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fitness Point - это простое приложение, чтобы следить за своим прогрессом в тренажёрном зале. Нет запутанных меню или перегруженных информацией экранов. Только все, что вам нужно! Составьте индивидуальный тренировочный план внутри приложения или выберите из множества готовых!Тип издания: Pro с Маркета (Paid)Релиз состоялся: 27.10.2019Разработчик: Zero One GmbHПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF22620AE28951396ABDC796D62A6654F24E3719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586026   (218772) от 24.10.2022
-
-Исторический календарь v5.8.10 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите узнать об исторических событиях в любой день года? События, люди, праздники и памятные даты, народные традиции и приметы. Приложение "Today in history" на платформе Android! Информация структурирована таким образом, что вы легко найдете интересующие вас события.Тип издания: PremiumРелиз состоялся: 20.10.2022Разработчик: Alexandru C. EneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F71D814338296FFA9916B15F1DB47DD0E26B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981255   (218559) от 24.10.2022
-
-Дневник артериального давления v3.2.3 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дневник артериального давления Pro — это продвинутый инструмент для регулярной записи и анализа измерений артериального давления. Это приложение окажется полезным для людей, страдающих заболеваниями кровеносной системы (например, гипертонией или гипотонией), а также имеющих предрасположенность к таким заболеваниям. Приложение может быть использовано как во время (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.07.2022Разработчик: FRUCTПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E70270C78F7528D9D6ECDB1682B1363185909B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514096   (218200) от 02.12.2021
-
-Sygic navigation GPS offline 20.9.4 Premium (Ru/Multi)
-
->>Программы, Игры и прочее
->>Навигация для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sygic GPS Navigation & Maps - это самое продвинутое приложение для GPS-навигации TomTom для Android с автономными 3D-картами, точными подробными голосовыми подсказками и бесплатными обновлениями карт. Sygic GPS Navigation & Maps предлагает современную навигацию с новыми функциями для вашего удобства и безопасности. Предупреждения о дорожной обстановке и измерения (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 26.11.2021Разработчик: Sygic.Поддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: RU, CZ, SK, ENG, Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1AC23E774DB83137AA4690A5BB06FA2D2CC4DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

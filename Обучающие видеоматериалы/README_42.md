@@ -1,3 +1,32 @@
+###  Публикация: 1459914   (1022904) от 03.04.2021
+
+Олеся Смирнова | Красота на шести сотках (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022904.jpg" />
+</div>
+
+
+###  Подробнее
+
+На курсе....
+Вы научитесь находить красивые локации для съемки на природе
+Изучите все нюансы работы с многогранным уличным светом, в разных погодных условиях
+Освоите ТРИ КИТА ШЕДЕВРА: свет, композиция и эмоцияПроизводство: Олеся СмирноваЖанр: фотографияПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48937C1913A93A549042AA5F122442A6EA8D56DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460061   (1022895) от 03.04.2021
 
 Udemy, Andrea Bizzotto | Flutter & Firebase: Build a Complete App for iOS & Android  (2021) PCRec [En / En Sub]
@@ -6,7 +35,7 @@ Udemy, Andrea Bizzotto | Flutter & Firebase: Build a Complete App for iOS & Andr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022895.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Coursera, Nicky Bull и др. | Excel Skills for Business Specialization  (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022893.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022886.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ Udemy | Blender Academy (2021) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022875.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ Skillbox, Лиза Ревзина и др. | UX-дизайнер с нуля д�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022835.jpg" />
 </div>
 
 
@@ -141,7 +170,7 @@ Udemy, Sanjay Singh | Oracle Data Integrator (ODI) 12c Developer Course  (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022769.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ Udemy, Bhrugen Patel | Master ASP.NET Core 3.1 Razor Pages (2021) PCRec [En / En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022762.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ Udemy, JuanD MeGon | Laravel Payment and Subscription Processing: PayPal & Strip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022760.jpg" />
 </div>
 
 
@@ -224,7 +253,7 @@ Lets Build That App | Courses Collections (2020-2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022754.jpg" />
 </div>
 
 
@@ -253,7 +282,7 @@ Udemy, Asfend Yar Hamid | Learn Restful Api's with Asp.Net Core 5.0 2021 (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022753.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ Udemy, Mrawan Hussain | Создание Jeep Willys MP 1942 от начала �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022745.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ LiveLessons, Russ White | How Networks Really Work (Video Training)  (2021) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022734.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ CodeWithMosh, Mosh Hamedani | The Ultimate Docker Course  (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022731.jpg" />
 </div>
 
 
@@ -361,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022725.jpg" />
 </div>
 
 
@@ -387,7 +416,7 @@ Udemy, Andrew Mead и др. | The Complete Node.js Developer Course (3rd Edition
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022716.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022687.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Udemy, Bogdan Stashchuk | JavaScript Bible - JavaScript Bootcamp 2021 (2021) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022686.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Udemy, Ladan Amirchoupani | Windows: Everything about NTFS & Share Permissions  
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022576.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ CodingWithMitch, Mitch Tabian | Real-time Chat Messenger (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022552.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Udemy, Andrei Neagoie |  JavaScript: The Advanced Concepts (2021) PCRec [En / En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022542.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ Udemy, Kazi Ariyan и др. | Laravel 8 PHP Framework A - Z Build Professional E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022508.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ AlgoExpert, Clément Mihailescu | 150 Coding Interview Questions (2021) PCRec [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022503.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022499.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ Udemy, Mrawan Hussain | Создание и риггинг реалистичн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022376.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ Jeff Minakata | OSINT: Open-Source Intelligence (level 1) (2021) PCRec [En / En,
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022369.jpg" />
 </div>
 
 
@@ -675,33 +704,6 @@ Jeff Minakata | OSINT: Open-Source Intelligence (level 1) (2021) PCRec [En / En,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB9ABF04BCCECFEE89626664E5C7A2ECAF0E1F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460577   (1022366) от 06.04.2021
-
-Maven Analytics, Chris Dutton и др. | Power BI Specialist (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот путь предназначен для пользователей, которые ищут исчерпывающее практическое руководство по самообслуживанию бизнес-аналитики с помощью Power BI Desktop, Power BI Service и Advanced DAX.
-Вы узнаете, как подключать и подготавливать данные из внешних источников, создавать реляционные модели данных и вычисления DAX, а также создавать настраиваемые интерактивные (   Читать дальше...   )Производство: Maven AnalyticsЖанр: Power BI, аналитикаЯзык озвучки: АнглийскийПродолжительность: 29:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C0DCAA4173739DD272D57154C76FF6632E1166
 ```
 
 https://mybot314.ru/tekegram_catalog/

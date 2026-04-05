@@ -6,7 +6,7 @@ DV: Невероятное вокруг нас. Осязание [17 из 28] / 
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654274.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DV: Невероятное вокруг нас. Мистер Джонас исс
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654230.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DV: Невероятное вокруг нас. Вкус [18 из 28] / Totally 
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654229.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DV: Невероятное вокруг нас. Вулканы [20 из 28] / To
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654228.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DV: Невероятное вокруг нас. Ледники [19 из 28] / To
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654224.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ DV: Невероятное вокруг нас. Рентгеновские лу�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654223.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DV: Невероятное вокруг нас. Потоки энергии [3 �
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654220.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ DV: Невероятное вокруг нас. Нервная система [2
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654219.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG. Криминальная Британия / Britain's underworld (2010) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654204.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Дикая природа Калифорнии / Дикая Нижняя К�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653843.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NGW: Дикая природа Чили / Wild Chile (2017) DVB [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653581.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653414.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG. Монстр млечного пути / Cosmic Monsters (2007) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653089.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BBC. В краю муссонов: В ожидании дождя / Wonders of t
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653088.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Discovery. Загадки планеты Земля / What on Earth? (2015) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653054.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ BBC: Horizon. Самая экстремальная погода во Вселе
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651958.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BBC Прогулки с морскими чудовищами / Sea Monsters: A 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650846.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ BBC. Horizon. Наблюдая звёзды / Horizon. Seeing Stars (2011) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649419.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG. Убийственная скорость / Speed Kills (2012) HDTVRip [3 с
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_649413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_649413.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Discovery. Кодекс Мафии: Взгляд Изнутри / Inside the Gan
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649218.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BBC. Horizon. Можно ли верить своим глазам? / Horizon. I
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649206.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ History Channel. Древнеегипетская Книга Мертвых / Th
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649201.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NG. Великая Китайская стена / China's Great Wall (2007) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649197.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NG: Суперсооружения: Мегазаводы. Мак-Трак / Mega
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648990.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NGW: Дикая природа Аргентины. Водное царство /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648473.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ History Channel: Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648469.jpg" />
 </div>
 
 

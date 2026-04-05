@@ -1,3 +1,133 @@
+###  Публикация: 585433   (302517) от 06.12.2012
+
+Паранорман, или Как приручить зомби / ParaNorman (2012) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норман, Паранорман. Единственная надежда полусонного городка в борьбе с полчищами нечисти. Его оружие — супер-мега-дар: умение общаться с призраками. Впрочем, мертвецы — не главная опасность, куда хуже — глупые взрослые с дробовиками наперевес.Производство: СШАЖанр: Детский, Приключения, КомедияРежиссер: Крис Батлер / Chris Butler, Сэм Фелл / Sam FellПеревод: Профессиональный (дублированный)Продолжительность: 01:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CCE7F2E456B9C8CBAE3A18FCDAF4475863DFE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585690   (302507) от 06.12.2012
+
+Паранорман, или Как приручить зомби / ParaNorman (2012) [1080p] BDRemux
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норман, Паранорман. Единственная надежда полусонного городка в борьбе с полчищами нечисти. Его оружие — супер-мега-дар: умение общаться с призраками. Впрочем, мертвецы — не главная опасность, куда хуже — глупые взрослые с дробовиками наперевес.Производство: США | Laika EntertainmentЖанр: Мультфильм, Ужасы, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Крис Батлер, Сэм ФеллАктеры: В ролях: Коди Смит-МакФи, Таккер Албрицци, Анна Кендрик, Кейси Аффлек, Кристофер Минц-Плассе, Лесли Манн, Джефф Гарлин, Илэйн Стритч, Бернард Хилл, Джоделль Ферланд ...Перевод: ДублированныйЯзык субтитров: Русский (Full, Forced), Английский (SDH)Продолжительность: 01:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6994FEA2B8EBAD2CC0BED0108B58C7A711CAA567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585445   (302506) от 06.12.2012
+
+Паранорман, или Как приручить зомби / ParaNorman (2012) [1080p] BDRip [Вертикальная анаморфная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норман, Паранорман. Единственная надежда полусонного городка в борьбе с полчищами нечисти. Его оружие — супер-мега-дар: умение общаться с призраками. Впрочем, мертвецы — не главная опасность, куда хуже — глупые взрослые с дробовиками наперевес.Производство: Laika EntertainmentЖанр: Мультфильм, ужасы, фэнтези, комедия, приключения, семейныйРежиссер: Крис Батлер, Сэм ФеллАктеры: Коди Смит-МакФи, Таккер Албрицци, Анна Кендрик, Кристофер Минц-Плассе, Кейси Аффлек, Лесли Манн, Джефф Гарлин, Илэйн Стритч, Бернард Хилл, Джоделль ФерландПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (форсированные, полные), английскийПродолжительность: 01:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2559C032A964717A505EFF79556779609D4395BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585408   (302492) от 06.12.2012
+
+Паранорман, или Как приручить зомби / ParaNorman (2012) [720p] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норман, Паранорман. Единственная надежда полусонного городка в борьбе с полчищами нечисти. Его оружие — супер-мега-дар: умение общаться с призраками. Впрочем, мертвецы — не главная опасность, куда хуже — глупые взрослые с дробовиками наперевес.Производство: США | Laika EntertainmentЖанр: Мультфильм, Ужасы, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Крис Батлер, Сэм ФеллАктеры: В ролях: Коди Смит-МакФи, Таккер Албрицци, Анна Кендрик, Кейси Аффлек, Кристофер Минц-Плассе, Лесли Манн, Джефф Гарлин, Илэйн Стритч, Бернард Хилл, Джоделль Ферланд ...Перевод: ДублированныйЯзык субтитров: Русский (Full, Forced), Английский (SDH)Продолжительность: 01:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6138CB63540DFB8EDBE7AE4B86D902671DC92B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250973   (302334) от 11.11.2018
+
+Монстры на каникулах 3: Море зовёт / Hotel Transylvania 3: Summer Vacation (2018) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302334.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Дракула вместе со своими друзьями отправляется в круиз на шикарном лайнере. Развлечения там на любой вкус: от монстробаскетбола и экзотических экскурсий, до лунных ванн. Неожиданно Дракула влюбляется в капитана корабля — загадочную и прекрасную Эрику, и его дочка Мэвис понимает, что поездка может превратиться в кошмар: ведь Эрика хранит ужасный секрет, (   Читать дальше...   )Производство: США \ Columbia Pictures, Media Rights Capital, Sony Pictures AnimationЖанр: Фентези, Комедия, Приключения, Компьютерная анимацияРежиссер: Генндий ТартаковскийПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные)Продолжительность: 01:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5B8D0CCEAD8859578A9D8F243EB63AEEDDED68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261587   (302330) от 11.11.2018
 
 Красавица и чудовище / Beauty and the Beast (1991) BDRip [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302330.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302327.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302310.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302307.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302148.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301954.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301949.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301909.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301872.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301849.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301833.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301819.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301691.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301682.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301676.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301609.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300944.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300888.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300788.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300450.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300432.jpg" />
 </div>
 
 
@@ -540,141 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BA426217A5875EFC201D5310110EA8E6B991988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145147   (300360) от 12.11.2018
-
-София Прекрасная: Как стать принцессой / Sofia the First (2017) WEBRip (4 сезон: 1-26 серии из 26)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений юной принцессы Софии из страны Волшебнии.
-Принцессе предстоит помогать своим друзьям и противостоять недругам.Производство: Disney Television Animation, Walt Disney ProductionsЖанр: мультфильм, мюзикл, фэнтези, семейныйРежиссер: Джэми Митчелл, Сэм Ригел, Ларри ЛэйчлитерПеревод: Дублированный, включая и песниСубтитры: ОтсутствуютПродолжительность: 24 х ~ 00:23:40 + 1 х 01:03:39 + 1 х 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0425CDA32AE2E9AC0F6EBD85385C0727574B83A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 420308   (300283) от 08.12.2011
-
-Исчезатель (1987) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм по мотивам фантастического рассказа Р. Лафферти, о том как маленький мальчик стараясь помочь маме писать поэму, построил прибор, который назвал исчезатель. Если в него посмотреть на любой предмет он и исчезнет.Производство: Союзмультфильм, СССРЖанр: Детский, КукольныйРежиссер: Михаил КаменецкийПерсонажи: Роман Филиппов, Всеволод Ларионов, Олег Табаков, Раиса Мухаметшина, Ольга Громова, Спартак МишулинПродолжительность: 00:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7852835200A8B46E0BD1F0050AE4DA38DA5A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585833   (300205) от 07.12.2012
-
-Легенда о МорДу / The Legend of Mor'Du (2012) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легенда о королевстве МорДу рассказанная ведьмой из мультфильма Храбрая сердцем.Жанр: Короткометражный, мультфильм, легендаРежиссер: Брайан ЛарсенПерсонажи: Джули Уолтерс, Стив Пурселл, Каллум О’НиллПеревод: Дублированный, любительский одноголосый, любительский двухголосыйЯзык субтитров: Русские (BD CEE), Русские (-Доцент-), Украинские (BD CEE), Английский, Английский (SDH), Французкий, ИспанскийПродолжительность: 00:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E10E5935B70928CFED8986F325711C3FDB4718A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 158452   (299736) от 16.12.2009
-
-Винкс / Школа волшебниц / Winx Club Сезон - 4 Серии 1-13 (2009) DVD5
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Винкс клуб из школы волшебниц, великолепный итальянский мультипликационный сериал разработанный компанией Rainbow S.P.A, режиссер мультфильмов Винкс Иджинио Страффи.
-Сюжет мультфильма расскажет судьбу о девочках подростках, которые учатся в школе волшебниц. Они совершенствуют свою магию с каждым годом, чтобы в мире Магикс царило спокойствие и порядок. Все девочки (   Читать дальше...   )Режиссер: Иджиньо Страффи (Iginio Straffi)Персонажи: Лиза Ортиз (Lisa Ortiz), Лиза Жаклин (Liza Jacqueline), Кристина Родригез (Christina Rodriguez), Дэн Грин (Dan Green)Перевод: Двухголосый закадровыйПродолжительность: 13 серий по 00:23:00 минуты
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 420557   (299553) от 08.12.2011
-
-Котенок по имени Гав. Сборник мультфильмов (1953-1988) Blu-ray [1080p] [12 фильмов] [Реставрация]
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299553.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённым сказкам Григория Остера.
-Мультфильм рассказывает о приключениях котёнка с необычным именем Гав и его друга — щенка.
-
-В «Золотой коллекции анимации» «Крупный план» выпустил сборник отреставрированных мультфильмов «Котенок по имени Гав» (© ФГУП Киностудия «Союзмультфильм).Производство: СССР, СоюзмультфильмЖанр: Детский, Рисованая анимацияРежиссер: Л.Атаманов, М.Мирошкина, Л.ШварцманСубтитры: НетПродолжительность: 01:54:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

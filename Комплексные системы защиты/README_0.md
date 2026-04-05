@@ -6,7 +6,7 @@ Kaspersky Small Office Security 21.19.7.527 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31965.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kaspersky Free | Standard | Plus | Premium 21.22.7.466 [Ru/En]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9711.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 12.0.2062.0 RePack by KpoJIuK [
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5480.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ESET NOD32 Internet Security 18.2.18.0 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1714.jpg" />
 </div>
 
 

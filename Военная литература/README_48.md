@@ -1,136 +1,3 @@
-###  Публикация: 1083347   (274219) от 15.12.2016
-
-Сергей Баленко | Учебник самолечения и питания Спецназа ГРУ (2016) [FB2]
-
->>След.
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга от автора супербестселлера «Учебник выживания Спецназа ГРУ», который выдержал уже 14 переизданий, что является абсолютным рекордом! Сотни тысяч пользователей этой энциклопедии давно просили дополнить ее жизненно необходимой информацией о самолечении и питании в экстремальных условиях. И вот – новый учебник у вас в руках.
-
-Современному человеку обычно (   Читать дальше...   )Жанр: Военное дело, спецслужбы, Здоровье, ЭнциклопедииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14AED62AAC9547F42A5608EAB14D55FCD23F71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 274393   (273739) от 23.12.2010
-
-Д. Толл | Подводные лодки и глубоководные аппараты [Эксмо] [2004] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подводные лодки произвели революцию в боевых действиях на море и исследованиях Мирового океана. В этой книге представлены фундаментальные сведения как о военном, так и о мирном применении этих кораблей от примитивных подводных лодок с паровыми двигателями времен Гражданской войны в США до современных бесшумных атомных субмарин, которые могут месяцами находиться глубоко под водой. В книге "Подводные лодки и глубоководные аппараты" описывается история их появления и развития, содержится точная информация о конструкциях, технологиях, вооружениях и стратегии. Книга содержит больше шестидесяти цветных рисунков и вставок, а также более 140 цветных и черно-белых фотографий.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 274392   (273581) от 23.12.2010
-
-В. Ильин, А. Колесников | Подводные лодки России. Иллюстрированный справочник [АСТ] [2006] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273581.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о всех отечественных атомных подводных лодках, а также о нереализованных проектах и перспективных разработках. Издание подготовлено по материалам открытой печати. Книга рассчитана на широкий круг читателей — любителей флота и военной техники.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083811   (273386) от 16.12.2016
-
-Виктор Попенко | Секретные инструкции спецназа ГРУ (2017) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273386.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассказывается о причинах создания в 50-х годах XX-го века первых подразделений специального назначения – спецназа ГРУ, отборе в его ряды, подготовке бойцов (начиная с советского периода) и действиях спецназовцев ГРУ в реальных боевых операциях с момента его создания до наших дней. Рассмотрены основные дисциплины, которые входят в обязательный курс обучения (   Читать дальше...   )Жанр: Военное дело, спецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB80E9B5DDE06B25A0F5F8497AF8866CB7E13ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281563   (271754) от 30.11.2018
-
-П.Е. Щеголев | Падение царского режима. Стенографические отчеты  допросов и показаний. 7 томов. [1924-1927] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стенографические отчеты допросов и показаний, данных в 1917 г. в Чрезвычайной следственной комиссии Временного правительства.
-Настоящее издание, воспроизводящее с научной точностью материал исторического значения, предназначено не столько для историков, сколько для широкой читательской массы. Все дальше и дальше отодвигается от нас старый режим, он становится в полном (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A180A3ED08988012FE9DD8B2AFB56C021BDBFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 120344   (265940) от 31.12.2010
 
 В.Е. Ильин , М.А. Левин  | Бомбардировщики [2 тома] [1996] [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265940.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262468.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262447.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262245.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262231.jpg" />
 </div>
 
 
@@ -271,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262219.jpg" />
 </div>
 
 
@@ -297,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262213.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262212.jpg" />
 </div>
 
 
@@ -352,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262049.jpg" />
 </div>
 
 
@@ -379,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261661.jpg" />
 </div>
 
 
@@ -405,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261648.jpg" />
 </div>
 
 
@@ -431,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261451.jpg" />
 </div>
 
 
@@ -459,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261164.jpg" />
 </div>
 
 
@@ -485,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260736.jpg" />
 </div>
 
 
@@ -511,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260499.jpg" />
 </div>
 
 
@@ -543,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260224.jpg" />
 </div>
 
 
@@ -570,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259036.jpg" />
 </div>
 
 
@@ -596,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258762.jpg" />
 </div>
 
 
@@ -622,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258298.jpg" />
 </div>
 
 
@@ -648,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257937.jpg" />
 </div>
 
 
@@ -674,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257808.jpg" />
 </div>
 
 
@@ -685,6 +552,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8803A3026B8040D67F786493A63D8A05EF86C3D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 121058   (257727) от 20.11.2025
+
+Дэвид Дональд | Военные Винтовые самолёты [2008] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Военные винтовые самолёты" включает в себя описания 50 наиболее известных образцов винтовых самолетов со времен  Первой  мировой войны до наших дней. Каждый самолет представлен  полноцветными иллюстрациями в трех проекциях. В общей сложности в книге представлено 170 иллюстраций. Каждый самолет детально характеризуется ( указаны мощность двигательной (   Читать дальше...   )Жанр: Военная техникаИздательство: ОмегаФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E2F62A25D7B4D9E6113A311C440699190E36F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499620   (256358) от 21.05.2012
+
+Булат Тынчеров | Штурмовые орудия в боях за Крым и Севастополь 1941-1942 [2010] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая работа, представляющая собой обобщение всех имеющихся материалов и выводов, с которыми читатель мог познакомиться в предыдущих исследованиях об использовании Вермахтом и Войсками СС бронетехники в ходе боев за Крым 1941 - 1942 годов, в контексте роли и значения штурмовых орудий StuG.III, участвовавших в борьбе за полуостров.
+ Предпринята попытка оценить реальный вклад штурмовой артиллерии в успех операций "Охота на дроф" и "Лов осетра" в соотнесении с имеющимися данными об использовании в ходе наступления на Керченском полуострове и во время решающего штурма Севастопольской крепости танков различных типов.2010Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76EC0B9289954014F3483C12F660577C86D3C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499122   (256105) от 20.05.2012
+
+Книжная серия | История войн (3 книги) [2004-2005] [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256105.jpg" />
+</div>
+
+
+###  Подробнее
+
+История войн - серия из нескольких книг, посвященных войнам.
+Белые пятна истории, которые авторы книг хотят подкрасить.2004-2005Жанр: Военная историяФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F15FD4D20761B7617398102E97D21A89E240A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498519   (254360) от 19.05.2012
+
+Александр Широкорад | Грузия. Закавказский тупик? [2010] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254360.jpg" />
+</div>
+
+
+###  Подробнее
+
+У сегодняшней Грузии отношения с Россией крайне натянуты. Бывшие грузинские автономии, Абхазия и Южная Осетия, после кровопролитных войн отделились, другая автономия - Аджария - практически независима от Тбилиси. На окраинах власть центра беспомощная, экономика переживает тяжелейший кризис. Постепенно Грузия превращается в протекторат Турции и США. В стране создается образ врага - России, которая якобы угнетала и расчленяла грузинские земли. Сегодня грузинские политики, политологи и историки пытаются перечеркнуть несколько веков истории своей страны, желают вернуть Грузию в эпоху почитаемого ныне царя Ираклия II, у которого, тем не менее, хватило мудрости принять покровительство России, объединившую и восстановившую раздробленную и разоренную Грузию. Об истории Грузии, о непростых российско-грузинских отношениях, недавнем военном конфликте и многом другом рассказывает новая книга серии "Друзья и враги России".2010Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4446C418B123AEC88E73E1825EDD9EC9C728530C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498219   (253974) от 18.05.2012
+
+А. Карпенко | Ракетные танки [2002] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный выпуск библиотеки журнала "Техника молодежи", посвященный ракетным танкам.2002Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8A853BF38516C51A72F78C6B92D36B0BE722F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

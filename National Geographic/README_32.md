@@ -6,7 +6,7 @@ NG: Марсоход Curiosity / Curiosity. Life of a Mars Rover (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269980.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Место жительства - Марс (Заселение Марса) /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269153.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Чудища морей. Доисторическое Приключение
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268744.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: С точки зрения науки: Апокалипсис каменно
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267985.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW. Дикая природа Средиземноморья: Последни�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267757.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Дикие места Африки. Битва полов / Africa's Wild S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267725.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NG. Экстремальный Китай. Подземный Ханжонг / E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267722.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NGW: Изгои среди животных (Животные-разбойник
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267716.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265725.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NG: Последняя львица / The Last Lioness (2009) HDTVRip 720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265631.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG: История о нас с Морганом Фрименом / The Story of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265583.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG: Охотники за вирусами / Virus Hunters (2008) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265578.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: Известная Вселенная. У Пределов Познания 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265525.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ National Geographic: Острова. Галапагосы / Islands. Galapagos (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265524.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG: ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263060.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262439.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG. Настоящие Красные хвосты / The Real Red Tails (2024) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260921.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG. Ангкор-Ват. Жемчужина Древней Азии / Glories Of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258512.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG: Титаник: Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255834.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG: Взгляд изнутри. Супертрава марихуанна / Ins
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252709.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252043.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NG. Настольная книга диктатора / The Dictator's Playbook
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249402.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NG: Запреты / Табу / Taboo (2002-2012) HDTVRip [H.264/720p-LQ] (се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247757.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ NG. Салли / Sally (2025) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246110.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NG. Салли / Sally (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246107.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NG: Шершни из ада / NGS: Hornets From Hell (2002) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242292.jpg" />
 </div>
 
 

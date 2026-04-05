@@ -1,3 +1,119 @@
+###  Публикация: 1186251   (288360) от 24.11.2017
+
+VA - Black Hole Trance Music 11-17 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Duguid - C.H.I.C. (extended mix)
+02. Myon - Albion (Mitiska extended remix)
+03. Sheridan Grout & Diana Leah - Broken To Pieces (extended mix)
+04. Novaspace - Revelation (extended mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CADE3A915D4AEDE67B21FBA00B4840F6FB14602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263610   (288266) от 19.11.2018
+
+Martin Tolosa - Emphasis (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emphasis (Original Mix)                                         [08:43]
+02. Emphasis (Torby Jay Remix)                                      [06:27]
+03. Sunbright (Original Mix)                                        [08:03]
+04. Sunbright (Julian Nates Remix)                                  [07:19](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616C43EFB23F5535AB360FBC4649D1510587DA5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263579   (288264) от 19.11.2018
+
+Agustin Vitale - S.O.S. (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.O.S. (Original Mix)[08:10]
+02. S.O.S. (GSEP Remix)[09:00]
+03. S.O.S. (Gabriel Amato Remix)[07:25]
+04. Wasnt Waiting For This (Original Mix)[07:59](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7960FCD7050B1493CBD9922EF1C777A4D0535000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263589   (288263) от 19.11.2018
+
+Alec Araujo and Cryptic Realms - Katharsys (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katharsys (Original Mix)                                        [08:40]
+02. Katharsys (Jackie Mayden Remix)                                 [07:40]
+03. Katharsys (NikoChristo and Synas Remix)                         [09:06]
+04. Katharsys (Ricardo Piedra Remix)                                [07:52]Жанр: Progressive HouseПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB695770FB1BFE1628DCA26C7AA6602B9D42F204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263599   (288262) от 19.11.2018
 
 Gabriel Amato - Parodi (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -6,7 +122,7 @@ Gabriel Amato - Parodi (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288262.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Lacunae - 2 Albums (2004-2006) [FLAC|Lossless|tracks+.cue] <Trip Hop, Experiment
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288261.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Eli Spiral - Sol One (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288258.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ VA - Sexy Funky House Grooves Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288257.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Ligovskoï (Ligovskoi) - Esam (2018) Field Records [FLAC|Lossless|WEB-DL|tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288153.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ VA - Dub Techno Moments VA (2018) GOS Music Studio [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288129.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Neptune Project - Live @ Lost in Trancelation, Bikkuri Lounge Orlando, United St
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287911.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Euphoric Nation - Live @ Armory Minneapolis, United States 2019-10-26 [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287910.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ Peel Seamus - Susurro (2019) Delsin Records [FLAC|Lossless|WEB-DL|tracks] <Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287890.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ Timmy Trumpet - Tomorrowland One World Radio Halloween Freak Show 2019-11-01 [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287863.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ ScAnDroid Experiment's - Ambientable (2017) Авторская раздача [M
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287800.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ Nitrous Oxide - Live @ Club Mecca Prague, Czech Republic 2019-10-10 [MP3|192 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287743.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ VA - Coffee Bar Chill Sounds Vol 15 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287732.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Jim Brickman - Underground (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287729.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ VA - Lovely Mood Music presents: Chill With Style Series (The Lounge & Chill Out
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287562.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Solarstone - One (Limited Edition) (2019) [FLAC|Lossless|WEB|tracks] <Trance, Pr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287553.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ VA - Re: Structured (Mixed by John Digweed) (2015) [MP3|320 кб/с]<Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287448.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ VA - Live in South Beach (Mixed by John Digweed) (2015) [FLAC|Lossless|WEB-DL]<M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287445.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Feint - Fall Away EP (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287310.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ VA - Anjunadeep 07 (Mixed by Jody Wisternoff & James Grant) (2015) [MP3|320 кб
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287306.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Phutureprimitive - Discography 15 Releases (2004-2019) Native Harmonix [FLAC|Los
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287025.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ Conjure One - Holoscenic (2015) [FLAC|Lossless|WEB-DL]<Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286984.jpg" />
 </div>
 
 
@@ -625,122 +741,6 @@ Conjure One - Holoscenic (2015) [FLAC|Lossless|WEB-DL]<Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82BDDB18B4D582A4F27682B727FC4FCB61BF6BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080393   (286690) от 08.12.2016
-
-VA - Mountain Sound the Lounge of St. Anton (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bandora Tunes - Borghese Jazz 2:58
-02. Aida Moniz - Les Etoiles Au Dessus De La Tour Eiffel 3:48
-03. Amy More - Brighton Beach Dreams 5:07
-04. Carlos Bonito - Chango Tango 4:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D3E4270FE0A7C9BB24CAAFC1AC74DA2EAA8A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080864   (286642) от 08.12.2016
-
-VA - Deep House Ibiza Chart Best of 2016 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Colors - Drop (Mat.Joe Remix) 06:44
-02. Emil Croff - Jack 06:25
-03. Eriq Johnson - Pink Rhino 05:50
-04. Shawn Wilson - You Only Know 05:22(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0143BE768C62BF2FD77B8AF819F7F85822CE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080850   (286630) от 08.12.2016
-
-VA - A Guy In Buenos Aires (Mixed by Guy Mantzur) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khen - Authentica
-02. Chicola - The Night We Call It the Day
-03. Kastis Torrau - Chasing You
-04. Monkey Safari - Boris (Guy Mantzur Remix)(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 03:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415EF435B207A5C89773AA648685097430C5226C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263640   (286538) от 20.11.2018
-
-VA - 3xA Mixed Series VI (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Alfred - Cygnus (Th Moy Remix)                              [07:59]
-02. Experimental Feelings and Joy - Run (Christian Monique Remix)   [10:04]
-03. Dziathy - Festiv4l (Mendexx Remix)                              [07:36]
-04. Kade B - Shemyaza (PushnBall Remix)                             [07:40](   Читать дальше...   )Жанр: HouseПродолжительность: 04:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E2E70F1714243635F3E957824BE89A97702553
 ```
 
 https://mybot314.ru/tekegram_catalog/

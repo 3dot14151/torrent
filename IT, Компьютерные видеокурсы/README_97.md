@@ -1,32 +1,3 @@
-###  Публикация: 1600553   (156372) от 27.12.2022
-
-Slurm (Слёрм), Виталий Филиппов и др. | Ceph (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите технологию сетевого хранилища Ceph, чтобы использовать в своих проектах для повышения отказоустойчивости.
-На курсе ответим на вопросы:
-Можно ли запускать на Ceph базу данных под высокой нагрузкой? Какие настройки необходимо сделать?
-Можно ли сделать сетевое хранилище на Ceph, сравнимое по производительности с локальным диском?(   Читать дальше...   )Производство: Slurm (Слёрм)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B63B9A14AB7CDEE0CB2AB72741B373602E843FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676351   (156233) от 13.11.2023
 
 BigData Team, Алексей Драль, Артём Выборнов, Павел Клеменков | Практический курс по Big Data (2023) WEB-DL [RU]
@@ -35,7 +6,7 @@ BigData Team, Алексей Драль, Артём Выборнов, Павел
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156233.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Yandex.ru | Курсы информационных технологий, Тре
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155807.jpg" />
 </div>
 
 
@@ -99,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154891.jpg" />
 </div>
 
 
@@ -125,7 +96,7 @@ Udemy, Roman Dushkin | Блокчейн и атаки на него (2022) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154805.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ ProfIT | DBA Введение в профессию (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154756.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ devtodev | Введение в геймдев (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154719.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ BAS, Павел Дуглас | Курс по BAS (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154707.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ Shultais Education | Проектирование баз данных (2018) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154669.jpg" />
 </div>
 
 
@@ -261,7 +232,7 @@ Shultais Education | Расширенные возможности SQL (2019) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154602.jpg" />
 </div>
 
 
@@ -287,7 +258,7 @@ Shultais Education | Основы SQL (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154552.jpg" />
 </div>
 
 
@@ -313,7 +284,7 @@ Udemy, Roman Dushkin | Основы криптографии и подстано
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154545.jpg" />
 </div>
 
 
@@ -339,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154496.jpg" />
 </div>
 
 
@@ -368,7 +339,7 @@ Slurm (Слёрм) | Асинхронное программирование н�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154493.jpg" />
 </div>
 
 
@@ -394,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154486.jpg" />
 </div>
 
 
@@ -421,7 +392,7 @@ Adrian Cantrill | AWS Certified Solutions Architect - Associate (SAA-C03) (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154476.jpg" />
 </div>
 
 
@@ -450,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154447.jpg" />
 </div>
 
 
@@ -477,7 +448,7 @@ Udemy, Reuben Ward | Создание игры в жанре "Королевск
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154032.jpg" />
 </div>
 
 
@@ -504,7 +475,7 @@ Lynda.com | Изучение ECMAScript 6 / Learning ECMAScript 6 (2017) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153915.jpg" />
 </div>
 
 
@@ -530,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153637.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Udemy, Максим Новак | Универсальные коллекции �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153442.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ kobezzza.channel, Андрей Кобец | Мастер класс по реш�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153267.jpg" />
 </div>
 
 
@@ -610,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153040.jpg" />
 </div>
 
 
@@ -637,7 +608,7 @@ Skillbox, Михаил Колодочка | Программирование д�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153030.jpg" />
 </div>
 
 
@@ -664,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152695.jpg" />
 </div>
 
 
@@ -692,7 +663,7 @@ Marlin | Laravel как инструмент:  на примере создан�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152670.jpg" />
 </div>
 
 
@@ -703,6 +674,34 @@ Marlin | Laravel как инструмент:  на примере создан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7A83022087FE39347C82C97EBC9ADF9B4B71E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194603   (152597) от 26.12.2017
+
+Специалист | Linux (CentOS/Debian)/FreeBSD. Уровень 3. Взаимодействие с сетевым оборудованием Cisco Systems (2015) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152597.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отличии от сертифицированных курсов компании Cisco, предназначенных для качественной подготовки к сертификации, наш курс ориентирован на решение практических жизненных задач, и демонстрирует уникальные возможности интеграции систем Linux/FreeBSD и Cisco.
+
+Данный курс предназначен для системных администраторов,  работающих с системами Linux или FreeBSD, и, использующих, (   Читать дальше...   )Производство: Лохтуров Вячеслав АлександровичЖанр: Linux, Системное администрированиеПродолжительность: 14:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB7F48F50CDE0276A3FF0CFEADF381B016425DF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

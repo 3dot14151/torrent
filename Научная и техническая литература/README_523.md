@@ -1,134 +1,3 @@
-###  Публикация: 1648675   (208111) от 24.07.2023
-
-Т.А. Мирошниченко | Газоснабжение. Курсовое проектирование (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Излагаются вопросы о составе и свойствах горючего газа, конструктивных особенностях систем газоснабжения и подбора газорегулирующего оборудования. Рассматриваются основные рекомендации для выполнения курсового проекта по дисциплинам «Газоснабжение», «Проектирование и безопасность систем газоснабжения» и «Надежность и безопасность систем тепло- и газоснабжения».
-Для (   Читать дальше...   )Жанр: ГазоснабженмеИздательство: Инфра-инженерияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADAED4F8EEF43935FFFC88DD8C5D5C35D9C2937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648660   (208065) от 24.07.2023
-
-А.Г. Братко | Искусственный разум, правовая система и функции государства (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208065.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии рассматриваются методологические проблемы встраивания искусственного разума в правовую систему с учетом закономерностей социума. Описаны свойства нормы права как микросистемы в подсистемах права и способы ее закрепления в системе законодательства, а также логика построения правовой нормы. Предлагается и обосновывается идея о создании специально для искусственного (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Инфра-МФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2ABE402AE92C4358E4670C666528846914E1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610358   (207968) от 07.02.2023
-
-Сборник | Physics Textbooks - Учебники по физике [174] (1983-2021) [PDF, DJVU] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка учебников на английском языке по Физике за период с 1983 по 2021 года. Подробное описание содержимого подборки находится под спойлерами.Жанр: ФизикаЯзык: АнглийскийФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21AA15428B1BEBE6BF0F2E80DE0DD60EDCE679AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649125   (207905) от 26.07.2023
-
-М.Я. Выгодский | Справочник по высшей математике [12-е издание] (1977) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга составляет продолжение Справочника по элементарной математике того же автора и включает весь материал, входящий в программу основного курса математики высших технических учебных заведений (механико-машиностроительных, строительных, авиационных, транспортных, электротехнических, энергетических и горнометаллургических).Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9FE2AC1CB9F5E5DDBE1A7AE6764BA586017970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610924   (207820) от 09.02.2023
-
-Е.Д. Сабо (ред.) | Гидротехнические мелиорации (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207820.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассмотрена роль воды в природных и антропогенных ландшафтах. Описаны способы корректировки водного режима почв в условиях избыточного и недостаточного увлажнения, различные гидротехнические и гидромелиоративные сооружения, оптимальные способы организации и механизации строительных работ. Содержание учебника соответствует актуальным требованиям Федерального (   Читать дальше...   )Жанр: Садово-парковое строительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9926E0A876A3057BD24C3FE5A26A772699AD995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649501   (207770) от 28.07.2023
 
 В.В. Коршак | Химическое строение и температурные характеристики полимеров (1970) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207770.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207723.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207626.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207549.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207545.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207386.jpg" />
 </div>
 
 
@@ -295,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207360.jpg" />
 </div>
 
 
@@ -323,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207357.jpg" />
 </div>
 
 
@@ -349,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207353.jpg" />
 </div>
 
 
@@ -375,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207313.jpg" />
 </div>
 
 
@@ -401,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207311.jpg" />
 </div>
 
 
@@ -427,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207292.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207263.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207205.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207154.jpg" />
 </div>
 
 
@@ -531,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207150.jpg" />
 </div>
 
 
@@ -557,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207140.jpg" />
 </div>
 
 
@@ -584,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207081.jpg" />
 </div>
 
 
@@ -611,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207066.jpg" />
 </div>
 
 
@@ -639,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207017.jpg" />
 </div>
 
 
@@ -665,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207015.jpg" />
 </div>
 
 
@@ -677,6 +546,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:722D0BF983E6BD192AE02B0F1A2C2B3D11F680A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651291   (206991) от 06.08.2023
+
+М.Я. Выгодский | Справочник по элементарной математике (1954) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит все определения, правила, формулы и теоремы элементарной математики, а также математические таблицы. Предметный указатель и подробное содержание позволяет легко и быстро получать необходимую информацию.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E3A5A067A70C9C3EBEBE1CE24A8052CBB61476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579836   (206977) от 29.09.2022
+
+Д. Кентербери | Бушкрафт 101: Современное руководство по искусству выживания в дикой природе (2022) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты можешь быть бесконечно крут, но какой в этом толк, если при первом же походе в лес ты не знаешь, что делать?
+ Ты готов к выживанию в дикой природе?
+ Что ты знаешь о том, как остаться в живых при любых условиях?
+ Главная проблема человечества в заблуждении. Самонадеянно веря: «Уж со мной-то точно ничего плохого не случится», — они попадают в чрезвычайные ситуации (   Читать дальше...   )Жанр: Самооборона. ВыживаниеПеревод: А. АмелинаЯзык: РусскийФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1676CF0ABAEE2F37C76DF8CE8DDA3F1138122F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651714   (206916) от 07.08.2023
+
+Л.В. Городняя | Основы функционального программирования (2-е изд.) (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206916.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе изложены основы функционального программирования и методы его применения при решении сложных задач на стыке искусственного интеллекта и системного программирования. Студенты познакомятся с основами символьной обработки информации, слабо отраженными в отечественной литературе, а также с эффективными методами преобразования информации, реализация которых требует (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A031D5EB4753773DAF3C9BA63DFDD00B912D619F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651741   (206895) от 07.08.2023
+
+М.Я. Выгодский | Справочник по высшей математике  (1973) [PDF] [10-е издание]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга составляет продолжение Справочника по элементарной математике того же автора и включает весь материал, входящий в программу основного курса математики высших технических учебных заведений (механико-машиностроительных, строительных, авиационных, транспортных, электротехнических, энергетических и горнометаллургических).Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B20913BFB77DD130D07339A824764E70F82AE25E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651576   (206892) от 07.08.2023
+
+А.Х. Шень | Методы построения алгоритмов. Практикум (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практикум содержит задачи по программированию различной трудности. Большинство задач приводятся с решениями. Цель издания — научить основным методам построения корректных и быстрых алгоритмов.
+Практикум будет полезен учителям информатики, старшеклассникам, студентам младших курсов высших учебных заведений. Может быть использован на кружковых и факультативных занятиях (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF0520B82C28A930EFF4E201716346C72B65BDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

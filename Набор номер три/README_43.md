@@ -1,3 +1,160 @@
+###  Публикация: 1481287   (1008360) от 02.07.2021
+
+Война будущего / The Tomorrow War (2021) WEB-DLRip [H.264] [MVO] [PR]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008360.jpg" />
+</div>
+
+
+###  Подробнее
+
+В будущем идёт разрушительный конфликт с инопланетной расой. В попытке переломить ход войны учёные начинают призывать в свою армию солдат из прошлого.Производство: США / Skydance Productions, Lit Entertainment Group, New Republic PicturesЖанр: Фантастика, боевикРежиссер: Крис МакКейАктеры: Крис Пратт, Ивонн Страховски, Дж.К. Симмонс, Бетти Гилпин, Сэм Ричардсон, Жасмин Мэтьюз, Эдвин Ходж, Райан Кира Армстронг, Кит Пауэрс, Мэри Линн РайскабПеревод: Профессиональный многоголосый (NewComers)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 02:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B58E98B936A89F0304625A71064D4B45612C60F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471011   (1008183) от 03.07.2021
+
+Пищеблок (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока вся страна следит за Олимпиадой-80, в пионерском лагере «Буревестник» на Волге происходят странные события. Дети загадочно исчезают по ночам, а потом возвращаются — но совсем не такими, как прежде. Увлеченные летней свободой и друг другом вожатые не замечают, как в их отрядах оживают страшные пионерские легенды, а руководство лагеря делает вид, что все в порядке. (   Читать дальше...   )Производство: Россия / 	SredaЖанр: триллер, фантастикаРежиссер: Святослав ПодгаевскийАктеры: Пётр Натаров, Даниил Вершинин, Ангелина Стречина, Илья Коробко, Ирина Пегова, Сергей Шакуров, Тимофей Трибунцев, Николай Фоменко, Никита Кологривый, Яна ГладкихСубтитры: РусскиеПродолжительность: ~ 00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6459E64BCC8FCEF0239523179F5685B791408E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481338   (1007960) от 05.07.2021
+
+Microsoft изменит цвет «синего экрана смерти»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007960.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой операционной системе фон сообщающего о критической ошибке экрана изменится на черный. Таким образом, цвета экранов при ошибке, включении и выключении компьютера будут одинаковыми. Нововведение доступно в бета-версии Windows 11 и будет добавляться в ОС постепенно.Журналисты отметили, что это первое серьезное изменение дизайна «синего экрана смерти» (Blue Screen (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481733   (1007928) от 05.07.2021
+
+Вот как  выглядят новые поезда «Иволга 3.0»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания «Трансмашхолдинг» в рамках Московского урбанистического форума показала головной вагон нового состава пассажирского поезда «Иволга 3.0». Поезд создан для использования в режиме наземного метро. «Иволга 3.0» отличается высокой плавностью хода и низким уровнем шума.Максимальная скорость состава достигает 160 км/ч. В поезде предусмотрены 50 дополнительных кресел (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481950   (1007808) от 06.07.2021
+
+Почему земным организмам не выжить на Марсе
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марс последнее время преподносит все больше сюрпризов. То там найдут воду, то высохшие озера, и возможность того, что там когда-нибудь можно будет жить, кажется все реальнее — но стоит несколько приглушить оптимизм.Марс — планета недружелюбная. Там очень холодно, почти нет жидкой воды, а ультрафиолет постоянно бомбардирует поверхность планеты. А еще в ее почве куча (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480740   (1007798) от 06.07.2021
+
+Игра! Три заголовка – одна инсценировка
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три заголовка – одна инсценировкаПравила ИГРЫ
+Из трёх разных названий (заголовков) фильмов требуется составить (инсценировать) один новый и законченный по смыслу словесный оборот.Пример.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482052   (1007660) от 07.07.2021
 
 Евросоюз выделил 4 млн евро на обновление платформы для взлома телефонов
@@ -6,7 +163,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007660.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007641.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007506.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007503.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007344.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.1.7b Fix/dlc) License GOG [Imperial E
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007326.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007214.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007207.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007203.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007200.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007064.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ Ventoy 1.0.46 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007054.jpg" />
 </div>
 
 
@@ -322,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006801.jpg" />
 </div>
 
 
@@ -348,7 +505,7 @@ Total Commander 10.00 Freemen Mesh 21.7.1 x64 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006797.jpg" />
 </div>
 
 
@@ -375,7 +532,7 @@ Microsoft ностальгирует: выпущены обои в стиле Wi
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006684.jpg" />
 </div>
 
 
@@ -401,7 +558,7 @@ Microsoft представила первый стабильный дистри�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006682.jpg" />
 </div>
 
 
@@ -427,7 +584,7 @@ Windows 10 21H1 19043.1110 Compact & FULL x64 by Flibustier [RU]
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006544.jpg" />
 </div>
 
 
@@ -456,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006422.jpg" />
 </div>
 
 
@@ -483,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>23
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006420.jpg" />
 </div>
 
 
@@ -509,7 +666,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (332.9/dlc) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006419.jpg" />
 </div>
 
 
@@ -520,168 +677,6 @@ ARK: Survival Evolved (2017) [Ru/Multi] (332.9/dlc) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80B11EE4A6B405EAB69A1598A60FD79AAD94DC61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483774   (1006328) от 17.07.2021
-
-В Китае полностью искоренили добычу криптовалюты
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аньхой стала последней китайской провинцией, объявившей о полном запрете майнинга криптовалюты. Власти провинции заявили, что этот шаг поможет ослабить острую нехватку электроэнергии в течение следующих трёх лет.По данным издания Focus, теперь в Китае полностью запрещена добыча криптовалюты. В ближайшие дни на территории провинции свернут работу всех криптомайнинговых (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483716   (1006306) от 17.07.2021
-
-Красный призрак (2020) WEBRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима 1941 года. Выходя из окружения около Вязьмы, небольшая группа советских солдат вынуждена остановиться в заброшенной деревне. Но передышки не получается. В этом же доме решает обосноваться хорошо вооружённый немецкий отряд во главе с карателем Вермахта, который ищет таинственного солдата по прозвищу Красный призрак. Он появляется из ниоткуда, в одиночку убивает (   Читать дальше...   )Производство: Россия, ООО "АБС"Жанр: Триллер, История, ВоенныйРежиссер: Андрей БогатыревАктеры: Юра Борисов, Алексей Шевченков, Владимир Гостюхин, Полина Чернышова, Вольфганг Черни, Михаил Горевой, Олег Васильков, Павел Абраменков, Вячеслав Шихалеев, Пауль ОрлянскийПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB183DDF56CA4EF4267759C60C1968DF7D531F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065375   (1006303) от 17.07.2021
-
-Solar Fields - Discography 40 Releases (2001-2021) Ultimae Records, E.A.R.S, Sidereal, Droneform Records [FLAC|Lossless|tracks+.cue, tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confusion Illusion (06:58)
- 02. Elevator Sunshine Girl (06:02)
- 03. Cosmic Dessert (05:58)
- 04. Magic Eye (08:00)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive Trance •Продолжительность: 67:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A0809F0FD92C5652DE4E532B90778755883BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483997   (1006197) от 18.07.2021
-
-Совсем не игрушка: в США разгорелся скандал из-за пистолета, "собранного из Lego"
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская компания – производитель оружия Culper Precision выпустила пистолет Block19, который внешне нельзя отличить от будто бы собранного из деталей популярного детского конструктора Lego.В зависимости от модели и расцветки «игрушку» можно приобрести за $550-760.Корпус пистолета раскрашен так, что выглядит как будто его собрали из красных, желтых, зеленых и (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484093   (1006183) от 18.07.2021
-
-«Яндекс» создал автоматический перевод видеороликов на русский язык
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006183.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Яндекс» создал технологию машинного перевода видео. С ее помощью видеоролики зарубежных авторов смогут посмотреть даже те, кто не владеет иностранными языками – разработка «Яндекса» в автоматическом режиме переведет видео на русский язык и озвучит его закадровым голосом.  По заявлению создателей, технология не имеет аналогов в мире.На сегодняшний день у «Яндекса» (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484037   (1006182) от 18.07.2021
-
-Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.17.07.21) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа от MSDN: ru_windows_10_enterprise_ltsc_2019_x64_dvd_9aef5d46.iso
-
-   Интегрированы важные и рекомендуемые обновления по 16.07.2021 года.
-Установлен NET Framework 3.5 (включает .NET 2.0 и 3.0); установлен NET Framework 4.8; включен стандартны просмотр фото. Для получения полной информаций об изменениях, читайте раздел "дополнительная (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC3FFCD6E1E5D4FDF80243D180CAC183AF008E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

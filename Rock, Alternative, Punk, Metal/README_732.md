@@ -1,3 +1,30 @@
+###  Публикация: 1580922   (329053) от 03.10.2022
+
+Elysian Fields - Gateway (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Rock Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heechee Rendezvous (00:27:41)
+02 - Annals of the Heechee (00:32:26)Жанр: Progressive Rock, Rock OperaПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417BB76916CEBE77F58FBB7E8689FF103A406D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580887   (329050) от 03.10.2022
 
 Free Spirit - All The Shades Of Darkened Light (2014) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +33,7 @@ Free Spirit - All The Shades Of Darkened Light (2014) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329050.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Monster Truck - Warriors (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southe
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329049.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329030.jpg" />
 </div>
 
 
@@ -95,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329028.jpg" />
 </div>
 
 
@@ -124,7 +151,7 @@ Free Spirit - Pale Sister Of Light (2008) Japanese Edition, Reissue, 2009, Avalo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328987.jpg" />
 </div>
 
 
@@ -153,7 +180,7 @@ Rain Of Acid - Ghost Town (2014) [FLAC|Lossless|image + .cue] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328985.jpg" />
 </div>
 
 
@@ -182,7 +209,7 @@ Sonata Arctica - Acoustic Adventures (Volume Two) (2022) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328980.jpg" />
 </div>
 
 
@@ -211,7 +238,7 @@ Phantom Spell - Immortal's Requiem (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328968.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ Ice Howl - Darkness From Beyond (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328893.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ Manfred Mann’s Earth Band - Angel Station (1979) Japanese Edition, Reissue, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328891.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ Condra - Aeonic Tempest from the Abyss (2022) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328886.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ The Halo Effect - Days Of The Lost (2022) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328796.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ Jeff Brown (Ex-Sweet) - 23 Years (2015) [MP3|320 кб/с]<Hard Rock, Classic Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328413.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ VA - Classic Rock Presents - Voodoo Lounge (2014) [FLAC|tracks + .cue]<Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328412.jpg" />
 </div>
 
 
@@ -414,7 +441,7 @@ Trans-Siberian Orchestra - Letters From The Labyrinth (2015) [MP3|320 кб/с]<S
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328403.jpg" />
 </div>
 
 
@@ -443,7 +470,7 @@ Bryan Ferry - Avonmore (2014) [FLAC|image+.cue]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328358.jpg" />
 </div>
 
 
@@ -472,7 +499,7 @@ VA - Рок против шерсти (приложение к журналам 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328354.jpg" />
 </div>
 
 
@@ -501,7 +528,7 @@ Teramaze - Her Halo (2015) [OGG|482-502 кб/с]<Progressive Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328347.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ Dёргать! (Дергать!) - Я Молодой (2015) [MP3|320 кб/с]<Pu
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328287.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ SMAZKA - 2 Albums (2021-2022) [MP3|320 Kbps] <Punk Rapcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328137.jpg" />
 </div>
 
 
@@ -588,7 +615,7 @@ The Tirith - 2 Albums (2015-2019) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328136.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ CWT - XX YEARS OF FAIR PLAY (2022) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328135.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ Absent Sunday - 2 Albums (2018-2022) [MP3|320 Kbps] <Dark Cabaret , Female Vocal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328134.jpg" />
 </div>
 
 
@@ -675,7 +702,7 @@ Realm Drifter - Realm Drifter (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stone
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328133.jpg" />
 </div>
 
 
@@ -704,7 +731,7 @@ Other in June - Stalks and Oaks (2022) [MP3|320 Kbps] <Alt Country, Southern Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328132.jpg" />
 </div>
 
 
@@ -718,35 +745,6 @@ Other in June - Stalks and Oaks (2022) [MP3|320 Kbps] <Alt Country, Southern Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4349C61584FAEA0D1433181A6740629E870A9910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581050   (328131) от 04.10.2022
-
-Hexis - Aeternum (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hardcore, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Letum
-02. Divinitas
-03. Exhaurire
-04. Interitus(   Читать дальше...   )Жанр: Black Metal, Hardcore, SludgeПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A840D43F60C87E74C7AE2D2443C37796E74C91F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

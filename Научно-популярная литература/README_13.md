@@ -1,29 +1,3 @@
-###  Публикация: 1204195   (784648) от 06.02.2018
-
-А.А. Малахов | Наперекор судьбе (1966) [DJVU]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои книг профессора доктора геолого-минералогических наук А. Малахова весьма необычны. Это изумительные пейзажные яшмы с неповторимым сказочным рисунком и вулканическая лава, страшноголовые ящеры и серые невзрачные камни городских мостовых. И всех этих необычных героев объединяет стремление автора открыть в их судьбах пути к решению больших проблем современной (   Читать дальше...   )Жанр: История, науковедение, естествознание, геологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD53815A6DB0FCEBE20C0AB2C7F204EFC088508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204492   (784613) от 06.02.2018
 
 С.Н. Рязанский | Удивительная Земля (2018) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784613.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784513.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784324.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784323.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783985.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783653.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783442.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783301.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782091.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781810.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781414.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781008.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780987.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780280.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778636.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778633.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778622.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778614.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777841.jpg" />
 </div>
 
 
@@ -538,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776794.jpg" />
 </div>
 
 
@@ -564,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776790.jpg" />
 </div>
 
 
@@ -590,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776787.jpg" />
 </div>
 
 
@@ -616,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774295.jpg" />
 </div>
 
 
@@ -642,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774214.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774208.jpg" />
 </div>
 
 
@@ -681,6 +655,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFBE73EC7771B61C3E3187EF9F3928F205DAD2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212004   (774203) от 14.03.2018
+
+Джордж Массер | Нелокальность. Феномен, меняющий представление о пространстве и времени (2018) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена истории феномена нелокальности в физике. Она представляет собой захватывающий обзор фактов, указывающих на то, что пространство-время является производным свойством Вселенной, а не ее фундаментальным элементом. Автор показывает, что нелокальность может быть матерью всех загадок и головоломок, с которыми сталкиваются физики в наши дни, - это не (   Читать дальше...   )Жанр: Физика, Общие работы по физикеПеревод: Вячеслав Ионов, Мария ТомсФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22A8195B5518A43B2127B18BDA35DC835551E50
 ```
 
 https://mybot314.ru/tekegram_catalog/

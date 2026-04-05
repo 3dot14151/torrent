@@ -1,3 +1,280 @@
+###  Публикация: 1775884   (29471) от 28.01.2025
+
+Шрифты - Darrell Flood - Game Of Squids [OTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт на тему сериала "Игра в кальмара".
+Разработчик: Darrell Flood
+Поддержка кириллицы: Есть (Русская, Белорусская, Украинская, Молдавская).
+(   Читать дальше...   )Формат: OTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9BC7049A421BC139E550CB18B2B3A63C2EC69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776014   (29391) от 29.01.2025
+
+Шрифты - Helvetica - Ultimate Font Collection [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первоначально этот шрифт был выпущен под названием Neue Haas Grotesk и был разработан в 1957 году Максом Мидингером для Haas'sche Schriftgiesserei (шрифтовой фабрики Haas) в Швейцарии.
+
+Название было изменено на Helvetica (адаптация Helvetia, латинского названия Швейцарии) Вальтером Кунцем, когда D. Stempel AG, крупный акционер Haas, переработал дизайн для Linotype (   Читать дальше...   )Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31FADF6B0F245BFC327666C02447A211D35696E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776018   (29373) от 29.01.2025
+
+Шрифты - Hotix - Quirky Display Font [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря своему уникальному необычному стилю, Hotix идеально подходит для добавления нотки веселья и креативности в ваши проекты.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630C6DF0FC11FF6DC28C9EAB499A92AD61E298BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776036   (29370) от 29.01.2025
+
+Шрифты - Aquene Rough [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aquene Rough — это шрифт с засечками в стиле ар-нуво, который выводит на первый план классическую роскошь и винтажный шарм.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928918F43052942DA4EAFFE233DC106F935A938D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775942   (29368) от 29.01.2025
+
+Шрифты - Cosity - Display Serif Font [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cosity — это изысканный шрифт Display Serif, который излучает элегантность и современность. Идеально подходит для проектов, требующих нотку класса, Cosity предлагает два универсальных стиля: Regular и Italic, что делает его фантастическим выбором для различных дизайнерских нужд.
+
+Кириллица не поддерживается.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B19310A75A3CAAF6F8F26438B3C2E65FF6351C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776040   (29362) от 29.01.2025
+
+Шрифты - Yorkshire - Retro Rounded Typeface [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yorkshire — очаровательный ретро-округлый шрифт, который привносит в ваши проекты нотку ностальгии и игривости. Благодаря плавным изгибам и винтажному виду Yorkshire идеально подходит для создания привлекательных логотипов, плакатов, упаковки и графики для социальных сетей. Этот шрифт вдохновлен дизайном середины века и сочетает в себе смелость с мягким, доступным (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072078E3D920FA90871C7B5FD23C2319AD559451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776223   (29172) от 31.01.2025
+
+Шрифты - Refinery [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Refinery — новейший шрифт в коллекции квадратных шрифтов Evanston. С похожей на Tavern и Alehouse структурой заглавных букв, Refinery включает как строчные, так и капительные, что делает его идеальным шрифтом для настройки текста абзаца.
+
+Кириллица поддерживается.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E8E30C99AA36A554BB8086C245D65EC64B35E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821078   (29082) от 30.09.2025
+
+Шрифты - GGBotNet - First Time Writing! [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт First Time Writing! содержит 1 стиль и 2508 глифов.
+Самый первый базовый стиль рукописи, который преподается в начальной школе. Поддержка 103 языков.
+Лицензируется на основе универсального соглашения Creative Commons Zero v1.0.Формат: TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FAFEB8742A7E9358389D5A9F1253470639E76D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821155   (29080) от 01.10.2025
+
+Шрифты - Behance - Valera Cherevkov - Grecha - 145493309 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Греча (Grecha) вдохновлен семейством Grecian type, плакатами конца 19 века, которые олицетворяют собой моду на большие засечки (так называемые SLAB). Греча, в отличии от своих предков не боится компенсаций, а также изрядно располнел.Формат: TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D136D573D7CE886D7C4058D57B0E92F2AEA9CA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467944   (28633) от 05.02.2025
+
+Шрифты - Русские Винтажные шрифты от Александры Гофманн / Vintage Fonts by A.Gophmann vol.1-64 + Bonus [TTF]
+
+>>След.
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28633.jpg" />
+</div>
+
+
+###  Подробнее
+
+В цифровую эру многие неповторимые старинные шрифты получили второе рождение. Шрифты Александры Гофман активно используются российскими и зарубежными дизайнерами. Александра Гофманн, в основном, лично отрисовывает шрифты и передает их безвозмездно дизайнерскому сообществу. За что ей просто огромное СПАСИБО!
+
+Это, на данный момент, максимально полная коллекция шрифтов (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E856CD863BFA71D3A31881655CCEF0D0401592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777417   (28457) от 06.02.2025
 
 Шрифты - Roman Bobkov - Behance - Halo Grotesk - 212981353 [OTF]
@@ -6,7 +283,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28457.jpg" />
 </div>
 
 
@@ -33,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28353.jpg" />
 </div>
 
 
@@ -59,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28350.jpg" />
 </div>
 
 
@@ -85,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28347.jpg" />
 </div>
 
 
@@ -113,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28290.jpg" />
 </div>
 
 
@@ -142,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28044.jpg" />
 </div>
 
 
@@ -168,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28037.jpg" />
 </div>
 
 
@@ -196,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27960.jpg" />
 </div>
 
 
@@ -224,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27934.jpg" />
 </div>
 
 
@@ -250,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27928.jpg" />
 </div>
 
 
@@ -276,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27722.jpg" />
 </div>
 
 
@@ -302,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27415.jpg" />
 </div>
 
 
@@ -328,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27330.jpg" />
 </div>
 
 
@@ -354,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27324.jpg" />
 </div>
 
 
@@ -380,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27310.jpg" />
 </div>
 
 
@@ -408,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27304.jpg" />
 </div>
 
 
@@ -421,271 +698,6 @@ Franca — это неогротескное семейство в девяти 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B877B75FC139832030B55AEBA208DF98A43887F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780194   (27302) от 17.02.2025
-
-Шрифты - Creative Market - Champilon - 290895097 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Champilon — современный шрифт без засечек с чистым и элегантным дизайном. Благодаря гладким лигатурам и альтернативному шрифту он добавляет современный штрих к любому дизайну.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB4D42C0CF564E768521F6498DCCE923C224ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780343   (27300) от 17.02.2025
-
-Шрифты - MyFonts - Brownstone Sans [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27300.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора "Один дизайн зажигает другой. Экспериментируя с линиями и изгибами монолинейных шрифтов Business Penmanship, Алехандро Пол обнаружил новые интересные формы и очертания, которые не соответствовали теме Спенсера в этом шрифте. Эти формы кипели в подсознании Эла в течение следующих трех лет, в течение которых он посетил Нью-Йорк, изучал редкие книги образцов (   Читать дальше...   )Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E64B2DFD5F3AE24C67270BF5144B0D2F470BAEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781613   (26557) от 24.02.2025
-
-Шрифты - Creative Market - Romantic Juliette SVG Font - 290895967 [OTF, OTF SVG, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Romantic Juliette — реалистичный каллиграфический шрифт SVG, созданный для любого профессионального брендинга проектов, таких как логотипы, свадебные приглашения, водяные знаки, плакаты, брендинг, рекламные акции, упаковка продукции и т. д. Каждая буква имеет реалистичный стиль каллиграфии.Формат: OTF, OTF SVG, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D84F30B9C612A60EB7B2D85CE246234E3BE8CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781885   (26467) от 25.02.2025
-
-Шрифты - Gimlet [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gimlet черпает свое вдохновение из шрифта Schadow, созданного Георгом Трампом в 1938 году. По просьбе Ника Шермана я переосмыслил необычный шрифт с засечками как энергичную современную рабочую лошадку, дополненную тремя оптическими размерами и гибким набором ширины, адаптированным для адаптивных макетов. Многогранная серия, говорящая уникальным голосом, Gimlet — (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60DA9E70A594E4E11AC1E34AEB5FDBFC2B739DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781841   (26461) от 25.02.2025
-
-Шрифты - Fontfabric - Panton [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Panton был расширен за счет Panton Narrow! Он имеет 9 прямых и 9 соответствующих курсивных начертаний от тонкого до толстого. Семейство шрифтов Panton включает 54 шрифта - 19 прямых с 19 соответствующими курсивными и 16 наборов иконок в качестве бонуса! Он характеризуется превосходной читаемостью как в веб-дизайне, так и в области печатного дизайна, хорошо законченными (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3404D03C41E9E90D31B8E2E0BA6B4EEA25C2762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781822   (26460) от 25.02.2025
-
-Шрифты - MyFonts - Tomkin [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tomkin — это очень большое суперсемейство из 54 шрифтов! Tomkin упакован контрастом, стилями, весами, шириной. Полное семейство шрифтов Tomkin включает 9 весов с курсивом и 3 ширины (нормальная, узкая, уплотненная) версии для каждого из них, всего 54 шрифта для многофункционального использования, особенно для совместной работы, такой как веб-сайт, журнал, редакционная (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95F789449BF0B9615C04E1156AA5DB0AE94B5A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782088   (26260) от 27.02.2025
-
-Шрифты - Frere-Jones Type LLC - Interstate [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Interstate начинался как личный вызов, чтобы создать шрифт из маловероятного источника — надписей на шоссе. Согласно традиционным предписаниям, это семейство шрифтов полно форм, которые «неправильны», но важны для его индивидуальности, например, заглавные буквы, которые варьируются от странно сжатых до странно широких, или резкий выносной элемент строчной g. Фрер-Джонс (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3E8FE7DFFD93499D2269A45F8D8924540A58C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782094   (26255) от 27.02.2025
-
-Шрифты - Blast Foundry - Sharf [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sharf — редакционная шрифтовая семья с экспериментальным оттенком и непредсказуемыми контрастными изменениями между стилями текста и заголовков. Стили текста довольно спокойные и традиционные с элегантным характером, тогда как стили заголовков удивляют своей эксцентричностью. Sharf объединяет множество идей, которые, возможно, не должны существовать рядом друг с (   Читать дальше...   )Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64E4DD9B6E4EE50D006D81BCAF69621B798881B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782167   (26253) от 27.02.2025
-
-Шрифты - Creative Market - Ambient Loft - Color Bitmap Font - 290903619 [TTF, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ambient Loft — цветной растровый шрифт.
-
-Кроме того, в набор входят файлы PNG высокого разрешения с прозрачным фоном. Дополнительные графические элементы, такие как электрические провода, рамки и латунная сетка, также представлены в формате PNG.
-(   Читать дальше...   )Формат: TTF, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BAD697D5D5CBDB96E24E11E84EF45DF11C32F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782909   (25838) от 03.03.2025
-
-Шрифты - Ekaterina Kotracheva - Behance - KLUCHIK TYPEFACE - 160443043 [OTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модульный шрифт с кириллицей, вдохновленный формой ключа и его засечек. Это веселый и дружелюбный шрифт, который может использоваться при оформлении дизайн-продукции, предназначенной для детей. Расширенная кириллица от "He Rez AD" (Украинская, Белорусская, Молдавская), им же объединены контуры некоторых глифов по причине их фрагментации, улучшено отображение (   Читать дальше...   )Формат: OTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3132F245344C7A0D86B04B02C9CC9E48BEFEEF69
 ```
 
 https://mybot314.ru/tekegram_catalog/

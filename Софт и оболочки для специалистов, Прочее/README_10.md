@@ -1,3 +1,107 @@
+###  Публикация: 1213779   (767215) от 18.03.2018
+
+Shutter Pro 4.2 + Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компактная многофункциональная утилита для управления питанием компьютера. Вы сможете выключить, перезагрузить, перевести в режимы гибернации / сна / ждущий ваш компьютер, а также доступно отключение монитора, включение / отключение громкости, запуск программ, воспроизведение звуков, закрытие процессов.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE076179CF39925A7BBECC1C6B6C8E3D20A2523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279398   (765858) от 29.01.2019
+
+SAP Advantage Database Server 12.00.0.0 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Серверное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advantage Database Server (ADS), созданный компанией Extended Systems, — это продукт, который может представлять немалый интерес для компаний, по-прежнему эксплуатирующих приложения, хранящие данные в таблицах dBase или Paradox. Это могут быть приложения, созданные с помощью Clipper, dBase, FoxPro либо посредством более современных средств разработки (например, Borland (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2905AC28059652722EC28300C565457C6CBE59D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214630   (763860) от 22.03.2018
+
+AMIDuOS 2.0.9.10342 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763860.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMIDuOS — это новейший продукт от американской фирмы-разработчика American Megatrends, выполняющий функции гипервизора. AMIDuOS позволяет операционную систему Android полноценно эксплуатировать в сфере Windows. Если вы переводите эмулятор (сервис, позволяющий использование вашим компьютером или мобильным устройством других программ, созданных не для вашей операционной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A818704CE8F064797B893EA215903B6E4FFE6E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521934   (763220) от 04.01.2022
+
+Safe Mode Launcher 1.1 Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Safe Mode Launcher - бесплатная портативная программа для загрузки операционной системы в Безопасном режиме (Safe Mode) или режиме восстановления. Программа позволяет использовать несколько вариантов Безопасного режима, а также активировать классическое или новое меню F8 во время перезагрузки. Это может быть полезно, если во время перезагрузки недоступно меню F8 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2513816BC8E4C9B5F222ADF1CC0CE6B35726BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394690   (762101) от 06.07.2020
 
 AutoHotkey 1.1.33.00 [En]
@@ -6,7 +110,7 @@ AutoHotkey 1.1.33.00 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762101.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ CodeTwo QR Code Desktop Reader & Generator 1.1.2.4 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761577.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Themida 2.4.6.0 RePack by CodeineWaterfall [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761132.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ AutoHotkey 2.0 - a115-f7c71ea8 Alpha Portable [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760108.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ WinHex 19.6 SR-6 PortableAppC by Joo Seng's [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760054.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Autodesk AutoCAD Raster Design 2017 build 4.0.19.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758711.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752359.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ SystemTools Hyena 12.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751497.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741110.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ SQLyog 12.5.1 Pro/Enterprise/Ultimate [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740568.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ Bentley MicroStation CONNECT Edition 10.00.00.25 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728066.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ Stardock ShadowFX 1.2 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725890.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ Advanced Installer 13.0 Build 70330 RePack by loginvovchyk [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715433.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Novicorp WinToFlash Professional 1.8.0000 Final + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714051.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ QR-Code Studio 1.0.2.20600 [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713132.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ IMSI TurboCAD 2016 Pro Platinum 23.1 Build 31.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705471.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ Autodesk СПДС модуль 5.0 для продуктов семейства 
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705285.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ AspenTech AspenONE 8.8 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696014.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ MTS CNC-System 8.0 Demo [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690798.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ Ultimate Boot CD 5.3.9 [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689858.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ Skype for Business Server 2015 x64 MSDN 6.0.9319.0 [Ru/En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689064.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ ISS SecurOS Lite 9.2 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686659.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ SecurOS™ Lite - бесплатная полнофункциональная р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C1AB42A2FDF00D08E915F1FF6107F47833871FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222488   (684556) от 29.04.2018
-
-Autodesk AutoCAD Plant 3D 2019 (M046.04)  [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684556.jpg" />
-</div>
-
-
-###  Подробнее
-
-САПР AutoCAD Plant 3D, предназначенная для проектирования технологических объектов, трубопроводов и КИП, помогает специалистам поддерживать производительность, добиваться высокого качества и выпускать скоординированные проекты. В основе продукта лежит хорошо известная платформа AutoCAD, к которой добавлены специализированные инструменты для инженеров, занимающихся (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804CDDDE0EE711637D4BBE071125C7C50B1E0BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222607   (684444) от 29.04.2018
-
-Autodesk AutoCAD Mechanical 2019 (23.0.46.0) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684444.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD Mechanical – это AutoCAD для машиностроительного проектирования. AutoCAD Mechanical является частью технологии цифровых прототипов Autodesk. Продукт объединяет в себе функциональность AutoCAD – мирового лидера среди 2D САПР – с преимуществами обширных библиотек стандартизированных компонентов и средств автоматизации, ускоряющих выполнение задач проектирования. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5BA43A88737A779CC22F8541F9225F3C7685CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222561   (684442) от 29.04.2018
-
-Autodesk AutoCAD Electrical 2019 (16.0.49.0) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684442.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD Electrical — это AutoCAD для проектирования электрических систем управления, являющийся важной частью технологии цифровых прототипов Autodesk и позволяющий работать быстро, качественно и со значительно меньшими затратами в знакомой среде проектирования. Специализированные функции и обширные библиотеки условных обозначений позволяют повысить производительность, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0568A3ED71F7437BABFA2DD26FD98CF26C0DC755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222574   (684434) от 29.04.2018
-
-Autodesk AutoCAD Architecture 2019.0.1 (8.1.60.0) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684434.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD Architecture — это версия AutoCAD, созданная специально для проектирования строительных объектов. Инструменты архитектурного черчения позволяют более эффективно проектировать и создавать документацию в привычной программной среде AutoCAD. Рост производительности труда в AutoCAD Architecture по сравнению с традиционными САПР наблюдается уже с первой минуты, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938B52999B03EF1E674EF55A9B985EA96EDD381E
 ```
 
 https://mybot314.ru/tekegram_catalog/

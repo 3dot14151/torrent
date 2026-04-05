@@ -1,3 +1,135 @@
+###  Публикация: 1787791   (23321) от 27.03.2025
+
+Спасение пингвина / Penguin Rescue (2018) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Межгалактические исследователи космоса прибывают на Землю, где знакомятся с пингвинами и изучают Арктику.Команда космических исследователей не только изучает другие планеты, но и помогает их жителям, попавшим в беду. На этот раз помощь нужна пингвину Адели, отбившемуся от своих сородичей. Эту важную и опасную миссию доверяют талантливым новичкам Нику и Сэмми. Сев (   Читать дальше...   )Производство: США / WOWNow EntertainmentЖанр: мультфильмРежиссер: Эван ТрэмелАктеры: КейДжей Шрок, Сара ТейлорПеревод: Дублированный (официальный)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2E53237C00401BB0C5451E3B06D2A6DD450B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787685   (23116) от 29.03.2025
+
+Муфаса: Король Лев / Mufasa: The Lion King (2024) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осиротевший Муфаса знакомится с наследником королевских кровей по имени Така. Вместе они отправляются в судьбоносное опасное путешествие, которое проверит их дружбу на прочность.Производство: США, Канада / Walt Disney Pictures, Québec Production Services Tax Credit, Walt Disney Animation StudiosЖанр: Мультфильм, мюзикл, драма, приключения, семейный, фэнтезиРежиссер: Барри ДженкинсАктеры: Аарон Пьер, Дональд Гловер, Келвин Харрисон мл., Тиффани Бун, Кагисо Ледига, Престон Найман, Блу Айви Картер, Джон Кани, Мадс Миккельсен, Сет Роген, Билли АйкнерПеревод: Дублированный, Профессиональный многоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские(Forced, Full, SDH), Английские (Full, SDH)Продолжительность: 01:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C150C1FFC99C7A5C5717A6910C3965411C150C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788035   (23114) от 29.03.2025
+
+Тачки / Cars (2006) WEB-DLRip [AV1/2160p] [Open Matte] [4K, HDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неукротимый в своем желании всегда и во всем побеждать гоночный автомобиль «Молния» Маккуин вдруг обнаруживает, что сбился с пути и застрял в маленьком захолустном городке Радиатор-Спрингс, что находится где-то на трассе 66 в Калифорнии.
+
+Участвуя в гонках на Кубок Поршня, где ему противостояли два очень опытных соперника, Маккуин совершенно не ожидал, что отныне (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, комедия, приключения, семейный, спортРежиссер: Джон Лассетер, Джо РэнфтАктеры: Оуэн Уилсон, Пол Ньюман, Бонни Хант, Ларри-кабельщик, Чич Марин, Тони Шэлуб, Гуидо Куарони, Дженифер Льюис, Пол Дули, Майкл УоллисПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английскиеПродолжительность: 01:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA61ADD131DF82E5EA544F9908D1A5DA36D6269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788295   (23040) от 30.03.2025
+
+Приключения капитана Врунгеля (1976-1979) DVDRip [H.265/1080p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Христофору Бонифатьевичу Врунгелю, известному мореходу, профессору навигации, приходит приглашение участвовать в международной парусной регате. Специально для соревнований помощник Врунгеля — матрос Лом — построил яхту «Победа», но во время отплытия две первые буквы её названия отпали с кормовой доски, и она получила название «Беда». И на этой яхте Врунгелю и его (   Читать дальше...   )Производство: СССР, КиевнаучфильмЖанр: рисованная анимация, минисериал, приключения, музыкальныйРежиссер: Давид ЧеркасскийАктеры: Зиновий Гердт, Георгий Кишко, Семён Фарада, Эдуард Назаров, Евгений Паперный, Григорий Шпигель, Вениамин СмеховСубтитры: русские, английские, французские, испанские, итальянские, немецкиеПродолжительность: 02:08:06 (01:08:20 + 00:59:46)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE49EF4BAABB7FACCB9320340DFEA768CAF3A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788360   (23021) от 30.03.2025
+
+Пес в сапогах (1981) HDTV [H.264/1080i]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой гасконский пес не успел приехать в Париж, как сразу подрался с кошками кардинала, подружился с лучшими собаками короля и влюбился в симпатичную болонку. Теперь его ждет такое количество проблем, что неизвестно, сможет ли он хотя бы остаться в живых.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, мультфильм, короткометражка, мюзиклРежиссер: Ефим ГамбургАктеры: Николай Караченцов, Ирина Муравьёва, Валентин Гафт, Юрий Волынцев, Александр Ширвиндт, Евгений Весник, Лев Дуров, Василий Ливанов, Всеволод Ларионов, Григорий Шпигель и другиеСубтитры: русскиеПродолжительность: 00:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CBA537191AA627C716F4F01B088F6F10BD13811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788435   (23013) от 30.03.2025
 
 Вселенная еды / Chi huo yu zhou / Chihuo Yuzhou / Foodiverse (2019) WEBRip [H.264/1080p]
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23013.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22931.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22904.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22874.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22804.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22746.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22713.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22639.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22634.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22358.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22319.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22294.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22226.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22217.jpg" />
 </div>
 
 
@@ -370,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22212.jpg" />
 </div>
 
 
@@ -396,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22136.jpg" />
 </div>
 
 
@@ -422,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22106.jpg" />
 </div>
 
 
@@ -448,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22087.jpg" />
 </div>
 
 
@@ -474,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22071.jpg" />
 </div>
 
 
@@ -500,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22069.jpg" />
 </div>
 
 
@@ -526,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21887.jpg" />
 </div>
 
 
@@ -538,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8489E36D774DD9B8E74366B37C1856CC69C673AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790049   (21870) от 10.04.2025
-
-Муфаса: Король Лев / Mufasa: The Lion King (2024) UHD WEB-DLRip [AV1/2160p] [4K, Dolby Vision Profile 10, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осиротевший Муфаса знакомится с наследником королевских кровей по имени Така. Вместе они отправляются в судьбоносное опасное путешествие, которое проверит их дружбу на прочность.Производство: США, Канада / Walt Disney Pictures, Québec Production Services Tax Credit, Walt Disney Animation StudiosЖанр: мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Барри ДженкинсАктеры: Аарон Пьер, Дональд Гловер, Келвин Харрисон мл., Тиффани Бун, Кагисо Ледига, Престон Найман, Блу Айви Картер, Джон Кани, Мадс Миккельсен, Сет РогенПеревод: Дублированный (MovieDalen, LeDoyen)Язык озвучки: Английский, Русский, УкраинскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E05FA21C2E4188BF4EB3398A38305A8F61545CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790832   (21781) от 11.04.2025
-
-Приключeния Буратино (1959) DVDRip [H.265/2160p] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый мастер Джузеппе вырезал из дерева забавного мальчика и назвал его Буратино. Деревянный мальчик ожил, но прежде чем он станет настоящим человеком, ему предстоит пройти через множество испытаний и приключений. Доброта, смелость и находчивость помогут Буратино победить жестокость и алчность, найти бескорыстных и верных друзей…Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, детский, сказка, приключенияРежиссер: Дмитрий Бабиченко, Иван Иванов-ВаноАктеры: Нина Гуляева, Евгений Весник, Георгий Вицин, Тамара Дмитриева и др.Субтитры: отсутствуютПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624D3F15FE0E21F06DEAB934CB64817FCC703FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790825   (21756) от 11.04.2025
-
-Серебряное копытце (1977) WEB-DLRip [H.265/2160p] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старик по имени Кокованя взял жить к себе в лесную хижину девочку-сиротку Дарёнку и вместе в лесу они увидели необыкновенного козлёнка, у которого было серебряное копытце. В каком месте топнет козлёнок этим копытцем — там появится драгоценный камень.Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, детский, сказка, короткометражныйРежиссер: Геннадий СокольскийАктеры: Петр ВишняковСубтитры: отсутствуютПродолжительность: 00:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C78DB0F02A84A5515DE7EF6C2AEEA61F750134D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790691   (21749) от 11.04.2025
-
-Вересковый мед (1974) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что важнее: жизнь или честь? Остаться в живых или раскрыть иноземным захватчикам самый главный секрет своего народа? Король Шотландии решил проявить свою власть и уничтожить людей, которые жили на территории, где рос вереск. Но перед тем, как истребить всех людей король решил узнать рецепт, по которому эти люди готовят сладкий мед из вереска. И вот, привели к королю (   Читать дальше...   )Производство: СССР / КиевнаучфильмЖанр: мультфильм, короткометражкаРежиссер: Ирина ГурвичСубтитры: отсутствуютПродолжительность: 00:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB70E717A0EFCD05B27A3BC7FE05A83CCDB64D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791177   (21680) от 12.04.2025
-
-Королевские приключения / Pysna princezna / The Proud Princess (2024) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21680.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном сказочном королевстве жила-была юная, но очень вредная принцесса Злата. Больше всего на свете она любила себя, и все хитрые вельможи этим пользовались. Но однажды в её саду появляется садовник Мирослав. Он решает помочь принцессе и крадет её из дворца. Вместе они пускаются в увлекательное, но опасное путешествие. Злате предстоит не только полюбить (   Читать дальше...   )Производство: Чехия / Human, Luminar Film, PFXЖанр: мультфильм, фэнтези, мелодрама, комедия, семейныйРежиссер: Радек Беран, Дэвид ЛизиАктеры: Марек Ламбора, Анна Фиалова, Алес Прохазка, Збышек Пантучек, Мартин Захалка, Василь Фридрих, Яна Свободова, Петр Поспихал, Ярослава Броускова, Михал ХоланПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Английские, казахскиеПродолжительность: 01:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28AB0F7BBB6F9CF682396F82D8A7F34074CE4F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

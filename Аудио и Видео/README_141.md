@@ -6,7 +6,7 @@ Chasers / Конвоиры (1994) WEB-DL [1080p] ATV
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637366.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637301.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ VA - Electronic Empire (25 Masterpieces), Vol. 3 (2022) [AAC|~309 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637259.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Nu Jazz Swing & Golden Tunes, Vol. 1 (2021) [AAC|~327 Kbps] <Jazz, Nu Jazz,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637254.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637231.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637060.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636975.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636308.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635693.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635686.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635683.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635681.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) WEB-DL [1080p] ATV (MVO)
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635431.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635426.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635422.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635411.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635234.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635223.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Dschinghis Khan - StarCollection (2002) [AAC|~351 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635165.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634980.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634854.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634405.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634337.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Special Lounge Edition, Vol. 1 (2021) [AAC|~320 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633688.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Ibiza Chillout Summer Edition (2022) [AAC|~302 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633676.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633598.jpg" />
 </div>
 
 

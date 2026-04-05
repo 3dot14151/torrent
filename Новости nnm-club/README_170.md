@@ -1,3 +1,56 @@
+###  Публикация: 1321260   (458647) от 24.08.2019
+
+Уязвимость в Steam может затронуть 96 млн пользователей Windows
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_458647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злоумышленники могут отключить межсетевой экран и антивирусное ПО, установить руткит и украсть личные данные пользователей.Исследователь Василий Кравец обнаружил уязвимость повышения привилегий в клиенте Steam для Windows, затрагивающую более 96 млн пользователей игровой платформы. Эксплуатация уязвимости позволяет злоумышленникам с ограниченными правами использовать (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162364   (458619) от 01.09.2017
+
+Как пережить начало учебного года
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_458619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестно, кому сложнее приходится — школьникам или их родителям. Но у родителей больше возможностей сделать сентябрь приятным для всех месяцем.1. Успокойтесь, всё в порядке
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162445   (458445) от 01.09.2017
 
 Телохранитель киллера / The Hitman's Bodyguard (2017) WEB-DLRip [MVO]
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458445.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457539.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Apple обвинили в копировании канонического ди
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457269.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ MInstAll + Freeware 2015.09 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457171.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457089.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Acronis True Image 19.0.5634 / Universal Restore 11.5.39006 / Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457077.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Call of Duty Anthology (2003-2008) [Ru/En] (1.51/1.3/1.7/1.7) Repack R.G. Мех
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457068.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Равновесие (2015) [Ru] (1.0004/2
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457067.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ Slimjet 12.0.1.0 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457012.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456656.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456649.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456636.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ Mortal Kombat XL (2015) [Ru/En] (1.0.0.0/0.305-05.125430.1/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456632.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456253.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455335.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455321.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455319.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_455262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_455262.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ Remnant: From the Ashes (2019) [Ru/Multi] (249.276/dlc) Repack Other s [Complete
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454949.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ ACDSee Pro 10 Build 625 RePack by KpoJIuK (06.10.2016) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454485.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ Windows 7 Home Premium SP1 IDimm Edition х86/x64 v.23.16 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454475.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ Mass Effect 3 (2012) [Ru/Multi] (1.05/dlc) Repack xatab [Digital Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454286.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ Cкорость изменения климата в европейской ча
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_454253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_454253.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452901.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A65A56C4FA1F9ED4E896B7015411B9B4114D53D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509168   (452831) от 13.09.2020
-
-Полосатое счастье (1-12 серии из 12) (2012) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452831.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Полосатое счастье». Это добрая и веселая история дружбы забитого ботаника и хитрого кота, выросшая в настоящую семейную сказку, полную удивительных приключений. Жизнь 9-летнего Петьки Одинцова (в исполнении актера Ильи Копанца) совсем не была похожа на сахар — самый слабый в классе, очкарик-ботаник, у него совсем нет друзей, а еще он буквально опутан заботой своей (   Читать дальше...   )Производство: Россия. Студия 217Жанр: Комедия, детскийРежиссер: Александр Кананович, Ирина ВасильеваАктеры: Эвелина Сакуро, Юлия Кадушкевич, Илья Копанец, Лиза Сурунова, Игорь Сигов, Вера Кавалерова, Оксана Лесная, Дмитрий Ратомский, Сергей Новицкий, Павел Харланчук, Александр БранкевичСубтитры: ОтсутствуютПродолжительность: 00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF2D8D39A52282A797B2AC822916EDDB4CAE66F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942628   (452820) от 01.10.2015
-
-Атака титанов. Фильм первый: Жестокий мир / Shingeki no kyojin (2015) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотни лет назад самым страшным кошмаром людей были Титаны, появившиеся неизвестно откуда. Человечество было для исполинов всего лишь кормом. Когда люди возвели вокруг своих городов огромную защитную стену, жизнь изменилась — в ней появились спокойствие и беззаботность. Как оказалось, лишь на время. Страх и ужас вернулись, когда стена пала и первобытные гиганты вновь (   Читать дальше...   )Производство: Япония, Kdansha, Licri, Nikkatsu SeeЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Синдзи ХигутиАктеры: Харума Миура, Кико Мидзухара, Каната Хонго, Сатоми Исихара, Нанами Сакураба, Такахиро Миура, Хироки Хасегава, Аямэ Мисаки, Пьер Таки, Дзюн КунимураПеревод: Дублированный (iTunes)Продолжительность: 01:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EEF813D98244B21469FE460F520A235C18C22F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1561155   (516654) от 03.07.2022
+
+Gorillaz - Song Machine, Season One : Strange Timez (2020) Deluxe Edition, Parlophone UK [FLAC 2.0|44/24|WEB-DL|tracks] <Alternative Rock, Hip Hop, Trip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Timez (feat. Robert Smith) (3:47)
+02. The Valley of The Pagans (feat. Beck) (3:01)
+03. The Lost Chord (feat. Leee John) (4:04)
+04. Pac-Man (feat. ScHoolboy Q) (3:13)(   Читать дальше...   )Жанр: Alternative Rock, Lo-Fi, Dub, Hip Hop, Trip HopПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19AB92C92CDD91F8A450541D901B7D0F9FCF704F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560633   (516649) от 03.07.2022
+
+Shinedown - Planet Zero (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2184 (0:22)
+02. No Sleep Tonight (2:31)
+03. Planet Zero (3:43)
+04. Welcome (0:35)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAB16541B484ED24134E44811EB1FD00D786709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561169   (516644) от 03.07.2022
+
+Алексей Никитин и группа 9 Район - Не Забывай (2022) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не Забывай [5:29]
+02. Я Буду Рядом [5:17]
+03. Сняв Гитару С Плеч [3:57]
+04. Непрошеный Гость [4:25](   Читать дальше...   )Жанр: RockПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26B13971BE82A28A1C5870E4DD938263C04CD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930253   (516345) от 22.08.2015
 
 Buckcherry - Rock 'N' Roll (2015) [OGG| 449-513 кб/с]<Alternative, Hard Rock, Post Grunge>
@@ -6,7 +93,7 @@ Buckcherry - Rock 'N' Roll (2015) [OGG| 449-513 кб/с]<Alternative, Hard Rock,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516345.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Buckcherry - F*ck (2014) EP [OGG| 481-542 кб/с]<Alternative, Hard Rock, Post 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516313.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516311.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Lynch Mob - Rebel (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516270.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ The Strypes - Little Victories (2015) Japanese Deluxe Edition [MP3|320 кб/с]<
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516268.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Peddle Train - Natural Disaster (2018) [MP3|320 Kbps] <Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516237.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Michaelangelo - One Voice Many (1971) Reissue, 2007, Fallout [MP3|320 Kbps] <Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516190.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516152.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Bon Jovi - Burning Bridges (2015) [FLAC|Lossless|WEB-DL]<Melodic Rock, Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516145.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Rod Stewart - Greatest Hits (2012) 2CD [MP3|320 кб/с]<Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516139.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Metallica - Rock in Vienna at Donauinsel Wien (2015) [MP3|320 кб/с]<Rock, Hea
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516133.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ PRINCE - ANTHOLOGY: 1995-2010 EXPLICIT (2018) [MP3|320 Kbps] <Rock, Funk, Soul, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516119.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Bullet For My Valentine - Venom (2015) Best Buy Special Deluxe Edition [MP3|320 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516000.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515987.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Cosmograf - Mind Over Depth (2019) [FLAC 2.0|96/24|tracks|WEB-DL] <Prog Rock, Ne
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515978.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Darkness By Oath - Near Death Experience (2012) [FLAC|Lossless]<Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515956.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ Deep Purple - This Time Around - Live In Tokyo (2001) 2CD [MP3|320 Kbps] <Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515880.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ BongBongBeerWizards - Ampire (2022) [FLAC|Lossless|WEB-DL|tracks] <Drone, Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515728.jpg" />
 </div>
 
 
@@ -533,7 +620,7 @@ Knifesmoke - Reawakening (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515727.jpg" />
 </div>
 
 
@@ -562,7 +649,7 @@ Synteleia - The Secret Last Syllable (2022) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515726.jpg" />
 </div>
 
 
@@ -591,7 +678,7 @@ Orthodox - Proceed (2022) [FLAC|Lossless|WEB-DL|tracks] <Drone, Doom, Avant-gard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515725.jpg" />
 </div>
 
 
@@ -620,7 +707,7 @@ Sweet Sadness - The Chance to Reset & the Choice of Dying (2022) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515724.jpg" />
 </div>
 
 
@@ -649,7 +736,7 @@ Monarchist - Cosmos (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515723.jpg" />
 </div>
 
 
@@ -663,93 +750,6 @@ Monarchist - Cosmos (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71ACE23BBFA6A0824C594D7455ABB652803DBFEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561422   (515722) от 04.07.2022
-
-Goatriders - The Magician’s Keep (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Golem (00:07:08)
-02 - Amitte Diem (00:07:42)
-03 - Hound Of The Gods (00:05:24)
-04 - Pitch Black Blues (00:06:06)(   Читать дальше...   )Жанр: Stoner Rock, Garage RockПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9BFAB86AB5E17592A3819AD63CE06567D8126A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561273   (515721) от 04.07.2022
-
-Thursday - War All the Time (Live in Brooklyn) (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Emo>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - For the Workforce, Drowning (00:03:48)
-02 - Between Rupture and Rapture (00:04:10)
-03 - Division St. (00:04:48)
-04 - Signals over the Air (00:04:49)(   Читать дальше...   )Жанр: Post-Hardcore, EmoПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397D5B315060B265AF04C9E80B3BF84A2D15EC6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561276   (515720) от 04.07.2022
-
-The Vaticants - Eastern Sunset (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Moral Bankruptcy (00:04:37)
-02 - Living for Nothing (00:04:39)
-03 - Alley of Brandt (00:04:14)
-04 - Libertalia (00:03:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0790AECC5F483969A1923196A48601DE330FFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

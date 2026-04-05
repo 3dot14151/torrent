@@ -1,3 +1,32 @@
+###  Публикация: 1642122   (233340) от 26.06.2023
+
+Mnemic - Studio Albums (5 releases) (2003-2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial/Groove/Progressive Metal, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mnemic — датская метал-группа, образованная в Ольборге в 1998 году.2003 - Mechanical Spin Phenomena
+2004 - The Audio Injected Soul
+2007 - Passenger
+2010 - Sons Of The SystemЖанр: Industrial/Groove/Progressive Metal, DjentПродолжительность: 04:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635042   (233007) от 23.05.2023
 
 Moonspell - Studio Albums (13 releases) (1995-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Metal>
@@ -6,7 +35,7 @@ Moonspell - Studio Albums (13 releases) (1995-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233007.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Emperor - Studio Albums (7 releases) (1993-2001) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232991.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232952.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232878.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Middle Of The Road - Chirpy Chirpy Cheep Cheep, Tweedle Dee, Tweedle Dum and oth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231774.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Ray Conniff - Hello Young Lovers (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231406.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Led Zeppelin - Легенды Зарубежного Рока (1999) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231036.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Queen - Легенды Зарубежного Рока (1999) Compilation, Unoff
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230996.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Krokus - Легенды Зарубежного Рока (2001) Compilation, Unof
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230957.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230927.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Creedence Clearwater Revival - Легенды Зарубежного Рока (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230921.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Running Wild (X-Wild, Toxic Taste, Giant X) - Studio Albums (22 releases) (1984 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230778.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230481.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Andrew Lloyd Webber & Tim Rice, Various – Jesus Christ Superstar (A Rock Opera
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230384.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Jeff Lynne's ELO - Alone In The Universe (2015) [FLAC 2.0 24/96|image (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230001.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229534.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228845.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ VA - Dantcho "Rap" Georgiev Presents: Dance Hits Vol. 4 (1992) [FLAC|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228561.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ VA - The Wild Life. Music From The Original Motion Picture Soundtrack (1984) [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228434.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ VA - The Dooley Family And The Others (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227970.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227704.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227654.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Boney M - Ночной полет на Венеру (1980) [FLAC 2.0 24/192|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_227333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227333.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Aldo Nova - Blood On The Bricks (1991) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224838.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ The Sylvers - Forever Yours (1978) [FLAC|96/24|image + .cue|Vinyl-Rip] <Soul, Di
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224804.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ A4 Swept For You Baby(   Читать дальше...   )Жанр: Soul, DiscoП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E8BAD264AC7CAC6C7A680FF47AFCD1B71C20118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648998   (224575) от 03.08.2023
-
-Aerosmith (Steven Tyler; Joe Perry) - Studio Albums (10 releases) (1993-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aerosmith — музыкальная группа, вероятно, самый важный представитель американского хард-рока. Группа черпала своё вдохновение в британском блюз-роке, доминировавшем на рок-сцене в конце 1960-х и начале 1970-х, как, например, Cream, Led Zeppelin, Jeff Beck Group, а также the Rolling Stones.1993 - Get A Grip
-1997 - Nine Lives
-2001 - Just Push Play
-2006 - Honkin On Bobo(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 10:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893FBC5828368B3AAB3FC78EDEC256B17752735D
 ```
 
 https://mybot314.ru/tekegram_catalog/

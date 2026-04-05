@@ -1,3 +1,148 @@
+###  Публикация: 1284207   (728971) от 21.02.2019
+
+Young Hunting - True Believers (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Living Thing (03:06)
+02. Lawd (03:20)
+03. Blue Dream (03:38)
+04. Sargasso (04:14)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C40445E431F3FBB527CE2C972FE6B7EE289DECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284213   (728968) от 21.02.2019
+
+HOMESHAKE - Helium (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Early (01:31)
+02. Anything At All (03:02)
+03. Like Mariah (03:26)
+04. Heartburn (00:35)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A4B3C60AA298567E4FE14BE6B4A21A70608963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284368   (728963) от 21.02.2019
+
+Inkubus Sukkubus - Belladonna & Aconite (1993) Reissue, Remastered, 2011, Resurrection Records [FLAC|Lossless|tracks + .cue] <Pagan Rock, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Belladonna & Aconite (4:21)
+02.Soul Inside (2:58)
+03.Song of the Siren (3:44)
+04.Vampyres (3:42)(   Читать дальше...   )Жанр: Pagan Rock, Gothic RockПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CDB8A547B346255BB748CD8E99F890B38A0365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284357   (728959) от 21.02.2019
+
+A Pale Horse Named Death - When The World Becomes Undone (2019) [FLAC|Lossless|tracks + .cue] <Stoner, Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As It Begins (01:44)
+02. When the World Becomes Undone (06:37)
+03. Love the Ones You Hate (03:56)
+04. Fell in My Hole (05:54)(   Читать дальше...   )Жанр: Stoner, Gothic, Doom MetalПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1375E193636E6C3FB64E6DD921EE5F9E517602A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022680   (728930) от 02.06.2016
+
+Derdian - Revolution Era (2016) [MP3|320 кб/с] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728930.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Overture (feat. Apollo Papathanasio)
+2. Burn (feat. Henning Basse)
+3. Beyond the Gate (feat. GL Perotti)
+4. Battleplan (feat. Davide Damna Moras)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C093EF5D0D8D680F970C52F6C635B9B6E67B4220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530632   (728913) от 11.02.2022
 
 VA - СЛОТ XX Tribute (2022) [MP3|320 Kbps] <Rock, Alternative>
@@ -6,7 +151,7 @@ VA - СЛОТ XX Tribute (2022) [MP3|320 Kbps] <Rock, Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728913.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Said the Whale - Cascadia (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728901.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Aes Dana - La Chasse Sauvage (2001) [FLAC|Lossless|image + .cue] <Celtic Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728873.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Childish Japes & Dave Vives - Salamander (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL]
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728872.jpg" />
 </div>
 
 
@@ -123,7 +268,7 @@ The Hillbilly Moon Explosion - My Love for Evermore (2015) [MP3|320 кб/с] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728820.jpg" />
 </div>
 
 
@@ -152,7 +297,7 @@ Andy McCoy & Pete Malmi - Briard (1997) [FLAC|Lossless|image + .cue] <Rock, Glam
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728792.jpg" />
 </div>
 
 
@@ -181,7 +326,7 @@ Overkill - The Wings Of War (2019) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728776.jpg" />
 </div>
 
 
@@ -210,7 +355,7 @@ Delain - Hunter's Moon (2019) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728774.jpg" />
 </div>
 
 
@@ -239,7 +384,7 @@ Rhapsody Of Fire - The Eighth Mountain (2019) [MP3|320 Kbps] <Symphonic Power Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728767.jpg" />
 </div>
 
 
@@ -268,7 +413,7 @@ ZZ Top - Rancho Texicano: The Very Best Of ZZ Top (2004) 2CD, RM. [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728764.jpg" />
 </div>
 
 
@@ -297,7 +442,7 @@ Amorphis - Halo (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728696.jpg" />
 </div>
 
 
@@ -326,7 +471,7 @@ Chickenfoot - Best + Live (2017) 2CD [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728668.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Dream Theater - Distance Over Time (2019) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728650.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728610.jpg" />
 </div>
 
 
@@ -418,7 +563,7 @@ Animal ДжаZ - AZXV: Акустика (2016) [MP3|320 кб/с] <Rock, Alternat
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728589.jpg" />
 </div>
 
 
@@ -447,7 +592,7 @@ Dream Theater - Distance Over Time (2019) [FLAC 2.0|96/24|tracks|WEB-DL]  <Progr
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728531.jpg" />
 </div>
 
 
@@ -476,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728505.jpg" />
 </div>
 
 
@@ -511,7 +656,7 @@ Tarja - The Brightest Void (2016) [MP3|320 кб/с] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728472.jpg" />
 </div>
 
 
@@ -540,7 +685,7 @@ Sigur Ros - Kveikur (2013) Japanese Edition [FLAC|Lossless]<Post-Rock, Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_728357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_728357.jpg" />
 </div>
 
 
@@ -566,7 +711,7 @@ Nirvana - 7 альбомов (1989-2005) Japanese SHM-CDs 2008 [APE|Lossless|ima
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728317.jpg" />
 </div>
 
 
@@ -595,7 +740,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728071.jpg" />
 </div>
 
 
@@ -609,157 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8935E606DF489824D57EF615D0FE3159EBF7FB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 325251   (728042) от 19.04.2011
-
-Ленинград - Не вошедшее (2011) [MP3|192-320 kbps]<Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Антинародная (03:11)
-02. Горький сон (01:05)
-03. И больше никого (feat. Мадонна) (03:03)
-04. Из Росиии... (02:53)
-05. Ленинград для детей (02:05)
-06. Не может быть (02:17)
-07. Нет, и ещё раз нет XX PREMAS (02:50)
-08. От души (feat. Вася Обломов) (03:27)
-09. Песня счастья (02:21)
-10. Такая крутая (metal) (02:19)(   Читать дальше...   )2011Жанр: SkaПродолжительность: 00:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833A8C1542CE765BE29ED0F9944EE6E1490C714A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478349   (728002) от 02.06.2016
-
-Чёрный Кофе - Дискография (14 CD) (1984-2009) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728002.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чёрный Кофе» по праву считается одним из апологетов рок-музыки в нашей стране. Впервые появившись на сцене в начале восьмидесятых годов, коллектив с честью преодолел все преграды, воздвигнутые существовавшей идеологической системой на пути только зарождавшейся «тяжелой» культуры и вошел в золотую летопись отечественного рока. История «Чёрного Кофе» началась в далекие (   Читать дальше...   )01. Страна (3:38)
-02. Дама пик (3:52)
-03. Мгновения часы (3:46)
-04. Расскажи (3:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 11:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338FF7DAC4694F139A2798743E612C4AFB525B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022758   (727852) от 03.06.2016
-
-Paradox - Pangea (2016) [MP3|320 кб/с] <Thrash Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apophis
-02. Raptor
-03. The Raging Planet
-04. Ballot or Bullet(   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F768E58FB37B64A29D951F2AB107FBC8A4834762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530367   (727813) от 12.02.2022
-
-Eddie Vedder - Earthling (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invincible (4:47)
- 02. Power of Right (3:34)
- 03. Long Way (4:45)
- 04. Brother the Cloud (4:22)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26077D15F85683E2E7A0A1DB44BDA55573DD00DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022979   (727778) от 03.06.2016
-
-Stranded By Choice - Hellroaring (2016) [MP3|320 кб/с] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fire (3:34)
-02. Black Seed (5:26)
-03. Resisting (3:40)
-04. The Voice That Only I Hear (3:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746EC230BBE7D4AC622D5E8EEE39E33B8F4A996D
 ```
 
 https://mybot314.ru/tekegram_catalog/

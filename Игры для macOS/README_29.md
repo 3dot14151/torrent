@@ -6,7 +6,7 @@ Football Manager 2023 v23.5.0 (2022) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196389.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DUSK  Intruder Edition v1.8.1 DLC (2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187253.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Atom RPG Trudograd v.1.056 (2020) [En/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186311.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ ATOM RPG: Post-apocalyptic indie game v1.188 (2018) [Multi/Ru] [macOS Native gam
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186309.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Black Geyser: Couriers of Darkness v.1.2.56 (2022) [Multi/Ru] [macOS Native game
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186168.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Oxygen Not Included v.568201 (2019) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185745.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Hollow Knight v.1.5.78.11833.50885 [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185628.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Cities: Skylines v.1.17.1-f4 (2015) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184994.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Terraria v.1.4.4.9 v3 (2011) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184784.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hearts of Iron IV v.1.12.14.50e7 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183382.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Dawn of Man v.1.8.0 (2019) [Multi] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177831.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Dome Keeper v.3.0.1 (2022) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176412.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Angry Birds Reloaded v.2.4 (2021) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_175592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_175592.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174315.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Half-Life 2 & Episode 1 & Episode 2 v1.7.4.5010 (2004-2007) [En/Ru] [macOS Nativ
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173876.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Papers, Please 1.1.65 (2013) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173786.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Beyond a Steel Sky v.1.5.29150 (2020) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173562.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ The Medium v.1.1.22 (2021) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173311.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Dicey Dungeons v.2.1 (58189). (2019) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173301.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Punk Wars v.1.2.11i (52859) (2021) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171121.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Saint Kotar v.1.51 (2021) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170809.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Book of Demons v1.05.211130 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169081.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Space Panic Defense 1.1.5.278 (2017) [En] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163668.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Sally Face: Complete Season 1.5.04 (2019) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163619.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Tropico 6 v.19_907_a7f0e5a (2019) [Ru/En] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162235.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Kerbal Space Program v1.12.3.03173 (2015) [Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161876.jpg" />
 </div>
 
 

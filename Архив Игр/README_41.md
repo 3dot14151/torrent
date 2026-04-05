@@ -1,3 +1,55 @@
+###  Публикация: 1306636   (530216) от 05.07.2019
+
+Assetto Corsa Competizione (2019) [Ru/Multi] (1.0.5) Repack xatab
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Assetto Corsa Competizione — продолжение реалистичного гоночного симулятора Assetto Corsa, посвященного соревнованию Blancpain GT, которое ежегодно организовывает автомобитестроительная корпорация SRO Motorsports Group. В игре вас ожидает невероятная графика и фотореалистичные погодные условия, что позволят максимально погрузиться в атмосферу высокоскоростного гоночного (   Читать дальше...   )Тип издания: RepackРазработчик: Kunos SimulazioniЖанр: Simulator, Racing, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E03527BD389370A41D4C4659374E8B17FA4FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051643   (530208) от 12.09.2016
+
+Zombie Army Trilogy (2015) [Ru/En] (1.8.20.01) Repack Mizantrop1337
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zombie Army Trilogy - это шутер от третьего лица, объединяющий в себе хаос совместной игры и жесткие ужасы с наполненными кровью сценами, включающий в себя и первые две игры – Sniper Elite: Nazi Zombie Army 1 & 2, а также новую третью кампанию, повествующую о поднявшемся из мертвых Адольфе Гитлере, который ведет свою мертвую армию на захват Европы.Тип издания: RepackРазработчик: RebellionЖанр: Action (Shooter), 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFB2F97BF5FAD28CCF69762C3C79EF25765544A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533696   (530143) от 11.08.2012
 
 Legends of Pegasus [En] (RePack/1.0) 2012 l Audioslave
@@ -6,7 +58,7 @@ Legends of Pegasus [En] (RePack/1.0) 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530143.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Legends of Pegasus [En] (RePack/1.0) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530135.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ We Happy Few (2016) [En/Fr] (29664) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530099.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Brutal Legend (2013) [Multi] (1.0) SteamRip R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529811.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0/4DLC) RePack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529805.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ Dungeons 2 (2015) [Ru/Multi] (1.4.0.206-d5e6057e6b93/upd 4/dlc) Repack R.G. Ме
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529325.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Нов
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529046.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ SimplePlanes (2015) [En] (1.5.3.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527041.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526862.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ Sudden Strike 4 (2017) [Ru/En] (1.00.19037/dlc) Repack Covfefe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525118.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ We Happy Few (2018) [Ru/Multi] (1.1.69866) Repack Covfefe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523473.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.05/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523433.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ BRAWL (2015) [En/Multi] License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523036.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ CASE 2: Animatronics Survival (2018) [Ru/Multi] (0.21) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521995.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ Total War: THREE KINGDOMS (2019) [Ru] (1.1.0/dlc) SteamRip InsaneRamZes
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521986.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ Earth Seeker [Wii] [NTSC-J] [JAP] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521929.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ Rocket League (2015) [En/Multi] (1.05) Repack Mizantrop1337
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521261.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ The Long Dark (2014) [Ru/Multi] (v.257 Sandbox Alpha) Repack SALAT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521244.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ Borderlands: Game of the Year Edition [En/Multi5] (L/Steam-Rip/1.4.2.4) 2010 | R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520721.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520694.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ Exanima (2015) [En] (0.7.0.6d) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519885.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ Gauntlet (2014) [Ru/En] (2.1/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519245.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ Middle-earth: Shadow of Mordor / Средиземье: Тени Мордора (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519133.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ Trine Collection [Ru/En/Multi12] (L/Steam-Rip) 2009-2011 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518982.jpg" />
 </div>
 
 
@@ -629,68 +681,6 @@ Trine — игра в жанре платформера и головоломк�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F10E03F99B991BAE1DDD8866F8984BBEB5DDE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533700   (518808) от 14.08.2012
-
-Orcs Must Die! 2 [Ru] (RePack/1.0.0.264/DLC) 2012 l Fenixx
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы швыряли их в разные стороны, жгли огнем, нарезали ломтиками... Счет шел на тысячи - но теперь требуется удвоить усилия! Во второй части «Стратегической игры 2011 года» по версии AIAS от студии Robot Entertainment вам предстоит прорубаться через несметные полчища орков на пару с другом!
-
-Вновь окунитесь в самую гущу битвы, играя за могущественного боевого мага или хитроумную волшебницу. Защищайте новые крепости и гномьи шахты, истребляйте тысячи орков и прочих чудовищ - в вашем распоряжении самое разнообразное оружие, заклинания, стражники, ловушки и амулеты. Проходите новую кампанию вместе с другом в совместной игре - либо боритесь за выживание в бесконечном режиме!
-
-Открывайте доступ к новым и старым средствам обороны, совершенствуйте их и пускайте в дело - пусть перемалывают полчища орков в сочный зеленый фарш!(   Читать дальше...   )Тип издания: RePackРазработчик: Robot EntertainmentЖанр: Экшен, Стратегии, ИндиЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5365F1D64B0F41959458D8496A57326FF7A4B8FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533748   (518741) от 14.08.2012
-
-Men of War: Condemned Heroes / Штрафбат [Ru/En] (RePack/1.00.2) 2012 | R.G. Shift
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра, продолжающая традиции знаменитой серии «В тылу врага 2» и исторической стратегии «Черные бушлаты».
-
-Стратегия в реальном времени «Штрафбат» создана на основе мемуаров фронтовиков и других документальных материалов. В ней раскрыта история отдельного штрафного (офицерского) батальона Центрального, а впоследствии Белорусского, фронта.
-
-Долгое время о них не принято было говорить, да и им самим предписывалось не распространяться о себе и своих действиях во время Великой Отечественной войны. Штрафники поневоле стали героями множества нелицеприятных мифов, сложившихся вокруг приказа Наркома обороны СССР №227 от 27 июля 1942 года, известного еще как приказ Сталина «Ни шагу назад». Запрет на официальную информацию о штрафных батальонах и ротах, а также о заградительных отрядах, который действовал во время войны и в течение многих лет после ее завершения, породил массу слухов и досужих домыслов. Зачаcтую они были основаны лишь на искаженных впечатлениях людей, краем уха слышавших об этих подразделениях.
-
-Настало время узнать правду о мужестве бойцов штрафбата. Они прошли героический путь от Курской дуги до самого Берлина, и чтобы совершить подвиг, им не нужны были пулеметы заградотрядов за спиной.(   Читать дальше...   )Тип издания: RepackЖанр: Strategy (Real-time / Tactical) / 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F675A8A1B3392EF8E5F3516194A53E3B49E2BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

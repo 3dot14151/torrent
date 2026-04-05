@@ -1,3 +1,167 @@
+###  Публикация: 587584   (942282) от 06.03.2013
+
+Far Cry 3 [Ru/En] (Repack/1.05) 2012 | R.G. Catalyst
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, Джейсон Броуди, отправляется с друзьями в отпуск на необычайно красивый тропический остров. И тут же оказывается в заложниках у банды пиратов под предводительством безумного убийцы Вааса. Начиная с этого момента, ваша задача – выжить любой ценой.
+
+Джейсон будет втянут в кровопролитную войну между пиратами и местными повстанцами, в которой кровь, свинец и наркотики льются рекой. Одни психопаты сражаются с другими, и вскоре главный герой уже не в силах отличить опиумный сон от безумной яви. Сумасшедший остров сводит с ума всех, кто ступит на его берега и нужно быть психом, чтобы здесь остаться. А ты в своём уме?
+
+(   Читать дальше...   )Тип издания: RePackРазработчик: Ubisoft Montreal, Massive Entertainment and Ubisoft ShanghaiЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810A14B15148A77B615E1CBB35D2F727EAF2F993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859843   (942251) от 15.01.2015
+
+Левиафан (2014) WEB-DLRip [H.264]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942251.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре истории — живущий на севере Николай, который вместе с отцом построил дом и мастерскую. Но его нормальная жизнь рушится под влиянием судьбы.Производство: Россия, Нон-стоп ПродакшнЖанр: ДрамаРежиссер: Андрей ЗвягинцевАктеры: Алексей Серебряков, Елена Лядова, Владимир Вдовиченков, Роман Мадянов, Анна Уколова, Алексей Розин, Сергей Походаев, Валерий Гришко, Сергей Бачурский, Платон КаменевПеревод: Не требуется (русский)Субтитры: Вшитые не отключаемыеЯзык субтитров: АнглийскийПродолжительность: 02:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C67482B3674473B833AEC3FFA9F190FC0B7EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858688   (942247) от 15.01.2015
+
+МосГаз. Палач (2014) SATRip (сезон 2, серии 1-10 из 10)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение телесериала «Мосгаз» (2012) об опергруппе Черкасова.
+События разворачиваются на окраине Москвы в 1965 году. В центре - история разоблачения женщины-палача, которая во время войны по указке немцев расстреливала пленных, партизан, мирных жителей. Это фактически отдельная гражданская война изуверки со своим народом. В войну ей едва исполнилось 20 лет, а (   Читать дальше...   )Производство: Россия, ООО «Студия Русский проект»Жанр: психологический триллерРежиссер: Вячеслав НикифоровАктеры: Андрей Смоляков, Марина Александрова, Алексей Бардуков, Юлия Пересильд, Виктория Толстоганова, Анатолий Журавлёв, Анатолий Калмыков, Анатолий Просалов, Руслан Ягудин, Юрий Чурсин, Светлана Ходченкова, Андреас Хельги Шмид, Маттиас В. Винтцер, Борис Полунин, Юрий Тарасов, Юлия КуварзинаФормат: AVIПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DEEE5EA924DA1D4323E9AF69D5DAB7255678EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363154   (941896) от 28.02.2020
+
+Роскосмос планирует заменить всех сотовых операторов в России
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941896.jpg" />
+</div>
+
+
+###  Подробнее
+
+На сегодняшний день в России существует четыре гиганта сотовых операторов, остальным весьма сложно с ними конкурировать, что в итоге усложняет задачу новым операторам. Хотят тот же Теле 2 смог пробиться в своё время. В итоге вся страна пользуется услугами именно конкретных операторов, но есть одна большая загвоздка – зона покрытия ещё далека от идеала, в связи с (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363231   (941895) от 28.02.2020
+
+Евросоюз хочет вернуть в смартфоны съемные аккумуляторы
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941895.jpg" />
+</div>
+
+
+###  Подробнее
+
+В наше время съемный аккумулятор в смартфоне — очень большая редкость. Такой если и встречается, то лишь изредка в защищенных моделях (например, Samsung Galaxy XCover Pro) или бюджетниках (например, Motorola Moto E6). При этом многие до сих пор ностальгируют по тем недалеким временам, когда можно было легко самостоятельно заменить батарею, просто сняв заднюю крышку (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983474   (941702) от 07.02.2016
+
+Очередное достижение: 500 релизов от Alexman121
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941702.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Друзья!!
+ Наш одноклубник, активный релизер, Модератор TV/Спорт RG NNM-Club DocTV!
+Alexman121 сегодня "незаметно" перешагнул рубеж 500 релизов!Поздравим уважаемого Alexman121 с этим достижением и пожелаем благополучия и всяческих успехов во всех его начинаниях! и конечно же не останавливаться на достигнутом !(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983340   (941595) от 07.02.2016
 
 Плоские графеновые линзы позволят обойти ограничения дифракционного предела
@@ -6,7 +170,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941595.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941354.jpg" />
 </div>
 
 
@@ -58,7 +222,7 @@ Kerish Doctor 2016 4.60 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941348.jpg" />
 </div>
 
 
@@ -84,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941347.jpg" />
 </div>
 
 
@@ -113,7 +277,7 @@ Kaspersky Reset Trial 5.1.0.17 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941344.jpg" />
 </div>
 
 
@@ -139,7 +303,7 @@ ITVDN | Видео курс Python Starter (2016) PCRec [H.264]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941342.jpg" />
 </div>
 
 
@@ -165,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941341.jpg" />
 </div>
 
 
@@ -191,7 +355,7 @@ XCOM 2 (2016) [Ru/Multi] (1.0/dlc) License [Digital Deluxe Edition]
 >>13
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941340.jpg" />
 </div>
 
 
@@ -217,7 +381,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) RePack by D!akov (30.01.2016) [Mult
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941339.jpg" />
 </div>
 
 
@@ -243,7 +407,7 @@ Darkest Dungeon (2015) [Ru/Multi] (Build 13488) SteamRip Let'sРlay
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941338.jpg" />
 </div>
 
 
@@ -269,7 +433,7 @@ The Breaker / Крушитель (2007) [1-72 гл.] [Манхва] [Русск�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941281.jpg" />
 </div>
 
 
@@ -295,7 +459,7 @@ Electr0 SoftPack 2011 v1.2.0.2 [Русский, английский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941276.jpg" />
 </div>
 
 
@@ -321,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941274.jpg" />
 </div>
 
 
@@ -347,7 +511,7 @@ Comodo Internet Security Premium 10.0.0.6092 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940818.jpg" />
 </div>
 
 
@@ -373,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940815.jpg" />
 </div>
 
 
@@ -399,7 +563,7 @@ Microsoft Office Professional 2003 SP3 (обновления 09.01.2017) RePack 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940812.jpg" />
 </div>
 
 
@@ -425,7 +589,7 @@ CowBoy WPI USB Lite StartSoft 20 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940641.jpg" />
 </div>
 
 
@@ -451,7 +615,7 @@ Mass Effect Trilogy / Трилогия Mass Effect [Ru/En] (RePack/1.02, 1.02, 1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940620.jpg" />
 </div>
 
 
@@ -478,7 +642,7 @@ Far Cry 3: Deluxe Edition [Ru/En] (Rip/v.1.0.5.0) 2012 | Naitro
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940614.jpg" />
 </div>
 
 
@@ -504,7 +668,7 @@ Kaspersky Internet Security 2013 13.0.1.4190 Final (f) [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940612.jpg" />
 </div>
 
 
@@ -513,169 +677,6 @@ Kaspersky Internet Security 2013 13.0.1.4190 Final (f) [Русский]
 Kaspersky Internet Security 2013 - новая версия комплексного антивируса от «Лаборатория Касперского», позволяющая защищать ваш компьютер и важную информацию от любых онлайн-угроз во время посещения веб-сайтов, осуществления онлайн-покупок или обмена файлами через Интернет, локальную сеть или съемные носители данных.
 
 «Лаборатория Касперского» – одна из ведущих компаний (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 222614   (940582) от 02.02.2014
-
-Книжная серия | "Фантастический боевик" [866 книг] (1992-2014) [FB2]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия основана в 1992 году. Выпуск книг серии продолжается.
-
-* самая популярная и обширная по количеству томов серия современной остросюжетной фантастики.
-* лучшие романы и повести отечественных и зарубежных писателей.(   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28470A6DBBA9B8FAC6C0ECF1CE0666F054F19DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363457   (940472) от 29.02.2020
-
-РАН пожалуется в ООН на Илона Маска из-за спутниковой системы Starlink
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская академия наук намерена направить в ООН письмо с жалобой на спутниковую систему Илона Маска Starlink, поскольку развертываемая система из тысяч спутников будет мешать работе астрономов, рассказал астрофизик, научный сотрудник Института астрономии РАН Николай Самусь."Мы сейчас занимаемся подготовкой письма от РАН, и завтра с вице-президентом РАН (Юрием) (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363274   (940470) от 29.02.2020
-
-Музыканты сгенерировали 1,2 Тбайт всевозможных мелодий для защиты от копирайтов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проблема авторских прав в музыкальной индустрии давно уже назрела. Компании подают многомиллионные иски, судебные разбирательства тянутся годами, но ситуация не улучшается. И потому появилось  весьма оригинальное решение.Юрист, программист и музыкант Дэмиен Рил (Damien Riehl) совместно с другим музыкантом Ноа Рубином (Noah Rubin) предложили свою идею, которая должна (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363750   (940466) от 29.02.2020
-
-Nvidia DriverPack v.442.50 RePack by CUTA [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nvidia DriverPack - это единый пакет со стандартными драйверами GeForce Game Ready, для видеокарт от Nvidia, как для ОС Windows 7 и 8, так и для Windows 10 включительно.
-Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4FA1CDCF4FE3E9E8E0EEE45E703422FA111122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363717   (940431) от 29.02.2020
-
-PROMT 20 Expert Portable by conservator [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940431.jpg" />
-</div>
-
-
-###  Подробнее
-
-PROMT 20 Expert - это корпоративное решение, предназначенное для организации процесса перевода и локализации в переводческих компаниях и отделах перевода.
-Преимущества программы:
-• Поддержка проектов по переводу технической документации и других типовых документов
-• Интеграция корпоративных ресурсов – память перевода (Translation Memory), словарей и глоссариев(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3DD7A64DB877BC7E617A4EBC4315B26667F1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363576   (940429) от 29.02.2020
-
-«Эльбрусы» приблизились по производительности к Intel 2014 года
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940429.jpg" />
-</div>
-
-
-###  Подробнее
-
-В распоряжении энтузиаста оказались серверные процессоры «Эльбрус», которые он использовал для теста, сравнивая производительность этих чипов с распространенными моделями Intel и AMD.Проверка для «Эльбрусов»В Сети появились результаты частного сравнительного исследования производительности отечественных процессоров «Эльбрус-8C». Выводы эксперта под ником Seti уже (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

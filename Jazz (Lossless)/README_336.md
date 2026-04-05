@@ -6,7 +6,7 @@ Barney Kessel & Herb Ellis - Poor Butterfly (1976) 2002, Victor [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103617.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jim Hall - Live! (1975) 2017, Universal [FLAC|Lossless|tracks + .cue] <Cool, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103615.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Joe Pass Quartet - Nuages: Live At Yoshi's, Vol. 2 (1992) 1997, Pablo [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103613.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kenny Werner - Vida Nueva (New Life) (2001) Laurel Tree Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103603.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Jazz Para Trabajar Y Estudiar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103595.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Erskine Hawkins - 1941 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103578.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Roaring Halloween (Electro Swing 3) (2024) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103557.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sarah Vaughan - Great Women of Song (2023) Verve Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103554.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jef Neve - That Old Feeling (2023) Universal [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103534.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Milt Jackson & Ray Charles - Soul Brothers (1958) 2012, Atlantic [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103529.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Eddie Henderson - Collective Portrait (2015) Smoke Sessions Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103513.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Gary Burton - New Vibe Man In Town (1960, 1961) 2012, American Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103507.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Eddie Henderson - Witness To History (2023) Smoke Sessions Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103505.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ray Brown - The Best Of The Concord Years (1973 - 1993) 2CD, 2002, Concord Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103504.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Freddie Hubbard - Ride Like The Wind (1981) 2014, Warner [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103503.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Art Farmer Quartet - To Sweden With Love (1964) 2013, Atlantic [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103502.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Jazz For Halloween (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103483.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bunkiman - Electro Swing Festival (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103478.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Charles Mingus - Incarnations (1960) 2024, Candid [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103476.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Frank Sinatra - In The Wee Small Hours (1953 - 1955) 2019, State Of Art [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103445.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Charles Tolliver - New Tolliver (1977) 2009, BMG [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103415.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Frank Sinatra - Close To You And More (2002) Capitol Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103403.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Frank Sinatra - Where Are You? (2002) Capitol Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103339.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Bunkiman - Bunkiman 2023 Best (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103337.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Toshiko Akiyoshi Trio - Time Stream (1985) Toshiba-EMI [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103336.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Laurindo Almeida - Concierto de Aranjuez (1978) 1984, East Wind [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103334.jpg" />
 </div>
 
 

@@ -1,163 +1,3 @@
-###  Публикация: 1130022   (718130) от 30.04.2017
-
-М.И. Устинова и др. | Фотошопчик. Photoshop на практике. Создание фотомонтажа и обработка фотографий в программе Photoshop (2015) [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718130.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью данной книги вы достаточно быстро и легко освоитесь с работой в графическом редакторе Adobe Photoshop. Буквально с первых же шагов вы сможете получать реальные результаты. Достичь такого эффекта позволяет большое количество практических примеров, встречающихся в книге на каждом шагу, а также пошаговые инструкции по выполнению тех или иных действий.
-При (   Читать дальше...   )Жанр: ГрафикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC1CC46404095EAEB7050B6195EEB656E28E5C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 201958   (718002) от 30.04.2017
-
-Дэвид Флэнаган | JavaScript  Подробное руководство [Пятое издание] (2008) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_718002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятое издание бестселлера «JavaScript. Подробное руководство» полностью обновлено. Рассматриваются взаимодействие с протоколом HTTP и применение технологии Ajax, обработка XML-документов, создание графики на стороне клиента с помощью тега <canvas>, пространства имен в JavaScript, необходимые для разработки сложных программ, классы, замыкания, Flash и встраивание (   Читать дальше...   )Жанр: Программирование, интернетФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 669903   (716616) от 18.06.2013
-
-В. Большаков, А. Бочков, А. Сергеев | 3D-моделирование в AutoCAD, КОМПАС-3D, SolidWorks, Inventor, T-Flex (2011) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716616.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приведены материалы, позволяющие освоить работу в пяти САD-cистемах, наиболее распространенных в сфере образования и практической деятельности. Подобный подход не только позволит читателю быстро овладеть навыками моделирования во всех популярных САПР-оболочках, но и предоставит ему возможность самостоятельно оценить и выбрать конкретный инструмент для решения (   Читать дальше...   )Жанр: СамоучительФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21AFD18F7037DEEED209A430229505CA0CCB99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400646   (716605) от 06.08.2020
-
-Дэн Вандеркам | Эффективный TypeScript. 62 способа улучшить код (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716605.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Эффективный TypeScript» необходим тем, кто уже имеет опыт работы с JavaScript. Цель этой книги — не научить пользоваться инструментами, а помочь повысить профессиональный уровень. TypeScript представляет собой не просто систему типов, а набор служб языка, удобных в использовании. Он повышает безопасность разработки в JavaScript, делает работу увлекательнее и проще. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1779D2FA888887B04DB0F2FA39DF66E243691C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286029   (716358) от 28.02.2019
-
-Электрик Инфо | Ардуино для чайников. Иллюстрированное практическое руководство (2018) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arduino — это электронный конструктор и удобная платформа быстрой разработки электронных устройств для новичков и профессионалов. Платформа пользуется огромной популярностью во всем мире, благодаря удобству и простоте языка программирования, а также открытой архитектуре и программному коду. Устройство программируется через USB без использования программаторов.
-Arduino (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4087AF7275D39C371E39CF6726C9482450E8F6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285667   (716271) от 28.02.2019
-
-Эдвард Сиоре | Проектирование программ на языке Java (2019) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга для программистов, которые умеют писать не-ООП код, но хотели бы погрузиться в мир Java, а также для программистов, желающих поднять навыки ООП на новый уровень. Даже опытные программисты найдут интересные примеры и идеи в каждой главе.
-
-Вы изучите основы полиморфизма и других фундаментальных аспектов объектно-ориентированного проектирования, а также изучите (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C8B9159F5AA52AA347698EAB711F33C205915C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130286   (716039) от 01.05.2017
 
 Филипп Гросс | Криминальный Runet. Темные стороны Интернета (2017) [FB2]
@@ -166,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716039.jpg" />
 </div>
 
 
@@ -192,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715372.jpg" />
 </div>
 
 
@@ -218,7 +58,7 @@ excelok | 151 трюк Microsoft Word (2017) [PDF]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714968.jpg" />
 </div>
 
 
@@ -247,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714967.jpg" />
 </div>
 
 
@@ -275,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714801.jpg" />
 </div>
 
 
@@ -301,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714517.jpg" />
 </div>
 
 
@@ -327,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714508.jpg" />
 </div>
 
 
@@ -353,7 +193,7 @@ Mark Moeykens | Combine Mastery in SwiftUI (2021) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714471.jpg" />
 </div>
 
 
@@ -382,7 +222,7 @@ Greg Sidelnikov | CSS Visual Dictionary (2018) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714463.jpg" />
 </div>
 
 
@@ -410,7 +250,7 @@ Vincent Ngo и др. | Data Structures & Algorithms in Dart (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714462.jpg" />
 </div>
 
 
@@ -439,7 +279,7 @@ Greg Sidelnikov | JavaScript Grammar (2019) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714461.jpg" />
 </div>
 
 
@@ -465,7 +305,7 @@ Alex Edwards | Let's Go Further! Advanced patterns for building APIs and web app
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714460.jpg" />
 </div>
 
 
@@ -493,7 +333,7 @@ Shruti Balasa | Complete Guide to CSS Flex and Grid [2 книги] (2021) [Pure 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714398.jpg" />
 </div>
 
 
@@ -522,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714116.jpg" />
 </div>
 
 
@@ -548,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714049.jpg" />
 </div>
 
 
@@ -574,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714040.jpg" />
 </div>
 
 
@@ -600,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714035.jpg" />
 </div>
 
 
@@ -627,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713925.jpg" />
 </div>
 
 
@@ -654,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713509.jpg" />
 </div>
 
 
@@ -680,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712917.jpg" />
 </div>
 
 
@@ -691,6 +531,163 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:765E541888D5BE38BA368F781956399938BD2EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130820   (712271) от 03.05.2017
+
+В.В. Шпее | Планшет на Android 5. Все об использовании вашего планшетного компьютера (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга предназначена для пользователей планшетов на версии Android 5. В книге вы найдете ответы на большинство вопросов, связанных с использованием этой операционной системы и Android-устройств.
+В первой части рассматриваются самые основы - от распаковки планшета, рассмотрения его кнопок до знакомства с интерфейсом Android. Также будет показано, как воспроизводить (   Читать дальше...   )Жанр: Карманные компьютеры. Ноутбуки. ОргтехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D515B6E7E023C9CEC0FB4E12B861CA8491E2FB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025187   (711069) от 11.06.2016
+
+В.А. Петин | Arduino и Raspberry Pi в проектах Internet of Things (2016) [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрено создание простых устройств в рамках концепции Интернета вещей (IoT, Internet of Things) на базе популярной платформы Arduino и микрокомпьютера Raspberry Pi. Показана установка и настройка среды разработки приложений Arduino IDE, а также среда макетирования Frizing. Описаны технические возможности, особенности подключения и взаимодействия различных датчиков (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E397FA70422C5DDDCDA5B150D47ED012158F1181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286700   (710754) от 03.03.2019
+
+М.В. Антоненко и др. | Интернет. Полное руководство (2-е изд.) (2013) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга является наиболее полным руководством по работе в Интернете, в котором рассмотрено огромное количество вопросов, тем и сервисов, связанных с Интернетом: от самых простых (подключения к Интернету, посещения сайтов, пользования электронной почтой, создания страниц ВКонтакте и Одноклассниках) до продвинутых (скачивания сайтов, фильмов и музыки, использования (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F7060764815CF756872E0550C0E77F3C1FD423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286564   (710750) от 03.03.2019
+
+Сергей Толкачев | Нейронное программирование диалоговых систем (2019) [PDF, DOC]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710750.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены методы построения динамических диалоговых интернет-приложений на основе нейронных лингвистических моделей. Описаны способы конструирования лингвистических нейронов и их применения для решения различных прикладных задач. В качестве приложения в книгу включены программы, позволяющие читателю самостоятельно экспериментировать с простейшими нейронными (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D1B3F1EB58FD6C57BDF1D0A44EF59B70F709ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130746   (710229) от 04.05.2017
+
+Макс Шлее | Qt 5.3. Профессиональное программирование на C++ (2015) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена разработке приложений для Windows, Mac OS X и Linux с использованием библиотеки Qt версии 5.3. Подробно рассмотрены возможности, предоставляемые этой библиотекой, и описаны особенности, выгодно отличающие её от других библиотек. Описана интегрированная среда разработки Qt Creator и работа с технологией Qt Quick. Книга содержит исчерпывающую информацию (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E447B992302E05E1B82575BA7F9AD3F197C23819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131148   (710219) от 04.05.2017
+
+Макс Шлее | Qt 5.3. Профессиональное программирование на C++ [+Проекты] (2015) [DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга подробно знакомит с библиотекой Qt 5.3, являющейся не только средством для создания пользовательских интерфейсов, но и позволяющей разрабатывать приложения практически любой сложности. Не даром Qt широко используется многими организациями и компаниями, такими как ADOBE, AMAZON, AMD, BOSCH, BLACKBERRY, CANNON, CIS-CO SYSTEMS, DISNEY, INTEL, IBM, PANASONIC, PIONEER, (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F7BD422217094E59119509FA81587F27886BC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1664904   (183157) от 29.09.2023
+
+Black Stone Cherry - Screamin' At The Sky (2023) [MP3|320 Kbps] <Southern Rock, Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Screamin' At The Sky [00:03:24]
+02-Nervous [00:03:15]
+03-When The Pain Comes [00:03:24]
+04-Out Of Pocket [00:03:07](   Читать дальше...   )Жанр: Southern Rock, Hard Rock, Post-GrungeПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD11E935CFDFEB5B2613FC5B5A4002846DB60F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665262   (182315) от 30.09.2023
 
 Graveyard - 6 (2023) [MP3|320 Kbps] <Blues rock, Hard Rock, Psychedelic Rock>
@@ -6,7 +35,7 @@ Graveyard - 6 (2023) [MP3|320 Kbps] <Blues rock, Hard Rock, Psychedelic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182315.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dygitals - God Save The King (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180104.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sainted Sinners - Unlocked & Reloaded (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179282.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ MNP - Feel the Pain (2020) [MP3|320 Kbps] <Modern Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178399.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Unruly Child - Our Glass House (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178356.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Hashishian - Hashishian (2022) [MP3|320 Kbps] <Psych, Doom, Stoner, Desert>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178119.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Black Rain - Untamed (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178023.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Ancient Machine - Distance Between Us (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178010.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Van Halen - Dallas Live (1982) Broudcast, 2023, Golden Rain [MP3|320 Kbps] <Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177481.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Rainbow - Osaka Live (1978) Broudcast, 2023, Leftfield media [MP3|320 Kbps] <Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177402.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Hong Kong Sleepover - 4 Albums (2009-2019) [MP3|320 Kbps] <Hard Rock,  Heavy
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175105.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Amon Acid - 5 Albums (2019-2022) [MP3|320 Kbps] <Psych, Doom, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169219.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Thunder - The Thrill of It All (1996) Expanded, 2019, Sanctuary Records [MP3|320
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169218.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ ZOAHR - Apraxia (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Bluesy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167670.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Alpha Souls - Carousel Of Emotions (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166139.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Witchcult - Witchcult (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Doom>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164314.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Messenger - In To Win (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163175.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sweet - Isolation Boulevard (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162885.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Black Hammer Voodoo - The Year of the Rat (2021) [MP3|320 Kbps] <Blues Rock, Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162041.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Sticks N' Stones - Get Stoned (2020) [MP3|320 Kbps] <Glam Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161299.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Sula Bassana - Nostalgia (2022) [MP3|320 Kbps] <Heavy Psych, Space, Kraut>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160171.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Autumn's Child - Starflower (2022) Japanese Edition [MP3|320 Kbps] <Melodic Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160124.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Highly Suspect - Mister Asylum (2015) [MP3|320 кб/с] <Hard Rock, Stoner, Prog
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158476.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Platinum Overdose - Murder In High Heels (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157840.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ The Radio Sun - Heaven Or Heartbreak (2015) [MP3|320 кб/с] <Melodic Rock, AOR
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157018.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ The Radio Sun - Heaven Or Heartbreak (2015) [MP3|320 кб/с] <Melodic Rock, AOR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCF4F9F1378BFE9C68930EF0899FC37B2BDC9A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346904   (154926) от 21.12.2019
-
-Ozzy Osbourne - Ozzmosis Part Two (2019) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feels So Good To Be Bad 04:27
-02. Denial 05:22
-03. Too Far Gone 04:26
-04. Ghost Behind My Eyes 05:14(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F500B42225E833357344F07E17B570B0DB9AB6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

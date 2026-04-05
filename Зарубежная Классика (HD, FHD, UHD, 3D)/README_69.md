@@ -1,3 +1,107 @@
+###  Публикация: 494380   (251542) от 12.05.2012
+
+История любви / Love Story (1970) [1080p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек, студент престижного колледжа, из очень богатой семьи, полюбил студентку из семьи очень скромного достатка. Они поженились, пережили и неприятные моменты, и счастливые, но вдруг, ни с того ни с сего, молодая жена внезапно и смертельно заболевает...Жанр: Драма, МелодрамаРежиссер: Артур ХиллерАктеры: Эли МакГроу, Райан О`Нил, Джон Марли, Рэй Милланд, Рассел Найп, Кэтрин Бальфур, Сидни Уолкер, Роберт Модика, Уолкер Дэниелс, Томми Ли ДжонсПеревод: Профессиональный многоголосый - (Film Prestige), (DVD-Магия), (CTC)Язык субтитров: Русские, английские, английские (комментарии)Продолжительность: 01:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D6E2BC71388C9086CF1376EDC44EA5AA044BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494444   (251475) от 12.05.2012
+
+Виски в изобилии / Whisky Galore! (1949) [720p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идёт Вторая мировая война. Однако на небольшом островке на северо-западе Шотландии другая беда. Сюда не падают бомбы, не взрываются гранаты, не гибнут люди. Здесь закончилось виски! Жизнь утратила свою привлекательность, мужчины оделись в чёрное, даже дети почувствовали, что что-то не так. Но однажды у берегов острова потерпел крушение корабль с грузом виски на борту...Жанр: комедияРежиссер: Александр МаккендрикАктеры: Бэзил Рэдфорд, Катрин Лэйси, Брюс Сетон, Джоан Гринвуд, Вайли Уотсон, Гэбриэлль Блант, Гордон Джексон, Джин Каделл, Джеймс Робертсон Джастис, Морленд ГрэмПеревод: Многоголосый закадровыйПродолжительность: 01:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55565131D66060F47935E6261C49D2666F4161FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493952   (251198) от 11.05.2012
+
+Забавная мордашка / Funny Face (1957) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251198.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о том, как трогательная продавщица из книжного магазинчика Джоанна стала «лицом» гламурного журнала мод. И помог ей в этом фотограф того же журнала Дик. Джоанна согласилась на эту авантюру только из-за профессора Фластера, проповедующего сомнительные ценности, но, тем не менее, собравшего поклонников из многих стран.Жанр: мелодрама, комедияАктеры: Одри Хепберн, Фред Астер, Кэй Томпсон, Мишель Оклер, Роберт Флеминг, Довима, Сьюзи Паркер, Санни Хартнет, Жан Дел Вэл, Вирджиния ГибсонПеревод: Многоголосый закадровыйСубтитры: нетПродолжительность: 01:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5648E82CD4E5C5CBFD264BCB0D8C2CA636DB484F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835575   (250755) от 06.11.2025
+
+След Сокола / Spur des Falken (1968) BDRip [H.265/1080p] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй половине 19 века в Чёрных горах (Блэк-хиллс) было найдено золото. Весть об этой находке привлекает в Чёрные горы искателей приключений, бандитов, золотоискателей и дельцов, хотя согласно договору эти земли оставлены за индейцами племени дакота. В числе дельцов прибыл и Бладжен ('Дубинка'), спекулирующий земельными участками - он пытается любыми средствами (   Читать дальше...   )Производство: Германия (ГДР), СССР / DEFA Aussenhandel, Künstlerische Arbeitsgruppe «'Roter Kreis'», Грузия-фильмЖанр: драма, вестернРежиссер: Готтфрид КольдицАктеры: Гойко Митич, Ханньо Хассе, Барбара Брыльска, Лейла Месхи, Рольф Хоппе, Хартмут Бер, Хельмут Шрайбер, Фред Дельмаре, Милан Яблонски, Хольгер МалихПеревод: дублированный + вставки Юрия СербинаЯзык озвучки: русский, немецкийСубтитры: английскиеПродолжительность: 01:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1776E71B5443375F2EE7304A186DDAB47A6A825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835270   (250550) от 05.11.2025
 
 Братья по крови / Blutsbruder (1975) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250550.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250470.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250213.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250132.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250100.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250018.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249989.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249932.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249615.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249423.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249385.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249198.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248939.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248847.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248014.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247975.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247954.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247766.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247746.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247736.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247713.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247689.jpg" />
 </div>
 
 
@@ -572,114 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F616208323E7862BE303E68BE7971DBD812B9954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514542   (247675) от 10.06.2023
-
-Автобусная остановка / Bus Stop (1956) [1080i] HDTV
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247675.jpg" />
-</div>
-
-
-###  Подробнее
-
-В кафе «Синий Дракон» разбитной ковбой Бо, приехавший в город участвовать в родео, решительно и грубо требует от героини фильма внимания и благосклонности. Шери даже вынуждена сесть на автобус, чтобы бежать из города, но Бо отправляется следом.
-
-Автобус заносит снегом и пассажиры вынуждены провести ночь в кафе, где происходит драка между водителем автобуса, защищающим (   Читать дальше...   )Жанр: драма, мелодрама, комедияРежиссер: Джошуа ЛоганАктеры: Мэрилин Монро, Айлин Хекарт, Бетти Филд, Дон Мюррей, Хенри Слэйт, Хоуп ЛэнгПеревод: Многоголосый закадровыйСубтитры: Английские, РусскиеПродолжительность: 01:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831558A55A3AD678C7E67AB399D4B3CAA9091D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253590   (247636) от 12.06.2023
-
-Укол зонтиком / Le coup du parapluie (1980) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актёр Грегуар Леконт получает приглашение сняться в кино в роли киллера, он ошибается дверью и попадает к мафии которые дают ему задание убрать бандита по кличке «Кит» и снабжают его зонтиком с отравленной иглой. Грегуар приступает к работе не подозревая, что впутался в криминал. Тем временем настоящий убийца идет по его следу…Производство: Франция | Gaumont InternationalЖанр: Комедия, КриминалРежиссер: Жерар УриАктеры: Пьер Ришар, Валери Мересс, Кристин Мурийо, Гордон Митчелл, Жерар Жюньо, Морис Риш, Доминик Лаванан, Аксель Аббади, Ясин Хан, Дидье Совегран, Майк Маршалл, Роже КарельПеревод: Дублированный, профессиональный двухголосыйСубтитры: Русский, французский, английскийПродолжительность: 01:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83DF3C106CA1820D2C8C1ABD652B2A340622F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736143   (247592) от 14.06.2023
-
-12 разгневанных мужчин / 12 Angry Men (1957) BDRemux [1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юношу обвиняют в убийстве собственного отца, ему грозит электрический стул. Двенадцать присяжных собираются чтобы вынести вердикт: виновен или нет.
- С начала заседания почти все склонились к тому, что виновен, и лишь только один из двенадцати позволил себе усомниться. Счет голосов присяжных по принципу «виновен - невиновен» был 11:1. К концу собрания мнения судей (   Читать дальше...   )Производство: США / © Orion-Nova ProductionsЖанр: ДрамаРежиссер: Сидни ЛюметАктеры: Генри Фонда, Мартин Болсам, Ли Дж. Кобб, Джек Уорден, Джозеф Суини, Эд Бегли, Джордж Восковек, Джон Фидлер, Э. Г. Маршалл, Джек КлагменПеревод: Многоголосый закадровый, авторский одноголосый закадровыйСубтитры: Русские, Украинские, АнглийскиеПродолжительность: 01:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F601A70EBA1253332BDF15735137C453D8DD3FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 771451   (247581) от 14.06.2023
-
-300 спартанцев / The 300 Spartans (1962) BDRip [720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247581.jpg" />
-</div>
-
-
-###  Подробнее
-
-480 год до нашей эры. Многотысячное войско персов подошло к границам Греции, навстречу захватчикам вышел небольшой отряд воинов из Спарты, во главе с царем Леонидом. Царь Персии Ксеркс предложил спартанцам сложить оружие, но герои решили: «Вместе победить или вместе умереть!».
- Четыре дня и четыре ночи шло сражение, cамая лучшая гвардия — «Бессмертные», были пущены (   Читать дальше...   )Жанр: Драма, Приключения, Военный, ИсторияРежиссер: Рудольф МатеАктеры: Ричард Игэн, Ральф Ричардсон, Дайэн Бэйкер, Барри Коу, Дэвид Фаррар, Доналд Хьюстон, Анна Синодину, Кирон Мур, Джон Кроуфорд, Роберт Браун, Лоуренс Нэйсмит, Энн Уэйкфилд, Иван Тризо, Чарльз Фоусет, Михалис Николинакос, Сандро Джильо, Анна Рафтопулу, Димос Старениос, Йоргос Муциос, Никос Папаконстантину, Джон Дж. Контес, Мариетта ФлемотомосПеревод: Профессиональный (полное дублирование)(Язык субтитров: английские, русскиеПродолжительность: 01:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600515EBC5C25DFB6F23C4B8324C3EE98A45A5B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

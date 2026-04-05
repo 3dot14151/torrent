@@ -1,29 +1,3 @@
-###  Публикация: 1620703   (201059) от 21.03.2023
-
-Udemy, Kyle Schaub | Lua Programming and Game Development with LÖVE (2021) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как для начинающих, так и для опытных программистов одним из лучших инструментов для изучения разработки игр является LÖVE (также известный как Love2D), игровой движок с открытым исходным кодом, который позволяет пользователям писать логику своих игр на Lua, легком для понимания. скриптовый язык. Эти скрытые жемчужины индустрии разработки идеально подходят для (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 08:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9A6DCEF396537D325ECE3F42289563A38F3293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620613   (201051) от 21.03.2023
 
 Linkedin Learning, Eduardo Corpeño | Level Up: C++ (2023) WEB-DL [EN]
@@ -32,7 +6,7 @@ Linkedin Learning, Eduardo Corpeño | Level Up: C++ (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201051.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Udemy, Gustavo Pezzi, Pikuma .com | Lua Scripting: Master complete Lua Programmi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201044.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Udemy, Peter A | Password Cracking: Brute Forcing (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201014.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ Udemy, John Thompson | Spring Framework 6: Beginner to Guru (2023) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200987.jpg" />
 </div>
 
 
@@ -142,7 +116,7 @@ Udemy, Serge Lansiquot | Learn C++ Programming by Making Games, Volume 1 (2022) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200743.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ Pikuma, Gustavo Pezzi | Fundamentals of 2D Game Engines with C++ SDL and Lua (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200726.jpg" />
 </div>
 
 
@@ -196,7 +170,7 @@ Udemy, Muhamed Khalid | Modern OpenGL 3.3 with C++ GLSL for beginners (2021) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200708.jpg" />
 </div>
 
 
@@ -225,7 +199,7 @@ Pikuma, Gustavo Pezzi | Raycasting Game Development with JavaScript SDL & C (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200632.jpg" />
 </div>
 
 
@@ -251,7 +225,7 @@ Thinknetica Pro, Артем Нистратов | Метапрограммиро�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200618.jpg" />
 </div>
 
 
@@ -280,7 +254,7 @@ Udemy, Jose Portilla | OpenAI Python API Bootcamp: Learn to use AI, GPT3, and mo
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200599.jpg" />
 </div>
 
 
@@ -309,7 +283,7 @@ ArjanCodes | The Software Designer Mindset - Complete Edition (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200549.jpg" />
 </div>
 
 
@@ -337,7 +311,7 @@ Udemy, Uisco Dev | How To Make A Doom Clone In Unreal Engine 5 (2023) WEB-DL [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200460.jpg" />
 </div>
 
 
@@ -365,7 +339,7 @@ Udemy, Serge Lansiquot | Learn C++ Programming By Making Games Volume 2 (2022) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200403.jpg" />
 </div>
 
 
@@ -391,7 +365,7 @@ Maven Analytics, John Pauler | MySQL Specialist (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200349.jpg" />
 </div>
 
 
@@ -418,7 +392,7 @@ Pluralsight, Alper Tellioglu | Pandas Arrays and Data Structures (2023) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199995.jpg" />
 </div>
 
 
@@ -446,7 +420,7 @@ Udemy, Lincoln Margison | Procedural animation for humans in Unreal Engine 5 (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198891.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Udemy, Serge Lansiquot | Game Dev Math Ultimate guide to polishing your game! (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198749.jpg" />
 </div>
 
 
@@ -502,7 +476,7 @@ Udemy, Web Oral | ChatGPT: Earning Money With ChatGPT - Easy Way For Beginners (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198678.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ Productuniversity, Яна Чаруйская и др. | ИИ и для гене�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198533.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ FrontendMasters, Ben Callahan | Enterprise Design Systems Thinking (2023) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198332.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ FrontendMasters, Lydia Hallie | Advanced Front-End & JavaScript Questions (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198259.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ Heisenbug | Конференция по тестированию не тольк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198214.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ pixel.one | Создание 2D игр в Unity (2019) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198173.jpg" />
 </div>
 
 
@@ -670,7 +644,7 @@ Udemy | Библиотека курсов по Matlab (2022) [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198167.jpg" />
 </div>
 
 
@@ -697,7 +671,7 @@ Udemy, Nathan House | The Complete Nmap Ethical Hacking Course : Network Securit
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198050.jpg" />
 </div>
 
 
@@ -711,6 +685,34 @@ Discover the secrets of ethical hacking and network discovery, using Nmap on thi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF81F86AA71E71D4AE71A0C0ABFB14D79C05A2F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635067   (197953) от 24.05.2023
+
+Skillbox, М. Овчинников, С. Корниенко и др. | Веб-вёрстка для начинающих 2.0 (2021) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Верстальщик воплощает в жизнь замысел веб-дизайнера и создаёт рабочие сайты из дизайн-макетов. На курсе вы научитесь верстать одностраничные лендинги, сайты услуг и мероприятий, интернет-магазины. С вёрстки начнётся ваш путь в веб-разработку.
+Чему вы научитесь:
+Писать код на HTML и CSS. Знать эти языки должен каждый веб-разработчик. На HTML будете создавать структуру (   Читать дальше...   )Производство: SkillboxЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 25:25:52Реклама: Наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95721B00D0CC2AB7BEDEC4D7D4A657BD2121F10
 ```
 
 https://mybot314.ru/tekegram_catalog/

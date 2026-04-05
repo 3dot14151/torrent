@@ -6,7 +6,7 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809694.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809615.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809386.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809350.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809187.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Chris Isaak - Best of Chris Isaak (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808881.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808017.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807863.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807589.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Evanescence Live at The Tonight Show With Jay Leno & Evanescence Live at Conan  
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807559.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807526.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807515.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807248.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807118.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Eurovision-2013. Final (2013.05.18) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807037.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806905.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Metallica: Francais pour une nuit (2009) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806869.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806240.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805852.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805663.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805297.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804737.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804731.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804002.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Behemoth - Lucifer (Director's Cut) (2011) [H.264/720p] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803681.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803368.jpg" />
 </div>
 
 

@@ -1,3 +1,148 @@
+###  Публикация: 1526628   (738160) от 25.01.2022
+
+Ravager - The Third Attack (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intruders
+02. Planet Hate
+03. Back To The Real World
+04. Priest Of Torment(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219D7904AABB8339A5A7F4D79974B42F6D94DF30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526674   (738157) от 25.01.2022
+
+Palace - Shoals (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Said It Was Easy (2:10)
+ 02. Shame On You (3:20)
+ 03. Fade (4:27)
+ 04. Gravity (5:28)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E11D84BA0E09B63209E4D60AED1CD4E64EE0D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526466   (738156) от 25.01.2022
+
+Kandia - Quaternary (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthropocene (1:02)
+02. Obliterate (4:08)
+03. The Flood (3:46)
+04. Fight or Flight (3:37)(   Читать дальше...   )Жанр: Heavy Metal, Modern MetalПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FD9C0A34F3C797E061D36D5DAD9C8590910FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526724   (738153) от 25.01.2022
+
+Red Sand - The Sound of the Seventh Bell (2021) [FLAC|Lossless|tracks + .cue] <Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738153.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Sound of the Seventh Bell, Part 1 (5:44)
+2. Reichenbach (4:02)
+3. Insatiable (14:32)
+4. Breathing (4:23)(   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B0EEFCFBDF9C3558B88E5C8BDAFDE0660CE6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526616   (738151) от 25.01.2022
+
+Feuerschwanz - Memento Mori (2021) Deluxe Version, 3CD [MP3|320 kbps] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738151.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 | Memento Mori | 03:31
+02 | Untot im Drachenboot | 03:35
+03 | Ultima Nocte | 03:38(   Читать дальше...   )Жанр: MetalПродолжительность: 01:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2DA425B930130F59E20E2A773A99ACA0EE0245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526757   (738147) от 25.01.2022
 
 The Samurai Of Prog - Omnibus – 2 (The Middle Years) (2021) Box Set, Compilation, 4xCD, Reissue, Remastered, Seacrest Oy [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
@@ -6,7 +151,7 @@ The Samurai Of Prog - Omnibus – 2 (The Middle Years) (2021) Box Set, Compilati
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738147.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Deep Purple - Turning To Crime (2021) Bonus Track Edition [MP3|320 kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738121.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Don Airey - 8 albums, 11 CD (1988-2021) Discography [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737998.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Pupil Slicer - Mirrors (2021) [FLAC|Lossless|tracks + .cue] <Metalcore, Hardcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737833.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Cap Outrun - High On Deception (2021) Japanese Edition [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737826.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737821.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Nightfox - White Cobra (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737820.jpg" />
 </div>
 
 
@@ -211,7 +356,7 @@ Giant - Shifting Time (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737811.jpg" />
 </div>
 
 
@@ -240,7 +385,7 @@ Battle Beast - Circus Of Doom (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737806.jpg" />
 </div>
 
 
@@ -269,7 +414,7 @@ Magnum -  The Monster Roars (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737794.jpg" />
 </div>
 
 
@@ -298,7 +443,7 @@ Heymoonshaker - Live in France (2017) [MP3|320 Kbps] <Alternative, Beatbox Blues
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737784.jpg" />
 </div>
 
 
@@ -327,7 +472,7 @@ Tallan Noble Latz Band - Tallan (2022) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737768.jpg" />
 </div>
 
 
@@ -356,7 +501,7 @@ Gerard Manset - Un oiseau s'est pos (2014) 2CD [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737743.jpg" />
 </div>
 
 
@@ -385,7 +530,7 @@ Emitt Rhodes - Emitt Rhodes (1970) Reissue /1993, One Way Records/ [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737552.jpg" />
 </div>
 
 
@@ -414,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737425.jpg" />
 </div>
 
 
@@ -443,7 +588,7 @@ Ethereal Shroud - Trisagion (2021) [FLAC|Lossless|image + .cue] <Black Metal, Fu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737403.jpg" />
 </div>
 
 
@@ -472,7 +617,7 @@ Magic City Hippies - Water Your Garden (2022) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737390.jpg" />
 </div>
 
 
@@ -501,7 +646,7 @@ Crystal Ball - Crysteria (2022) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737377.jpg" />
 </div>
 
 
@@ -530,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737376.jpg" />
 </div>
 
 
@@ -559,7 +704,7 @@ Rhapsody Of Fire - Glory For Salvation (2021) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737330.jpg" />
 </div>
 
 
@@ -588,7 +733,7 @@ Manatark - Chaos Engine (2003) [APE|Lossless|image + .cue] <Black Metal, Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737139.jpg" />
 </div>
 
 
@@ -602,151 +747,6 @@ Manatark - Chaos Engine (2003) [APE|Lossless|image + .cue] <Black Metal, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CAD72115F3C1E0E18E5F7436EEF7426CBA44F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397771   (737138) от 23.07.2020
-
-Deadlock - Manifesto (2008) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Moribound Choir Vs. The Trumpets Of Armageddon (01:10)
-02. Martyr To Science (05:14)
-03. Slaughter's Palace (04:23)
-04. The Brave / Agony Applause (04:03)(   Читать дальше...   )Жанр: Melodic Death Metal, Modern MetalПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE194A0A13A87AFB530FC06F66AF0728F01D4CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397914   (737130) от 23.07.2020
-
-The Light In The Ocean - The Light In The Ocean (2019) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yakamoz (02:54)
-02. Bergherder (10:06)
-03. Space / Suit (05:40)
-04. Seafarer's Song (02:17)(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E120FBC257508513126B256F6564E6C8C509A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785307   (737031) от 16.05.2014
-
-Slade - 15 Studio Albums, 5 Compilation, 3 Live (1969-1997) Discography [FLAC|Lossless]<Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock And Roll Preacher  [0:05:18.40]
-02. When I'm Dancin' I Ain't Fightin'  [0:03:44.72]
-03. Tak' Me Bak' 'Ome  [0:04:33.50]
-04. Everyday  [0:03:18.25](   Читать дальше...   )Жанр: Glam RockПродолжительность: 17:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639F2FFABE6F8FB0B1E340C9624FFA2C1EC40AF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527344   (736931) от 28.01.2022
-
-Insania - V (Praeparatus Supervivet) (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praeparatus Supervivet
-02. Solur
-03. Prometheus Rise
-04. Moonlight Shadows(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCF255E05E9A7ACD10979FC75C697C9B8EEDDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527333   (736929) от 28.01.2022
-
-Dianthus - Realms (2022) [MP3|320 kbps] <Alternative, Progressive Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Realms (05:42)
-02. My First Breath (03:10)
-03. Don't Change (04:01)
-04. Creeping In (02:41)(   Читать дальше...   )Жанр: Alternative, Progressive Metal, Female VocalПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A00C7ECAEBDFAE76291D194B553E4F0B5BA4658
 ```
 
 https://mybot314.ru/tekegram_catalog/

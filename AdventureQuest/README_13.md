@@ -1,3 +1,81 @@
+###  Публикация: 1097812   (911914) от 28.01.2017
+
+Daryl F. Gates' Police Quest: SWAT (1995) [En] (1.0c) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разящие наповал белые буквы на форменной куртке цвета хмурого неба, обтягивающей накачанную спину. Заветная мечта американских детей, искренне верящих в справедливость и в то, что их страна - самая лучшая, а их "ребята" - самые хорошие и самые правые. И если вдруг - хотя вообще такого быть не должно, но мало ли, - не где-нибудь на Востоке независимо от (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: Adventure, ArcadeЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617012D0E3EB033318C52191474FF1385C6687E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226608   (911775) от 18.03.2020
+
+AntVentor (2018) [Ru/Multi] (1.1) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911775.jpg" />
+</div>
+
+
+###  Подробнее
+
+AntVentor - это первая короткая глава из серии игр «AntTrilogy» о муравье и его необычных приключениях в фотореалистичном макромире. Главный герой – муравей-изобретатель, который, несмотря на свой крошечный размер, стремится к большой мечте. Он жил простой и размеренной жизнью, пока не появился ты, и не сломал его механизм, тем самым нарушив его планы. Теперь тебе (   Читать дальше...   )Тип издания: RepackРазработчик: LoopyMoodЖанр: Adventure (Casual)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47F09179C7483B845F00DA23A5EE68B6E9E5658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491611   (910331) от 25.08.2021
+
+Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (1.1.0_02) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте движениями кисти и решайте разнообразные головоломки, чтобы помочь талантливой художнице завершить её шедевр. И пусть Вас не смутит даже её грубоватый сосед со своим вредным котом! Когда картина начнёт обретать форму, Вам раскроется эмоциональная история о творчестве, судьбе и памяти.Тип издания: LicenseРазработчик: Silver Lining StudioЖанр: Adventure, Puzzle, AnimeЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2804BC4C2AA519C5FF002AF8198FE00FD30E4B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098381   (909652) от 29.01.2017
 
 Fahrenheit: Indigo Prophecy - Remastered (2015) [Ru/Multi] (1.0) Repack R.G. Механики
@@ -6,7 +84,7 @@ Fahrenheit: Indigo Prophecy - Remastered (2015) [Ru/Multi] (1.0) Repack R.G. М�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909652.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.8244/dlc) Repack West4it
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908257.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Walking Dead: Season Two (2013-2014) [Multi] (3.00) License GOG [A Telltale 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907884.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Tormented Souls (2021) [Ru/Multi] (7256155) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906733.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Murder Mystery Machine (2021) [Ru/Multi] (7059951) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906615.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Myst (2021) [Multi] (1.4.0) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906591.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Wolf Among Us (2013) [Ru/En] (1.0.0.1) Repack R.G. Revenants [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906048.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Morels: The Hunt (2019) [Ru/Multi] (1.11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904661.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0.284152) Repack Seraph1 [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904374.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ CAYNE (2017) [Ru/Multi] (1.26) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904230.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Spakoyno: Back to the USSR 2.0 (2016) [Ru/En] (1.0) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903527.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Mage's Initiation: Reign of the Elements (2019) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903036.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Grim Fandango Remastered (2015) [Multi] (1.4.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903029.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Last Light (2021) [Multi] (7245562) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901945.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Soul Axiom (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901876.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ UnderDread (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901850.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Welcome to PINEHILLS (2021) [Ru/En] (Jule20) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901821.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Beholder (2016) [Ru/Multi] (1.0/upd2) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900641.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Among the Sleep (2014) [Ru/Multi] (2.0.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900415.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Insurmountable (2021) [Multi] (1.3.1) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900202.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.25) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899481.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Freddy Pharkas: Frontier Pharmacist (1993) [En] (1.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898952.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Husk (2017) [Ru/Multi] (4.13) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898714.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Husk —это продуманная игра в стиле Survival Horror, в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25DE70B6A7D0FC42C3D89A4C3C9173A7117FBC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992967   (898490) от 03.03.2016
-
-Agatha Christie's The ABC Murders (2016) [Ru/En] (1.02) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваше оружие - это ваше знание. Ваша сообразительность подвергнется наивысшему испытанию! ABC Murders - это приключенческая игра с расследованиями, созданная по мотивам классического романа Агаты Кристи. Игрок выступает в роли знаменитого Эркюля Пуаро в полной тайн приключенческой игре с перспективой от 3-го лица.Тип издания: LicenseРазработчик: Microïds и artefacts-studioЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC05B887CBED5911E1A8FBC66E866F19CDB20FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493238   (896956) от 02.09.2021
-
-The Frosts: First Ones (2021) [Ru/En] (1.0.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключение о поиске пропавшего охотника и встрече с внеземным разумом! Исследуй дикую природу. Взберись на скалу, вымани кабана, встреться с волчицей и выживи в камнепаде. Помоги оленям и перехитри чудовище! Встреть Неизвестное и раскрой тайну!Тип издания: RepackРазработчик: Ivan SukhanovЖанр: Adventure (Top-Down)Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB14BC1F30F4AFD78B8CA88E834E644D35F86807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493264   (896826) от 02.09.2021
-
-Lake (2021) [Ru/Multi] (1.0.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896826.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сентября 1986 года. Вы играете за Мередит Вайс — ей сорок с небольшим, она вернулась домой из большого города. Карьеру в компании по разработке программного обеспечения она поставила на паузу, чтобы помочь отцу, местному почтальону. За две недели в прекрасном Провиденс Окс в штате Орегон она встретит старых знакомых и множество новых людей. Играя за Мередит, вы (   Читать дальше...   )Тип издания: RepackРазработчик: GamiousЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25BD4D12A2961DC49D21D4215D60E5E53004844
 ```
 
 https://mybot314.ru/tekegram_catalog/

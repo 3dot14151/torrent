@@ -6,7 +6,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199084.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199074.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198955.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198933.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198828.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198560.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2020) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198239.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197884.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197876.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197810.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197462.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197360.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197323.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NG: Владычицы морей / Shark Queens (2022) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197310.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197293.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197268.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG. Первый император: секреты китайской гроб�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197249.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197212.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197099.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196856.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ NG. Акула против тунца / Shark vs Tuna (2018) WEB-DL [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196715.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Discovery. Канализационные водолазы / Sewer Divers / (202
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196625.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ NG. Затонувшая субмарина фашистов / Nazi Sunken Sub (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196531.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ BBC: Тайны Бермудского треугольника / The Bermuda Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196491.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NG. Арабские Эмираты с высоты птичьего полёт�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196410.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196167.jpg" />
 </div>
 
 

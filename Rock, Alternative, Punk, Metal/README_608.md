@@ -1,3 +1,32 @@
+###  Публикация: 1059382   (462115) от 04.10.2016
+
+Edge Of Forever - Feeding The Fire (2004) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feeding The Fire
+02. Birth Of The Sun
+03. Prisoner
+04. Whatever Comes(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64997168CE0E545729591FDC499399205FAACFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059541   (462114) от 04.10.2016
 
 Steve Grimmett's Grim Reaper - Walking In The Shadows (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +35,7 @@ Steve Grimmett's Grim Reaper - Walking In The Shadows (2016) Japanese Edition [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462114.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Anathema - A Vision of a Dying Embrace (Live in Krakow 1996) (2022) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462097.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Oceans of Slumber - Starlight And Ash (2022) [FLAC|Lossless|tracks + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462096.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Rock Morning Mixtape 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461958.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Van Morrison - Keep Me Singing (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461834.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Sass Jordan - Rats (1994) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461831.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Gods of Thunder - A Norwegian Tribute to Kiss (2005) [MP3|256 Kbps] <Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461819.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Arch Enemy - Deceivers (2022) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461814.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Orianthi - Live from Hollywood (2022) Japanese Edition [FLAC|Lossless|tracks + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461808.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461712.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Billy's Band - Слегка (2016) [MP3|320 Kbps] <Blues, Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461641.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Better Than Ezra - Friction, Baby (1996) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461566.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Andrew W.K. - Close Calls With Brick Walls (2006) South Korea, Bonus Tracks [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461558.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Beyond The Black - Heart Of The Hurricane (2018) Japanese Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461417.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Kasabian - For Crying Out Loud (2017) 2CD, Delux Edition [FLAC|Lossless|tracks+.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461346.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Circadian Pulse - Elements Of Existence (2018) [FLAC|Lossless|image + .cue] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461330.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Korpiklaani - Kulkija (2018) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461328.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Gorgon - Titanomachy (2016) [FLAC|Lossless|image + .cue] <Sympho Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461224.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Explorers Club - Raising the Mammoth (2002) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461223.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Circadian Pulse - In The Blink Of An Eye (2012) [FLAC|Lossless|image + .cue] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461222.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Sabbtail - Night Church (2004) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461220.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Transience - Temple (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461219.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ The Night Cafe - 0151 (2019) TNC Recordings [FLAC|Lossless|WEB-DL|tracks] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461218.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Oso Oso - basking in the glow (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461217.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ The Fray - Through the Years: The Best of The Fray (2016) Epic Records [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461214.jpg" />
 </div>
 
 
@@ -716,36 +745,6 @@ The Fray - Through the Years: The Best of The Fray (2016) Epic Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F3DF5F958E7347ABDCAB28CB2F66064D27B820B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321312   (461206) от 23.08.2019
-
-Ashra - 4 Albums (1976-1980) Reissue CD [MP3|320 Kbps] <Electronic, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashra - немецкая группа, представляющая Берлинскую школу электронной музыки, которая была основана в 1976 году.
-Название Ashra является укороченной версией названия бывшей группы Геттшинга - Ash Ra Tempel. Изменение названия связано с изменением стиля - музыка стала менее психоделической и более ориентированной на электронику.Список альбомов:
-1976 - New Age Of Earth
-1977 - Blackouts
-1979 - Correlations(   Читать дальше...   )Жанр: Electronic, KrautrockПродолжительность: 03:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4F46D4BC323FE15155829C39145BEADE0E51F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

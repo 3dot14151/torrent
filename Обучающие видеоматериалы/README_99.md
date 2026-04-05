@@ -1,3 +1,30 @@
+###  Публикация: 1203021   (787977) от 02.02.2018
+
+PhLearn Pro | The Ultimate Guide to Retouching (2014) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это ретуширование, ретуширование от PhLearn.
+Эксперт YouTube по фотошопу Аарон Найс предлагает многолетний опыт работы с Photoshop вместе с уникальными методами ретуширования и критическим вниманием к деталям.Жанр: ВидеоурокиПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 07:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C5DAF884AAFBB0DCD842ADF3F4E60FD91E3984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202629   (787914) от 02.02.2018
 
 Max Twain  | Insomnia (2017) PCRec [H.264/1080p-LQ]
@@ -6,7 +33,7 @@ Max Twain  | Insomnia (2017) PCRec [H.264/1080p-LQ]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787914.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Udemy, Anfisa Breus | Elementor 2021- от новичка до профи (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787764.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ javascript.ninja, Виталий Слободин, Илья Климов | CI/CD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787757.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ Udemy, Илья Фофанов, Dmitri Nesteruk | Шаблоны проекти�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787755.jpg" />
 </div>
 
 
@@ -121,7 +148,7 @@ Blender Market, Midge "Mantissa" Sinnaeve | Моушн графика в реа�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787753.jpg" />
 </div>
 
 
@@ -148,7 +175,7 @@ Stepik, Никита Пестров и др. | Создание Web-сервис
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787750.jpg" />
 </div>
 
 
@@ -174,7 +201,7 @@ Lynda.com | Painter 2017 Essential Training (2016) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787527.jpg" />
 </div>
 
 
@@ -203,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787475.jpg" />
 </div>
 
 
@@ -229,7 +256,7 @@ Digital Tutors | Motion-графика в After Effects (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787474.jpg" />
 </div>
 
 
@@ -257,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787427.jpg" />
 </div>
 
 
@@ -283,7 +310,7 @@ LoftSchool | Основы вёрстки (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787421.jpg" />
 </div>
 
 
@@ -309,7 +336,7 @@ We Teach English, Ирина Ботнарь | Teaching English from A to Z (2021
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787315.jpg" />
 </div>
 
 
@@ -337,7 +364,7 @@ Udemy, Виталий Черненко | Формы списков в 1С (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787313.jpg" />
 </div>
 
 
@@ -365,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787309.jpg" />
 </div>
 
 
@@ -393,7 +420,7 @@ Linguafranconia, Катерина Томилина | Курс современн
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787308.jpg" />
 </div>
 
 
@@ -422,7 +449,7 @@ The Gnomon Workshop, Eric Keller | Modeling and Rendering a Realistic Jumping Sp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787303.jpg" />
 </div>
 
 
@@ -448,7 +475,7 @@ Udemy, Julia Krist | Курс немецкого языка «Уровень А1
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787286.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787095.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787086.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787078.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787076.jpg" />
 </div>
 
 
@@ -593,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787075.jpg" />
 </div>
 
 
@@ -622,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787070.jpg" />
 </div>
 
 
@@ -650,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787069.jpg" />
 </div>
 
 
@@ -679,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787068.jpg" />
 </div>
 
 
@@ -693,35 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFEA931C455210820D41F2C793AF132901D3360F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512533   (787057) от 25.11.2021
-
-Хасай Алиев | Истощение нервной системы - как восстановить. Метод Ключ (2021) WEBRip
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787057.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом вебинаре вы получите:
-1. Новый подход к пробуждению и засыпанию;
-2. Новые Приемы настройки при пробуждении на бодрость и высокую эффективность на целый день;
-3. Новые приемы настройки при засыпании (методика "Озарение по заказу");(   Читать дальше...   )Жанр: ПсихологияПродолжительность: 03:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00571EA3AB45C7BF6339FD40B8A89589A35F981
 ```
 
 https://mybot314.ru/tekegram_catalog/

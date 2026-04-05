@@ -1,3 +1,29 @@
+###  Публикация: 680566   (357447) от 27.10.2017
+
+Футажи - motionVFX - mBokeh 2K [MOV]
+
+>>След.
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357447.jpg" />
+</div>
+
+
+###  Подробнее
+
+mBokeh — это набор из 100 профессионально разработанных, высококачественных, органических элементов Bokeh, предназначенных для использования в любой программе нелинейного видео монтажа.Формат: MOVРазрешение файлов: 2K (2048x1152)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468E3CFFCDF23DA6EBB18CCD8315F10EC72B572F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071819   (356217) от 11.11.2016
 
 Футажи - VfxCentral - Combust 4K Fire Explosions Pack [MOV]
@@ -6,7 +32,7 @@
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356217.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355246.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352992.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349390.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343811.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340315.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339114.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ VfxCentral - Smokey Magic Effects [MOV]
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334408.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ VfxCentral - 4K Bokeh Flares 20 Pack [MP4]
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334407.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332295.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332197.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331183.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331123.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331122.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331121.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331117.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331112.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331111.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331048.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331047.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331046.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331044.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331042.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331037.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331034.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Ghostly Apparitions 3 (Призрачные явления) - Это голог�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BADEBA7446A3CBE396018022302CEAF3C7BA48A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420769   (331033) от 02.11.2020
-
-Футажи - AtmosFX – Shades of Evil [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shades of Evil (Оттенки зла) - Это голографические цифровые декорации. Порадуйте своих соседей множеством темных фигур, переживающих страх за свою жизнь. Удастся ли им избежать надвигающейся гибели? Или они станут жертвами своих врагов? Независимо от того, где вы проектируете коллекцию цифровых украшений Shades of Evil, она обязательно оставит неизгладимое впечатление (   Читать дальше...   )Формат: MP4Разрешение файлов: 1920x1080, 1080x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB854C38441348676D4B67AFA8868AC2A89A4032
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1272560   (789721) от 12.01.2019
+
+Смолфут / Smallfoot (2018) BDRemux [H.264/1080p] [2D/3D] [ISO]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой находчивый йети сталкивается с тем, кого, по его глубокому убеждению, не существует — человеком. Новости о «смолфуте» приносят ему славу и шанс завоевать девушку его мечты. А ещё — вызывают переполох среди простых йети, которые теперь гадают, кто же ещё обитает в большом мире за пределами их маленькой заснеженной деревушки.Производство: США, Warner Animation Group, Warner Bros. Animation, Warner Bros. Pictures, Zaftig FilmsЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Кэри Киркпатрик, Джейсон РейсигПеревод: Дублированный (Лицензия BD CEE)Субтитры: Русские (Forced, Full), украинские (Forced), английские (Full, SDH, SDH-Colored)Продолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7800EDBE5751F18E3BB2B806932ACC7F41CB90B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202555   (789702) от 29.01.2018
+
+Hey Arnold: The Jungle Movie / Эй, Арнольд! Приключения в джунглях (2017) WEB-DL [H.264/1080p-LQ] Train Studio
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм является продолжением последнего эпизода, «Дневник» (The Journal), мультсериала «Эй, Арнольд!» в конце которого Арнольд находит карту и решает отправиться в джунгли на поиски своих родителей.Производство: США / Nickelodeon Animation StudiosЖанр: Комедия, Приключения, СемейныйРежиссер: Рэйми Музкиз, Стюарт ЛивингстонАктеры: Мэйсон Коттон, Бенжамин Флорес мл., Франческа Смит, Крэйг Бартлетт, Антониетта Стелла, Дэн Кастелланета, Тресс МакНилл, Морис ЛаМарш, Джет Юргенсмейер, Карлос Аласраки и др.Перевод: Многоголосый закадровый, профессиональный - Train StudioСубтитры: АнглийскиеПродолжительность: 01:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6492D7EE14CF2373A4CCB8FED5E14034FC18CD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275283   (789666) от 12.01.2019
+
+Мультобоз (2018) WEB-DLRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789666.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мультобоз» - это сборник лучших российских анимационных короткометражек, которые являются призерами и номинантами престижных кинофестивалей мира (МКФ в Каннах, Берлине, Аннеси и других), обладателями престижных кинопремий. Фестиваль короткометражной российской анимации «Мультобоз» познакомит широкий круг зрителей с лучшими фильмами из коллекций студий страны.Производство: Россия, Школа-студия анимационного кино «ШАР»Жанр: Мультфильм, КороткометражныйРежиссер: Екатерина Киреева, Татьяна Киселева, Елена Нестерова, С. Разгуляева, В. ДаниловПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 02:13:31 + 01:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F1C0219717B5BBEC542FA0019D236799A8E8B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510933   (789608) от 19.11.2021
+
+Руины / Ruin (2012) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789608.jpg" />
+</div>
+
+
+###  Подробнее
+
+В будущем, когда города разрушились и были поглощены дикой природой, мы присоединяемся к одинокому человеку, исследующему руины компании Хэйвен Наносистемс. Обнаружив закрытый контейнер, он, кажется, нашел то, что искал - информацию, имеющую отношение к закрытому на карантин корпусу "Б". Но, в этот момент героя обнаруживает дрон и начинается погоня...Производство: США / Attraktion Films, Oddball AnimationЖанр: Мультфильм, Короткометражка, ФантастикаРежиссер: Уэс БоллПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C054073F4710068A08FDA56A34E28B41EB92A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202592   (789454) от 30.01.2018
+
+МУЛЬТ в кино. Выпуск 63: Шоу продолжается! (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смотрите в 63-м выпуске «МУЛЬТ в кино» свежие эпизоды мультсериалов «Лунтик и его друзья», «Лео и Тиг», «Деревяшки», «Четверо в кубе» и премьеру — новый мультфильм «Дракоша Тоша»!Производство: Россия (#мультвкино)Жанр: Анимационный сериалРежиссер: Анастасия Чернова, Иван Пшонкин, Марина Мошкова...Перевод: Не требуется (русский)Продолжительность: ~ 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98CE8643F7D662032C249117C0F8B979B2D62D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275774   (789320) от 13.01.2019
 
 Смолфут / Smallfoot (2018) Blu-ray 3D [H.264/1080p] [hand made 16:9]
@@ -6,7 +136,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789320.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789288.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789255.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789166.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788925.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788834.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788806.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788748.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788694.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788521.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788438.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788430.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788397.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788269.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787490.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787450.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787279.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787087.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787083.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786954.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786935.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB99587ECF9AADCBCE164ED4528D488B49EB7805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388003   (786797) от 05.06.2020
-
-Трое с небес: Истории Аркадии / 3Below: Tales of Arcadia (2019) WEB-DL [H.264/1080p] (сезон 2, серии 13 из 13) Пифагор
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инопланетные подростки, члены королевской семьи, спасаясь от захватившего их родную планету диктатора, терпят крушение в Аркадии. Вместе с верным телохранителем они вынуждены скрываться от межгалактических охотников за головами и выживать под видом простых школьников.Производство: США, Double Dare You (DDY), DreamWorks Animation, DreamWorks Animation TelevisionЖанр: мультфильм, фэнтези, комедия, фантастика, приключения, семейныйРежиссер: Йохана Матте, Родриго Блаас, Илэйн Боган, Гильермо дель ТороАктеры: Татьяна Весёлкина - Aja, Олег Вирозуб - Krel, Геннадий Новиков - Varvatos Vex, Мария Фортунатова - Mother, Михаил Мартьянов - Eli, Вадим Медведев - Morando, Павел Кипнис - Stuart, Антон Колесников - Steve, Инга Сметанина - ZadraПеревод: Дублированный - ПифагорПродолжительность: ~ 00:23:40 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AAB4506F280873BFFE23143AB23D498B85301AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388036   (786792) от 05.06.2020
-
-Леди Баг и Супер-Кот / Miraculous: Tales of Ladybug & Cat Noir (2018) WEB-DL [H.264/1080p] (сезон 3, серии 26 из 26) Кириллица
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адриан и Маринетт - старшеклассники, почти как все остальные. При малейшей угрозе Парижу они становятся ЛедиБаг и Котом Нуаром. Их миссия - захватить акум (тёмных бабочек), которые превращают людей в суперзлодеев. Когда герои объединяются, каждый из них не знает истинной личности другого. Маринетт не знает, что Кот Нуар на самом деле Адриан - мальчик в которого она (   Читать дальше...   )Производство: Франция, Корея Южная, Япония, Zagtoon, Toei Animation, Method AnimationЖанр: мультфильм, фэнтези, боевик, мелодрама, приключения, семейныйРежиссер: Томас АстрюкАктеры: Дарья Фролова - Маринетт, Николай Быстров - Эдриан, Константин Карасик - Бражник, Лариса Брохман - Тикки, Диомид Виноградов - Плагг, Елена Шульман - Аля Сезер, Александр Матвеев - Нино, Максим Шишоков - Люка КуффенПеревод: Дублированный - КириллицаПродолжительность: ~ 00:23:40 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CD718F458F58A35F3FD4EA3E91E3B4C4E3B235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388481   (786689) от 06.06.2020
-
-Вперёд / Onward (2020) BDRip 3D [H.264/1080p] [ Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья-эльфы Иэн и Барли Лайтфуты живут в волшебном мире, населенном троллями, гоблинами, гномами, кентаврами и единорогами. Когда-то их мир переполняла магия, но те времена прошли, и теперь сказочные существа летают на самолетах, пользуются автомобилями, и ведут в целом прозаичную жизнь. Однако неожиданная находка приводит к тому, что братья решают отправиться в (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дэн СкэнлонПеревод: дублированный (DUB iTunes)Субтитры: русские (Forced, FOCS), английские (SDH)Продолжительность: 01:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C42343A1FA0BA251FCC830E7AD534A64511885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388550   (786653) от 06.06.2020
-
-Вперёд / Onward (2020)  BDRip 3D [H.264/1080p-LQ] [ Вертикальная анаморфная стереопара] [hand made 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья-эльфы Иэн и Барли Лайтфуты живут в волшебном мире, населенном троллями, гоблинами, гномами, кентаврами и единорогами. Когда-то их мир переполняла магия, но те времена прошли, и теперь сказочные существа летают на самолетах, пользуются автомобилями, и ведут в целом прозаичную жизнь. Однако неожиданная находка приводит к тому, что братья решают отправиться в (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дэн СкэнлонПеревод: дублированный (iTunes)Субтитры: русские (полные), английские (полные)Продолжительность: 01:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55A844CF49617D772379889248032F114A73717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388676   (786550) от 07.06.2020
-
-Приключения Марка Твена / The adventures of Mark Twain (1985) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786550.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом полнометражном анимационном фильме, основанном на историях Марка Твена, рассказывается о приключениях Тома Сойера, Бекки Тэтчер и Хака Финна, отправившихся в путешествие на межпланетном воздушном шаре Марка Твена.Производство: США, Will Vinton Productions, Harbour Town FilmsЖанр: мультфильм, фантастика, фэнтези, приключения, семейный, полнометражныйРежиссер: Уилл ВинтонАктеры: Джеймс Уитмор, Мишель Мариана, Гари Круг, Крис Ричи, Джон Моррисон, Кэрол Эдельман, Даль МакКеннон, Херб Смит, Марли Стоун, Вилбур Винсент и др...Перевод: Дублированный, профессиональный закадровыйСубтитры: Русские, английскиеПродолжительность: 01:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6EB83E1ED9E9FDA659079C4955B37E376E7D1E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

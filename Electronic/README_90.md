@@ -1,3 +1,60 @@
+###  Публикация: 1494652   (887691) от 08.09.2021
+
+VA - The Shadow Masters: Drum'n'Bass (2000) Shadow Records [FLAC|Lossless|tracks+.cue] <Drum n Bass, Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnetic - Hostile (05:03)
+ 02. Cujo - Paris Streatham (05:01)
+ 03. Icarus - Cactus (09:09)
+ 04. Le Gooster - Tales From The Darkside (05:35)(   Читать дальше...   )Жанр: Drum n Bass, JungleПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7FEF5761FEBBD2DED9D3B665C8F19877DD1902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103188   (887575) от 11.02.2017
+
+Anugama - Shamanic Dream II (2000) [FLAC|Lossless|tracks + .cue] <New Age,Meditation,Relax>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shamanic Journey (Om Shanti) : (29:04)
+02. Sweetness Of The Earth : (28:03)
+03. Magic Flow : (16:01)Жанр: New Age,Meditation,RelaxПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238711076A43029F0D48AA91215EF28A24843693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103030   (887336) от 11.02.2017
 
 VA - The Best Of 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno>
@@ -6,7 +63,7 @@ VA - The Best Of 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887336.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ VA - Lovely Mood Music presents: Chillaxing Time Series - 10 Releases (2013-2021
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887192.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ Stendeck - Discography 9 Releases (2002-2021) Geska Records, Tympanik Audio, Hym
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886950.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ Easily Embarrassed - EE4 (A/B/C) (2016) [FLAC|Lossless|WEB-DL|tracks] <Psychill,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886154.jpg" />
 </div>
 
 
@@ -122,7 +179,7 @@ Physical Dreams - Cosmos (2016) [MP3|320 кб/с] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886151.jpg" />
 </div>
 
 
@@ -151,7 +208,7 @@ VA - The White Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886114.jpg" />
 </div>
 
 
@@ -180,7 +237,7 @@ VA - Smooth Island Chill  Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886090.jpg" />
 </div>
 
 
@@ -209,7 +266,7 @@ VA - Down For Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886084.jpg" />
 </div>
 
 
@@ -238,7 +295,7 @@ VA - Moment Of Chill Vol.2 (Finest Selection Of Music To Chill) (2017) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886077.jpg" />
 </div>
 
 
@@ -267,7 +324,7 @@ VA - City of Souls: Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886064.jpg" />
 </div>
 
 
@@ -296,7 +353,7 @@ VA - Cosy Winter Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886052.jpg" />
 </div>
 
 
@@ -325,7 +382,7 @@ VA - What's Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886042.jpg" />
 </div>
 
 
@@ -354,7 +411,7 @@ VA - Lounge Tributes to Love (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886026.jpg" />
 </div>
 
 
@@ -383,7 +440,7 @@ VA - The Dark Side Of The Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886016.jpg" />
 </div>
 
 
@@ -412,7 +469,7 @@ VA - Urban Lounge Room Vol.4 (The Best In Lounge, Downtempo Grooves & Chill Out)
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886001.jpg" />
 </div>
 
 
@@ -441,7 +498,7 @@ VA - Vocal House Sessions Vol.14 (2017) [MP3|320 Kbps] <House, Vocal House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885972.jpg" />
 </div>
 
 
@@ -470,7 +527,7 @@ VA - Big Room Party Here (2017) [MP3|320 Kbps] <House, Electro House, Big Room>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885953.jpg" />
 </div>
 
 
@@ -499,7 +556,7 @@ VA - Romantic Music: Romantic Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885941.jpg" />
 </div>
 
 
@@ -528,7 +585,7 @@ VA - Best Of Rave 2 (Box Set) (1995) Low Price Music [FLAC|Lossless|tracks] <Bre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885922.jpg" />
 </div>
 
 
@@ -557,7 +614,7 @@ VA - Dance 2017 (Armada Music) (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885912.jpg" />
 </div>
 
 
@@ -586,7 +643,7 @@ VA - Fifty Shades Darker - Music For A Sensual Evening (2017) [MP3|320 Kbps] <Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885911.jpg" />
 </div>
 
 
@@ -615,7 +672,7 @@ VA - Love Hits Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885883.jpg" />
 </div>
 
 
@@ -644,7 +701,7 @@ Absurd Minds - Tempus Fugit (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synth-pop
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885655.jpg" />
 </div>
 
 
@@ -673,7 +730,7 @@ Sense - Discography 42 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, tracks] 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885484.jpg" />
 </div>
 
 
@@ -687,64 +744,6 @@ Sense - Discography 42 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4964A23B906C55E82E9E675C0FD77BDC265149F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103748   (885465) от 12.02.2017
-
-VA - Motivation Training Music 2017 Best Aerobic & Fitness Gym Songs  [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oktavio Grind - Seiko (3:37)
-02. Pacey Rookz - Novak (3:37)
-03. Page Two - Nutri (4:35)
-04. Naci Brix - Dude (3:14)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 03:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D09D5CE5D2051DC157DA4906AE4888076196BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372213   (885459) от 03.04.2020
-
-Peter Pearson - Dancing with the Clouds (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Dream (4:57)
- 02. Perdu Dans Tes Yeux (5:07)
- 03. Dancing with the Clouds (5:17)
- 04. The Night We Danced (3:51)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, DowntempoПродолжительность: 01:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70496B2C00C0C1BAE4A060882278B950BADB63D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

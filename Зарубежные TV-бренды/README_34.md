@@ -6,7 +6,7 @@ NGW: Смертельно опасные монстры Австралии / Aus
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756710.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC. Всё о мире обезьян / Monkeys Revealed (2014) HDTVRip (сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756708.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Смертоносная Африка. Пустыни / Africa's Deadly Kin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756705.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Скрытые убийцы в домах послевоенного вре
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756693.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756504.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NG. Индия с высоты птичьего полёта / India From Above 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756488.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756481.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756071.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BBC. Horizon: Путешествия во времени (2003) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755951.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755936.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ BBC: Грязные города. Средневековый Лондон [ча�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755835.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755731.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BBC. Как устроены шикарные отели. Hacienda Hotel Vira Vi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755285.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755079.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ NG: Последствия: Перенаселенная планета / Afterm
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755024.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ NGW: Дикая природа. Южная Африка / Wild South Africa (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754952.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) WEB
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754816.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754814.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754464.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ BBC: Погружение на Галапагосах (Подводный мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754309.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BBC. Мир природы. Лобо. Волк, который изменил А
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754216.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BBC: Корень всех зол? [2 серии] / The Root of All Evil? (2006)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754035.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ BBC: Как устроена Земля [2 из 2] / Earth Machine (2011) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754031.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ BBC: Всё, что мы знаем о Вселенной, неверно? / BBC
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753967.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ BBC. Самые умные животные / Super Smart Animals (2012) SATRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753902.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753659.jpg" />
 </div>
 
 

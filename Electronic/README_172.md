@@ -1,3 +1,61 @@
+###  Публикация: 1274538   (753318) от 11.07.2020
+
+VA - Ibiza Beats Series: Sunset Chill & Beach Lounge - 13 Releases (2007-2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Deep House>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753318.jpg" />
+</div>
+
+
+###  Подробнее
+
+2007 - Ibiza Beats • Sunset Chill & Beach House (2CD)
+2009 - Ibiza Beats Vol.2 • Sunset Chill & Beach Lounge (2CD)
+2010 - Ibiza Beats Vol.3 • Sunset Chill & Beach Lounge (2CD)
+2011 - Ibiza Beats Vol.4 • Sunset Chill & Beach Lounge (2CD)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Deep HouseПродолжительность: 24:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D86D004626745BEAD3DE6AA5A307450FB9DB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523164   (753291) от 10.01.2022
+
+VA - Future Trance - Best Of 25 Years (2022) [MP3|320 Kbps] <Trance, Progressive, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753291.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scooter - The Logical Song (3:53)
+002. Groove Coverage - God Is A Girl (Radio Edit) (3:38)
+003. ATB - Don't Stop! (Airplay Edit) (3:46)
+004. Sylver - Turn The Tide (Radio Edit) (4:04)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 05:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC9F7B8F7B28D813C37480EE449DCF63D940CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523101   (753150) от 10.01.2022
 
 VA - Dream Dance Vol 92 (2022) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Dream Dance Vol 92 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753150.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Hardstyle Workout 2022 [MP3|320 Kbps] <Hardcore, Dance>
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_753146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753146.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Grotesque Spring Essentials (Mixed by Ram & 2Nd Phase) (2018) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753064.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Erotica Vol. 2 (Most Erotic Lounge And Chillout Tunes) (2016) [FLAC|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752840.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Erotica Vol. 3 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [FLAC|Loss
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752828.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Erotica Vol. 1 (Most Erotic Lounge And Chillout Tunes) (2014) [FLAC|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752827.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Flegma - Echoes From Jangala (2018) [FLAC|Lossless|tracks] <Psy-Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752517.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Michael Rade - Dadala (2016) [MP3|320 кб/с] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752422.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Sirup Deep Anthems Ibiza 2016 (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752341.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Five Star Chill Out Vol 1 (Luxury Beach Lounge Resort Relaxation) (2016) [M
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752329.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ R.I.O. - Shine On (2008) [FLAC|Lossless]<House / Electro>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752317.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Witchcraft - Scattered Areas Of Invisibility (1999) AD Music [FLAC|Lossless|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752117.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Jaytech Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752116.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ The Lost Sun - Spectral Voice From Newborn Star (2016) [MP3|320 кб/с] <Space 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752101.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Unit - Discography 3 Releases (1999-2004) Caipirinha Productions, Co.Ad.Audio [F
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751727.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Nearfield - Discography 14 Releases (2012-2020) People Can Listen [FLAC|Lossless
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751686.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ Pet Shop Boys - Agenda (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751610.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Sexy Suicide (ex-Neon Romance) - 2 Albums, 2 Singles (2014-2018) [MP3|320 кб/�
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751604.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ my.head - Discography 18 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751564.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751492.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - Trance Maschine Vol. 2 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751362.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Jobe Presents Authentic Steyoyoke #012 (2018) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751358.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - Ori Uplift & tranzLift - Uplifting Only 268 (2018) [MP3|320 Kbps] <Trance,U
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751356.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ VA - Markus Schulz & Nifra - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751342.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:186EF090CB470A1B6EB0ECAE8F1248991BDCD063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215968   (751243) от 30.03.2018
-
-Ghosts - The Second Compilation by ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ (2018) [MP3|320 Kbps] <Ambient, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. insomnia_afraid 2:46
-02. niels_binias_nebuchadnezzar 8:15
-03. ecepta_regret 3:44
-04. black_paper_why 5:40(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 02:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D83710ECBB728BFB05EFB3A32B9E37BA7939C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216263   (751239) от 30.03.2018
-
-St. Germain - Tourist (Limited Edition) (2000) Blue Note [FLAC|Lossless|tracks + .cue] <Downtempo, Deep House, Future Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751239.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Rose Rouge (07:02)
-02. Montego Bay Spleen (05:43)
-03. So Flute (08:29)(   Читать дальше...   )Жанр: Downtempo, Deep House, Future JazzПродолжительность: 01:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9352F369181257E4F454C20B271B73B8B15DE515
 ```
 
 https://mybot314.ru/tekegram_catalog/

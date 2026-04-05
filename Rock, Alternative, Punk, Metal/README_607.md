@@ -1,3 +1,32 @@
+###  Публикация: 1567904   (463808) от 07.08.2022
+
+Ringo Starr - 32 albums, 2 EPs, 3 singles, 49 CD (1970-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэр Ринго Старр — британский музыкант, автор и исполнитель песен, вошел в историю музыки как барабанщик группы The Beatles. Каждый участник группы The Beatles — легенда, каждый внес свой вклад в успешность проекта. Говорят, добрый и мудрый Ринго Старр был душой ливерпульской четверки, его «сентиментальным сердцем». Кавалер ордена Британской империи, рыцарь-бакалавр, (   Читать дальше...   )--------------------------
+
+01. It Don't Come Easy (3:45)
+02. Honey Don't (2:59)(   Читать дальше...   )Жанр: Swing, Big Band, Jazz, Pop, Rock, Classical |Продолжительность: 40:00:55 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CF49C4A6027B83036E6F798B4BE7FA3153ED6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246407   (463626) от 10.09.2018
 
 Vanilla Ninja - Blue Tattoo (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -6,7 +35,7 @@ Vanilla Ninja - Blue Tattoo (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463626.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Vanilla Ninja - Blue Tattoo (2005) 2CD, Limited Edition [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463625.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Red Hot Chili Peppers - Freaky Styley (1985) 2003, Reissue, Remastered [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463620.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Haunted - Strength In Numbers (2017) [MP3|320 Kbps] <Thrash Metal, Groove Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463591.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Tito & Tarantula - Live at Rockpalast 2008 & 1998 (2017) [MP3|320 Kbps] <Blues R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463488.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Doro - Forever Warriors Forever United (2018) 2CD, Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463451.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Blut Aus Nord - 777 - Sect(s) (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463391.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Acod - The Divine Triumph (2018) [FLAC|Lossless|image + .cue] <Melodic Blackened
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463388.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Florist - Emily Alone (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463387.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Abbath - Outstrider (2019) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463381.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Starblind - Black Bubbling Ooze (2020) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462751.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Colombo-Harris - Astrolympix (1980) LP [MP3|320 Kbps] <Space Rock, Pop Rock, Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462748.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462713.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Wings of Destiny - Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462592.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ All Them Witches - Nothing as the Ideal (2020) [FLAC|Lossless|tracks + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462591.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Motion Device - Motion Device IV (2020) [MP3|320 Kbps] <Hard Rock, Female Vocal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462589.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Fit for a King - The Path (2020) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462428.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462425.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Dругой Ветер - Альбом, которого нет (2020) [MP3|320 K
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462356.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462301.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Leverage - Tides (2006) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462280.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Amken - Theater of the Absurd (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462274.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Communic - Hiding from the World (2020) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462271.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Amken - Adrenaline Shot (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462270.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Bon Jovi - Burning Bridges (2015) Japanese Edition [FLAC|(image+.cue)]<Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462244.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Bon Jovi - Burning Bridges (2015) Japanese Edition [FLAC|(image+.cue)]<Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E579AF51F0625232C228C1F48643E0B746B582EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059382   (462115) от 04.10.2016
-
-Edge Of Forever - Feeding The Fire (2004) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feeding The Fire
-02. Birth Of The Sun
-03. Prisoner
-04. Whatever Comes(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64997168CE0E545729591FDC499399205FAACFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

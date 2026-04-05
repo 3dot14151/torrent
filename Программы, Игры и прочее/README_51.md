@@ -1,3 +1,107 @@
+###  Публикация: 1015162   (774099) от 11.05.2016
+
+Garmin: Taiwan Topo 2016.10 NT [Ch]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Топографическая карта Тайваня для навигаторов ГарминТип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: март 2016Разработчик: GarminПоддерживаемая ОС: GarminЯзык интерфейса: КитайскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E20F8DDA1357A6F4D0DB8C6B0FCBA9E66624941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014838   (774098) от 11.05.2016
+
+Garmin: NaviGuide Hungary v2016.05 NT beta [Hu]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорожная карта Венгрии для навигаторов Гармин.Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: май 2016Разработчик: NaviGuideПоддерживаемая ОС: GarminЯзык интерфейса: венгерскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BFBBF815D465733D243BEA30CE73D890AA4A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277882   (774032) от 23.01.2019
+
+Garmin: Topo Germany Pro v8 [De]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы можем помочь вам с навигацией в Германии - от побережья Северного моря до высоких Альп. Эта справочная топографическая карта 1:25 000 от надежного поставщика предоставляет обновленные и точные данные.Тип издания: карта разблокированаРелиз состоялся: сентябрь 2017Разработчик: HereПоддерживаемая ОС: GarminЯзык интерфейса: немецкийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336CF595E73AE5980859857A68976DE26ADEAFFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014687   (773974) от 11.05.2016
+
+Garmin: TOPO Israel v3 Light [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Топографическая карта Израиля для навигаторов Гармин, составленная с использованием базы данных OpenStreetMap (OSM)Тип издания: карты не блокированыРелиз состоялся: август 2015Разработчик: Garmin / OSMПоддерживаемая ОС: GarminЯзык интерфейса: английскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040748CAA650B44404B074B409E52C8DD2A167F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391721   (772951) от 21.06.2020
 
 Strive Intervals v1.0.2 [En]
@@ -6,7 +110,7 @@ Strive Intervals v1.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772951.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ SPB TV Russia v1.9.5 AdFree [Ru] - онлайн ТВ каналы, фильмы 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772767.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Landstalker - The Treasures Of King Nole 1.1.1 (SEGA Genesis Game) [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771898.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Garmin: Vietnam Map 2.08.0416 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771127.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Global Equalizer & Bass Booster Pro v0.03 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770570.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Teenage Mutant Ninja Turtles - Recolored (8-Bit) 1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770395.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Knights & Dragons - Final Cut 1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769166.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ S.T.A.L.K.E.R. Call of Pripyat Mobile v0.06 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769131.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ DevCheck Hardware and System Info Pro 2.61 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768864.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768854.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ FullReader Premium 4.2.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768848.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768492.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768488.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768362.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768356.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768333.jpg" />
 </div>
 
 
@@ -436,7 +540,7 @@ Language Translator v1.5 AdFree [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767550.jpg" />
 </div>
 
 
@@ -462,7 +566,7 @@ TikTok v16.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767478.jpg" />
 </div>
 
 
@@ -488,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767451.jpg" />
 </div>
 
 
@@ -514,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767443.jpg" />
 </div>
 
 
@@ -540,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767150.jpg" />
 </div>
 
 
@@ -566,7 +670,7 @@ Pulsar - Музыкальный плеер / Pulsar - Music Player v1.8.10 [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766200.jpg" />
 </div>
 
 
@@ -577,114 +681,6 @@ Pulsar - Музыкальный плеер / Pulsar - Music Player v1.8.10 [Ru/E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF649ACB2E91D00B09F0702EF3CA72E2B15CF397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521299   (766007) от 01.01.2022
-
-Резьбы и калькуляторы v3.3.1 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простое и быстрое приложение с помощью которого вы можете:
-- Производить расчеты в специальных калькуляторах
-- Узнавать параметры резьбы в дюймах или миллиметрах
-- Все резьбы и калькуляторы снабжены высококачественными графиками, которые можно увеличиватьТип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 27 октября 2021 г.Разработчик: Artem KhПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A64AC95053391CDC45587D969B691333B9A8C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126411   (766003) от 17.04.2017
-
-Алкоголь Сканер v1.3.1 Ad-Free [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сканируйте акцизную марку или QR код из чека алкоголя и проверяйте соответствие бутылки и информации на марке. Приложение позволяет получить информацию зашифрованную в акцизной марке алкоголя. Определить алкоголь контрафактный или легальный можно по несоответствию информации в акцизной марке и содержанию бутылки.  Не требует регистрации, проверьте алкоголь в один (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 26.12.2016Разработчик: Леонид КирилловПоддерживаемая ОС: Android 3.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D27937483F75730E750F730FE6A46B9C074566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987982   (765996) от 17.04.2017
-
-myRouteMap 8.1.2 [En/Ru] - интерактивный планировщик маршрута
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой в использовании и действительно интерактивный планировщик маршрута, который обеспечивает функциональность для планирования поездки не только между двумя точками, но маршруты, которые могут состоять из большого количества точек маршрута. Это может быть полезно для планирования дальних поездок с велосипедом или мотоциклом, который требует высокого уровня детализации. (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 16.04.2017Разработчик: PVsolutionsПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Английский и Русский (частично)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837FEB79E949A8C3A197488E7FB26BF6B7BCBC77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767673   (765920) от 17.04.2017
-
-All-In-One Toolbox Pro 7.2.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа включает в себя целый комплекс методов, которые помогут вам добиться максимальной производительности.
-Простой и интерактивный пользовательский интерфейс.Тип издания: ПираткаРелиз состоялся: 17.04.17Разработчик: AIO Software Technology CO., Ltd.Поддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8823C1E5D0119EE5599D23282B985ABB639725CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

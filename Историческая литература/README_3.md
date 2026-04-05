@@ -1,29 +1,3 @@
-###  Публикация: 1850957   (1054780) от 31.01.2026
-
-Сунь-Цзы | Искусство войны. С комментариями и пояснениями (2016) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древний китайский трактат "Искусство войны", написанный более двух тысяч лет назад великим военачальником и стратегом Сунь-Цзы, до сих пор являет собой богатую пищу для ума мыслителей. Это классическое руководство по стратегии поведения в конфликтах любого уровня - от военных действий до политических дебатов и психологического соперничества. Будучи первым (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916DBC62CCC5580988737867302103DD530EEB54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850959   (1054779) от 31.01.2026
 
 Э. Кассе | Исповедь меча, или Путь самурая (2010) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054779.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054776.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054775.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054774.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054565.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054564.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054491.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Dietrich Orlow | A History of Modern Germany. 1871 to Present. 9th Edition (2025
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054044.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053341.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053338.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053336.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053140.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053113.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053112.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053111.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053109.jpg" />
 </div>
 
 
@@ -457,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053108.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053107.jpg" />
 </div>
 
 
@@ -511,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053105.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053104.jpg" />
 </div>
 
 
@@ -563,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053088.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053087.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053086.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053082.jpg" />
 </div>
 
 
@@ -667,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053081.jpg" />
 </div>
 
 
@@ -678,6 +652,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8644DCCF2DB5C22F0CD4567DC70332ACC6FCEB8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848808   (1053071) от 18.01.2026
+
+Дмитрий Иванов | Сибирь и Дальний Восток. История освоения Азиатской части России. Открытия и исследования Сибири и Дальнего Востока в картах, событиях, фактах. Большой иллюстрированный атлас (2026 ...
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга журналиста Дмитрия Иванова рассказывает о ключевых открытиях XVII-XX веков и исследователях, рисковавших всем ради освоения новых земель.
+
+Огромные просторы Сибири и Дальнего Востока испокон веков манили к себе многочисленных исследователей. На поиски природных богатств этого края в путь отправлялись десятки экспедиций. Кому-то из них улыбнулась удача, кто-то (   Читать дальше...   )Жанр: История, География, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD637FD80F21CDFFF74CC6231D82E152900E0981
 ```
 
 https://mybot314.ru/tekegram_catalog/

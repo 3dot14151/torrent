@@ -6,7 +6,7 @@ Photomatix Pro Standalone Program 6 v6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220843.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VueScan Pro 9.5.63 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220813.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Pacifist 3.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220801.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.6.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220728.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220521.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Adobe Premiere Rush v1.5.38 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220468.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Adobe InDesign 2020 15.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220453.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Total Video Converter Pro 4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220397.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ CrossOver 21.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220380.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Boom 2 v1.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220354.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ CleanMyMac X 4.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220353.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ OmniGraffle Pro 7.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220301.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Feeder 4 v.4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220276.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220268.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Capture One 21 Pro Beta 5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220239.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ FonePaw iOS Transfer for Mac 5.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220217.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Magic Battery 7.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220186.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Commander One PRO 1.2.1668 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220185.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Scrutiny 12.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220180.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Adobe Photoshop Lightroom Classic CC 2019 v8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220153.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Luxion KeyShot Pro 10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220139.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Wirecast Pro 11.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219984.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Capture One Pro 9.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219919.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ XCOrganizer 1.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219901.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ DirEqual 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219892.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Mac DVDRipper Pro 10.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219885.jpg" />
 </div>
 
 

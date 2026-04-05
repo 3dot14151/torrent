@@ -1,31 +1,3 @@
-###  Публикация: 1437919   (1041481) от 07.01.2021
-
-Ф.В. Лазарев | О природе научных абстракций (1971) [DJVU, PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа посвящена одной из актуальных проблем марксистской теории познания — вопросу о природе, структуре и типах научных абстракций.
-
-В настоящей работе вся проблема природы абстракций рассматривается в новом аспекте: исследуется, каковы объективные основы абстрагирующей деятельности познающего субъекта, от чего зависят, чем определяются допустимые пределы абстрагирования? (   Читать дальше...   )Жанр: История, науковедение, философияИздательство: ЗнаниеФормат: DJVU, PDFКачество: OCR с ошибками
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B9079D5624BC039ED6395255FE03B96FB44261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438223   (1041401) от 07.01.2021
 
 Май Тхи Нгуэн-Ким | Комично, как все химично! (2020) [FB2]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041401.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041400.jpg" />
 </div>
 
 
@@ -87,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040297.jpg" />
 </div>
 
 
@@ -113,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039997.jpg" />
 </div>
 
 
@@ -139,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038241.jpg" />
 </div>
 
 
@@ -166,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037923.jpg" />
 </div>
 
 
@@ -192,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037113.jpg" />
 </div>
 
 
@@ -218,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036829.jpg" />
 </div>
 
 
@@ -244,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036828.jpg" />
 </div>
 
 
@@ -272,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036283.jpg" />
 </div>
 
 
@@ -298,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035030.jpg" />
 </div>
 
 
@@ -324,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034822.jpg" />
 </div>
 
 
@@ -350,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034600.jpg" />
 </div>
 
 
@@ -376,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034383.jpg" />
 </div>
 
 
@@ -402,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033951.jpg" />
 </div>
 
 
@@ -428,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033706.jpg" />
 </div>
 
 
@@ -454,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033517.jpg" />
 </div>
 
 
@@ -480,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030638.jpg" />
 </div>
 
 
@@ -507,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030407.jpg" />
 </div>
 
 
@@ -533,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029889.jpg" />
 </div>
 
 
@@ -559,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029684.jpg" />
 </div>
 
 
@@ -586,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028646.jpg" />
 </div>
 
 
@@ -612,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028430.jpg" />
 </div>
 
 
@@ -638,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028035.jpg" />
 </div>
 
 
@@ -664,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026535.jpg" />
 </div>
 
 
@@ -675,6 +647,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EDF6E4FE1E5FD80B1487D9A1A6E1197C0BAC0D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388720   (1025002) от 22.03.2021
+
+Книжная серия | Просто… [10 книг] (2015-2018) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг «Просто» (Страта) предназначена не столько для математиков, физиков или инженеров, сколько для тех, кого соблазняют новые гаджеты и автомобили последних моделей, для молодых интеллектуалов и поседевших от здравого смысла яппи. Словом для тех, у кого захватывает дух от фантастической феерии происходящего вокруг.
+В серии «Просто...» мы переводим невообразимые (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E9C49E80FDE0A06070EBB1985B3C7711CB93770
 ```
 
 https://mybot314.ru/tekegram_catalog/

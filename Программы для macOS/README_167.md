@@ -1,3 +1,55 @@
+###  Публикация: 1679577   (138458) от 25.11.2023
+
+Lungo 2.4.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lungo предотвращает засыпание Mac и затемнение экрана.Тип издания: macOS SoftwareРелиз состоялся: 04.11.2023Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 13.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B108AE973B899BF08BE56A1AB60687054DA5CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679550   (138440) от 25.11.2023
+
+Tempomate 4.7 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tempomate - умный и красивый метроном.Тип издания: macOS SoftwareРелиз состоялся: 13.07.2022Разработчик: © 2016-2022 René LasseronПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F8792AD118478DAB7E14FA85BD7F27FE5B0D6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679456   (138345) от 25.11.2023
 
 MenubarX for Mac 1.6.6 [Multi/Ru]
@@ -6,7 +58,7 @@ MenubarX for Mac 1.6.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138345.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ SILKYPIX Developer Studio Pro 11 for Mac v.11.1.12.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138233.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ DearMob iPhone Manager 6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138228.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Music Paradise Player 1.3.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138036.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Reeder 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_136425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136425.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ PrintLab Studio 3.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135373.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ JixiPix Chromatic Edges 1.0.31 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135344.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Aspect Ratio X 2.1.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135343.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Resize Sense - Flexible batch image processing 2.3.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135325.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Dynaper - Dynamic Wallpapers 1.5.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135321.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Rumpus PRO 9 v.9.0.12 + Tether Client 1.1  [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135311.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ JixiPix Watercolor Studio Pro 1.4.17 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135295.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ Logo Art for Mac 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135273.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ iFunia Video Converter Pro for Mac 7.4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135267.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ StopMotion for Mac 3.01 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135265.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ SQLPro for MSSQL 2023.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135261.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ iToolab FixGo 3.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135249.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ SuperDuper! 3.8 ARM [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135245.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ Super-AI Photo Enlarger for Mac 2.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135232.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ CRAX Commander 1.13.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135196.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ CDRConverter for CorelDRAW on Mac 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135169.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ Template for MS PowerPoint for Mac 6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135165.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ nuTXT 3.30 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134966.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ Swish 1.10.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134923.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ Swish  добавит отсутствующий набор жестов для 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44A9F383206FF183AB9D4489A0C90730E5A8D4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679880   (134909) от 27.11.2023
-
-CADintosh X 8.8.6 [Multi]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134909.jpg" />
-</div>
-
-
-###  Подробнее
-
-CADintosh позволяет ускорить проектные работы и имеет тысячи надстроек, которые позволяют удовлетворить потребности самого широкого круга клиентов. CADintosh X - приложение из категории "Графика и дизайн", созданное компанией Lemke Software GmbH в январе 2012 года, которое прекрасно вписывается в идеологию Mac. Интерфейс приложения доступен на восьми языках. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2002-2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05972FAF8553DBD38F6E99E8A627CDEF28DC20B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679650   (134890) от 27.11.2023
-
-VectorStyler for Mac 1.1.111 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное программное обеспечение для иллюстраций. VectorStyler — это передовое программное обеспечение для создания иллюстраций и рисунков. Создание иллюстраций, логотипов, значков, рисунков, типографики, векторной графики для экрана, печати и «Интернета». Благодаря многочисленным новым функциям VectorStyler переопределяет и расширяет инструменты, доступные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2023Разработчик: © 2019-2023 Numeric PathПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EF1313033F408AF9327F8E64C5DC7DC452D4DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

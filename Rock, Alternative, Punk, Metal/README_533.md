@@ -1,3 +1,119 @@
+###  Публикация: 1048650   (545852) от 03.09.2016
+
+Lоrd Оf Тhе Lоst - Еmруrеаn (2016) 2CD [FLAC|Lossless|image + .cue] <Gothic Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adonai
+02. Lament For The Condemned
+03. Now We Are The Aliens
+04. Lost In Oblivion(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F611F51611E72D1B3AE8B4460FF1525B35E8F079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048621   (545803) от 03.09.2016
+
+Stereoside - Hellbent (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miracle
+02. Apple Pie
+03. Hellbent
+04. Crazier Than You(   Читать дальше...   )Жанр: Hard Rock, Post-GrungeПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D0E5578F79EB87E59EADCEFE012FB5AC964E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048651   (545795) от 03.09.2016
+
+The Quireboys - Twisted Love (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Torn & Frayed
+02. Ghost Train
+03. Killing Time
+04. Twisted Love (Album Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E719F6ABECEECE23EE9C755C8EB890259B5C759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048756   (545751) от 03.09.2016
+
+VA - Shine 3 (1995) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545751.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pulp - Common People [04:11]
+ 2. Oasis - Roll With It [04:01]
+ 3. Supergrass - Alright [03:01]
+ 4. The Lightning Seeds - Marvellous [03:43](   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7090C7178DB0DF6751050FCE0F0CA47D0BC4E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048684   (545740) от 03.09.2016
 
 Rocking Rolling Living Loving Band - Thousand Percent Touch (2016) [MP3|320 Kbps] <Blues Rock, Classic Rock>
@@ -6,7 +122,7 @@ Rocking Rolling Living Loving Band - Thousand Percent Touch (2016) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545740.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Epica - The Divine Conspiracy (2007) [FLAC|Lossless|image + .cue]<Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545680.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Ministry - From Beer To Eternity (2013) Special Fanbox Edition [MP3|320 кб/с]
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545665.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Eldritch - Cracksleep (2018) [FLAC|Lossless|image + .cue] <Progressive Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545505.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Joe Cocker - The Album Recordings 1984-2007 (2016) 14CD Box Set [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545459.jpg" />
 </div>
 
 
@@ -148,7 +264,7 @@ Slade - The Showplace, Dover NJ, July 30, 1976 (1976) Live [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545451.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ Slade - Slade In Showplace (Dover, NJ) Jul 30, 1976 (bootleg) (1976) [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545389.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ Smokie - Discover What We Covered (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545324.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545319.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ The Cat Empire - Stolen Diamonds (2019) [FLAC|Lossless|tracks + .cue] <Funk, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545241.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ A Projection - Framework (2017) [FLAC|Lossless|tracks + .cue] <New Wave, Post-Pu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545235.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ Emptiness Soul - Without You (2009) [FLAC|Lossless|image + .cue] <Depressive Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545026.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ Deviator - Mighty Black Inner Flame (2009) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544986.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ Mattsson - Another Dimension (2000) [FLAC|Lossless|image + .cue] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544985.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Hospice - Land Of Eternal Night (2006) [FLAC|Lossless|image + .cue] <Symphonic B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544984.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ Far From Mind - Breakpoint' 33 (2009) [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544980.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544975.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Ghosthill - Embrace of a Chasm (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544972.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Mencea - Pyrophoric (2012) [FLAC|Lossless|image + .cue] <Progressive Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544969.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ F.R.A.M. - Двери апреля (2010) [FLAC|Lossless|image + .cue] <Folk Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544967.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Pain Confessor - Turmoil (2004) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544924.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Crystal of Carpat - Тьма и свет (2012) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544923.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ Crystal of Carpat - Тьма и свет (2012) [FLAC|Lossless|image + .cue] <Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CD50F226AFC523A80766967B1E99196210FFD21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048985   (544915) от 04.09.2016
-
-Grobut Neerg - Схрон (2012) [FLAC|Lossless|image + .cue] <Folk Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лес есть лес (Grove Is Grove)
-02. Подхвати мой клич (Howl)
-03. Нам туда (Go Forward)
-04. Сотня бочек (AHundred Barrels)(   Читать дальше...   )Жанр: Folk Metal, Death MetalПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6FD734E82609660E3F1A00A3C6D3F41BB85A6C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049060   (544864) от 04.09.2016
-
-The Don Harrison Band - The Don Harrison Band (1976) [FLAC|Lossless|image + .cue] <Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sixteen Tons     (02:59)
-02. Who I Really Am     (03:05)
-03. Rock 'N' Roll Records     (02:45)
-04. Fame And Fortune     (03:56)(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8BBE68A2B9F69B64B39CB1640B4408570C170B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048996   (544861) от 04.09.2016
-
-De Staat - O (2016) [FLAC|Lossless|tracks] <Alternative Rock, Electronic Rock, Experimental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peptalk
-02. Make the Call, Leave It All
-03. Get on Screen
-04. Murder Death(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Experimental RockПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654D514C2209750A420F9AE7FDEF0643717D8B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049165   (544855) от 04.09.2016
-
-Satarial - Blessed Brigit (2016) [MP3|320 Kbps] <Folk Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чёрный дым от костра спиралью поднимается и, ничуть не рассеиваясь, уходит высоко в небо. Костёр горит уже три дня и три ночи. Ровно столько длится обряд, и сегодня, в последнюю ночь - в ночь новолуния он завершится. Боги будут умилостивлены обильной кровавой данью.01. Manifest of paganism
-02. Horned God (The Charge Of The God)
-03. Chaos
-04. Yarns of Fate(   Читать дальше...   )Жанр: Folk Metal, Black MetalПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC17CACDA6B5C3358EAF4A2E8F40F921A2D4F99
 ```
 
 https://mybot314.ru/tekegram_catalog/

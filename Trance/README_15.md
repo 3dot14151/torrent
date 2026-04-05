@@ -1,3 +1,61 @@
+###  Публикация: 1127233   (741127) от 20.04.2017
+
+VA - Suanda Classics Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Offshore Wind & Roman Messer - Suanda (feat. Ange) (Aurosonic Intro)  3:58
+02.  Photographer - Infinity (Radio Edit)  3:46
+03.  Roman Messer feat. Christina Novelli - Frozen (feat. Christina Novelli) (Radio Edit)  4:41
+04.  Simon O'Shine feat. Eskova - You May Love (Radio Edit)  3:50(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118BC94D12EA626EEFD34825EDCEEB5F94A288FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217841   (741045) от 06.04.2018
+
+Majed Salih - Medievil-Music Trance Emperor Vol. 2 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Trance Symphony (Original Mix)
+02.Orange Idea (Original Mix)
+03.Psychlortron (Original Mix)
+04.Dolphin (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80613E461129FD222AF9964C08F3FA861FD6116A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217790   (741044) от 06.04.2018
 
 VA - Submission Recordings Presents Miami (Mixed by Atragun) (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Submission Recordings Presents Miami (Mixed by Atragun) (2018) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741044.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Paul Oakenfold DJ Box May (2016) [MP3|320 кб/с] <Trance,Progressive Hous
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740996.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ LTN - People I'll Never Forget (Remixes) (2016) [MP3|320 кб/с] <Trance,Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740978.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Female Vocal Trance (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740974.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ ATB - neXt (2017) [MP3|320 Kbps] <Progressive Trance, Progressive House, Chillou
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740554.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Suanda Music Radio Top 20 (January/February) (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740344.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Black Hole Trance Music 02-19 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740337.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - DJ Robert Miles - In The Mix (1997) Mixed [MP3 (image + .cue)|320 Kbps] <Br
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740239.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 July (Extended Version) (2020) [
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733445.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Armin van Buuren - Lost Tapes (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733434.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Vocal Trance Top 50 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733416.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733120.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Key4050 (Bryan Kearney & John O'callaghan) - Tales From The Temple (2019) [MP3|3
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732141.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - A State Of Trance 2017 (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731728.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Ferry Corsten Presents Corstenas Countdown April (2017) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731142.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Mario Più - Back From Hell (2019) [MP3|320 Kbps] <Trance, Techno>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731027.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Progressive Trance Vol.6 (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730098.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Trance Mission (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730093.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - The Best Of The Last 50 Releases - Special 150 (2019) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728956.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Dark Uplifting Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726635.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Good Day Music Compilation Vol.4 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725292.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Dream Trance: The Future Is Now (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725208.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Tiesto - In Search Of Sunrise 5: Los Angeles (2006) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724361.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ DJ Skydreamer - Наш Ответ!!! ATB (2005) [MP3|320 Kbps] <House, Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724066.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ DJ Skydreamer - Наш Ответ!!! ATB (2005) [MP3|320 Kbps] <House, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0C65112EAAA268BCB58DF7E533B47E5901182AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218434   (723408) от 09.04.2018
-
-VA - Interfered Vol.I (Mixed by Enlusion) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enlusion - Interfered Volume I (continuous DJ mix)
-02. Neil Soun - Bending Light (intro mix)
-03. Aquya - Ataraxia (radio edit)
-04. Vitaly Shturm - Sensoria (radio edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586EE965B2790E82696C87B3B30A95274E997413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218397   (723402) от 09.04.2018
-
-VA - Nothing But. Total Trance Selections Vol. 02 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phillip J feat. Kim Casandra - Release Me (4 eYe Remix)
-02. Anna Lee - Fjords (2017 Rework) (Original Mix)
-03. Atherium - Sand (In The Hourglass) (Original Mix)
-04. Arman Bas - Iris (Ahmed Romel Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57BBF998C26429993328D30C5546875440F8182
 ```
 
 https://mybot314.ru/tekegram_catalog/

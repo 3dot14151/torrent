@@ -1,3 +1,29 @@
+###  Публикация: 1638286   (212095) от 07.06.2023
+
+Неистовая росомаха / Wild Wolverine (2020) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это животное похоже на странный гибрид волка, скунса и бобра... Оно стало легендой. Выносливое, сильное, агрессивное - словно супер-герой из фильмов. Но, поскольку живет оно в самых далеких и суровых уголках мира, его истинная природа скрыта, что делает росомаху одним из самых загадочных существ на планете.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED646808E3C4DF3382B0A2227B0F3A8098BC972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638258   (212067) от 07.06.2023
 
 Змеи. Тайны самых смертоносных созданий на земле / Snakes, Secrets of Nature’s Deadliest Creatures (2014) WEB-DL [H.264/1080p]
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212067.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212040.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211921.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211888.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211744.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211529.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211246.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210901.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210783.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210725.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210677.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210268.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210209.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209977.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209735.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209453.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209383.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209328.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208458.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207690.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207639.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207401.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207131.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207038.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206481.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:908CBA811FACC0CD00AE94A48C8F0E624FE0BCDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465666   (206448) от 05.10.2022
-
-Мой учитель - осьминог / My Octopus Teacher (2020) WEBRip [H.265/1080p] [VO]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм от Netflix, снятый Пиппой Эрлих и Джеймсом Ридом. В главной роли играет Крейг Фостер, который по совместительству является и продюсером данного фильма. В фильме запечатлен год, который Фостер проводит с диким осьминогом. Фостер наблюдает за осьминогом большую часть его жизни, показывая тайны жизни этого животного.Производство: ЮАР, Off the fence, The Sea Change Project, NetflixЖанр: Документальный, фауна, познавательный, научно-популярныйРежиссер: Пиппа Эрлих, Джеймс РидПеревод: Одноголосый (AniPlay Studio, читает Majestic-Sama, перевод с субтитров Вадим Иванков)Субтитры: отсутствуютПродолжительность: 01:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A51DE28186F245A6DE597CCD20BB38AC03BAE8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

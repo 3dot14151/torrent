@@ -6,7 +6,7 @@ Great Teacher Onizuka / Великий учитель Онидзука (1997) [2
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935873.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Furou Kyoudai | The Furou Siblings | Двойняшки Фуро (2009-2011) [1-
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935832.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Love & Collage  / Любовная мозаика  (2005) [c 1 по 119 глав
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929541.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Grenadier / Гренадёр (2003) [1-37 гл.] [Манга] [complete] [Рус
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925411.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Girlish Grimoire Littlewitch Romanesque - Editio Perfecta (2014) [En] License
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924091.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Remember 11 -the age of infinity- (2008) [Ru/En/Jp] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923882.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Chrno Crusade: Mary Magdalene / Крестовый поход Хроно (1999) 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921682.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Tokyo Ghoul | Токийский гуль (2011) [14 томов; 143 главы]
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917896.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kara no Shojo - The Second Episode / Kara no Shoujo 2 / Uro no Shoujo (2015) [En
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916347.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_905111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_905111.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Carpe Diem (2015) [Ru/Multi] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893297.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Quartett! / Квартет! (2004) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893286.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Hinatabokko / Под солнцем (2008) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889510.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Yume Miru Kusuri / Лекарство (от) грёз (2008) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888901.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Tower of God (season 2) / Башня бога (2 сезон) [2011] [0-132 гл.
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880516.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ History's Strongest Disciple Kenichi / Сильнейший в истории у
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880487.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Swan Song / Лебединая песнь (2005) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880446.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Hipira: The Little Vampire / Вампирчик Хипира (2001) [c 1 по 5 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875956.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Kamisama ga Uso wo Tsuku / The Gods Tell Lies / Даже Боги лгут (2013
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875328.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ TSUBASA: RESERVoir CHRoNiCLE / КРЫЛЬЯ: ХРОНики ИСТоЧНиКА [
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874651.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ XXXholic / Триплексоголик [2003-2011] [213 глав] [Манга] 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874250.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Gunnm Gaiden | Battle Angel Alita Extra Stories | Сны оружия: Побо�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869816.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Kimihane ~Месяц девичьей любви~ (2015) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869673.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Gunnm | Battle Angel Alita | Сны оружия [9 томов (52 главы)] 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869538.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Gunnm: Kasei Senki | Gunnm Mars Chronicle | Боевой Ангел Алита: 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865827.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Guilty Crown Lost Christmas / Корона грешника: Утраченно�
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860525.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 1603407   (20464) от 24.04.2025
-
-Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cradle of Filth — английская метал-группа, основанная в 1991 году вокалистом Дэниелом Ллойдом Дэви, выступающим под псевдонимом Дэни Филт. Стиль группы менялся от альбома к альбому, но в среднем представляет собой смесь симфонического блэк-метала и готик-метала.1994 - The Principle Of Evil Made Flesh
-1996 - Dusk And Her Embrace
-1998 - Cruelty And The Beast
-2000 - MidianЖанр: Death Metal, Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 33:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1816D9F39B4FFBF4B7C60D68773544DAABED03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535212   (20431) от 24.04.2025
 
 Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Groove/Thrash Metal, Nu-Metal>
@@ -35,7 +6,7 @@ Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20431.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Bleed From Within - Studio Albums (9 releases) (2008-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20404.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Ghost - Skeletá (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20403.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Nachtblut - Studio Albums (7 releases) (2007-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20398.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Alice Cooper - Black Mamba (2025) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20385.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ H.E.A.T - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20179.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Noah Beatz - Noah (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20172.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Sacred Steel - Studio Albums (10 releases) (1997-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20167.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Orbit Culture - Studio Albums (8 releases) (2013-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20048.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Smokie/Смоуки - Bright Lights & Back Alleys/Яркий Свет И Тем�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19838.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ MONOЛИЗА - Кит (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19770.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ The Halo Effect - March Of The Unheard (Bonus Edition) (2025) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19769.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Eternal Storm - Studio Albums (3 releases) (2013-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19754.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ VA - Eurovision Song Contest - Turin 2025 (2025) [FLAC 16,24/44.1,48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19664.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Pink Floyd - Pink Floyd at Pompeii - MCMLXXII (2025 Mix) (1972) [FLAC 24/96|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19625.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Barren Earth - Studio Albums (4 releases) (2010-2018) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19565.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ VA - Heavy Artillery (1990) Unofficial Release [FLAC 2.0|44.1/24|image +.cue|MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19564.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Crematory - Destination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19550.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Thomas Anders - … Sings Modern Talking: Let's Talk About Love (2025) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19356.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Caliban - The Undying Darkness (2006) [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19040.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ Believer - Extraction from Mortality (1989) [FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19039.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Bekor Qilish - Throes of Death From the Dreamed Nihilism (2022) Released, 2023, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19035.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Behemoth - The Shit Ov God (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18934.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Roxxcalibur - NWOBHM From The Vaults (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18932.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Laibach - Alamut (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial, Neo-Cla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18928.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ Laibach - Alamut (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial, Neo-Cla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:211C36339CD8F4D488668CE47D42F8E42D31DBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796254   (18829) от 09.05.2025
+
+Believer - Extraction From Mortality (1989) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Technical Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unite
+02. Vile Hypocrisy
+03. D.O.S. (Desolation of Sodom)
+04. Tormented(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D5F7BD4EBD85DBF55843CE0665AB233E1A419C
 ```
 
 https://mybot314.ru/tekegram_catalog/

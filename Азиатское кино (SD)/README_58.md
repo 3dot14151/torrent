@@ -1,3 +1,55 @@
+###  Публикация: 1434109   (152868) от 23.12.2020
+
+Авангард: Арктические волки / Ji xian feng / Vanguard (2020) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они берутся за задания, которые другим не под силу. Когда международный синдикат наемников похищает известного бизнесмена, единственным шансом на его спасение становится лихая команда «Авангард», не имеющая равных в мастерстве и дерзости.Производство: Китай / China Film (Shanghai) International Media Co., China Film Group Corporation (CFGC), Epitome CapitalЖанр: Боевик, криминалРежиссер: Стэнли ТунАктеры: Джеки Чан, Ян Ян, Ай Лунь, Сюй Жохань, Мия Муци, Чжу Чжэнтин, Джексон Лоу, Эйад Хурани, Дзавад Рамезани, Десмонд ЭлдриджПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963E94F59BA07B8762ABA43447A7BA3CDF56C8E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677060   (152539) от 16.11.2023
+
+Тюрьма живых мертвецов / День 0 / Day Zero (2022) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший спецназовец Эмон сидит уже восемь лет и, ввязавшись в драку за сокамерника Тимоя, теряет возможность выйти по УДО. Когда бушующий на воле вирус денге мутирует и начинает превращать людей в кровожадных зомби, руководство тюрьмы выпускает всех заключённых — оказавшийся на свободе Эмон решает добраться до жены и глухой дочки, которую он видел только на фотографиях.Производство: Филиппины / Reality MM Pictures, Regal FilmsЖанр: ужасы, боевикРежиссер: Джои де ГусманАктеры: Брэндон Вера, Пепе Эррера, Мари Джин Ластимоса, Джои Маркес, Фрея Фьюри Монтьерро, Йоханс Леви Бьюи, Риччи Риверо, Хема Галанса, Шермейн Сантьяго, Ховит МойяПеревод: Дублированный (Leff Sound)Язык озвучки: русский, филиппинскийСубтитры: английскиеПродолжительность: 01:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384A8179C2620990178F44D058682B41FEDDB959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677071   (152188) от 16.11.2023
 
 Воины будущего / Bian zhong ren you ling zhan ji / Mutant Ghost Wargirl (2022) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152188.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152185.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151141.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150813.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150387.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148802.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148356.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148056.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147193.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146936.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145711.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145622.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145536.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144067.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143828.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143800.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142322.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142157.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141710.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141363.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140759.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137558.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137194.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136796.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E111A72CB77DC07E2B3A13DC312EF8C02385CB5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679937   (134892) от 27.11.2023
-
-Извещение о смерти / Ikigami (2008) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134892.jpg" />
-</div>
-
-
-###  Подробнее
-
-По oднoимённoй мaнгe Moтopo Macэ... B нeдaлёкoм бyдyщeм пpaвитeльcтвo Япoнии, в пoпыткe иcключить cyицидaльныe нaклoннocти y мoлoдыx людeй и пoвыcить иx coзнaтeльнocть, ввoдит пpaктикy 'икигaми'. Смepтнoй кaзни пoдлeжит кaждый тыcячный гpaждaнин в вoзpacтe oт 18-x дo 24-x лeт. Приговорённый определяется случайным образом на всеобщей вакцинации в младшей школе, но (   Читать дальше...   )Производство: Япония, Chubu-nippon Broadcasting Company (CBC), IMJ Entertainment, Mainichi Broadcasting System (MBS) K.K...Жанр: драмаРежиссер: Томоюки ТакимотоВ ролях: Сёта Мацуда, Такаси Цукамото, Рико Наруми, Такаюки Ямада, Акира Эмото, Рёхеи Абе, Исеки Тин, Денден, Норико Егути, Дзян ФубукиПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (Аli-san), английскиеПродолжительность: 02:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCC749155149FAD92A024CCF2EDED59D5F8F7FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680412   (134195) от 29.11.2023
-
-При исполнении 4. Свидетель / Wong ga si je IV: Jik gik jing yan / In the Line of Duty 4: Witness (1989) BDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое американских полицейских расследуют дело о поставке наркотиков. При исполнении погибает их напарник, и единственным подозреваемым (и свидетелем одновременно) становится рабочий доков, которому перед смертью убитый отдает плёнку с компроматом на высокопоставленных лиц. Тот, правда, теряет её, и поэтому совсем не понимает, что от него хотят как полиция, так и (   Читать дальше...   )Производство: Гонконг / D & B Films Co. Ltd.Жанр: комедия, криминал, боевикРежиссер: Юэнь У-ПинАктеры: Синтия Хан, Донни Йен, Майкл Вон, Юэнь Ят-Чо, Лю Кай-Чи, Чяо Чяо, Юэнь Шуньи, Блейн Ламуре, Gei Shun Wai, Майкл ВудсПеревод: авторский, профессиональный одноголосый, любительский одноголосыйЯзык озвучки: русский, китайский, английскийСубтитры: английскиеПродолжительность: 01:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B908B6DC064EEEAF908E6F7BD2A368463A2DCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

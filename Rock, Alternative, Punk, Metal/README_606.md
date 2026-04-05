@@ -1,3 +1,32 @@
+###  Публикация: 940806   (464887) от 26.09.2015
+
+Hanging Garden - Blackout Whiteout (2015) [MP3|320 кб/с]<Post-Metal, Doom/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464887.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Borrowed Eyes
+2. Whiteout
+3. Embers
+4. Eclipse(   Читать дальше...   )Жанр: Post-Metal, Doom/Death MetalПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7192287370E9C00DD4798DCEE27BCC13801C88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549088   (464688) от 19.09.2012
 
 The Swinging Blue Jeans - 5 альбомов (1992-1998) [APE|Lossless]<Pop, Rock, Oldies, Retro>
@@ -6,7 +35,7 @@ The Swinging Blue Jeans - 5 альбомов (1992-1998) [APE|Lossless]<Pop, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464688.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ V.A. - Монстры Рока СССР: 20 Лет Спустя (2012) [FLAC|Los
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464676.jpg" />
 </div>
 
 
@@ -76,7 +105,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464615.jpg" />
 </div>
 
 
@@ -104,7 +133,7 @@ Reptoid - Worship False God (2020) [MP3|320 Kbps] <Noise Rock, Industrial>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464445.jpg" />
 </div>
 
 
@@ -133,7 +162,7 @@ Madjenta - Insomnia (2020) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464444.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ Znaki (Знаки) - 3 Альбома (2007-2012) [FLAC|Lossless] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464360.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ KCHORTOO (KCHÖRTOO) - SARANCHA (2018) [FLAC|Lossless|WEB-DL|tracks + .cue] <Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464264.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ Rikard Sjoblom's Gungfly - Alone Together (2020) [FLAC|Lossless|WEB-DL|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464253.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ Abyssal Ascendant - Chronicles of the Doomed Worlds - Part II. Deacons of Abhorr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464224.jpg" />
 </div>
 
 
@@ -284,7 +313,7 @@ Age Of Agony - War, Hate, Blasphemy (2005) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464223.jpg" />
 </div>
 
 
@@ -313,7 +342,7 @@ Abyssal Ascendant - Chronicles of the Doomed Worlds - Part I. Enlightenment from
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464222.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ Martin and Garp - Sentimental Fools (2020) Japanese Edition [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464220.jpg" />
 </div>
 
 
@@ -371,7 +400,7 @@ Allen-Olzon - Worlds Apart (2020) [FLAC|Lossless|image + .cue] <Symphonic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464219.jpg" />
 </div>
 
 
@@ -400,7 +429,7 @@ D.F.M. - Streets of Rage (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464217.jpg" />
 </div>
 
 
@@ -429,7 +458,7 @@ Vypera - Eat Your Heart Out (2022) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464216.jpg" />
 </div>
 
 
@@ -458,7 +487,7 @@ Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)  2 CD Gold Editio
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464198.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Marquette - Into the Wild (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464120.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Altaria - Wisdom (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464111.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Champlin Williams Friestedt - CWF (2015) Reissue, 2021, Sony Records Int'l, Japa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464106.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Tempest - Tempest / Living In Fear (1990) [FLAC|Lossless|tracks + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464100.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Soulfly - Totem (2022) [FLAC|Lossless|image + .cue] <Death Metal, Nu Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464077.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Rammstein - In Amerika (2015) live [MP3|320 кб/с]<Industrial Metal, NDH>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464052.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464032.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Pain - Coming Home (2016) 2CD Limited Edition [FLAC|Lossless|image + .cue] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464030.jpg" />
 </div>
 
 
@@ -730,7 +759,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463904.jpg" />
 </div>
 
 
@@ -744,35 +773,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD9E81ED16492CE5E529A0CC1F01385CDB8F6A52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567904   (463808) от 07.08.2022
-
-Ringo Starr - 32 albums, 2 EPs, 3 singles, 49 CD (1970-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэр Ринго Старр — британский музыкант, автор и исполнитель песен, вошел в историю музыки как барабанщик группы The Beatles. Каждый участник группы The Beatles — легенда, каждый внес свой вклад в успешность проекта. Говорят, добрый и мудрый Ринго Старр был душой ливерпульской четверки, его «сентиментальным сердцем». Кавалер ордена Британской империи, рыцарь-бакалавр, (   Читать дальше...   )--------------------------
-
-01. It Don't Come Easy (3:45)
-02. Honey Don't (2:59)(   Читать дальше...   )Жанр: Swing, Big Band, Jazz, Pop, Rock, Classical |Продолжительность: 40:00:55 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CF49C4A6027B83036E6F798B4BE7FA3153ED6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

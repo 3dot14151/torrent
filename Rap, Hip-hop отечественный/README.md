@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052972.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Oxxxymiron - Национальность: нет (2025) [MP3|320 Kbps] <Rap, Hi
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049026.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048156.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048136.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Noize MC - Алхимия (2025) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047411.jpg" />
 </div>
 
 
@@ -144,35 +144,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601880   (1046316) от 02.01.2023
-
-Вася Васин - Танец с саблями (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1046316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Великий Питер
-2. Мания величия
-3. Танец с саблями
-4. Мудрые слова(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FCD57656C77BA8C12D1C41F1DC8B5B86885791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602264   (1046021) от 06.01.2023
 
 SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
@@ -181,7 +152,7 @@ SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046021.jpg" />
 </div>
 
 
@@ -210,7 +181,7 @@ L'One (Леван Горозия) - Концерт с симфоническим
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046012.jpg" />
 </div>
 
 
@@ -239,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045802.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ Murovei - WINSK I-II (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043837.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ Anacondaz - Перезвони мне +79995771202 (2021) [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032040.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026433.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025570.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023282.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ zavet - nights before gotika (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023162.jpg" />
 </div>
 
 
@@ -442,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023159.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ HammAli & Navai - Когда хорошему человеку плохо (2021)
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023099.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ ST1M - Сьерра-Леоне (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022823.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ Horus - Герои вашего времени (2021) [MP3|320 Kbps] <Rap, Hip-H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022819.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ ST1M - Окна (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022816.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ XIII - SEKTA (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022815.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Face - Варвар (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022806.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ StaFFорд63 - Десять историй (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022799.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ Jah Khalib - Мудрец (Deluxe Version) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022793.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ SLIMUS - Новичок (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022785.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ Face - Искренний (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021945.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ Face - Искренний (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC0D004ACC2AECA87587C329A113A7F998F0E6E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462801   (1020831) от 16.04.2021
+
+RAM - TRAUMATIX 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Возьмем [03:10]
+02. Men in Black [02:41]
+03. Hesoyam (feat. LeanJe) [03:22]
+04. Как S1mple [02:06](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729E68132D1D2F1815C5D0DAD1FD2C738AC37447
 ```
 
 https://mybot314.ru/tekegram_catalog/

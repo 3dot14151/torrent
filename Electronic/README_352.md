@@ -1,3 +1,119 @@
+###  Публикация: 1075073   (323720) от 21.11.2016
+
+VA - Illusion Chill Out Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solanos - Estranha
+02. Michele Cecchi - A Spy in Paradise
+03. LyFe&Daze - Days of Our Lives - Week-End Mix
+04. Raumzeit - The Daydreamer(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56355BA1FC788FD3F0725EB1073A5C36446C511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075318   (323717) от 21.11.2016
+
+VA - Armada Deep - Best Of 2016 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Low Steppa - Runnin' (Feat. Kelli-Leigh) 02:18
+02. Cropper - Straight Wylin' 03:16
+03. Embody - Remember Us (Feat. Fein) 03:21
+04. Robbie Rivera - Come Back To Me 02:58(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948A9442AE1EDA9F4672689BB0C3D4A7BCB18237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075072   (323712) от 21.11.2016
+
+VA - ICE - Winter Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La.Mia.Bocca - Ocean of Sadness - Pacha Remix
+02. Stigma - When You Come Home
+03. L.O.S.T. - Winter Crystal
+04. Aruba - Rain Dance(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E76B4B8CE14E0148674A8552C63D8E4BFBD8830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075014   (323706) от 21.11.2016
+
+VA - Deep and Tropical Selection: The Best Deep House and Tropical Selection for Your Dancefloor (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix and Fregonese - Last Night a DJ Saved My Life - Reworked Mix
+02. Iberico - Sofie - Roby Arduini & Pagany Deep Rework
+03. Alexey Lisin - Royal Soft - Roby Arduini & Pagany Deep Rework
+04. Felix and Fregonese - Just Like You - Felix and Fregonese and Faith Reworked Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1856B928EDD236BA68DC28348B1EF4D238B3955E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075090   (323580) от 21.11.2016
 
 VA - Stress Free: Deep House Laidback Beats (2016) [MP3|320 Kbps] <Deep House>
@@ -6,7 +122,7 @@ VA - Stress Free: Deep House Laidback Beats (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323580.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Ori Uplift - Uplifting Only 299 (2018) [MP3|320 Kbps] <Trance,Uplifting Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323542.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Markus Schulz - Global DJ Broadcast - World Tour ADE in Amsterdam (2018) [M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323541.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Astral Waves - La Danse Du Chaman (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtemp
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323534.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Only Silk 05 (Mixed by Max Flyant & Vintage & Morelli) (2018) [MP3|320 Kbps
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323533.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Occams Laser - Occult 91 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323481.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - 50 Top House Tracks For Christmas (Special Collection Of Best House And Dee
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323438.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Ronski Speed - Evolve (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323409.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Isea-N - Light of Tribes (2018) Mudra Music [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323397.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Tesla Boy - Remedy (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323386.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Aeon Rings - Enemy (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Beat, New
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323356.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Sensual Lounge: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323346.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ The Human League - Anthology: A Very British Synthesizer Group (2CD) (2016) [FLA
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323155.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Ibiza Forever (2018) [MP3|320 Kbps] <House,Deep House,Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323073.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Prodigy - No Tourists (2018) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Electron
 >>Drum'n'Bass, Breakbeat (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322866.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Oingo Boingo - 9 Albums (1981-1994) Collection [MP3|320 Kbps] <New Wave, Synth-p
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322101.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ SALEM - Fires In Heaven (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experi
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322099.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Luxury Disco - Ultimate House Grooves 2017 [MP3|320 Kbps] <Funky, Club Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322024.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Synthactica: Chillout And Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322023.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - EPIC Ibiza - Trance Anthems Vol.3 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322021.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Chillout Ibiza (2017) 2CD [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322017.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Magnatron (2015) [MP3|320 Kbps] <Synthwave, Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321712.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Magnatron (2015) [MP3|320 Kbps] <Synthwave, Darksynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:818D8F1B1B6979FEB6D935DFB51F502C1D9A52ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181780   (321575) от 08.11.2017
-
-VA - Magnatron 2.0 (2017) [MP3|320 Kbps] <Synthwave, Darksynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wice - Star Fighter
-02. Waveshaper - End of Space
-03. Daniel Deluxe - Brute Force
-04. Tonebox - Frozen Code(   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFB8286421371FF2C0A09A2BBA3A529749882C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259409   (321523) от 03.11.2018
-
-Mara - ...If You Only Knew (2003/2010) [FLAC|Lossless|WEB-DL|tracks] <Progressive Breaks, Progressive House, Downtempo, Tribal House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...If You Only Knew (05:00)
- 02. Turning It On (05:31)
- 03. Desanitize (07:23)
- 04. Snoodle (02:55)(   Читать дальше...   )Жанр: Progressive Breaks, Progressive House, Downtempo, Tribal HouseПродолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F586037BC5E95EA7375376123E26AC4A577F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075286   (321413) от 22.11.2016
-
-VA - This House Is Hot - Pumpin Electro House Smashers For Top Clubbers (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thyron!X - Too Hot (Summer Anthem) (Thyron!X Hotter Remix) 05:10
-02. Atomic Electrolab - Hot Chick 05:02
-03. John De Mark - Time (Hot N Dirty 3Am Remix) 06:01
-04. Nelle - Deeper Harder (Hot Pants Remix) 07:58(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6258A0560F328340E49E63C195264F63FCD56B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075087   (321298) от 22.11.2016
-
-VA - Eau Solaire: Deep and Love Sensations (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adjacent Six - Best App - Soulrain's House Mix
-02. Lazy Shame - Skadeo - Vocal Republic Mix
-03. Lisa Reinhard - Take My Heart - Heartbeat Mix
-04. Livio Regalado - Abnorma - Alvaro Alvarinho's Beach Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A09BA6D058F977E3DA34446B5FAA71F0AB8B575
 ```
 
 https://mybot314.ru/tekegram_catalog/

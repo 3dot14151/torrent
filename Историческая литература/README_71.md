@@ -1,29 +1,3 @@
-###  Публикация: 1172126   (393983) от 07.10.2017
-
-Александр Никишин | Тайны русской водки. Эпоха Михаила Горбачева (2014) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о шести годах из пятисотлетней истории русской водки, которые пришлись на годы правления в СССР М.С. Горбачева. Этот краткий отрезок был насыщен эпохальными событиями. Среди них введение в 1985 году «сухого закона». Считается, что именно он привел к народному бунту 1991 года, за которым последовали развал СССР, приход к власти Б.Н. Ельцина, создание мафиозной (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AE7359A1E4C2575FEB89E96F5F213607E63A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172158   (393981) от 07.10.2017
 
 Никакой пощады шпионам и изменникам родины (1937) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393981.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393975.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393235.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393184.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393167.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393037.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391094.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390559.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390519.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388032.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388028.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387713.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387696.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387363.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387251.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387094.jpg" />
 </div>
 
 
@@ -459,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386950.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386944.jpg" />
 </div>
 
 
@@ -512,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386801.jpg" />
 </div>
 
 
@@ -539,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386796.jpg" />
 </div>
 
 
@@ -565,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385374.jpg" />
 </div>
 
 
@@ -592,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385350.jpg" />
 </div>
 
 
@@ -620,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385005.jpg" />
 </div>
 
 
@@ -646,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384479.jpg" />
 </div>
 
 
@@ -672,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384364.jpg" />
 </div>
 
 
@@ -683,6 +657,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D99C4EA6057BE5439F51CC4F063F8326E5E8A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174659   (383269) от 16.10.2017
+
+Р. Э. Осгуд | Ограниченная война (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383269.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Ограниченная война» доцент Чикагского университета Осгуд основное внимание уделяет теории так называемой ограниченной войны, получившей в последнее время широкое распространение среди военных , и политических деятелей Запада.
+
+Автор дает определение ограниченных войн, «обосновывает» их значение для Соединенных Штатов, излагает американские взгляды на войну, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699EF3FFF6762653F58E25F7CD8A860A51188B94
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,138 +1,3 @@
-###  Публикация: 1390978   (781810) от 18.06.2020
-
-Книжная серия "New Scientist" Лучшее от экспертов журнала [6] (2019-2020) [FB2, EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781810.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 6 книгах серии "New Scientist. Лучшее от экспертов журнала» собраны лучшие статьи экспертов журнала New Scientist. Здесь вы найдете мысли ведущих ученых и интервью с ними, познакомитесь с прошлым, настоящим и будущим науки об эволюции, узнаете о величайших изобретениях природы, приоткроете занавесу тайн нашего разума, найдете руководство по эксплуатации самого (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2. EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6F19E3353E0FEF3476D63B589DE778C10EE1EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390751   (781778) от 18.06.2020
-
-В. А. Никитин | Книга начинающего радиолюбителя (2005) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781778.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге представлены основы элементарной электротехники, радиотехники и электроники, начиная с самых азов и заканчивая современным состоянием техники, - полупроводниковые приборы и интегральные микросхемы, радиоаппаратура, телевизоры, электроакустические приборы и многое другое.
-Эта книга предназначена для начинающих радиолюбителей, желающих понять, что происходит (   Читать дальше...   )Жанр: 978-5-477-00078-3Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D357AD2983CECDF004E3CB95C416FC10B868A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206769   (781741) от 15.02.2018
-
-В. Киршон | Эмиграция и оппозиция (1927) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Против линии партии, объединившись, выступает разношерстная оппозиционная группа. Тут и старые испытанные ревизионисты, но молодые большевики. Тут и старые большевики, но совсем юные еще ревизионисты. Тут сторонники бюрократического зажима, тут и певцы широчайшей демократии. Тут сторонники ликвидации Коминтерна, тут и руководители его.
-
-Все соединились в «священный (   Читать дальше...   )Жанр: История, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4773E8B0B9E807A26AC5AFF547E69AA4E30F9A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206706   (781739) от 15.02.2018
-
-Н. Ф. Скачков (сост.) | Национально-культурное строительство в третьем, решающем году пятилетки (1932) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник «Национально-культурное строительство в третьем, решающем» имеет своею целью подвести основные итоги национально-культурного строительства РСФСР в третьем, решающем году пятилетки.
-
-Третий, решающий год пятилетки, обеспечивший завершение фундамента социалистической экономики, явился решающим годом в деле развертывания национально-культурного строительства. (   Читать дальше...   )Жанр: История, политология, экономика, культурология, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1E3305F1A78A5CBF6E68E5F46BD12E41873BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206573   (781714) от 15.02.2018
-
-А.Г. Стрелков | Конструкция быстроходных гусеничных машин (2005) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781714.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены основные понятия, определения, требования, классификации, технические характеристики, конструкции, режимы работы составных частей шасси-трансмиссии и ходовой системы быстроходных гусеничных машин отечественного и зарубежного производства различного назначения. Проведен анализ режимов работы агрегатов одно и двухпоточных трансмиссий, (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BB7092A7132FD7674547AEE0A30E181B10B893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206623   (781669) от 15.02.2018
 
 Е. Г. Кагаров | Современное педагогическое движение в Западной Европе и Америке (1928) [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781669.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781434.jpg" />
 </div>
 
 
@@ -193,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781417.jpg" />
 </div>
 
 
@@ -219,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781414.jpg" />
 </div>
 
 
@@ -245,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781311.jpg" />
 </div>
 
 
@@ -271,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781283.jpg" />
 </div>
 
 
@@ -297,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781253.jpg" />
 </div>
 
 
@@ -325,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781008.jpg" />
 </div>
 
 
@@ -351,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780995.jpg" />
 </div>
 
 
@@ -377,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780987.jpg" />
 </div>
 
 
@@ -403,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780591.jpg" />
 </div>
 
 
@@ -429,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780590.jpg" />
 </div>
 
 
@@ -457,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780553.jpg" />
 </div>
 
 
@@ -483,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780551.jpg" />
 </div>
 
 
@@ -509,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780550.jpg" />
 </div>
 
 
@@ -535,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780548.jpg" />
 </div>
 
 
@@ -561,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780541.jpg" />
 </div>
 
 
@@ -588,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780535.jpg" />
 </div>
 
 
@@ -614,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780532.jpg" />
 </div>
 
 
@@ -641,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780521.jpg" />
 </div>
 
 
@@ -667,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780514.jpg" />
 </div>
 
 
@@ -678,6 +543,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37BBA5058CD5645F2B36CB8E053DA0EDEABA7112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207179   (780494) от 18.02.2018
+
+В.В. Мазалов | Математическая теория игр и приложения (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой учебное пособие по теории игр. Кроме традиционных разделов теории игр, таких как: конечные и бесконечные антагонистические игры, бескоалиционные и кооперативные игры, многошаговые игры, здесь представлены новые направления, еще не освещавшиеся в отечественной учебной литературе, такие как: модели переговоров, потенциальные игры, салонные (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4320BAB694B49BBFE5EE0678BD9E6AF6CC49DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207193   (780482) от 18.02.2018
+
+Б.Я. Рябко, А.Н. Фионов | Основы современной криптографии для специалистов в информационных технологиях (2004) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание описывает главные методы современной криптографии для ответа на задачи, которые появляются при хранении, обработке и передаче инфы. Описываются все шифры с открытыми ключами, ЭЦП, криптографические протоколы, хеш-функции, а также криптография на основе эллиптических кривых.Отдельная часть материала посвящена алгоритмам, которые лежат в основе российский и (   Читать дальше...   )Жанр: Компьютерная литература, математика, безопасностьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E9FCF818AA616149F7EB3CF1A359EEC1818B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207226   (780473) от 18.02.2018
+
+А.Л. Фридман | Язык программирования C++ (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780473.jpg" />
+</div>
+
+
+###  Подробнее
+
+В систематизированном виде излагаются основные понятия и описываются возможности языка C++. При этом основное внимание уделяется объяснению того, как теми или иными возможностями пользоваться. Язык программирования C++ – это универсальный язык программирования, который позволяет разрабатывать программы в соответствии с разными парадигмами: процедурным программированием, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6417B630D6C03C1DD1153F45CDB09036956973A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206692   (780426) от 19.02.2018
+
+А.Л. Малицкий и др. (сост.) | Гражданский кодекс Советских Республик (1923) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель издания настоящего Комментария — дать практическое руководство нашим судьям — рабочим и вообще работникам Советской юстиции. Имея в виду полное отсутствие подготовки или недостаточную подготовку работников юстиции, мы ввели чисто теоретические сведения, облегчающие читателю возможность усвоения природы и отличительных признаков отдельных институтов советского (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26993DAEF0DB8EBBDB4F5ADC0976FFD99A93CA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206844   (780421) от 19.02.2018
+
+Э. Пискатор | Политический театр (1934) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780421.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Поли­тический театр» Пискатора был призван средства­ми театра, средствами искусства дать ответ на насущные проблемы дня. Театр Пискатора - это своеобразная форма, это своего рода сценический политический памфлет, разоблачающий классового врага; Для осуществления своих замыслов Эрвин Пискатор не останавливается ни перед какими эксперимен­тами. Для него не существует (   Читать дальше...   )Жанр: История, политология, искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2455D42B56C602F60C0D80BD8F5DFF5C90DD843
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1366889   (800746) от 22.05.2020
+
+PhotoMap Pro Gallery 9.4.9 (Paid) [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просмотрите свои фотографии и поездки в увлекательной форме. Держите свои воспоминания живыми, как никогда раньше. PhotoMap - одно из лучших приложений для галерей с уникальными функциями. Вспомните свои поездки, перемещаясь по разным местам путешествий.Тип издания: ПираткаРелиз состоялся: 22.05.2020Разработчик: Dr. Ludger BischofsПоддерживаемая ОС: Android. 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A17EA18CE7DB3D54D322837937A56F59CF452FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384980   (799979) от 23.05.2020
+
+Англо-Русский Словарь / English-Russian Dictionary v3.2.3 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте на Android самый популярный Англо-Русский словарь с более чем 700.000 активными пользователями!!! Содержит более 200.000 словарных статей, с переводами, примерами, идиомами, транскрипцией, озвучкой, неправильными глаголами. Поддерживает поиск в обе стороны, Историю и Избранное.
+Работает оффлайн и не требует никаких дополнительных загрузок. Словарь является (   Читать дальше...   )Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 12.12.2019Разработчик: Alexander KondrashovПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33161134AA214B72682B975E819AE683B468D4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496991   (798925) от 02.11.2021
+
+Проследи за мной. Маячок v1.4.20 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение-маячок поможет вашим друзьям или родственникам проследить за вашим маршрутом или, наоборот, узнать где сейчас находятся они. Для уведомления о местонахождении нажмите кнопку "СТАРТ" и отправьте SMS c ссылкой на трекинг-код нужным людям.
+Получатель, нажав на ссылку из вашего сообщения, автоматически установит-запустит приложение на своём телефоне (   Читать дальше...   )Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 30.10.2021Разработчик: HobbySoftПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6175266E75FBFD0366EC6BF5A81D8D8491E79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508072   (798081) от 06.11.2021
+
+Сапер v6.3 [Ru/En] (обновляемая)
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический сапер для Android (Minesweeper или Mines).Тип издания: Пиратка (открыт Pro)Релиз состоялся: 27.07.2020Разработчик: LdinkaПоддерживаемая ОС: Android 4.1+Жанр: ГоловоломкиЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5844FAB12308933C1CD8ECC55A4005718DC60E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508261   (797395) от 08.11.2021
 
 Garmin: City Navigator Middle East and North Africa NT 2022.10 [En]
@@ -6,7 +112,7 @@ Garmin: City Navigator Middle East and North Africa NT 2022.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797395.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ TouchRetouch v4.4.16 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797171.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797083.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796504.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795397.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Android 12 Clock Widgets v7.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795376.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ Angry Birds Fight! 2.4.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795189.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ Yi Pro - Yi Action Camera 3.3.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794400.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793877.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ PingTools Network Utilities 3.68 [Ru/Multi] - утилита для провер
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793206.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ Analog Clock Constructor-7 v4.44 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792622.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792345.jpg" />
 </div>
 
 
@@ -318,7 +424,7 @@ UFO VPN 2.3.10 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791757.jpg" />
 </div>
 
 
@@ -344,7 +450,7 @@ Personal Vault PRO 3.1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791258.jpg" />
 </div>
 
 
@@ -371,7 +477,7 @@ Bliss - Icon Pack 1.3.4 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791248.jpg" />
 </div>
 
 
@@ -397,7 +503,7 @@ Frequency generator / Генератор частоты 4.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791211.jpg" />
 </div>
 
 
@@ -423,7 +529,7 @@ AndFTP Pro 4.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790662.jpg" />
 </div>
 
 
@@ -449,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790629.jpg" />
 </div>
 
 
@@ -476,7 +582,7 @@ Mazetools Soniface 2.51 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790078.jpg" />
 </div>
 
 
@@ -502,7 +608,7 @@ Flyme OS Update Checker (FUC) v0.4.2 Portable [En]
 >>Прочее для мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789759.jpg" />
 </div>
 
 
@@ -528,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789562.jpg" />
 </div>
 
 
@@ -555,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789403.jpg" />
 </div>
 
 
@@ -566,113 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16784CFA45937712969253087E70213070453F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275964   (789272) от 13.01.2019
-
-Конвертер единиц измерения v10.3.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789272.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конвертере единиц измерения вы найдете более 50 разделов, например: Валюта, Давление, системы счисления(двоичная, шестнадцатеричная и тд), Кулинария, размеры Одежды, данный конвертер поможет перевести Ёмкость аккумуляторов, рассчитать Скорость скачивания файла, Расход топлива и многое другое. База состоит из более 700 величин. Позволяет конвертировать более 150 (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 10.01.2019Разработчик: caHek3xПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F4E050A1E131159A67D9E97B94F6A4F3D51F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275961   (789262) от 13.01.2019
-
-Физика - калькуляторы [PRO] v0.0.14 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789262.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Физика - КалькуляторыТип издания: Пиратка (разблокирована Pro)Релиз состоялся: 28.11.2018Разработчик: August SoftwareПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9BC518DCC3930A7B87D0CCA084CD0072AEC9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511220   (789201) от 20.11.2021
-
-Garmin: City Navigator North America NT 2022.20 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорожная карта Северной Америки для навигаторов Гармин.Тип издания: карты разблокированыРелиз состоялся: июль 2021Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD922C19311C4DE0E3BFD11AFAB2B8C75E701EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511167   (789174) от 20.11.2021
-
-Muscle & Motion - Strength Training 2.2.14 premium [Ru]
-
->>Программы, Игры и прочее
->>Прочее для мобильных устройств
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучение силовым тренировкам на анимированных 3D моделях.
-ПО предоставляет:
-. Возможность получить представление об анатомии и биомеханике движения на анимированных 3D моделях
-. Понимание, как мышцы двигаются и взаимодействуют во время тренировки(   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 01.01.2021Разработчик: Muscle & MotionПоддерживаемая ОС: Android 4.4 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43A06336256BA627D39508F627B3C9495DB92763
 ```
 
 https://mybot314.ru/tekegram_catalog/

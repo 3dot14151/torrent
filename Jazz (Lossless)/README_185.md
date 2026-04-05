@@ -6,7 +6,7 @@ Katie Melua - In Winter (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Folk, W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434664.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Matt Bianco - Rico (2000) [FLAC|Lossless]<Jazz, Smooth Jazz, Bossanova>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_434446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434446.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Evan Christopher - Delta Bound (2007) Arbors Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434114.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Louis Armstrong - The Essence of Louis Armstrong (1991) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434058.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Louis Armstrong - Hello, Dolly! (1964) 1994, Kapp Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434053.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Art Blakey And The Jazz Messengers - In My Prime I (1978) 1989, Limited Edition 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434047.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Oliver Gannon - Easy Sailing (2014) [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433983.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Oliver Jones - From Lush (1995) [FLAC|image+.cue]<Big Band, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433982.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ofer Shapiro Quintet - Two Views (2010) [FLAC|image+.cue]<Post-Bop, Ethnic Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433978.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Odyssey Trio - Pictures (2014) [FLAC|tracks+.cue]<Contemporary Jazz, Piano>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433977.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Odelia Dahan and the Yellow Submarine Ensemble - Solika (2008) [FLAC|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433975.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Louis Armstrong - The Great Jazz Collection (50-e - 60-e) 1995, Scana [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433974.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Orchestra Of Mirrored Reflections - Frequency Jazz (2015) [FLAC|Lossless|Web
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433969.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kenny Dorham - Eight Classic Albums (1953 - 1960) 4CD, 2012, Real Gone Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433601.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Omnibus Wind Ensemble - Music By Frank Zappa (1995) [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433451.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Flatlands Collective - Maatjes (2008) Clean Feed [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433050.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Rembrandt Frerichs - Ordem e Progresso (2009) 2CD, Rembrandt Frerichs [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433049.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Don Redman And His Orchestra - 1931-1933 (1990) Classics [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432944.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Duke Ellington And His Orchestra - Such Sweet Thunder (1957) 1991, Columbia[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432854.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Janet Klein And Her Parlor Boys - Oh! (2006) Not On Label[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432703.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Grassella Oliphant Quartette - The Grass Roots (1965) Remaster, 2013, Warner
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432699.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Made in Cuba (2000) 2CD [WavPack|Lossless|image + .cue] <Latin, Afro-Cuban 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432260.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Evan Christopher - The Remembering Song (2010) Arbors Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431992.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ New York Jazz Quartet - Surge (1977) 1992, Enja Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431990.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Karel Roessingh Trio - Cat Fud (1995) Self-Released [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431986.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Joe Gordon - Social Call (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431983.jpg" />
 </div>
 
 

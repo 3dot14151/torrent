@@ -1,55 +1,3 @@
-###  Публикация: 1510411   (791241) от 16.11.2021
-
-Искушение / Blessed Virgin / Benedetta (2021) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Италия, XVII век. Место, где великая красота хладела в руках инквизиторов. Терзаемая эротическими видениями монахиня Бенедетта Карлини влюбляется в новую послушницу, пылкую и безрассудную. Вскоре об их запретной страсти узнают за пределами монастыря.Производство: Франция, Бельгия, Нидерланды / Pathe, Netherland Filmfund, SBS Productions, Belga Productions, Topkapi FilmsЖанр: Драма, мелодрама, биография, историяРежиссер: Пол ВерховенАктеры: Виржини Эфира, Шарлотта Рэмплинг, Дафна Патакия, Ламбер Вильсон, Оливье Рабурден, Луиз Шевильот, Эрве Пьер, Клотильда Куро, Давид Клавель, Гилен ЛондезПеревод: Любительский многоголосый (MuzoboZ)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF1CDF72BA2348F972FB7B50996CCF1D2DF62E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510287   (791233) от 16.11.2021
-
-Ночные рейдеры / Night Raiders (2021) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее. США находятся под оккупацией, а в государстве воцарился тоталитарный режим. Власти отбирают у родителей детей, считая их своей собственностью. Отчаявшаяся мать, у которой отняли дочь, вступает в подпольную банду, которая похищает детей из государственных приютов и возвращает родителям.Производство: Канада, Новая Зеландия / Alcina Pictures, Eagle Vision, Miss Conception FilmsЖанр: Криминал, драма, триллерРежиссер: Данис ГулеАктеры: Эль-Майя Тэйлфизерс, Brooklyn Letexier-Hart, Алекс Таррант, Аманда Пламмер, Шон Сайпос, Violet Nelson, Гэйл Морис, Сюзанн Кир, Памела Мэтьюз, Скотт БаркерПеревод: Любительский двухголосый (Pazl Voice)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B461D5259026BB1F8C5BB770AA48326055A7C4E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387581   (791195) от 02.06.2020
 
 Без лица / Face/Off (1997) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791195.jpg" />
 </div>
 
 
@@ -86,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791186.jpg" />
 </div>
 
 
@@ -113,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791171.jpg" />
 </div>
 
 
@@ -139,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791134.jpg" />
 </div>
 
 
@@ -165,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791108.jpg" />
 </div>
 
 
@@ -191,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791099.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791085.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790946.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790931.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790908.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790834.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790827.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790826.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790787.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790721.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790715.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790710.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790597.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790423.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790370.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790348.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790303.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790297.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790292.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD5D0B9C64AA2E2E9DF43D1DA06CB1AFC4A46E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507750   (790277) от 18.11.2021
+
+Перед дождём / Before the Rain (1994) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм на тему трагической войны в Югославии в начале 1990-х годов. Главным героем можно условно назвать фотографа, возвращающегося в родную деревню после долгих лет скитаний по горячим точкам планеты. Он не может принять новой реальности ненависти и кровной мести между людьми, с которыми когда-то жил, ходил в школу, играл...Производство: Македония, Франция, Великобритания, Aim, British Screen, European Co-production Fund, Ministry of Culture for the Republic of Macedonia, Noe, PolyGram Audiovisuel, Vardar FilmЖанр: драма, военныйРежиссер: Милчо МанчевскиАктеры: Грегуар Колен, Иосиф Йосифовски, Boris Delcevski, Деян Велков, Кирилл Ристоски, Младен Крстевский, Джемаил Максут, Лабина Митевска, Миле Йовановски, Милица СтояноваПеревод: профессиональный двухголосый (НТВ+), авторский (Михаил Иванов)Субтитры: русские (Toby & leburs), английские (Criterion)Продолжительность: 01:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C38B77D25420134233F3C07E0BC8598076D7643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202404   (790244) от 28.01.2018
+
+Тор: Рагнарёк / Thor: Ragnarok (2017) WEB-DLRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события — Рагнарёка. По легенде это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие (   Читать дальше...   )Производство: США / Marvel EntertainmentЖанр: фантастика, боевик, комедия, приключенияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Кейт Бланшетт, Идрис Эльба, Джефф Голдблюм, Тесса Томпсон, Карл Урбан, Марк Руффало, Энтони Хопкинс, Бенедикт КамбербэтчПеревод: Авторский (одноголосый, закадровый) (Solod)Субтитры: ОтсутствуютПродолжительность: 02:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16779F185332FFD937FDE5971EB2328FE2027283
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Oleta Adams - Third Set (2017) [FLAC|Lossless|tracks + .cue] <Soul, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876635.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Yussef Kamaal - Black Focus (2016) [FLAC|Lossless|tracks + .cue] <Experimental, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876415.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Roy Hargrove & Mulgrew Miller - In Harmony (2006, 2007) 2CD, 2021, Resonance Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876041.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Scott Henderson, Jeff Berlin, Dennis Chambers - HBC (2012) Mascot Label Group[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875830.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gabin - TAD|Replay (2012) [FLAC|Lossless]<Nu Jazz, Jazzy Lounge>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875633.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Frank Rosolino - The Last Recording (1978) 2006, See Breeze Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875174.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bill Cosby - Hello, Friend: To Ennis with Love (1997) Verve [WavPack|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875173.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Karizma - Dreams Come True (1998) Creatchy Records [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875172.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Andrew Hill - But Not Farewell (1990) Blue Note [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875166.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Benny Goodman - The Real... Benny Goodman (2012) 3 CD [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875081.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Andrea Motis - Emotional Dance (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875039.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Art Pepper - Taste of Pepper: Art Pepper Meets The Rhythm Section & Mucho Calor 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874986.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Fall Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874648.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ V.A. - Smooth Jazz n Chill, Vol. 6 (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874640.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jane Monheit - The Heart Of The Matter (2013) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873920.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Peggy Lee & Quincy Jones - The Complete Legendary 1961 Sessions: Blues Cross Cou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873850.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Barbra Lica - I'm Still Learning (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873827.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Max Greger und sein Orchester - Juke Box Hits (2007) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_873822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_873822.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Al Di Meola - Scenario (1983) Japanese Edition [FLAC|Lossless|image + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873821.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Paul Chambers - Bass On Top (1957) 1986,Toshiba-EMI [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873511.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Chick Corea Elektric Band - The Chick Corea Elektric Band (1986) [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873115.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Clark Terry - The Happy Horns of Clark Terry & It's What's Happenin' (1965/1967)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872126.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Kylie Auldist - Still Life (2012) Tru Thoughts[FLAC|Lossless|tracks + .cue] <Fem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872097.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ The Jazz Modes - The Most Happy Fella (1957) /2013 Remastered/ [FLAC|Lossless]<C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871828.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Slide Hampton - Mellow-Dy (1968) 1992, LRC Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871806.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ The Slide Hampton Octet - Somethin' Sanctified (1960) Remaster, 2013, Warner [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871805.jpg" />
 </div>
 
 

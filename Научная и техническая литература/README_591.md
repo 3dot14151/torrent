@@ -1,136 +1,3 @@
-###  Публикация: 1695698   (120156) от 30.01.2024
-
-С.Г. Герман-Галкин | Компьютерное моделирование полупроводниковых систем в MATLAB 6.0 (2001) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая книга рассматривает вопросы практического использования MatLab 6.0 для решения задач по проектированию полупроводниковых систем электропривода.
-
-Учебное пособие для технических университетов и техникумов содержит следующие основные разделы: основы электропривода, моделирование систем в пакете «MatLab 6.0 – Simulink», силовые полупроводниковые преобразователи, (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Корона принтФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EED50CF8F64AF3BA92C55D831A2512B08C17C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695866   (120152) от 30.01.2024
-
-Александр Нефедкин | Военное дело древних персов (2022) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во второй половине VI века до н. э. персидскими царями из династии Ахеменидов была создана одна из величайших империй в мировой истории. В ходе завоеваний Кира II Великого (558−530 гг. до н. э.) и его наследников в течение всего лишь около сорока лет персы завоевали государства и племена на огромном пространстве от Малой Азии до Индии. Непокорные местное население (   Читать дальше...   )Жанр: Военная документалистика и аналитика, ИсторияИздательство: Яуза, МоскваФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6D8227CF8C83EBB2C82AB423C6ABC9A27CAD1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695840   (120125) от 30.01.2024
-
-Alexander Werth | Russia at War, 1941–1945 A History (2017) [PDF, EPUB][EN]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Foreword by Nicolas Werth
-In 1941, Russian-born British journalist Alexander Werth observed the unfolding of the Soviet-German conflict with his own eyes. What followed was the widely acclaimed book, Russia at War, first printed in 1964. At once a history of facts, a collection of interviews, and a document of the human condition, Russia at War is a stunning, modern (   Читать дальше...   )Жанр: History, Military HistoryЯзык: АнглийскийИздательство: Skyhorse PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD84EA12AABD8D20661AC89E45A01714AAC7A46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696045   (120019) от 31.01.2024
-
-Книжная серия | Справочные материалы [9 книг из 10] (1988 - 1994) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг от издательства Просвещение для выпускников школ, поступающих в вузы и занимающихся самообразованием.Жанр: ОбразованиеИздательство: ПросвещениеФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DBE19CB65913CF0D724C7A8879860371BF3A9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695870   (119995) от 31.01.2024
-
-Натан Эйдельман | Твой XVIII век. Твой XIX век. Грань веков (2023) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Натан Яковлевич Эйдельман – историк, литературовед, писатель, публицист, чей вклад в отечественную историографию XX века трудно переоценить. Он оставил богатейшее творческое наследие – более 20 книг и многочисленные статьи, эссе, рецензии в периодической печати. Основной областью научных интересов Н. Я. Эйдельмана была история русской культуры и общественного движения (   Читать дальше...   )Жанр: ИсторияИздательство: Азбука, Азбука-Аттикус, Санкт-ПетербургФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99AA39E56B1CE4A5B87A08F77FA23172893DE664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696054   (119990) от 31.01.2024
 
 Роман Храпачевский | Армия монголов периода завоевания Древней Руси (2022) [FB2]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119990.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119970.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119969.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119826.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119713.jpg" />
 </div>
 
 
@@ -269,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119566.jpg" />
 </div>
 
 
@@ -296,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119537.jpg" />
 </div>
 
 
@@ -322,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119535.jpg" />
 </div>
 
 
@@ -348,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119532.jpg" />
 </div>
 
 
@@ -374,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119507.jpg" />
 </div>
 
 
@@ -400,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119500.jpg" />
 </div>
 
 
@@ -428,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119377.jpg" />
 </div>
 
 
@@ -454,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119375.jpg" />
 </div>
 
 
@@ -480,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119355.jpg" />
 </div>
 
 
@@ -506,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119343.jpg" />
 </div>
 
 
@@ -532,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119248.jpg" />
 </div>
 
 
@@ -559,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119203.jpg" />
 </div>
 
 
@@ -585,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119202.jpg" />
 </div>
 
 
@@ -612,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119196.jpg" />
 </div>
 
 
@@ -639,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119170.jpg" />
 </div>
 
 
@@ -666,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119168.jpg" />
 </div>
 
 
@@ -678,6 +545,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E2B5DCFD752D1FFC14E536F56F7A8B5B9C9B3B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697076   (119160) от 05.02.2024
+
+Д.А. Жолобов | Введение в математическое программирование (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены методы решения задач линейного и дискретного программирования. Теория линейного программирования содержит обоснование симплекс-метода, теорию двойственности. Рассмотрены методы увеличения вычислительной эффективности решения задач большой размерности. Раздел, посвященный дискретному программированию, включает в себя транспортную задачу, методы решения (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МИФИФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39454A27CD1B4D63DD7F42F16E1F020CDB57EDB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697204   (119153) от 05.02.2024
+
+А.Х. Шеуджен, Л.М. Онищенко, Х.Д. Хурум | Люцерна (2007) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119153.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии изложены народно-хозяйственное значение и история возделывания люцерны, ее ботаническая классификация и биологические особенности. Рассмотрены вопросы агротехники люцерны: место в севообороте, обработка почвы, посевные качества семян, сроки и способы посева, приемы ухода за посевами. Особое внимание обращено на системы удобрения и защиты посевов от вредителей (   Читать дальше...   )Жанр: Учебное пособиеИздательство: ОАО "Полиграфиздат "Адыгея"Формат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C349E4F9C75E0602B6AEF259568E19292E5A4D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697091   (119133) от 05.02.2024
+
+Н. Г. Бутейкис | Организация производства предприятий общест­венного питания (1990) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены вопросы организации производства предприятий общест­венного питания, прогрессивные формы обслуживания потребителей.
+Особое внимание уделено организации работы столовых на промышленных предприятиях. В 3-м издании (2-е - 1985 г.) рассмотрены новые виды оборудования, используемого на предприятиях общественного питания.
+Для  учащихся  ПТУ и лиц, обучаемых на производстве.Жанр: Учебная литератураИздательство: Высшая школаФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAADC48066B8AE82477503FFF2367B7F67B66D54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697085   (119126) от 05.02.2024
+
+С.В. Гаркуша, Н.П. Иващенко и др. | Система земледелия Краснодарского края (Методические  рекомендации) (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о системах земледелия Краснодарского края станет настольной книгой каждого земледельца  Кубани,  поможет повысить эффективность  агрономического  бизнеса,  за  счет универсализации  агрономических,  технологических  приемов  в земледелии,  отличающихся  оптимальными  энергозатратами и высокой  производительностью.Жанр: МетодичкаИздательство: КраснодарФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D765E0748E6F726481F1A31CE78CE02E46FBDF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697219   (119115) от 05.02.2024
+
+М. Маслинков | Технология производства люцерны (1985) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119115.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге болгарских авторов обобщается опыт выращивания основной белковой кормовой культуры в НРБ и других странах. Особое внимание обращено на системы удобрения, орошения и борьбу с болезнями, вредителями и сорняками. Описаны способы уборки люцерны на зеленый корм, сено, сенаж и силос, приготовление белково-витаминных концентратов из люцерны.
+Для агрономов и руководителей (   Читать дальше...   )Жанр: Учебная литератураИздательство: АгропромиздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5F5CC1A303B642AFF3EA5050ACB603784E76D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

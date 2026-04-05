@@ -1,3 +1,30 @@
+###  Публикация: 982295   (946561) от 04.02.2016
+
+Г.Г. Мисаренко, Н.Г. Войченко | Учимся читать. Читаем слова и предложения (2005) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга предназначена для формирования у детей прочных технических навыков чтения. Дети учатся читать слова, словосочетания и короткие предложения. При этом слова расположены строго в порядке усложнения их слоговой структуры. Задания позволяют развивать аналитическое и логическое мышление детей, интеллектуальную активность и самостоятельность.
+Книга может быть (   Читать дальше...   )Жанр: Учебное пособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802F0AF4E861356B690102A11C8B2BFB30EF8C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362877   (946397) от 25.02.2020
 
 Гарет Мур | Шерлок Холмс. Головоломки великого сыщика: коллекция головоломок, загадок, ребусов (2018) [PDF]
@@ -6,7 +33,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946397.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946101.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946079.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946075.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945989.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945859.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945688.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945671.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945601.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945563.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944579.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944539.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944480.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944479.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944379.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944276.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944223.jpg" />
 </div>
 
 
@@ -452,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944170.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944078.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943948.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943947.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943940.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943935.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943932.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943409.jpg" />
 </div>
 
 
@@ -653,33 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F45CEB5EA4ACEA11152B3265868688A6F79DC6F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751972   (943158) от 01.02.2014
-
-студия PIXAR | Приключения Флика (1999) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новеллизация по мотивам мультфильма «Bug’s Life», студия PIXAR.
- Вы помните фильм «Великолепная семерка»? И должно же было так случиться, чтобы похожая история произошла и с муравьями…Жанр: СкзкаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8733EABBE855913E98091B3909B20C5DA7A3C4C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

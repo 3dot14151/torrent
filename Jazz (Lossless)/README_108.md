@@ -6,7 +6,7 @@ Camille - I Sing Stevie: The Stevie Wonder Songbook (2014) [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688757.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Max Kaminsky - When The Saints Go Marching In Jazz On The Campus, Ltd (1953, 195
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688642.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Horace Tapscott with The Pan Afrikan Peoples Arkestra - Why Don't You Listen?: L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688637.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sir Roland Hanna - Apres un Reve (2003) Venus Records [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688606.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Cinematic Orchestra - To Believe (2019) [FLAC|Lossless|WEB-DL|tracks] <Acid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688280.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Joe Newman - Four Classic Albums (1955 - 1958) 2CD, 2012, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687670.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sheila Jordan - Little Song (1977) 2002, HighNote [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687668.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Duke Ellington - Live from the 1956 Stratford Festival (1989) Music and Arts Pro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687596.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dorothy Donegan - One Night with the Virtuoso (1957 - 1960) 2CD, 2012, Jasmine R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687594.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jan Garbarek, Arild Andersen, Edward Vesala - Triptykon (1973) Remaster, 1992, E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687565.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kenny Dorham & Barry Harris Quartet - New York 1964 (2006) Rare Live Recordings 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687486.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Joanne Brackeen & Ryo Kawasaki - Trinkets And Things (1978) Remaster, 2015, Soli
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686913.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Stacy Sullivan - Stranger In A Dream (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686911.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Buddy Rich - Swingin' New Big Band (1966) 1995, Pacific Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686840.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Corduroy - Return Of The Fabric Four (2018) [FLAC|Lossless|tracks + .cue] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686748.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Siril Malmedal Hauge - Uncharted Territory (2019) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686642.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Maynard Ferguson - Verve Jazz Masters 52 (1994) Verve Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686597.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Smooth Jazz - Sweet Love (2006) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_685998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_685998.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Duke Ellington - Rockin' in Rhythm (1958, 1959) 1989, LaserLight Digital [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685333.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Duke Ellington - 2 Great Concerts 1952/1965 (1987) Accord [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685332.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Duke Ellington - Orchestral Works (1970) 1989, MCA Classics [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685331.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Fats Navarro - Fat Girl (1946) 1989, Vogue [FLAC|Lossless|image + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685310.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Art Pepper - Tokyo Encore (1979) 1991, Disques Dreyfus [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685307.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Duke Ellington - Play 22 Original Big Band Hits (1946 - 1947) 1987, Hindsight Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685231.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Duke Ellington - Ellington '56 (1986) Charly [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685230.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Duke Ellington - Never-Before-Released Recordings (1965 - 1972) 1991, Limelight 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685228.jpg" />
 </div>
 
 

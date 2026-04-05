@@ -1,32 +1,3 @@
-###  Публикация: 1208378   (779760) от 23.02.2018
-
-Within Temptation - Hydra (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Us Burn
-02. Dangerous (feat. Howard Jones)
-03. And We Run (Feat. Xzibit)
-04. Paradise (What About Us?) (feat. Tarja)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8404BFE1F2EAC5D41638FAB2B010C58864E49E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208159   (779755) от 23.02.2018
 
 Lindsey Stirling - Shatter Me (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Dubstep, Modern Classical>
@@ -35,7 +6,7 @@ Lindsey Stirling - Shatter Me (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Du
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779755.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Imagine Dragons - Night Visions (2012) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779729.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Pink Floyd - The Dark Side Of The Moon (1973) Repress, 1974, Harvest [FLAC 2.0|1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778426.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778047.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Dead Can Dance - In Concert (2013) [FLAC 2.0 16/44.1|Tracks (Web-DL)]<Rock / Dar
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775423.jpg" />
 </div>
 
 
@@ -186,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774876.jpg" />
 </div>
 
 
@@ -215,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774042.jpg" />
 </div>
 
 
@@ -244,7 +215,7 @@ The Beatles - Let It Be (1970) [FLAC 2.0|192/24|tracks|Vinyl-Rip]<Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773924.jpg" />
 </div>
 
 
@@ -273,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772790.jpg" />
 </div>
 
 
@@ -301,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772491.jpg" />
 </div>
 
 
@@ -327,7 +298,7 @@ Vaya Con Dios - Night Owls (1990) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop, Pop-J
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771959.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Abba - 7 Альбомов (1975-1981) /Polar-Disco mate, Japan/ [FLAC 2.0 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770500.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Nirvana - Nevermind (1991) (Upmix) [DTS] <Grunge>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769010.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Rod Stewart - Tonight I'm Yours (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768678.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Kraftwerk - Minimum-Maximum (2005) 2CD, Upmix [DTS 5.1|44.1/24|tracks|CD-Audio] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768242.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Slade - Легенды Зарубежного Рока (2000) [FLAC 2.0|48/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767490.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Mr. Big - Lean Into It (1991) remastered 2021, Evoxs, 30th Anniversary Edition [
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766019.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - The Absolute Sound (2018) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764174.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Gary Moore - White Knuckles (1985) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763680.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Boney M. - Hooray! Hooray! It's A Holi-Holiday (1979) [FLAC 2.0|192/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763679.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763133.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Deodato (Деодато) - Best Of Deodato (Лучшие произведени�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763023.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Fonograf - FG-4 (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Roc>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762289.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Rush - 2112 (2012) 1976 [FLAC 5.1|96/24|tracks|Lossless|DVD-Audio] <Hard Rock, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760422.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ The Mavericks - The Mavericks (2003) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-Au
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760227.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ The Mavericks ("Индивидуалисты") - американская нео
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5C69CEABF82C3580A5261EC1FDE127F30EAE7D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522078   (759783) от 06.01.2022
+
+VA - The Absolute Sound (2017) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Por Una Cabeza (03:27) - Semmy Stahlhammer
+02. Mozart: Le Nozze Di Figaro - Voi Che Sapete (02:57) - Elisabeth Schwarzkopf
+03. Feet Of A Dancer (04:22) - Charlie McGettigan
+04. Amico Mio (04:27) - Sara Indrio(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41DC17063CE65A38AA207995FF4729EAD837E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

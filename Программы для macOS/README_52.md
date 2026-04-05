@@ -1,3 +1,56 @@
+###  Публикация: 1016766   (769438) от 15.05.2016
+
+Wondershare Dr.Fone for iOS 7.0.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dr.Fone для iOS - восстанавливаем утерянные данные
+Случайно удалили что-то важное на вашем iPhone? Потеряли или сломали ваше устройство IOS? Нет необходимости паниковать! Dr.Fone (полностью совместим с прошивкой 7.1.0), ваш эксперт восстановления данных с мобильных устройств, чтобы помочь вам восстановить ценные данные, которые, как вы думали, вы потеряли навсегда. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 апреля 2016Разработчик: WondershareПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A313A6B42A8EF32DF5D4F3B5D61EF62E2101B0E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392449   (769399) от 25.06.2020
+
+NoteApp 1.0.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769399.jpg" />
+</div>
+
+
+###  Подробнее
+
+NoteApp - это текстовый редактор для тех пользователей, которым нужно что-то действительно простое, но красивое. Приложение работает с текстовыми файлами *TXT, не поддерживает форматирование текста. Может использоваться как в  светлом так и  и темном режиме. NoteApp не поддерживает «markdown».Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: ApptoriumПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFF2E6AE42A099820D70E6287DDD4055DE1A8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392436   (769370) от 25.06.2020
 
 UninstallPKG 1.1.7 (build 1343) [Multi]
@@ -6,7 +59,7 @@ UninstallPKG 1.1.7 (build 1343) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769370.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Cisdem ContactsMate 5 v5.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769263.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Exposure Software Plug-ins Bundle 2020 update 25.06.2020 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769037.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Record Lectures 3.1.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768991.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ Dr. Cleaner Pro 1.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768681.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ Amarra 4.0.237 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768635.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ Apple iMovie 10.1.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768594.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ Calligraphic Fonts 2.00 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768365.jpg" />
 </div>
 
 
@@ -224,7 +277,7 @@ XMind Pro 8 (3.7.6) (Update 6) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768240.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ PixelStyle Photo 3.6.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768004.jpg" />
 </div>
 
 
@@ -278,7 +331,7 @@ iCalamus 2.15 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768000.jpg" />
 </div>
 
 
@@ -306,7 +359,7 @@ Trim Enabler Pro 3.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767893.jpg" />
 </div>
 
 
@@ -332,7 +385,7 @@ Postico 1.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767856.jpg" />
 </div>
 
 
@@ -361,7 +414,7 @@ WindowMizer 5 v5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767842.jpg" />
 </div>
 
 
@@ -390,7 +443,7 @@ Adobe InDesign CC 2018.1 v13.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767153.jpg" />
 </div>
 
 
@@ -416,7 +469,7 @@ Desk 3 v3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767129.jpg" />
 </div>
 
 
@@ -444,7 +497,7 @@ Touch Forms Pro 7 v7.40.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766947.jpg" />
 </div>
 
 
@@ -472,7 +525,7 @@ Symantec Endpoint Protection v14.0.2349.0100 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766881.jpg" />
 </div>
 
 
@@ -498,7 +551,7 @@ Arturia SYNCLAVIER V v2.0.2 macOSX-DDP [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766867.jpg" />
 </div>
 
 
@@ -524,7 +577,7 @@ uMark Photo Watermarker 6.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766866.jpg" />
 </div>
 
 
@@ -550,7 +603,7 @@ Arturia MATRIX-12 V v2.3.2 macOS-DDP [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766800.jpg" />
 </div>
 
 
@@ -577,7 +630,7 @@ Super PhotoCut Pro 2.6.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766280.jpg" />
 </div>
 
 
@@ -603,7 +656,7 @@ MindNode 2.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766070.jpg" />
 </div>
 
 
@@ -632,7 +685,7 @@ Yummy FTP Pro 2.0.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765714.jpg" />
 </div>
 
 
@@ -643,59 +696,6 @@ Yummy FTP один из самых быстрых и стабильных FTP/SF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B05E98E49665F6575457C3A090D39EC94A4E22FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394050   (765443) от 03.07.2020
-
-Orion Label And Print Studio 2.60 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orion Label And Print Studio - это простое в использовании приложение в сфере дизайна. Быстрое создание и печать персонализированных этикеток, визитных карточек, поздравительных открыток, листовок, PDF-книг и многого другого. Все действия по созданию проекта сводятся к простому «перетаскиванию» выбранных эскизов на открытое окно ПО.Тип издания: macOS SoftwareРелиз состоялся: 01.07.2020Разработчик: Aidaluu Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F86C7F23C08423ED4195D09165FDBD14E424DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279480   (765399) от 30.01.2019
-
-Aeon Timeline 2 v2.3.16 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aeon Timeline: программный инструмент для создания временных событий.
-Есть множество профессий, в работе которых требуется точное соблюдение временных интервалов. Писатель, журналист, ученый объединены исследованием истории или временных последовательностей, которые необходимо заранее выстроить в один ряд, в несколько слоев, связать с людьми и их возрастом, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2019Разработчик: Aeon TimelineПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB245866D54E5B7A2EDC93F3190D4AC75AEE2A39
 ```
 
 https://mybot314.ru/tekegram_catalog/

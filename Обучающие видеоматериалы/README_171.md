@@ -1,3 +1,32 @@
+###  Публикация: 1074254   (319936) от 22.11.2016
+
+Бизнес Молодость | Интенсив (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный двухдневный тренинг Бизнес Молодости
+
+В «Интенсиве» участвуют разные люди
+Школьники, студенты, взрослые и пенсионеры;(   Читать дальше...   )Жанр: Тергетинг, ВидеокурсПродолжительность: 11:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53EF9DA40639E40E0454DB52B3BE6D816C883F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074514   (319933) от 22.11.2016
 
 Специалист Менеджер по логистике (управление закупками) Logistic manager (supply logistics) (2015) PCRec [H.264]
@@ -6,7 +35,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319933.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319858.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Jan Urschel | Движки рендеринга - Небольшой обзор 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319618.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ Jan Urschel | Улицы мегаполиса - Китбаш, дизайн и п
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319442.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319441.jpg" />
 </div>
 
 
@@ -137,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319318.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319203.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ Blender Cloud | Написание скриптов для художников 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318255.jpg" />
 </div>
 
 
@@ -222,7 +251,7 @@ Blender Cloud | Фабрика существ 2 - Создание персон�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318241.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ Ultimate Courses, Todd Motto | Angular Basics (v14) (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318175.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318072.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ Render.ru | Интерактивная Архитектура (2014) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317889.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317288.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Udemy, Mrawan Hussain | Создание Молота Тора в Blender 2.90 �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317287.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317187.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317184.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317177.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317039.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317014.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Udemy, Denis Astahov | Kubernetes с Нуля для DevOps Инженеров (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317010.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317005.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ Master-CSS | One Page Scroll сайт (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316419.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ Lynda.com | Работа с Nikon D3200 и D3300 (2016) HDRip [H.264/720p-LQ]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316379.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316220.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ Hamaha | Тренинг "Готовимся к кризису" (2018) WEBRip [H.
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316143.jpg" />
 </div>
 
 
@@ -677,33 +706,6 @@ Hamaha | Тренинг "Готовимся к кризису" (2018) WEBRip [H.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A229A5E6A2B491736EEE74D8009DA5AC5A61F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332226   (315841) от 19.10.2019
-
-Blender Cloud | Создание видеоэффектов в Blender: Трекинг и Матчмувинг / Blender VFX Workflow: Track Match Blend 1 & 2 (2014) PCRec [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс о том, как создавать визуальные эффекты с помощью Blender.
-Одной из сильных сторон Blender является тесная интеграция моделирования, рендеринга и композитинга. Импорт видеоматериалов, трекинг и солвинг движения камеры и объекта, рендеринг и композитинг теперь могут быть выполнены в одном плавном рабочем процессе, всё внутри Blender.Производство: Blender Cloud (часть 1, часть 2)Жанр: VFXПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 14:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D13383AAC385978B4CF84458B746E103522B13
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1811346   (8798) от 09.08.2025
+
+VA - Compilation Part 182 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Azimov - Calmness
+02 - Jumanov - To the Hill
+03 - Adik - Rakhsade
+04 - Jumanov - Start-Stop(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55316FC8F2D0DB91132D190A8983EEDF1B24D519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811042   (8782) от 09.08.2025
+
+VA - Compilation Part 181 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hamidshax - Tell Me You Love Me
+02 - Umideep - Maria Margarita
+03 - Jambeats - Forever in Your Arms
+04 - Kasimoff - You Left(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFEF351E0F2467181F61A26EBABF4B9E0438C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811799   (8271) от 12.08.2025
 
 VA - Compilation Part 183 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
@@ -6,7 +64,7 @@ VA - Compilation Part 183 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8271.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Deep Vocal Relax 2 (2025) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7766.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Record Super Chart 16.08.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7303.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Compilation Part 184 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7252.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Compilation Part 185 Electronic (2025) [MP3|320 Kbps] <Electronic, Deep Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7112.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Compilation Part 186 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6136.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Compilation Part 187 Electronic (2025) [MP3|320 Kbps] <Electronic, Deep Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6125.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Kames - Compilation (2025) [MP3|320 Kbps] <Electronic, Easy listening>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6107.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Compilation Part 188 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4973.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - 60 minutes. Old School Dance Music vol.25 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4962.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Sardø - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4956.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Compilation Part 189 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4817.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Xezzo - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4812.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ JONI - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4803.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Trance In Motion Vol.390 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4792.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Sardø - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4678.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Brisa (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Afro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4638.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Miss Monique & her friends (2025) [MP3|320 Kbps] <Progressive House, Melodi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4312.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Vocal Techno & Progressive 2025 [MP3|320 Kbps] <Vocal Techno & Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3896.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Xezzo - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3475.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Xezzo - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3347.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Night Rider 9 (2025) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3199.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Xezzo - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3149.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Club Beats (2025) [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2992.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Club Beats (2025) [MP3|320 Kbps] <Club, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B42F3C3298D958ED1ECAE26BEBFD5C40319A8E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818186   (2785) от 14.09.2025
-
-VA - Record Super Chart 13.09.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rudimental & Khalid - All I Know (Ely Oaks Remix) (2:29)
-02. Inna, R3HAB - I'll Be Waiting (2:03)
-03. Alfa & Manu Chao - A Me Mi Piace (2:20)
-04. Marshall Jefferson feat. Maesic & Salome Das - Life Is Simple (Move Your Body) (2:52)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27764711006F77F09A1E1590EE9EF5F8803989AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818164   (2625) от 15.09.2025
-
-VA - Compilation Part 193 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Umar Keyn - Is This What
-02 - Imazee - Come Back Again
-03 - Davvi - Ne Pars Jamais
-04 - Rodle - My Happines(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C1DBC6733E5C38B64330603CC97255F40307E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

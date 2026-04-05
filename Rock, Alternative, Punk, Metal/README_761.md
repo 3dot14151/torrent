@@ -1,3 +1,32 @@
+###  Публикация: 1423356   (300756) от 13.11.2020
+
+Versital - A New Millennium (1999) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Light Disappears
+02. You Can't Kill Me
+03. A New Millennium
+04. Come Back To Me(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F5CBCEB16C548C45E9DA48BD591836A6DA51F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078480   (300697) от 01.12.2016
 
 Violet District - Terminal Breath (1992) + Bonus 2CD, Remastered, 2000,Tempus Fugit  [FLAC|Lossless|image + .cue]<Progressive Rock>
@@ -6,7 +35,7 @@ Violet District - Terminal Breath (1992) + Bonus 2CD, Remastered, 2000,Tempus Fu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300697.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300640.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Smoke And Shadows - Blood And Fire (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300467.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Jakko M Jakszyk - Secrets & Lies (2020) [FLAC|Lossless|image + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300462.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Halestorm - 1 Album + 3 EP + 1 Single (2001-2014) [MP3|320 Kbps] <Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300308.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ System Of A Down - Fucking Rare (2010) [MP3|192 кб/с]<Nu-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300202.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ Jorge Salan - Tempus (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299943.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ VA - 80s Hard Rock Anthems (2016) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Soft R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299702.jpg" />
 </div>
 
 
@@ -250,7 +279,7 @@ Freddie Mercury - Mr. Bad Guy (Alternative Extended Version) (2014) 2CD [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299594.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Mgzavrebi - Iasamani (2016) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299581.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ Black Reaper - Blood Moon Rising (2017) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299436.jpg" />
 </div>
 
 
@@ -337,7 +366,7 @@ Silent Line - Shattered Shores (2015) [MP3|320 кб/с]<MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299156.jpg" />
 </div>
 
 
@@ -366,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299140.jpg" />
 </div>
 
 
@@ -395,7 +424,7 @@ Peshmerga - Murderous Acts of Cruelty (2010) [FLAC|Lossless|image + .cue] <Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299134.jpg" />
 </div>
 
 
@@ -424,7 +453,7 @@ Dragon - Horde of Gog + Horda Goga (1989+1990) Remastered, 2008 [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299133.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ Revenge - From Hell (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299130.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ For All We Know - For All We Know (2011) [FLAC|Lossless|image + .cue] <Melodic P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299129.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ Hartmann - Home (2007) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299127.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ For All We Know - Take Me Home (2017) [FLAC|Lossless|image + .cue] <Melodic Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299124.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ Searing Meadow - Corroding From Inside (2005) [WavPack|Lossless|image + .cue] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299123.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Stravaganzza - Su Historia (2009) 4CD [FLAC|Lossless|image + .cue] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299122.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Dysrhythmia - Test of Submission (2012) [FLAC|Lossless|image + .cue] <Instrument
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299121.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Moray Eel - Psycho:Delusion (2005) [WavPack|Lossless|image + .cue] <Death Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299120.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Night Verses - Into The Vanishing Light (2016) [FLAC|Lossless|image + .cue] <Exp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299117.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ Peer Gunt - Years On The Road (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299116.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ Peer Gunt - Years On The Road (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8656CBB141E304540F6D247EAFF4399E3388D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961515   (299082) от 02.12.2015
-
-Bangalore Choir - Metaphor (2012) [FLAC|image+.cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Damage Done 3:49
-02. Trojan Horse 3:35
-03. Silhouettes on the Shade 3:32
-04. Metaphor 3:33(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D72F2F7CAD57EC2A36C8F79473AF74232EEB24
 ```
 
 https://mybot314.ru/tekegram_catalog/

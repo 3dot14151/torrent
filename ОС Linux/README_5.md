@@ -6,7 +6,7 @@ Wifislax 4.12 [Аудит безопасности, хакинг] [x86, х64] 4.
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811301.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kubuntu 16.04 LTS Xenial Xerus [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809354.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Mageia 3 [i586, x86-64] (3xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807690.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mageia 3 DVD [x86-64] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807681.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ KaOS Linux 2016.04 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807462.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mageia 3 LiveDVD (KDE + GNOME) [i586, x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807399.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Mageia 3 DVD [i586] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807397.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Lubuntu 16.04 LTS Xenial Xerus  (Легкий дистрибутив) [i386, amd
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807183.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Xubuntu 16.04 LTS Xenial Xerus (Легкий дистрибутив) [i386, amd6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807182.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Astra Linux Special Edition 1.5 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805747.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ JonDo 0.9.76 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805323.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Red OS 7.3 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801312.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Fedora 25 [x86-64] 11xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800023.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Sabayon 16.04 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795445.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Antergos 18.12 [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794862.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Sabayon 16.05 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794486.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ BlackArch Linux 2020.06.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793168.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Kali Linux 2021.3 (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790143.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ BackBox Linux 7 [Аудит безопасности, хакинг] 1xDVD [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790000.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Parrot Security OS 3.11 [Хакинг, аудит, безопасность] [i3
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783987.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ CentOS 8.2 (2004) [amd64] 2xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782211.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ BlackArch Linux 2017.12.11 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779195.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ ChaletOS 16.04 [x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778147.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Siduction 13.1.0 (включая легкие DE) [i386 + amd64] (4xDVD + 6xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774653.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ BackBox Linux 3.05 [Анализ безопасности, хакинг] [i386, 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774610.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ JonDo 0.9.76.2 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769957.jpg" />
 </div>
 
 

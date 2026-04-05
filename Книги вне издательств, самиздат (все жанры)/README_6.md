@@ -1,3 +1,81 @@
+###  Публикация: 1604883   (1045142) от 15.01.2023
+
+Сергей Мусаниф | Сам себе клан (2021) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская империя, древние дворянские роды, владеющие силой, что сродни с магией, балы, шампанское и хруст французской булки… Их двое. Один — молод, а другой почти старик. Один родился в этом мире, другой прибыл в него очень издалека. Одного ведет месть, а другого — отцовский долг. Возможно, этим двоим суждено изменить весь мир. А возможно, и нет. Один из них — (   Читать дальше...   )Жанр: Жанр: Боевое фэнтези, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C679F9E0FC20489737DE95AA228BF41907A0AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604867   (1045140) от 15.01.2023
+
+Сергей Мусаниф | Сам себе князь (2022) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он был обычным японским школьником… австралийским студентом. Сдал экзамены, готовился получить диплом, сделать предложение любимой девушке и начать долгие и мучительные поиски работы, но в какой-то момент что-то пошло не так. И снова — могущественные империи и древние дворянские роды, владеющие силой, что сродни с магией, только сейчас уже не до балов и вальсов. (   Читать дальше...   )Жанр: Жанр: Боевое фэнтези, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F1C31417B9ACA6675B8BF4E80C193137508B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605664   (1044741) от 19.01.2023
+
+Кристина Майер | Сто оттенков неба (2022) [EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двадцать писем, отправленных в никуда: неизвестные города, адреса. И только на одно Александра получила ответ. Вы думаете, оно было написано, чтобы морально поддержать? О, нет! Красавец бизнесмен решил объяснить «старой деве», что таким способом личную жизнь не устроить. И с чего он взял, что девушке за тридцать?Жанр: Современные любовные романыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB349C3CC456BCA8E2756C882BB859A942BD96F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604050   (1044669) от 19.01.2023
 
 Саша Токсик | Убей или умри! [6 книг] (2022) [FB2, RTF]
@@ -6,7 +84,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044669.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043161.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042538.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042528.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042461.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042031.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041661.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041658.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041610.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041583.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ Vladkom | Пока ты спишь - враг качается (2020) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041414.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040993.jpg" />
 </div>
 
 
@@ -332,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040906.jpg" />
 </div>
 
 
@@ -361,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040900.jpg" />
 </div>
 
 
@@ -389,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040857.jpg" />
 </div>
 
 
@@ -416,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040473.jpg" />
 </div>
 
 
@@ -443,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040461.jpg" />
 </div>
 
 
@@ -469,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040451.jpg" />
 </div>
 
 
@@ -497,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040324.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040293.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040256.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040246.jpg" />
 </div>
 
 
@@ -607,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040109.jpg" />
 </div>
 
 
@@ -620,87 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5696E4994D3E8393565D78156386D92FF76B660B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439094   (1040077) от 12.01.2021
-
-Джи. Майкл Хопф | Конец (2020) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужчина борется за защиту своей семьи в этом постапокалиптическом романе о выживании - первом в серии «Новый мир».
-Молодой Гордон Ван Зандт ценил больше всего долг и верность стране, поэтому после 11 сентября он бросил колледж и присоединился к морской пехоте. Этот идеализм исчез в один роковой день в раздираемом войной городе Ирака. Десять лет спустя он все еще (   Читать дальше...   )Жанр: Фантастика, Фэнтези, ПостапокалипсисФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B212271557DA8BAF37B36491D5DA144B6E14FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439099   (1040046) от 12.01.2021
-
-Дж. Р. Уорд | Шакал (2020) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расположение печально известной исправительной колонии Глимеры было потеряно после набегов. Когда странная авария подсказала Никс, где может находиться ее сестра, она решает во что бы то ни стало найти этот скрытый подземный лабиринт. Пускаясь в путешествие под землей, она узнает ужасную правду… и встречает мужчину, который навсегда изменит ее жизнь.
-Шакал давно (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E978EAC7C9B85811001D8333635C71C892E756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439563   (1039930) от 13.01.2021
-
-Михаил Липскеров | Вниз по матушке по Харони (2020) [EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о плавании корвета «Вещий Олег» по реке Харони, текущей от Селезнёвских прудов до города Дальневостокска. Этот корвет зафрахтовал некий мужичок Калика Переплывный для поисков соли земли русской.
-Читатель узнает о жизни и истории многих городов, сёл и деревень, до этого ему неизвестных. Среднего Новгорода, Прикаменска, Новопупинска, Утопическа, русско-китайского (   Читать дальше...   )Жанр: Современная русская литератураФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDD8BA87D70B399CA89E89EA902DF5EDB38CA7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

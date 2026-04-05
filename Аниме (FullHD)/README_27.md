@@ -6,7 +6,7 @@ Zoku Owarimonogatari | Финальные истории: Продолжение
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623866.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Mob Psycho 100 II / Моб Психо 100 II [2019, TV, 13] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622182.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gabriel DropOut / Gabriel Dropout / Габриэль бросает школу [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621422.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Idolmaster: Cinderella Girls | Идолмастер: Золушки [2015, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621413.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620658.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ultraman Season 2 | Ультрамен: новый герой [ТВ-2] [2022, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620205.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Shinmai Maou no Testament Departures | Завет Дьявольских Сес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618881.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Chiisana Eiyuu: Kani to Tamago to Toumei Ningen | Modest Heroes | Скромны
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616915.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ FLCL 3 | FLCL Alternative | Фури-кури: Альтернатива [2018, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616905.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из завтра�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616750.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Just Because! | Просто так! [2017, TV, 12 эп.] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615412.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Triage X | Отбор Икс [2015, TV, 10 + OVA] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613237.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ryuu to Sobakasu no Hime | Belle | Красавица и дракон [2021, Mov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612786.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Gekijouban Shingeki no Kyojin | Вторжение гигантов (фильм)
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612534.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Subete ga F ni Naru: The Perfect Insider | Everything Becomes F: The Perfect Ins
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609395.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Kemono no Souja Erin / The Beast Player Erin / Заклинательница з
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607426.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Supernatural | Supernatural The Anime Series | Supernatural the Animation | Св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606727.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Knight's & Magic / Рыцари и магия [2017, TV, 13 эп.] BDRip 1080p R
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606669.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Hajimete no Gal / My First Girlfriend Is a Gal / Моя первая гяру [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606452.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Gokushufudou | The Way of the Househusband | Путь домохозяина [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604328.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Enen no Shouboutai | Fire Force | Пламенный отряд [2019, TV, 24 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604298.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Enen no Shouboutai Ni no Shou | Fire Force (2020) | Пламенный отря�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604284.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Slayers | Рубаки [1995, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604210.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью: Су�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602440.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Manaria Friends | Mysteria Friends | Друзья из Манарии [2019, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601731.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601693.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - 100 Greatest 00s The Best Songs from the Decade (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143349.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Helene Fischer - Best Of  (Shop24direct 2019 Edition) 4CD (2019) [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143330.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - 100 Greatest 10s: The Best Songs of Last Decade (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143110.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Happy Pop Hits (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Indie>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143015.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Donna Summer - Crayons (2016) Reissue Deluxe Edition [MP3|320 Kbps] <Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142737.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ NaviBand - NaviBand (2019) [MP3|320 Kbps] <Indie Pop, Indie Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141838.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - 100 Greatest Indie: The Best Guitar Pop Rock (2019) [MP3|320 Kbps] <Indie, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141438.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Bamboo Industry - Tortured By Pleasure (1989) [MP3|320 Kbps] <Alternative Pop, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141119.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Avalanche - Westbound (1992) [MP3|320 Kbps] <Pop, Electronic Pop Rock, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140745.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ MONATIK - Мріяти не шкідливо (2019) EP [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140023.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Robbie Williams - Different (Maxi-Single) (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139931.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Hit News Vol. 4 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139924.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Exile - 3 Albums (1973-1979) LP [MP3|320 Kbps] <Pop Rock, Soft Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139906.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - 100 Greatest Chillout (2019) [MP3|320 Kbps] <Pop, Relax, Easy Listening>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139816.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Hit News Vol. 5 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138132.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - 55 Hits 2020 [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137944.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Army Of Lovers - Sexodus (2023) [MP3|320 Kbps] <Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137627.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Hit News Vol. 7 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135200.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Hit News Vol. 8 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133875.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Kelly Clarkson - Greatest Hits Chapter One (Deluxe Edition) (2012) [MP3|320 кб
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132044.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Frank Farian - Star-Discothek (1978) LP [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131833.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Kylie Minogue - Extension (2023) The Extended Mixes [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129911.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ James Morrison - The Awakening (2011) [MP3|320 кб/с]<Soul, Adult Contemporary
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129762.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ VA - M6 Hits 2024 (2023) [MP3|320 Kbps] <Pop, Rock, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127640.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ VA - The Best Of Hit News (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126897.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ TV Girl - French Exit (2014) Digital Album [MP3|320 Kbps] <Hypnotic Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126877.jpg" />
 </div>
 
 

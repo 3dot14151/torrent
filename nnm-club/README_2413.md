@@ -1,109 +1,31 @@
-###  Публикация: 599714   (999135) от 07.01.2013
+###  Публикация: 598288   (1000038) от 04.01.2013
 
-Испанский узник / The Spanish Prisoner (1997) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гениального изобретателя ложно обвиняют в промышленном шпионаже, краже и убийстве. Скрываться от полиции ему помогают новые товарищи — миллиардер и его прекрасная секретарша.Жанр: Триллер, Драма, ДетективРежиссер: Дэвид МэметАктеры: Кэмпбелл Скотт, Стив Мартин, Ребекка Пиджон, Бен Газзара, Рикки Джей, Фелисити Хаффмен, Ричард Л. Фридман, Джерри Графф...Перевод: Многоголосый закадровый (профессиональный)Продолжительность: 01:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E0E5ABAA9EE116E980D916172F858431B31B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599503   (999134) от 07.01.2013
-
-Узник Зенды / The Prisoner of Zenda (1979) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трон погибшего короля Руритании должен занять принц Рудольф, живущий в Лондоне. Чтобы обезопасить наследника престола по дороге на родину, для принца находят двойника — извозчика Сида.Жанр: Комедия, ПриключенияРежиссер: Ричард КвинАктеры: Питер Селлерс, Линн Фредерик, Лайонел Джеффрис, Эльке Зоммер, Грегори Сьерра, Джереми Кемп, Кэтрин Шелл, Саймон Уильямс, Стюарт УилсонПеревод: Двуголосый закадровыйПродолжительность: 1:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BFF2866FBB955526C395AB4AB8E68B58621A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599887   (999133) от 07.01.2013
-
-PGWare PCBoost 4.1.7.2013 [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999133.jpg" />
-</div>
-
-
-###  Подробнее
-
-PGWare PcBoost — это продвинутое программное средство, которое быстро в автоматическом режиме освободит ресурс вашей системы под запуск конкретной программы. Эта утилита предоставит вам возможность запускать приложения, такие как: компьютерные игры, программы для видео-фото редактирования на много быстрее, чем это было бы без поддержки данной программы. Утилита в автоматическом режиме возьмёт на себя задачу для выделения больших вычислительных мощностей для конкретных приложений, благодаря чему запущенные приложения работают быстрее.Название программы: PGWare PCBoostЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598000   (999128) от 07.01.2013
-
-VA - В ритме танца. Вальс (3CD) (2010) [MP3|320 кб/с]<Easy Listening, Waltzes>
+Markus Schulz - Global DJ Broadcast - Classics Showcase (2013) [MP3|256 кб/с]<Trance, Progressive Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1. Будь, что будетЖанр: Easy Listening, WaltzesПродолжительность: 01:04:35
-45. Edelweiss - Dauglas Gamley And His Orchestra
-46. A Place In Paris - Matt Monro & Michael Legrand And His Orchestra
-47. Valsinha - Dominique Chatelain,His Piano And Orchestra
-48. Where Is Your Heart - Mary Carewe
-49. The Canals Of Amsterdam - Ben Cramer
-50. Les Filles Du Bord De Mer - Christian Colombier And His Orchestra
-51. Paris Musette - Paul Mauriat And His Orchestra
-52. Frou-Frou - Ralph Benatar And His Orchestra
-53. L'amour Est Un Bouquest De Violettes - Lei Wang,Violin With The Fierland Fest.(   Читать дальше...   )
+01. Hybrid - Finished Symphony
+02. Synergy - Hello Strings
+03. Lustral - Everytime (Nalin & Kane Remix)
+04. Rio Addicts - Crossroads
+05. Funabashi - Daylight
+06. Jayn Hanna - Lost Without You (Edge Factor Journey)
+07. Probspot - Blueberry
+08. Andrew Bennett Featuring Kirsty Hawkshaw - Heaven Sent (Instrumental Mix)
+09. Kalafut & Fygle - 3579Km
+10. Perry O'Neil - Wave ForceЖанр: Trance, Progressive TranceПродолжительность: 02:00:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F09C6A71D76BD1C4C227B4AD9D36B4C4D8F79164
+magnet:?xt=urn:btih:817F81B77D3D110BD9C0971930197BF41011414D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,147 +33,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599686   (999124) от 07.01.2013
+###  Публикация: 598725   (1000036) от 04.01.2013
 
-Рисованная графика - Artworks by Sushi XAV
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Sushi XAV.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30846662B5ED83DE31D625B9F7BA8B9158DF49F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599711   (999121) от 07.01.2013
-
-Рисованная графика - Artworks by Kyoung Hwan Kim
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Kyoung Hwan Kim.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ED814F9AC0087AB62FC239DA2F976A9C6F7254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598967   (999120) от 07.01.2013
-
-Jesse Cook - Greatest Hits (2CD) (2010) [MP3|320 кб/с]<New Age, Flamenco, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999120.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Продолжительность: 01:19:34
-01. [03:49] Mario Takes a Walk
-02. [03:01] Tempest
-03. [04:10] Paloma
-04. [03:06] Bogota by Bus
-05. [03:29] Matisse the Cat
-06. [04:08] Virtue
-07. [03:48] Rattle and Burn
-08. [03:58] Gravity(   Читать дальше...   )Жанр: New Age, Flamenco, InstrumentalПродолжительность: 02:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBBC911DF331113F9E476EF046940E229CB052B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598659   (999119) от 07.01.2013
-
-Fausto Papetti - Movie Land (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Theme from 'The Godfather'
-02. Sleep Walk
-03. Cabaret
-04. Love Theme from 'Blade Runner'
-05. Laura
-06. Love Story
-07. Djamballa
-08. Love me tender
-09. As Time Goes By
-10. Hello Dolly(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D02D24FC60C33879EBB5C95F8B010CC0822FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599676   (999117) от 07.01.2013
-
-Фотография - Photos from Paolo Candian
+Журнал | Stuff №2 (UK) [февраль 2013] [PDF] [En]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы фотографа Paolo Candian.
+Издание о компьютерах и бытовой электронике. В номере представлены "горячие" новинки, результаты тестов устройств под управлением Win 8, а также обзоры игр и игровых аксессуаров.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBB5174027A8F829E5C18AF78872BC7699878332
+magnet:?xt=urn:btih:7DBA19ECBC52DA5149F39501BE55DD76E639D3D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,34 +59,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598653   (999116) от 07.01.2013
+###  Публикация: 598703   (1000033) от 04.01.2013
 
-Anthony Ventura - Romantische Momente (2010) [MP3|320 кб/с]<Instrumental>
+Журнал | Computer Power User (CPU) №2 (февраль 2013) [PDF] [En]
 
->>Other Styles
->>Instrumental
+>>Журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1) La vie en rose (Schau mich bitte nicht so an) 03:03
-2) I Have A Dream 04:17
-3) Blue Bayou 02:29
-4) Tornero - Non succedera piu 04:52
-5) Save The Last Dance For Me 02:36
-6) You've Lost That Loving Feeling - Unchained Melody 04:01
-7) Bright Eyes 02:45
-8) Soleado (Tranen lugen nicht) 02:09
-9) Hey Jude 04:05
-10) Morning Has Broken 02:16(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:22
+В каждом номере журнала представлены обзоры новинок компьютерных комплектующих, программного обеспечения и игр.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC962415115965278C10CE33C7BF65E0EA645F46
+magnet:?xt=urn:btih:9FC238D7E7AD4B5DFBA146A0BC2254DE0F8EDBCC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -294,25 +85,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599467   (999115) от 07.01.2013
+###  Публикация: 597757   (1000032) от 04.01.2013
 
-streamWriter 4.3.02 + Portable [Multi/Русский]
+VA - Hot Heels High!: Luxury Lounge for Hotels and Bars (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-streamWriter - бесплатное приложение для записи интернет-радио, музыки, распространяемой радиостанциями в интернет. Одновременная запись стольких потоков, сколько вы хотите (MP3/AAC). Автоматическое определение композиций, которые пользователь внес в особый список, и их последующая выборочная запись из потока аудио. Возможность редактирования списка желаемых и игнорируемых песен.Название программы: streamWriterЯзык интерфейса: Multi/Русский
+01. Ryan KP - Everything`s Gonna Be Alright
+02. Marga Sol - Latin On the Streets of Paris
+03. Krystian Shek - Habitat
+04. Ramin - Ega Salam
+05. Eddie Silverton - Chillin in Tulum
+06. Taco-Town - (Welcome To) Taco-Town
+07. Sangar - Love Again
+08. Mazelonostra - Old New York
+09. Syusi - If I Love One Day
+10. PNFA - 111(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:55:58
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2C51BEAAAB9BB2FB7E96C84376F60860ABF0FB53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,25 +120,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599707   (999112) от 07.01.2013
+###  Публикация: 598457   (1000028) от 04.01.2013
 
-Рисованная графика - Artworks by Marta Dahlig
+Consciousness Removal Project - Tacit (2013) [MP3|320 кб/с]<Atmospheric Sludge Post-Metal>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы художника-иллюстратора Marta Dahlig.
+01. Colossus I: Legacy (02:21)
+ 02. Mercurial (07:36)
+ 03. Colossus II: Thrashing (06:55)
+ 04. Decay Practice (04:50)
+ 05. Colossus III: Deadlock (07:36)
+ 06. Colossus IV: Null && Void (04:52)
+ 07. Lost Mnemonics (03:36)
+ 08. The Unknown Known (10:13)Жанр: Atmospheric Sludge Post-MetalПродолжительность: 00:48:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:309A449E28D54D1A045C275F9E5A5BC0B8D24D1C
+magnet:?xt=urn:btih:9F9B87D650764CC3A4D717E0047FFCA3679F0354
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,34 +153,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599247   (999111) от 07.01.2013
+###  Публикация: 597649   (1000026) от 04.01.2013
 
-Мадера Хард Блюз - 3 альбома (2002-2010) [MP3|320 кб/с]<Blues, Hard rock, Rock'n'roll>
+Ржавый алюминий / Rancid Aluminium (2000) DVDRip
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(5:34) 01. Мой образ жизни рок-н-ролл
-(5:15) 02. Белый пароход
-(3:54) 03. Я охраняю свой покой
-(5:18) 04. Прощай, брат
-(3:24) 05. Спасибо, Родина
-(6:14) 06. Аэроплан
-(3:52) 07. Бред
-(5:16) 08. Тоска
-(3:52) 09. Песня покойника
-(5:51) 10. Патологоанатом(   Читать дальше...   )Жанр: Blues, Hard rock, Rock'n'rollПродолжительность: 01:14:38
+Унаследовав компанию своего отца, Пит Томпсон вскоре обнаруживает, что у него большие проблемы. По совету своего друга Шона, который вел дела фирмы, он обращается за помощью к русским.
+
+Но содействие его новых партнеров оказывается хитроумной ловушкой, попав в которую, большинство готово отдать все, потому что есть кое-что дороже денег — собственная жизнь!Жанр: Криминал, Детектив, Триллер, Комедия, ДрамаРежиссер: Эдвард ТомасАктеры: Джозеф Файнс, Рис Иванс, Тара Фитцджеральд, Сэди Фрост, Стивен Беркофф, Кит Аллен, Дэни Бер, Эндрю Ховард, Ник Моран, Олегар ФедороПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: РусскиеПродолжительность: 01:27:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A0DED7111566D22A2BD3ACFFBB9D68E6F093BAC
+magnet:?xt=urn:btih:1B29098202A3A825CFE0EE7C5F88992775813EC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -381,30 +181,366 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599706   (999110) от 07.01.2013
+###  Публикация: 598421   (1000025) от 04.01.2013
 
-Jane Monheit - 6 Албомов (2000-2009) [FLAC|Lossless]<Jazz Vocal>
+The Conjuration - The Human Condition (2012) [MP3|320 кб/с]<Avant-Garde Progressive Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ____
+ 02. Gozu
+ 03. I Saw The Devil
+ 04. Begotten
+ 05. Sylvian (For The Evolution Of Human Spirituality)
+ 06. Constellations
+ 07. Afar
+ 08. Inside
+ 09. 731: Psychologic Atrocity Divinum
+ 10. The Human Condition(   Читать дальше...   )Жанр: Avant-Garde Progressive DeathПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64ED3557A2D1C11CF5506CCE59E2C47ECD82CFAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598243   (1000024) от 04.01.2013
+
+Филипп Джиан | Вот это поцелуй! [2007] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000024.jpg" />
+</div>
+
+
+###  Подробнее
+
+За свои пятьдесят с лишним лег французу Филиппу Джиану приходилось неоднократно и подолгу жить в США: он оказался редким для современной французской литературы примером экспериментатора, упорно прививающего на европейскую почву опыт американской книжной индустрии, американского кинематографа, американского телевидения. Первый крупный успех ему принес роман «37,2° по утрам» 1985 года, экранизированный Жан-Жаком Бенексом с Беатрис Даль в главной роли, и вслед за тем переведенный более чем на двадцать языков. В конце прошлого года Джиан запустил серию романов из шести книг, в которых подражает американскому сериалу «Шесть футов под землей».
+
+«Вот это поцелуй!» – странная смесь из типичного американского нуара, детектива и психологического романа. Двое полицейских, Натан и Мэри-Джо, расследуют зверское убийство девушки, дочери злодея-магната. Это книга о взаимонепонимании и жестокости, о бессмысленности существующего порядка и попыток ему противостоять.Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCBEC8A1E8BE0985790E72AFF2DDD16A3598FAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598246   (1000021) от 04.01.2013
+
+Михаил Рогожин | Билет в никуда [1995] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коррупция в России охватывает уже не только клан высокопоставленных чиновников, но и членов их семей. Жены государственных деятелей не гнушаются дружбой с авторитетами и ворами в законе. Принимают от них деньги, подарки, участвуют в многомиллиардных финансовых аферах, не замечая, что становятся послушными исполнителями преступлений, а обратной дороги для них уже нет…Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6DC000AE076AD46EFC1BB0E558CF883A6B206F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598233   (1000018) от 04.01.2013
+
+Фрэнки наводит шорох / Frankie Go Boom (2012) BDRip [720p] [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франк Бартлетт долгое время подвергался пыткам, издевкам, и оскорблениям от своего брата-наркомана Брюса — и, как правило, все это Брюс записывал на камеру. Теперь, когда Брюс, наконец, завязал с наркотиками и изменил свою жизнь, все должно пойти к лучшему, но…Жанр: КомедияРежиссер: Джордан РобертсАктеры: Чарли Ханнэм, Крис О’Дауд, Лиззи Каплан, Крис Нот, Рон ПерлманПеревод: ОтсутствуетПродолжительность: 01:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4365A5A2AC544CD93FCB2F503C1FA0362D736B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598714   (1000015) от 04.01.2013
+
+Журнал | What Digital Camera №1 (UK) [январь 2013] [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание для фотографов.В каждом номере представлен обзор новинок фототехники, книг по технологии съемки, сайтов для размещения фото, результаты групповых тестов фотокамер.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29577A8FE20A08965EC799B4E308A36C91D168E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598443   (1000011) от 04.01.2013
+
+Валерий Ярхо | Байки русского сыска [2004] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000011.jpg" />
+</div>
+
+
+###  Подробнее
+
+На заре века газеты писали да практически о том же, что и сейчас! Но зато как! С неподражаемым шармом и вкусом. Репортажи криминальной хроники были подлинными шедеврами изящной словесности, а их авторы – настоящими мастерами пера. Это было время благородных разбойников, живших по кодексу чести, а не по понятиям, и виртуозных мастеров сыска.
+
+Окунитесь в ушедшую, увы, эпоху, ощутите её неповторимый аромат. Житейские истории, собранные журналистом Валерием Ярхо, конечно, не смогут её воскресить, но, безусловно, помогут представить.Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB2F6C1CF36FE878E915A62A4F380D4CC848369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598418   (1000010) от 04.01.2013
+
+Oblivion - Called To Rise (2013) [MP3|320 кб/с]<Technical Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oblivion Part 1: The Chant of Tyrants 1:40
+ 02. Black Veils of Justice 3:11
+ 03. Between Suns of Light 2:50
+ 04. Binary Souls 3:24
+ 05. Reclamation 4:11
+ 06. Canon 1 in E Minor 2:31
+ 07. Annunaki 3:06
+ 08. Reigns in Fire 4:59
+ 09. Cancer of Wraiths 3:53
+ 10. Multiverse 4:41(   Читать дальше...   )Жанр: Technical DeathПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2EB83AFD92E7067BA18631E515994B1A3EC4F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598029   (1000009) от 04.01.2013
+
+Земля снежного человека / Bigfoot County (2012) DVDRip [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два брата в компании подруги и видеокамеры отправляются в калифорнийские леса на поиски снежного человека, к месту обитания которого их обещает отвести не совсем адекватный проводник.Жанр: Ужасы, Триллер, ДетективРежиссер: Стефон СтюартАктеры: Стефон Стюарт, Шай Пилгрин, Сэм Эйерс, Дон Скрибнер, Брэд С. Клэйтон, Майкл Виллар, Джои Наполи, Джонни КолтерПеревод: ОтсутствуетПродолжительность: 01:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748518E68A48FD53A94B5294384EC58BB9B0CF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598321   (1000006) от 04.01.2013
+
+Журнал | The English Home [февраль 2013] [PDF] [En]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено классическому и современному английскому дизайну интерьеров (жилых и нежилых помещений).Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA94213DFFB3549A543D2D4D71C6E4A88E81339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598345   (1000004) от 04.01.2013
+
+Журнал | Вышивка: просто и красиво №10-12 [октябрь-декабрь 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000004.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале представлены различные виды техник вышивания - зигугу, селам, барджелло и других. Даются рекомендации по подбору материала. Приводятся схемы для вышивки, а также мастер-классы по технике вышивания.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E699DE58C9BEA2D674E5327FAD0353D4CA53CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598449   (1000002) от 04.01.2013
+
+Ирина Иванова | Охотники за наследством [2010] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошь с сапфирами, старинная фотография и колода карт в шкатулке из жадеита… Вещи, безусловно, полезные, но если за них предлагают миллионное состояние, современная девушка не станет долго взвешивать «за» и «против». Особенно, когда у нее всего три недели, чтобы найти таинственную герцогиню Вандельхох и подписать бумаги о разделе наследства, в обмен на зелененькую шкатулку.
+
+Кто же мог знать, что восьмидесятитрехлетняя старушка бодро перемещается из одного уголка земного шара в другой, получая от жизни – и лучших отелей мира! – максимум удовольствия? Гаити, Маврикий, Шри-Ланка, Афины, Рим… Погоня за наследством скучной не будет!Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6306CF5D5167D305AA16B21345C1EA210CDA51D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598505   (1000001) от 04.01.2013
+
+М.Н.Глебов | Всё о диетах. Энциклопедия [2004] [DJVU]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состояние здоровья во многом определяется тем, как мы питаемся. И официальная наука, и всевозможные альтернативные  направления давно искали ответ на вопрос о том, каким должно быть питание, чтобы способствовать оздоровлению человека. В результате появилось большое количество систем питания,порой основанных на противоположных принципах. В книге рассказано об общих принципах диетологии - значении и классификации диет, медицинских ограничениях и методике выбора подходящей диеты. Подробно описаны все диеты, которые удалось найти в различных источниках. Они распределены по группам в зависимости от целей, которых позволяют достич. В отдельном разделе представлены наиболее известные нетрадиционные системы питания. Также приведены таблицы калорийности основных продуктов питания и готовых блюд, таблица соотношений мер и весов продуктов, таблица показателей массы тела и рекомендованных величин суточного потребления энергии.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9293795E22F95ED1204EFA0F8A12CAA5CE75EC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598204   (999997) от 04.01.2013
+
+Julian Lage - Sounding Point (2009) [FLAC|Lossless]<Jazz, Guitar, Instrumentall>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Like A Star [05:16]
-02. Something Cool [04:57]
-03. Slow Like Honey [05:58]
-04. This Girl's In Love With You [04:56]
-05. I'm Glad There Is You [05:08]
-06. Get Out of Town [03:41]
-07. I Do It For Your Love [04:04]
-08. I Ain't Gonna Let You Break My Heart [05:21]
-09. Ballad of the Sad Young Men [06:01]
-10. No Tommorrow [05:13](   Читать дальше...   )Жанр: Jazz VocalФормат: trac+cueПродолжительность: 001:03:14
+01. Clarity (Julian Lage) [05:54]
+02. All Purpose Beginning (Julian Lage) [07:16]
+03. Familiar Posture (Julian Lage) [02:58]
+04. The Informant (Bela Fleck, Julian Lage, Chris Thile) [03:23]
+05. Peterborough (Julian Lage) [00:46]
+06. Long Day, Short Night (Fleck, Julian Lage, Thile) [05:47]
+07. Quiet, Through and Through (Julian Lage) [02:18]
+08. Lil' Darlin' (Neal Hefti) [05:20]
+09. Tour One (Taylor Eigsti, Julian Lage) [04:27]
+10. Alameda (Elliott Smith) [02:19](   Читать дальше...   )Жанр: Jazz, Guitar, InstrumentallПродолжительность: 00:56:29
 
 ## Скачать торент
 ```bash
@@ -416,91 +552,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599949   (999109) от 07.01.2013
+###  Публикация: 593326   (999996) от 04.01.2013
 
-Slade At The BBC (1969-1991) (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ретроспективная передача канала BBC4 от 21 декабря 2012 года. Коллекция студийных видеозаписей BBC 1969-1991 годов и01.Intro
-02.Martha My Dear /Monster Music Mash 1969/
-03.Wild Winds Are Blowing /Monster Music Mash 1969/
-04.Coz I Luv You /TOTP 1971/
-05.Mama Weer All Crazee Now /TOTP 1972/
-06.Gudbuy T' Jane /TOTP 1972/
-07.Cum On Feel The Noize /TOTP 1973/
-08.My Friend Stan /TOTP 1973/
-09.Everyday /TOTP 1974/
-10.How Does It Feel /Crackerjack 1975/(   Читать дальше...   )Жанр: Музыка, Rock, Glam RockПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A116B664E6A9BEBE4480ECDFD6937C5A023954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598965   (999105) от 07.01.2013
-
-Анатолий Днепров - Романсы (2012) [MP3|320 кб/с]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999105.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Радовать (5:46)
-2. Ах, как жаль (3:37)
-3. Красивая (3:48)
-4. Не предавай (2:58)
-5. Танцуй (4:07)
-6. Колечко (4:36)
-7. Прости (3:29)
-8. Верю я (4:15)
-9. Посвящение мамам И.Талькова и М.Круга (3:34)
-10. Спасибо (5:12)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161386EDC4381F2339DC4E5648D9A213E61E60DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599997   (999104) от 07.01.2013
-
-NXPowerLite Desktop Edition 5.0.8 [Multi/Rus]
+Крест – накрест / Criss Cross (1949) DVD5
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-NXPowerLite Desktop Edition 5 уменьшает размер больших файлов Word, Excel, PowerPoint, JPEG и PDF, упрощая процесс их отправки по электронной почте. Программа NXPowerLite Desktop Edition, используемая более чем миллионом человек по всему миру, устраняет «вздутие» файлов, уменьшая размер файлов PowerPoint, Word, Excel, JPEG и PDF со степенью сжатия до 95%. Программа также интегрируется с почтовым клиентом для автоматического сжатия вложений при их отправке.Название программы: NXPowerLite Desktop EditionЯзык интерфейса: Multi/Rus
+Год спустя после развода Стив Томпсон возвращается в Лос-Анджелес, надеясь начать с Анной все сначала. Кажется и Анна не прочь вернуться к экс-мужу, но ее нынешний дружок, гангстер Слим Данди, не собирается ее отпускать. Ради того, чтобы получить Анну, Стив готов на все, даже на то, чтобы самому стать гангстером, грабить, убивать… Как и во всех `черных` фильмах, роковая женщина крест-накрест перечеркиваетжизнь героев.Жанр: Триллер, Драма, Криминал, Фильм-нуарРежиссер: Роберт СьодмакАктеры: Берт Ланкастер, Ивонн Де Карло, Дэн Дюрьи, Стефен МакНалли, Esy Morales, Tom Pedi, Перси Хелтон, Алан Напье, Грифф Барнетт, Мэг Рэндолл ...Перевод: Одноголосый закадровыйЯзык субтитров: английский, испанский, французскийПродолжительность: 01:27:36
 
 ## Скачать торент
 ```bash
@@ -512,86 +578,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598666   (999103) от 07.01.2013
+###  Публикация: 598003   (999995) от 04.01.2013
 
-James Last - Title Of Album: Christmas with Romance (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance For Violin And Orchestra No.2 In F Opus 50
-02. Stille Nacht
-03. Air On A G String
-04. Medley: White Christmas / Midnight In December / Jingle Bells
-05. Elvira Madigan
-06. Rosen Aus Dem Suden Opus 388
-07. Impromptu No.2 In A Flat Opus 142
-08. Le Quattro Stagioni Opus 8: Largo
-09. Sonata No.8 In C Minor Opus 13 "Pathetique": 2. Adagio
-10. Nocturne No.8 In D Flat Opus 27 No.2: Lento Sostenuto(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB00C4F6D7478BD7303686FED263DCD324E1348B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600016   (999102) от 07.01.2013
-
-К. Бюрги, У. Хоффманн | Снежинки из бусин, бисера и стекляруса. Практическое руководство [2011] [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снежинки из бусин, бисера и стекляруса – великолепные и оригинальные украшения для елки, окна или арки. Из них можно также сделать гирлянды и развесить на разной высоте. Такие украшения способны преобразить простую комнату в хрустальный замок или сказочный дворец Снежной королевы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD777BB5B06A6969CE0F57246F968CE621541035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599782   (999099) от 07.01.2013
-
-4Videosoft PDF Converter Ultimate 3.1.10 [Английский]
+Armin van Buuren - Live at Pier 36-New York City (31-12-2012) [MP3|~228 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4Videosoft PDF Converter Ultimate - это мощная программа, которая поможет вам конвертировать PDF файлы в Word, Excel, текстовые файлы, изображения (JPEG, PNG, GIF, BMP, PCX, TGA, TIFF), в формат электронных книг (ePub) и формат HTML. Программа поддерживает режимы пакетного и частичного преобразования, имеет приятный и понятный интерфейс.Название программы: 4Videosoft PDF Converter UltimateЯзык интерфейса: Английский
+01. Armin van Buuren feat. Ana Criado - I'll Listen (Original Mix)
+ 02. Abstract Vision & Elite Electronic vsю Broning - Relict (Original Mix)
+ 03. Rank 1 - Airwave (Julian's Bootleg)
+ 04. Cosmic Gate feat. Emma Hewitt - Calm Down (Omnia Remix)
+ 05. Heatbeat - Chow Mein (Original Mix)
+ 06. W&W - Moscow (Original Mix)
+ 07. Dash Berlin feat. Emma Hewitt - Waiting (W&W Remix)
+ 08. Andrew Rayel feat. Jano - How Do I Know? (Original Mix)
+ 09. Faruk Sabanci - Elveda (Original Mix)
+ 10. Gareth Emery & Ashley Walbridge - DUI (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:58:58
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4A4B401C2B93B39774BE33BE8CD90E173237B3F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,51 +613,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599631   (999097) от 07.01.2013
+###  Публикация: 597644   (999990) от 04.01.2013
 
-Сестра / L'enfant d'en haut (2012) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток Симон живет со своей сестрой-алкоголичкой неподалеку от шикарного швейцарского горнолыжного курорта. Поскольку сестра нигде не работает, Симон занимается тем, что ворует у богачей снаряжение и потом продает по дешевке неподалеку от дома.Жанр: ДрамаРежиссер: Урсула МейерАктеры: Кейси Моттет Кляйн, Леа Сейду, Мартин Компстон, Джиллиан Андерсон, Жан-Франсуа Стевенен, Янн Трегуэ, Габен Лефевр, Магне Брекке, Simon Guélat, Mike WinterПеревод: Любительский (одноголосый)Продолжительность: 01:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C92DF17D55B3153A5A0FB4484769BC2AA5C6C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599738   (999094) от 07.01.2013
-
-Фотография - Photos from Rambo's
+Одна тёмная ночь / One Dark Night (1983) DVDRip [EN]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы фотографа Rambo's .
+После странной смерти русского оккультиста Карла Рамаревича, при жизни исследовавшего всевозможные сомнительные пути достижения власти и всемогущества, в его склепе оказывается школьница Джули. Оказывается она здесь по прихоти своих подруг, решивших таким образом посвятить её в своё тайное общество. Джули требуется провести в этом склепе ночь… вместе с объявившимся призраком Карла.Жанр: УжасыРежиссер: Том МаклафлинАктеры: Мег Тилли, Мелисса Ньюман, Робин Эванс, Дональд ХоттонПеревод: ОтсутствуетПродолжительность: 01:28:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0709990475E748CEB971165E93E4A48DA5CA376
+magnet:?xt=urn:btih:9BEA9A55E4281FC9690FB03FF772E4313D2F836C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,62 +639,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598573   (999092) от 07.01.2013
+###  Публикация: 597941   (999987) от 04.01.2013
 
-Bel Suono - Мегаполис (2012) [MP3|320 кб/с]<Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Libertango, (I've seen that face before) музыка Astor P.Piazzolla
-02 Мегаполис музыка Евгений Соколовский
-03 Одинокое сердце музыка Евгений Соколовский
-04 Bolero музыка Maurice Ravel
-05 Вальс музыка Евгений Соколовский
-06 Танец рыцарей
-музыка Сергей Прокофьев (Ромео и Джульетта / Танец Рыцарей)
-сузыка Сергей Рахманинов (Прелюдия Соль минор)
-07 Молитва (Bel Suono & Камо Сейранян (дудук)) музыка Алексей Рыбальчик
-08 Лето музыка Antonio Vivaldi (Four Season - Summer)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987491B1617A0762BA46341999C5BADBCB055563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599842   (999091) от 07.01.2013
-
-Chakra (Arch + KDE) 2013.01 [x86-64] (1xDVD)
+Человек внутри / The Man Inside (2012) BDRip [720p] [EN]
 
 >>Архив торрентов
->>Архив *Nix
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Chakra Project Team выпустила пятый релиз серии Claire – Chakra GNU/Linux 2013.01, в который внесены некоторые изменения по сравнению с предыдущими релизами.
-
-Новые версии в этом релизе: KDE 4.9.5 с некоторыми дополнениями из предстоящего релиза 4.10 ; Linux ядро 3.6.6.1 (3.0.43 optional); образ DVD дополнительно включает все локали и новый селектор выбора приложений; обновлены OpenSSL и krb5, для ISOlinux сделана  "подтяжка лица", добавлена возможность загрузки в уже присутствующую на диске операционную систему, Memtest86+ options и многое другое.
+Криминальный фильм рассказывает о молодом чернокожем боксере из Великобритании.  В киноленте описываются его непростые  отношения с тренером по боксу, родным отцом, бандитской группировкой и своей девушкой. Чтобы спасти свое будущее ему придется самому решить свои проблемы. И сделать правильный выбор!!!Жанр: Триллер, Драма, КриминалРежиссер: Дэн ТернерАктеры: Мишель Райан, Питер Муллан, Дэвид Хэрвуд, Тео Барклем-Биггз, Джейсон Мацца, Рэй Пантаки, Баши, Башкер Патель, Дженни ЖульПеревод: ОтсутствуетПродолжительность: 01:39:32
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B5C818DA1FB7137895E86EAEC69961D2925D92E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -714,51 +665,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598953   (999090) от 07.01.2013
+###  Публикация: 597977   (999985) от 04.01.2013
 
-Черная мантия для убийцы / Une robe noire pour un tueur (1980) VHSRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адвокат по уголовным делам, убежденная противница смертной казни, скрывает у себя преступника, обвиненного в убийстве полицейского. Она уверена, что ее подзащитный невиновен. Рискуя своим положением, Флоранс берется помочь ему добиться правосудия и начинает собственное расследование...Жанр: драма, криминалРежиссер: Жозе ДжованниАктеры: Анни Жирардо, Клод Брассер, Бруно Кремер, Ариэль Домбаль, Жак Перрен, Катрин Аллегре, Альбина дю Буарувре, Жак Мори, Франсуа-Эрик Жендрон, Филип Дюкло, Арль Гонсалес, Дидье Совегран, Аньез Шато, Жан Шампьон, Патрик Лоран, Жан де Конинк, Рено ВерлейПеревод: Профессиональный: (двухголосый закадровый)Формат: AVIПродолжительность: 01:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80947D9426A688D20FD8CAFA2A75ED8DA31B678D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599897   (999088) от 07.01.2013
-
-PGWare Throttle 6.1.7.2013 [English]
+Книжная серия |  VEGA в 7 томах [1992-1995] [FB2]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Throttle - утилита предназначена для настройки параметров ваших модемов на максимальное быстродействие, что в результате может привести к более чем 200-процентному увеличению скорости работы. Вы просто выбираете свою OS, тип соединения (14.4/28.8/33.6/56k, кабельный модем, DSL/ADSL модем, ISDN, Satellite, T1/T3/OC3/OC12+, локальная сеть, 3G-модемов) и нажимаете кнопку "Go". Остальное программа сделает сама! Как отмечают разработчики, программа изменит ряд ключевых параметров работы модема, например, улучшит определение сигнала "занято", уменьшит количество обрывов связи и т.д. Программа работает со всеми типами модемов подо всеми операционными системами семейства Windows.Название программы: PGWare ThrottleЯзык интерфейса: English
+VEGA - киевская серия сборников фантастики зарубежных авторов, известных и не очень.
+Выпускались авторские и межавторские сборники, за исключением книг Мэри Стюарт и Роберта Хайнлайна, где один роман.
+Книги имели суперобложки и небольшое количество иллюстраций.Формат: FB2
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7A7D466F5D612622288D7E09BD58C33D7FC4C5EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598461   (999984) от 04.01.2013
+
+Пингвиненок (1983) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ДетскийРежиссер: Валерий ФоминРоли озвучивают: Клара Румянова, Борис Рунге, Зинаида Нарышкина, Всеволод ЛарионовПродолжительность: 00:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6614BC4417CED3F77D2D56219DC11ABCFABDD15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597714   (999976) от 04.01.2013
+
+VA - Модный Зимний Выпуск (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9D53EF16B2A07877BB097C2233812353C1230D
 ```
 
 https://mybot314.ru/tekegram_catalog/

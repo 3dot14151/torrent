@@ -1,3 +1,133 @@
+###  Публикация: 1331059   (332970) от 14.10.2019
+
+Король Лев / The Lion King (2019) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332970.jpg" />
+</div>
+
+
+###  Подробнее
+
+История об отважном львенке по имени Симба. Знакомые с детства герои взрослеют, влюбляются, познают себя и окружающий мир, совершают ошибки и делают правильный выбор.Производство: США / Walt DisneyЖанр: Компьютерная анимация, Приключения, Музыкальный, ДетскийРежиссер: Джон ФавроПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322FD3B07076EA61053B4CDA22C5006CDC0E803B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955859   (331946) от 12.11.2015
+
+Космическая Скратастрофа / Cosmic Scrat-tastrophe (2015) HDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331946.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Скарт — любитель орехов, превзошел сам себя. Пытаясь спрятать свою находку, он активирует космическую тарелку, замерзшую во льдах, и отправляется в космос…Производство: Blue Sky StudiosЖанр: Короткометражный, Комедия, МультфильмРежиссер: Майк ТёрмайерПерсонажи: Крис УэджПеревод: ОтсутствуетЯзык субтитров: РусскийПродолжительность: 00:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10472A2F3B4DE6582B487474B74350E240579937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580233   (331847) от 30.09.2022
+
+Катерок (1970) BDRip [H.264/1080p-LQ] [handmade remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный фильм о почтовом катерке и его путешествии на остров Чунга-Чанга.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Инесса КовалевскаяСубтитры: ОтсутствуютПродолжительность: 00:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C93A33F0D25B5AA95E7D9DC5CD5384794926B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580242   (331837) от 30.09.2022
+
+В порту (1975) BDRip [H.264/1080p-LQ] [handmade remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая группа детей из разных стран приплывает в черноморский порт, направляясь в международный пионерский лагерь «Артек». Двое отставших иностранцев встречают местных подростков, которые устраивают им экскурсию по порту.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Инесса КовалевскаяСубтитры: ОтсутствуютПродолжительность: 00:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE082CC096E13E657DD9EAE9F082D2AEF0C7A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580270   (331659) от 30.09.2022
+
+Сезон охоты (2006 - 2015) / Open Season (2006 - 2015) BDRip [Коллекция]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331659.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сезон охоты» - американский мультипликационный фильм 2006 года. Бюджет составил 85 млн долларов. Премьера фильма состоялась 29 сентября 2006 года в США. Позже были выпущены три полнометражных сиквела: «Сезон охоты 2», «Сезон охоты 3» и «Сезон охоты 4».Производство: США / Columbia Pictures, Sony Pictures AnimationЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Роджер Аллерс, Джилл Калтон, Энтони Стакки, Мэттью О’Каллаган, Тодд Вилдерман, Коуди КэмеронПеревод: дублированныйСубтитры: отсутствуютПродолжительность: 01:26:15 / 01:16:24 / 01:14:35 / 01:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8B9CD8286E309565208599DBD59761EC73A1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 260173   (331558) от 19.11.2010
 
 Winx Club: Волшебное приключение / Winx Club: Magic Adventure (2010) DVDRip
@@ -6,7 +136,7 @@ Winx Club: Волшебное приключение / Winx Club: Magic Adventur
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331558.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331516.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331346.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330846.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330825.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330735.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330720.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330615.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330614.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330472.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330466.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330314.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330296.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330159.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329968.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329960.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329935.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329873.jpg" />
 </div>
 
 
@@ -480,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329692.jpg" />
 </div>
 
 
@@ -506,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329690.jpg" />
 </div>
 
 
@@ -533,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329688.jpg" />
 </div>
 
 
@@ -544,138 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64705D2C823588043FD99A6FC42B300D6DD8A25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552592   (329684) от 02.10.2022
-
-Ночь рождения (1980) VHSRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как мальчик Тима перестал бояться ночной темноты.Производство: СССР, ТО "Экран"Жанр: детский, кукольныйРежиссер: Розалия ЗельмаАктеры: Всеволод ШиловскийСубтитры: ОтсутствуютПродолжительность: 00:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0439048669BB622989AFB2B978467130C78E274A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543223   (329683) от 02.10.2022
-
-Надводная часть айсберга (1990) WEB-DLRip [H.264/1080p-LQ] [Handmade remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329683.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Подводные береты» — рисованный мультипликационный фильм о дельфинах-рейнджерах, созданный на основе ранее созданных фильмов: «Счастливый старт», «Агент уходит в океан», «В объятьях русской разведки», «Секретная океанская помойка», «Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Владимир Тарасов, Раса Страутмане, Александр МазаевСубтитры: ОтсутствуютПродолжительность: 00:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D79C167486568F8959CC465BF92429661263668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543823   (329682) от 02.10.2022
-
-Счастливый старт (1989) WEBRip [H.264/1080p-LQ] [Handmade remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329682.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Подводные береты» — рисованный мультипликационный фильм о дельфинах-рейнджерах, созданный на основе ранее созданных фильмов: «Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Владимир ТарасовСубтитры: ОтсутствуютПродолжительность: 00:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73829A5E320B7E6A4685245E29F498E8AC741CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580789   (329673) от 02.10.2022
-
-Спирит: Душа прерий / Spirit: Stallion of the Cimarron (2002) BDRip [H.265/2160p] [4K, SDR, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329673.jpg" />
-</div>
-
-
-###  Подробнее
-
-История дикого жеребца мустанга, Спирита, путешествующего по территории всей Америки. Храбрый Спирит заводит дружбу с молодым индейцем Ручейком и находит любовь с красивой кобылой по имени Гроза. Все счастливы до тех пор, пока на жеребца не положили глаз люди, которые хотят сделать из него военную лошадь...Производство: США, Dream Works PicturesЖанр: мультфильм, драма, приключения, семейный, вестернРежиссер: Келли Эсбёри, Лорна КукПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D279E025ABCEE494E6871D2414D38BE9A9B93087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165853   (329539) от 02.10.2022
-
-Сокровища анимации. Коллекционное издание (1946-1953) 6xDVD5
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник классики советской мультипликации: Сказки Пушкина/ Конек-горбунок/ Сказки разных народов/ Украинские сказки/ Волшебный магазин/ Новогодние приключения.
-
-Коллекционное издание из шести DVD5 включающее в себя мультфильмы середины XX-го века.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Иван Иванов-Вано, Михаил Цехановский и др.Актеры: Мария Бабанова, Зинаида Бокарева, Николай Литвинов и др.Субтитры: ОтсутствуютПродолжительность: 08:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B356946D7B69589CB6119C3B38D5B521B8E816E
 ```
 
 https://mybot314.ru/tekegram_catalog/

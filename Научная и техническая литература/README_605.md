@@ -1,134 +1,3 @@
-###  Публикация: 467461   (82031) от 14.03.2012
-
-Iоаннъ Гоффертъ | Иллюстрированная Отечественная война 1812 года [1887] [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой иллюстрированный рассказ о нашествии наполеоновских войск в Россию - от начала до битвы при Березине, после которой отступление французской армии превратилось в бегство. Содержит 12 фотогравюр с картин П. Гесса. Каждая фотогравюра снабжена пояснительным текстом на отдельном листе, составленным генерал-майором Н. Ф. Дубровиным. Книга выпущена (   Читать дальше...   )Жанр: Раритеты / Альбом / ИсторияЯзык: Русский (старая орфография)Издательство: Типографiя Ф. С. Сущинского / Санктъ-Петербургъ / РоссияФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B365F5DFEDBCA1FD50EC67DB2AAAC06273186E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466875   (81938) от 13.03.2012
-
-Владимиръ Бурнашевъ | Отечественная война 1812 года [1888] [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81938.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1811 году почти вся Европа, за исключением России, Англии, Испании, Турции и Дании, была завоевана французами. Величайший полководец, французский император Наполеон, с его непобедимой армией, подчинил своему владычеству всех государей. Оставалась Россия, где царствовавший император Александр I был тверд и непоколебим. Этот труд обобщает все то, что было сделано (   Читать дальше...   )Жанр: Раритеты / Научная литература / ИсторияЯзык: Русский (старая орфография)Издательство: Типографiя Товарищества «Общественная польза» / С.-Петербургъ / Россiйская ИмперiяФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F7A7B95997808ECF3855740C0BAD8395CF8CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467267   (81778) от 13.03.2012
-
-Зейн Бернавски | Коллоидное серебро [2006] [Pdf]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81778.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре систематизированно излагаются бактерицидные свойства коллоидного серебра. Отмечается безопасность и эффективность его использования для уменьшения тяжести поражений, вызванных патогенными микроорганизмами. Приводится краткая историческая справка о первых опытах применения коллоидного серебра.
-Излагается современное видение этого вопроса, способы визуальной оценки и основные отличия качественного продукта от дешевой подделки. Книга рассчитана на широкий круг читателей.Жанр: Нетрадиционная медицина, диетотерапияФормат: Pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8D01C14E5CC40D5A7CD0F1521E2F0663C00DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466648   (81651) от 12.03.2012
-
-Л. Е. Новоселов | Транзисторные радиоприемники «Спидола», «ВЭФ», «Океан», «Меридиан». [1975] [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит характеристики переносных транзисторных приемников II класса типа «Спидола», «ВЭФ», «Океан» и «Меридиан», описание схем и конструкций, карты режимов по постоянному и переменному току, монтажные и кинематические схемы, материалы по настройке и проверке основных параметров, отысканию и устранению характерных неисправностей, а также устройство и особенности эксплуатации интегральных микросхем серии К-237.1975Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1761629BD603E38709A3FF1156DD2251ACEE0C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466826   (81619) от 12.03.2012
-
-М.С. Грушевский | История украинского народа [2002] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81619.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании впервые с 1913 года публикуется работа великого украинского историка Михаила Сергеевича Грушевского "История украинского народа". В издании также публикуется биография Михаила Сергеевича Грушевского, написанная на украинском языке и опубликованная в 1926 году в Киеве-в переводе Сергея Шумова и Александра Андреева. Ими же написана "Хроника жизни М.С.Грушевского".2002Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27104997D410F268B1D7AA2B4372025FB244327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466726   (81602) от 12.03.2012
 
 Сирарпи Тер-Нерсесян | Армения. Быт, религия, культура (2008) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81602.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81532.jpg" />
 </div>
 
 
@@ -191,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81501.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81324.jpg" />
 </div>
 
 
@@ -244,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81252.jpg" />
 </div>
 
 
@@ -272,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81244.jpg" />
 </div>
 
 
@@ -302,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81219.jpg" />
 </div>
 
 
@@ -328,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81217.jpg" />
 </div>
 
 
@@ -355,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80618.jpg" />
 </div>
 
 
@@ -382,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80579.jpg" />
 </div>
 
 
@@ -408,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80376.jpg" />
 </div>
 
 
@@ -434,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80216.jpg" />
 </div>
 
 
@@ -462,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80178.jpg" />
 </div>
 
 
@@ -488,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80133.jpg" />
 </div>
 
 
@@ -515,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80052.jpg" />
 </div>
 
 
@@ -542,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80050.jpg" />
 </div>
 
 
@@ -568,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80048.jpg" />
 </div>
 
 
@@ -594,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80032.jpg" />
 </div>
 
 
@@ -620,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80016.jpg" />
 </div>
 
 
@@ -646,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79980.jpg" />
 </div>
 
 
@@ -672,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79946.jpg" />
 </div>
 
 
@@ -683,6 +552,148 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:027EBE7672042CD348898A77787A8105C7518910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460976   (79616) от 02.03.2012
+
+Подборка книг | Финансовый менеджмент [1995-2010] [DJVU, PDF, DOC]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка отечественной и переводной литературы по различным вопросам финансового менеджмента1995-2010Формат: DJVU, PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43D1E3069AD6FA5906644CB9F95EF1E00229C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460914   (79604) от 02.03.2012
+
+Н.И. Жукова | Шведский без репетитора (2004) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель этого учебного пособия — помочь вам
+• овладеть разговорной речью;
+• освоить чтение шведской периодики.
+Первая часть книги дает основы базовой грамматики шведского языка и лексический минимум,(   Читать дальше...   )Жанр: Изучение иностранных языковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C464798D73D00ACA8A7B64095E4C0864583244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460388   (79508) от 01.03.2012
+
+Межиздательская серия - «Историческая библиотека»
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжная серия "Историческая библиотека" выпускается несколькими издательствами (АСТ, Астрель, Полигон, Ладомир, Люкс, Транзиткнига, Дело, Лениздат) с 2001 года и имеет оформление нескольких типов. В серии публикуются как известные исторические труды, так и художественная историческая литература.2001-2011Жанр: Историческая литератураФормат: FB2, CHM, PDF, DjVu, RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519611AC61CDFA2BDD61D73EA0351AFADD925865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459335   (79457) от 01.03.2012
+
+BBK | Сборник схем и сервис-мануалов по ремонту техники BBK [Eng] [2008] [PDF, doc, xls, exe, BIN, txt, ppt]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник прошивок, схем и сервис-мануалов по ремонту техники BBK
+- Инструкция по созданию диска для прошивки DVD и апгрейда;
+- Схема программатора и программу MTK Tools для заливки прошивок;
+- Набор прошивок схем и сервис-мануалов следующих изделий:
+ LCD-телевизоров
+ DVD-плейеров
+ Флэш-плейеров
+ Портативных DVD-проигрывателей
+ Домашних кинотеатров
+ Сабвуферов(   Читать дальше...   )2008Формат: PDF, doc, xls, exe, BIN, txt, ppt
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10A56E8F0B93B5C3DA19EB2746E75726C57EA90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459370   (79242) от 29.02.2012
+
+Sony-Eriсsson | Sony-Eriсsson. Схемы и сервис-мануалы мобильных телефонов [2010] [PDF, (xls, gif, mht, doc, jpg)]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sony-Eriсsson. Схемы и сервис-мануалы мобильных телефонов2010Формат: PDF, (xls, gif, mht, doc, jpg)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48B01E3C0C27783C6A2E41A7EB0C0227BB2B0D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

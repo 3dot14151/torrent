@@ -1,3 +1,135 @@
+###  Публикация: 1749762   (43361) от 16.09.2024
+
+Трио из Бельвилля / Les triplettes de Belleville / The Triplets of Belleville (2003) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчика по имени Чемпион усыновила родная бабушка, мадам Суза. Герой любит кататься на велосипеде, и спустя годы уже участвует во всемирно известной гонке Тур-де-Франс. Однако во время соревнований двое неизвестных похищают Чемпиона, и мадам Суза с верным псом Брюно отправляется на помощь внуку.Производство: Франция, Бельгия, Канада, Великобритания, Латвия, США / France 3 Cinéma, Les Armateurs, Production Champion, RG Prince Films, Vivi FilmЖанр: мультфильм, драма, комедия, приключения, спорт, музыкаРежиссер: Сильвен ШомэАктеры: Жан-Клод Донда, Моника Виега, Мишель Робен, Ноэль Байе, Сьюзи Фальк, Мишель Кочето, Николь ШирерПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, ФранцузскийСубтитры: русские, английскиеПродолжительность: 01:20:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5C1AEBEFF6A7AA46764436D1A9ED58AC86E316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747158   (43302) от 17.09.2024
+
+Кайтмен: Чёрт возьми, да! / Kite Man: Hell Yeah! (2024) WEB-DL (сезон 1, серии 1-10 из 10) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающий мультфильм о незадачливом злодее по прозвищу Кайтмен, проживающем в Готэме. Он постоянно попадает в неприятности и подвергается насмешкам со стороны других обитателей мрачного города. Кажется, что о его существовании не подозревает даже Бэтмен, что не дает главному герою никакого покоя. Однажды Кайтмен решает смириться со своим положением и переквалифицироваться (   Читать дальше...   )Производство: США, DC Studios, Delicious Non-Sequitur Productions, Warner Bros. Animation, Yes, Norman ProductionsЖанр: Мультсериал для взрослых, чёрный юмор, фантастика, криминал, супергерой, комиксРежиссер: Ёриаки Мотидзуки, Джефф Уоместер, Чарльз Адлер, Сирена Ирвин, Бен ДжонсАктеры: Мэтт Оберг, Стефани Хсю, Джеймс Адомиан, Джонатан Бэнкс, Майкл Империоли, Джанелл Джеймс, Натасия Деметриу, Рори Сковел, Эдди Пепитон, Джудит ЛайтПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: английскиеПродолжительность: 10 x ~ 00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7E86790A98136C6892027AA58E50186875A8F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749911   (43289) от 17.09.2024
+
+Синдбад: Легенда семи морей / Sinbad: Legend of the Seven Seas (2003) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богиня хаоса Эрис крадет Книгу Мира, подставив тем самым Синдбада и сделав из него преступника. Намереваясь доказать свою невиновность, а также спасти жизнь лучшего друга Протеуса Шейпершифера, моряк отправляется в царство Эрис, кишащее ужасными монстрами — гигантскими скорпионами, змеями и огромными птицами, сделанными из снега и льда.Производство: США, Канада / DreamWorks Animation, DreamWorks Pictures, DreamWorks SKG, Stardust PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джон ЛоганАктеры: Брэд Питт, Кэтрин Зета-Джонс, Мишель Пфайффер, Джозеф Файнс, Деннис Хейсберт, Тимоти Уэст, Адриано Джаннини, Раман Хуэй, Чунг Чан, Джим КаммингсПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E012AF221FFF150BC16F367BB9E3CF3614359DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749910   (43268) от 17.09.2024
+
+Арнольд! / Hey Arnold! The Movie (2002) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43268.jpg" />
+</div>
+
+
+###  Подробнее
+
+У безжалостного магната родился злодейский план: снести родной квартал Арнольда и выстроить на его месте огромный супермаркет. Время пошло, и кто-то должен встать на защиту уютного уголка. И этим кем-то станет... Арнольд.
+
+С хвостатой занудой Хельгой, тайно влюбленной в него, и с лучшим другом Джеральдом Арнольд устраивает забастовку, чтобы вернуть слову «прогресс» (   Читать дальше...   )Производство: США, Великобритания / Nickelodeon Animation Studios, Nickelodeon Movies, Paramount Pictures, Snee-Oosh Productions, Viacom Productions Inc.Жанр: мультфильм, триллер, драма, комедия, приключения, семейныйРежиссер: Так ТакерАктеры: Спенсер Клейн, Франческа Смит, Джамиль Уокер Смит, Дэн Кастелланета, Тресс МакНилл, Пол Сорвино, Дженнифер Джейсон Ли, Кристофер Ллойд, Винсент Скьявелли, Морис ЛаМаршПеревод: Дублированный (Нота / СТС, Селена Интернэшнл / ТНТ)Язык озвучки: Русский, АнглийскийСубтитры: английскиеПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBF1064E0C4581F8E07B0E642B79F295F9BFBE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749909   (43266) от 17.09.2024
+
+Приключения бурундучков / The Chipmunk Adventure (1987) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимое трио - Элвин, Саймон и Теодор - в полнометражном мультфильме. Элвин заключает пари со своими друзьями. Тот, кто победит в гонках вокруг света, получит приз в 100 000 долларов. Но не все так легко, как кажется. На пути возникают препятствия, через которые им помогает пройти настоящая дружба.Производство: США / Bagdasarian ProductionsЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Дженис КарманАктеры: Росс Багдасарян мл., Дженис Карман, Доди Гудмен, Сьюзен Тайррелл, Энтони Де Лонгис, Фрэнк Уэлкер, Нэнси Картрайт, Филип Л. Кларк, Кен Сэнсом, Джордж ПоулосПеревод: Дублированный (пRECолД)Язык озвучки: Русский, АнглийскийСубтитры: английскиеПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64667A383C9AA73D8F3EC1E0A6397428EBC24D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750159   (43182) от 18.09.2024
 
 Новый Гулливер (1935) DVD5
@@ -6,7 +138,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43182.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43179.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43178.jpg" />
 </div>
 
 
@@ -89,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43172.jpg" />
 </div>
 
 
@@ -115,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43070.jpg" />
 </div>
 
 
@@ -141,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43024.jpg" />
 </div>
 
 
@@ -167,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43012.jpg" />
 </div>
 
 
@@ -195,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42990.jpg" />
 </div>
 
 
@@ -221,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42967.jpg" />
 </div>
 
 
@@ -247,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42962.jpg" />
 </div>
 
 
@@ -273,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42958.jpg" />
 </div>
 
 
@@ -299,7 +431,7 @@ LEGO Звёздные войны: Восстанови Галактику / Lego
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42868.jpg" />
 </div>
 
 
@@ -325,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42841.jpg" />
 </div>
 
 
@@ -351,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42757.jpg" />
 </div>
 
 
@@ -377,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42580.jpg" />
 </div>
 
 
@@ -403,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42452.jpg" />
 </div>
 
 
@@ -429,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42442.jpg" />
 </div>
 
 
@@ -455,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42430.jpg" />
 </div>
 
 
@@ -481,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42387.jpg" />
 </div>
 
 
@@ -507,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42316.jpg" />
 </div>
 
 
@@ -533,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42289.jpg" />
 </div>
 
 
@@ -545,136 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64773862FD6C5FD1A8EDB55014A40D8BC4E11F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751889   (42162) от 28.09.2024
-
-Головоломка 2 / Inside Out 2 (2024) WEB-DLRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Райли уже подросток, и штаб-квартира в её мозгу подвергается капитальному ремонту, чтобы дать место новым эмоциям. Радость, Грусть, Гнев, Страх и Отвращение никак не ожидали появления Тревожности, Зависти, Смущения и Скуки. Райли с двумя лучшими подругами отправляется в хоккейный лагерь, где у неё появляется шанс попасть в команду старшей школы, и Радость уверена, (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, комедия, семейный, фэнтезиРежиссер: Келси МаннАктеры: Эми Полер, Филлис Смит, Льюис Блэк, Тони Хейл, Лиза Лапира, Майя Хоук, Айо Эдебири, Адель Экзаркопулос, Пол Уолтер Хаузер, Кенсингтон ТаллманПеревод: Дублированный (MovieDalen, TVShows, LeDoyen), Многоголосый (LostFilm, HDrezka)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH), украинские (Forced, Full) и др.Продолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5037A0ED58E360A9CBF7E14E07FA7F6AEBAC9931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744443   (42121) от 28.09.2024
-
-Хит-Манки / Hit-Monkey (2024) WEB-DLRip (сезон 2, серии 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет посвящен обезьяне, которая тренировалась у киллера по имени Брюс, чтобы линчевать преступников.Производство: США, Floyd County Productions, Hulu, Marvel Animation, Marvel Entertainment, Marvel TelevisionЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Судейкис, Оливия Манн, Элли Маки, Фред Таташиор, Джордж Такей, Ноби НаканисиПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика!Субтитры: отсутствуютПродолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D543243D65E49309ED7D6C98622E4A36A9FF49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744441   (42107) от 28.09.2024
-
-Хит-Манки / Hit-Monkey (2024) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет посвящен обезьяне, которая тренировалась у киллера по имени Брюс, чтобы линчевать преступников.Производство: США, Floyd County Productions, Hulu, Marvel Animation, Marvel Entertainment, Marvel TelevisionЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Судейкис, Оливия Манн, Элли Маки, Фред Таташиор, Джордж Такей, Ноби НаканисиПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика!Субтитры: английскиеПродолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E5E72BDDBB015D9934892EEE04F9BF81FB6490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752093   (42096) от 28.09.2024
-
-Замбезия / Zambezia (2012) BDRip [H.264/1080p-LQ] [US Transfer] [handmade AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42096.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мультфильме рассказывается история жизни юного соколёнка по имени Кай, его приключения, характер, комичные ситуации в которые он попадает на пути к своей главной цели, на пути к заветному птичьему городку Замбезия, в котором он от всей души желает отыскать новых друзей, которые бы скрасили его одиночество и не оставили в беде. Однако для начала ему необходимо преодолеть (   Читать дальше...   )Производство: ЮАР, США, Нидерланды / 120dB Films, Cinema Management Group, Industrial Development Corporation of South AfricaЖанр: мультфильм, комедия, приключенияРежиссер: Уэйн ТонлиАктеры: Леонард Нимой, Джереми Суарес, Эбигейл Бреслин, Джефф Голдблюм, Сэмюэл Л. Джексон, Дженифер Льюис, Джим Каммингс, Джамал Миксон, Ричард Э. Грант, Дэвид ШонессиПеревод: Дублированный (CPIG)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B85E2B7953CF7BE7736BA50833D707478951E69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752213   (42011) от 29.09.2024
-
-Ози: Голос джунглей / Ozi: Voice of the Forest (2023) TS [H.264/1080p] [UKR, звук с TS]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разлучённая с семьёй из-за пожара, обезьянка Ози живёт в заповеднике и в своем блоге знакомит весь мир с завораживающей природой этих мест. Но когда Ози узнаёт, что её родители живы, а джунглям угрожает опасность, она отправляется в захватывающее дух приключение по тропическим лесам. С помощью новых колоритных друзей она на собственном примере узнает, что даже один (   Читать дальше...   )Производство: Великобритания, Франция, США / Appian Way, GCI Film, Mike Medavoy ProductionsЖанр: мультфильм, приключенияРежиссер: Тим ХарперАктеры: Амандла Стенберг, Дин-Чарльз Чепмен, Джимон Хонсу, Дональд Сазерленд, Лора Дерн, РуПол, Урзила Карлсон, Хью Бонневилль, Марисса Анита, Уилсон БенедитоПеревод: Дублированный (звук с TS)Язык озвучки: УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073C2F246A7A8F92BB8F8AC14119227C3732B0B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 591620   (136127) от 20.12.2012
+
+[Wallpapers] Заставки на экран 2
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136127.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сердце того, кто страстно стремится к красоте, она сияет ярче, чем в глазах созерцающего ее....
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7CB3D1BAA504DF3AD663BC8D5AC96972895A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591873   (136119) от 20.12.2012
 
 [Wallpappers] Обои для рабочего стола,категория "Metallica"
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136119.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136118.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Nature Wallpapers (18.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136005.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Nature Wallpapers (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135983.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Aviation Wallpapers (18.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135981.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Computer Desktop Wallpapers Collection (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135974.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135943.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Fantastic Wallpapers (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135919.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Cat Wallpapers (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135907.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135884.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135842.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135833.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135806.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135503.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135338.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135218.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ New year wallpapers 2013 (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134872.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Winter Wallpapers (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134851.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Big cats wallpaper (24.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134811.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134786.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Space Wallpapers (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134781.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Tanks Wallpaper (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134741.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134570.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134559.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134422.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85DA473480F23E8C5131DF1B478E75083ED1D9F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594040   (134114) от 25.12.2012
-
-Фотоподборка '220V' (24.12.12)
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотоподборка '220V'
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAA13FB9C3CFED735B7B0C74B55CED724D3F81A
 ```
 
 https://mybot314.ru/tekegram_catalog/

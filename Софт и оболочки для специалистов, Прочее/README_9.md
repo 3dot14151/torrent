@@ -1,3 +1,108 @@
+###  Публикация: 885146   (802668) от 05.04.2015
+
+Autodesk AutoCAD Design Suite Ultimate 2016 (x86, x64) [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средства визуализации и САПР-проектирования AutoCAD® Design Suite расширяют возможности AutoCAD благодаря решениям для визуального представления и программе AutoCAD Raster Design. Преобразуйте существующие проектные данные в файлы DWG™, демонстрируйте проекты с использованием надежной технологии TrustedDWG™ и создавайте реалистичные визуализации проектов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCC6D9BD159C67491823DBB5B30236D422C9FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198992   (802475) от 14.01.2018
+
+Microtest PentaScanner+ (firmware & manual) 5.0.0 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошивка портативного прибора для сертификации кабельных систем категории 5. Тестирует на соответствие стандартам: TIA TSB-67 Level II, TIA 568A, ISO 11801, 10BASE-T, ATM 155, Token Ring, 100BASE-TXЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F664B8F8700C746F480653D332ED7777E0ED6CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252735   (800539) от 01.01.2019
+
+3Planesoft - All in One 104 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный патч, который способен сломать любую заставку от компании 3Planesoft, на данный момент  таких насчитывается 104 штук в данном релизе.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D138AC1B12DDE8E6CD441A4FC07FEBA1B679FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506710   (799335) от 01.11.2021
+
+HxD Hex Editor 2.5.0.0 + Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799335.jpg" />
+</div>
+
+
+###  Подробнее
+
+HxD - это быстрый и легковесный HEX-редактор, который, в дополнение к редактированию дисков в формате raw и модификации данных в RAM памяти, обрабатывает файлы любого размера.
+Программа предоставляет такие функции, как поиск и замена, экспорт, контрольные суммы, вставка байтовых шаблонов, шредер файлов, объединение или разделение файлов, статистика и многое другое.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4127666386DB60E49016BB2F0CECF5A4868105F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273711   (799278) от 03.01.2019
 
 JetBrains Intellij IDEA 2018.3.2 [En]
@@ -6,7 +111,7 @@ JetBrains Intellij IDEA 2018.3.2 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799278.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Atmel Studio 7.0.790 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797233.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ USB Drive Factory Reset Tool 3.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797175.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ WinSetupFromUSB 1.10 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797174.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795902.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ Ieshua's Live-DVD/USB 2.16 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794694.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ VanDyke SecureCRT 8.0.1 build 1082 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794287.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ Posteriza 1.1.1 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792790.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ ChemOffice Professional 18.0.0.231 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791547.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ JOSM 13265 [Multi/Ru]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791402.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790231.jpg" />
 </div>
 
 
@@ -300,7 +405,7 @@ Muscle Premium 4.0.09 Portable [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789597.jpg" />
 </div>
 
 
@@ -329,7 +434,7 @@ Microsoft Visual Studio 2019 Professional 16.11.6 (Offline Cache, Unofficial) [R
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789592.jpg" />
 </div>
 
 
@@ -355,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787919.jpg" />
 </div>
 
 
@@ -382,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787905.jpg" />
 </div>
 
 
@@ -408,7 +513,7 @@ Autodesk EAGLE Premium 8.0.1 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786251.jpg" />
 </div>
 
 
@@ -434,7 +539,7 @@ PascalABC.NET 3.2.0.1417 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786049.jpg" />
 </div>
 
 
@@ -460,7 +565,7 @@ T-FLEX CAD 15.0.30.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786004.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ BricsCad Platinum 18.1.09.51732 [RU]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784535.jpg" />
 </div>
 
 
@@ -512,7 +617,7 @@ KDevelop 5.5.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783037.jpg" />
 </div>
 
 
@@ -540,7 +645,7 @@ SDL Passolo Collaboration 2016 16.0.391.0 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771465.jpg" />
 </div>
 
 
@@ -566,7 +671,7 @@ Radialix 3 3.00 Build 486 RePack by вовава [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767584.jpg" />
 </div>
 
 
@@ -578,110 +683,6 @@ Radialix Localizer - это программа для перевода прил�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0154DAF3D224F592010595E94DBA3DCA2013F7E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213779   (767215) от 18.03.2018
-
-Shutter Pro 4.2 + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компактная многофункциональная утилита для управления питанием компьютера. Вы сможете выключить, перезагрузить, перевести в режимы гибернации / сна / ждущий ваш компьютер, а также доступно отключение монитора, включение / отключение громкости, запуск программ, воспроизведение звуков, закрытие процессов.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE076179CF39925A7BBECC1C6B6C8E3D20A2523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279398   (765858) от 29.01.2019
-
-SAP Advantage Database Server 12.00.0.0 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Серверное ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advantage Database Server (ADS), созданный компанией Extended Systems, — это продукт, который может представлять немалый интерес для компаний, по-прежнему эксплуатирующих приложения, хранящие данные в таблицах dBase или Paradox. Это могут быть приложения, созданные с помощью Clipper, dBase, FoxPro либо посредством более современных средств разработки (например, Borland (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2905AC28059652722EC28300C565457C6CBE59D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214630   (763860) от 22.03.2018
-
-AMIDuOS 2.0.9.10342 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763860.jpg" />
-</div>
-
-
-###  Подробнее
-
-AMIDuOS — это новейший продукт от американской фирмы-разработчика American Megatrends, выполняющий функции гипервизора. AMIDuOS позволяет операционную систему Android полноценно эксплуатировать в сфере Windows. Если вы переводите эмулятор (сервис, позволяющий использование вашим компьютером или мобильным устройством других программ, созданных не для вашей операционной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A818704CE8F064797B893EA215903B6E4FFE6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521934   (763220) от 04.01.2022
-
-Safe Mode Launcher 1.1 Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Safe Mode Launcher - бесплатная портативная программа для загрузки операционной системы в Безопасном режиме (Safe Mode) или режиме восстановления. Программа позволяет использовать несколько вариантов Безопасного режима, а также активировать классическое или новое меню F8 во время перезагрузки. Это может быть полезно, если во время перезагрузки недоступно меню F8 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2513816BC8E4C9B5F222ADF1CC0CE6B35726BFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

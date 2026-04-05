@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216306.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sworkit Личный Тренер Premium 6.6.00 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216296.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mia and Me 1.8 + Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215918.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Mia and me - Free the Unicorns 1.10 + Mod [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215899.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215291.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Dream Night Pro Live Wallpaper v1.5.0 [En]- лунные ночные живые
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214769.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Node Video - Pro Video Editor 6.4.1 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214396.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ ibis Paint X 10.1.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214247.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VN - Video Editor / VN - Видеоредактор 2.1.4 Mod by PieMods [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214241.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Frolomuse: Музыкальный Плеер 7.2.19-R Mod by LITEAPKS [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214235.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Duolingo: изучай языки 5.115.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214107.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Seal 1.10.0-beta.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214084.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VIP Notes 9.9.74 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214076.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ DIGI Clock Widget Plus 3.3.2 (build 25410) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214066.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ MyFitnessPal: Счетчик калорий 23.15.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213639.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Adobe Acrobat Reader для PDF 22.5.0.22436 Mod by Rajat [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213098.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ NewsFeed Launcher 19.1.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213042.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ RuStore 1.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213029.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Smart Launcher 6 6.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212864.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ AINUR For Android (A4A) - Большой сборник
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212859.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ ZEDGE™ Wallpapers & Ringtones 7.38.5 Mod by Rajat, RBMods, Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212714.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Casse-o-player 3.1.3 Mod by TryRoom [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212668.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ CamScanner 6.20.0.2207030000 Mod by Apps Store [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212624.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ SmartOffice Pro - View & Edit MS Office files & PDFs 3.13.3 Lite-Mod by Balatan,
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212592.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ X-plore File Manager 4.28.65 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212585.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Psiphon Pro  354 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211349.jpg" />
 </div>
 
 

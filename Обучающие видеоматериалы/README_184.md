@@ -1,3 +1,29 @@
+###  Публикация: 495124   (251287) от 11.05.2012
+
+Суставы. Пути восстановления (2011) SATRip
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суставы быстро не восстанавливаются, поскольку в суставных тканях нет кровеносных сосудов. Все методы сводятся к усилению обмена веществ в хрящевой ткани и кровообращения в прилежащих тканях.Жанр: Обучающее видео, ЛекцияПродолжительность: 01:22:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835576   (251253) от 06.11.2025
 
 TrueDO, Александра Фалендуш | Деревянная игрушка (2021) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@ TrueDO, Александра Фалендуш | Деревянная игруш�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251253.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ TrueDO, Виталий Кудряшов | Основы сварочного де
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250986.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ TrueDO, Сергей Дёмкин | Основы столярного дела (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250984.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ TrueDO, Ольга Танана | Основы кожевенного дела (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250982.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ TrueDO, Сергей Дёмкин | Основы работы ручным фр�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250980.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ TrueDO, Александра Катайцева | Основы бытовой р
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250978.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ TrueDO, Александра Катайцева | Продвинутая быт�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250967.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250623.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Max Gor | Работа в системе «1С:Медицина. Больниц�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250617.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250601.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250574.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250454.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ TutorPlace, Наталья Терновская | "1С:Управление на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250441.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Rebelway, Urban Bradesko | Meteor in Houdini and Karma (2021) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250193.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Udemy, Motion Guru | Complete Modeling & Animating a Drone in Blender 3.0 (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250151.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Liveclasses, Андрей Козьяков | Adobe Illustrator: Расширен
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250080.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250057.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ SideFx, Attila Torok | Sexy Explosions in Houdini 18.5 (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250049.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Rebelway, Nick Chamberlain | 8 Essential Compositing Techniques: Free Webinar (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250043.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Thinknetica Pro, Алексей Наумов | Внутреннее устрой
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250041.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ Rebelway, Urban Bradesko | Free Houdini Plugin: Using the Axiom Solver in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250040.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ Scott Eaton | Portraiture and Facial Anatomy Week 1-6 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249988.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ Scott Eaton | Anatomy for Artists Week 1-8 (2012) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249968.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249967.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ CGcircuit, Steven Knipping | Applied Houdini Particles II-V (2017) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249957.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ Applied Houdini ("практический Houdini", "Houdini в практич�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71CCAA7BF52DBBD7D77359583F0E898DF443688E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537940   (249942) от 18.03.2022
-
-CGMA, Johannes Richter | VEX in Houdini with Johannes Richter (2019) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс представляет собой комплексное введение в использование VEX в Houdini. Изучаемые темы включают в себя: внедрение деформаторов столкновений, сглаживание алгоритмами Лапласа и Таубина, шум Перлина и реализацию своего собственного шума fBM (дробное броуновское движение), различные шейдеры на VEX, манипуляции с объемами, пирокластический шум, эрозию террейнов (   Читать дальше...   )Производство: CGMAЖанр: СимуляцияЯзык озвучки: Русский (отдельным файлом)Продолжительность: 17:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F61A7BC0A5C379649EFF5AC689682502CAB4A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,188 @@
+###  Публикация: 335853   (680217) от 13.05.2011
+
+Windows 7 SP1 ALL CLASSIC RUSSIAN PROJECT ©SPA 2011[12.05.11]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_680217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык интерфейса: только русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534902   (680104) от 09.03.2022
+
+8 марта!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680104.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+ 
+Весна – сколько надежд, сколько мечтаний о новых чувствах, новых встречах и открытиях готовит нам это время года!
+Дорогие наши женщины, девушки и девочки! В этот светлый весенний праздник, хочется от всей души пожелать Вам самых важных и бесценных вещей: Здоровья, любви и простого человеческого счастья. Пусть дома всегда царит тепло и уют, пусть близкие и родные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290080   (679948) от 19.03.2019
+
+Новый рекорд Конюхова: сто дней в "ревущих сороковых" Тихого океана
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый российский путешественник Федор Конюхов уже сто дней находится в одиночном плавании на весельной лодке, он первым в мире прошел более половины южной части Тихого океана по «ревущим сороковым» — широтам, издавна известным мореплавателям своим неистовым нравом.«Федор продвинулся дальше всех в Южном океане. По всем стандартам это достижение для океанской (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290200   (679837) от 19.03.2019
+
+MySpace потерял музыку, фото и видео, которые пользователи загружали с 2003 по 2015 годы
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-нибудь это произойдёт с Facebook, Вконтакте, Google Drive, Dropbox и любым другим коммерческим сервисом. Все ваши файлы на облачном хостинге неизбежно будут потеряны со временем. Как это происходит — можно прямо сейчас наблюдать на примере MySpace, бывшего интернет-гиганта и крупнейшей в мире социальной сети.Примерно год назад пользователи заметили, что перестали (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290066   (679826) от 19.03.2019
+
+BELOFF 2019.3 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой на Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также установку Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5A6ED511A404845D04D68DF593EDC97739524D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290234   (679825) от 19.03.2019
+
+Windows 7 SP1 х86-x64 by g0dl1ke 19.3.15 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по март 2019 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA81843CE07750132238C071FCE8015000227FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267432   (679819) от 19.03.2019
+
+X4: Foundations (2018) [Ru/En] (2.20/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679819.jpg" />
+</div>
+
+
+###  Подробнее
+
+X4: Foundations - это космический симулятор, продолжающий знаменитую серию X3. Новая часть позволяет игрокам управлять не только космическими кораблями, но и целой империей, сражаясь, торгуя, и развивая свою территорию.Тип издания: RepackРазработчик: EgosoftЖанр: Action, Simulation, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F321D0A32FF7C5FD7F72FE3E9DA50264A900F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266254   (679816) от 19.03.2019
 
 X4: Foundations (2018) [Ru/Multi] (2.20) License CODEX
@@ -6,7 +191,7 @@ X4: Foundations (2018) [Ru/Multi] (2.20) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679816.jpg" />
 </div>
 
 
@@ -32,7 +217,7 @@ Windows 7 SP1 (x86/x64) 52in1 +/- Office 2016 by SmokieBlahBlah 19.03.19 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679815.jpg" />
 </div>
 
 
@@ -60,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679756.jpg" />
 </div>
 
 
@@ -86,7 +271,7 @@ Adobe Photoshop CC 2015.5.0 (20160603.r.88) RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679755.jpg" />
 </div>
 
 
@@ -112,7 +297,7 @@ Adobe Photoshop CC 2015.5.0 (20160603.r.88) RePack by D!akov (27.06.2016) [Multi
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679753.jpg" />
 </div>
 
 
@@ -138,7 +323,7 @@ Bubble | Коллекция комиксов [257 комиксов] (2012-2016) 
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679752.jpg" />
 </div>
 
 
@@ -164,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679751.jpg" />
 </div>
 
 
@@ -190,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679750.jpg" />
 </div>
 
 
@@ -216,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679731.jpg" />
 </div>
 
 
@@ -242,7 +427,7 @@ VA - Этот великолепный и незабываемый Японск�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679729.jpg" />
 </div>
 
 
@@ -268,7 +453,7 @@ NoNaMe Club PokerTour v.11
 >>20
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_679036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679036.jpg" />
 </div>
 
 
@@ -295,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679035.jpg" />
 </div>
 
 
@@ -321,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679033.jpg" />
 </div>
 
 
@@ -347,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679032.jpg" />
 </div>
 
 
@@ -373,7 +558,7 @@ Windows 7 Professional RTM. X86&X64 VOLUME OEM RU_DVD[SP1 BETA v178 activated] b
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_678831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_678831.jpg" />
 </div>
 
 
@@ -400,7 +585,7 @@ Cheat Engine 5.6 [Rus/Eng] + CE WIP
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_678822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678822.jpg" />
 </div>
 
 
@@ -429,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678759.jpg" />
 </div>
 
 
@@ -455,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678753.jpg" />
 </div>
 
 
@@ -481,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678752.jpg" />
 </div>
 
 
@@ -492,190 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EDB026CA947B8730548D740E6B8D5A9CECA95C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 898140   (678747) от 16.05.2015
-
-Территория (2014) WEB-DLRip [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Территория - это место, где люди проверяются на прочность. Необозримые пространства, где тундра встречается с ледяными торосами Ледовитого океана. Суровый русский север, которому способны бросить вызов немногие. Геолог Илья Чинков, одержимый идеей найти легендарное золото Территории, собирает команду смельчаков, готовых поставить на карту все, включая собственные (   Читать дальше...   )Производство: Россия, Кинокомпания «Андреевский флаг»Жанр: Драма, ПриключенияРежиссер: Александр МельникАктеры: Константин Лавроненко, Григорий Добрыгин, Егор Бероев, Ксения Кутепова, Евгений Цыганов, Владислав Абашин, Герасим Васильев, Константин Шелестун, Константин Балакирев, Олег ШапковПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 02:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8DA6B9C40A41978C273A62FCF6DDAA8F198D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 898247   (678746) от 16.05.2015
-
-Из машины / Ex Machina (2015) BDRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678746.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета - молодой человек, которого нанимает миллиардер, сделавший состояние на высокотехнологичных разработках. Задача работника - провести неделю в удаленном местечке, тестируя женщину-робота с искусственным интеллектом.Производство: Великобритания / DNA Films, Film4Жанр: Фантастика, ДрамаРежиссер: Алекс ГарлендАктеры: Домналл Глисон, Кори Джонсон, Оскар Айзек, Алисия Викандер, Соноя Мизуно, Симара А. Темплмен, Тиффани Писани, Элина АлминасПеревод: Дублированный (BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 01:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0D36D248AF69215756C34949F2D08455049AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803601   (678743) от 16.05.2015
-
-Aldnoah.Zero / Aldnoah Zero / Алдноа.Зеро (ТВ-1) [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x6(ext)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678743.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1972 году на Луне астронавты нашли Гиперврата – древний портал на Марс. Люди стали заселять Красную планету, а вскоре колонисты обнаружили технологию Предтеч под названием Альдноа. Раскрыв ее тайну и получив в руки страшное оружие, доктор Верс Рэйверс объявил (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Аоки ЭйПеревод: Русские субтитры отФормат: MKV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14EF063D119302E4B4BB113A91B35DDE688B543E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897153   (678742) от 16.05.2015
-
-Project CARS (2015) [Ru/Multi] (1.0.1.3/u2/dlc) Repack R.G. Games
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Project CARS - это потрясающее гоночное путешествие!
-Игра Project CARS, протестированная и одобренная страстными поклонниками гонок и реальными гонщиками, принимавшими участие также и в ее создании, представляет собой гоночный симулятор нового поколения, который вобрал в себя невероятную комбинацию фанатской страсти и высокого профессионализма разработчиков.
-Вас (   Читать дальше...   )Тип издания: Переупакованная лицензияРазработчик: Slightly Mad StudiosЖанр: Racing (Cars) / Simulator / 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский,Бразильский (Португальский)Язык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский,Бразильский (Португальский)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB573730A9435CC261A9A753AEE197EA883055E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897751   (678741) от 16.05.2015
-
-Робот по имени Чаппи / Chappie (2015) WEB-DL [H.264/1080p-LQ]
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чаппи — вундеркинд. Как и любой другой ребенок, он попадает под влияние своего окружения, и только его сердце и душа помогут ему найти свой путь. Но есть одна вещь, которая делает Чаппи непохожим на всех остальных: он — первый робот, способный чувствовать и думать.Производство: Мексика, США, Columbia Pictures, Alpha Core, Genre FilmsЖанр: Фантастика, Боевик, ТриллерРежиссер: Нил БломкампАктеры: Шарлто Копли, Дев Патель, Ниндзя, Йоланди Фиссер, Хосе Пабло Кантилльо, Хью Джекман, Сигурни Уивер, Брэндон Оре, Джонни Селема, Андерсон КуперПеревод: Дублированный (iTunes)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), Украинский (Full), Английский (Full)Продолжительность: 02:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6FA1CCCE43F95600C26664DDFABD335DCC375D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222805   (678721) от 02.05.2018
-
-Конспирологи описали форму плоской Земли и опровергли гравитацию
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_678721.jpg" />
-</div>
-
-
-###  Подробнее
-
-В британском городе Бирмингем прошла первая в Великобритании конференция сторонников теории плоской Земли — Flat Earth Convention. Об этом сообщает издание The Telegraph.Около 200 человек, собравшихся в трехзвездочной гостинице на окраине города, три дня обсуждали, какую форму в действительности имеет планета. «Люди начинают пробуждаться, — отметил организатор Flat (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223039   (678697) от 02.05.2018
-
-Win10PE-x64-1803 xlx 01.05.2018 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск (LiveCD) на базе Windows 10 17134.1.180410-1804.RS4_RELEASE_CLIENTCOMBINED_UUP_X64FRE_RU-RU.ISO от xalex.Язык интерфейса: русский,  раскладка по умолчанию - En. Переключение на Ru - как обычно, Shift + Alt
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91056A13B53DC626C567335E7376EDD3D96EAD36
 ```
 
 https://mybot314.ru/tekegram_catalog/

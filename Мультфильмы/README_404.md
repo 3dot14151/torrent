@@ -1,3 +1,133 @@
+###  Публикация: 1760623   (37129) от 16.11.2024
+
+Сборник мультфильмов Эдуарда Назарова (1973-1987) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдуард Назаров - советский мультипликатор, режиссёр и художник. Художник, способный скупыми штрихами карандаша создавать законченный человеческий (и животный) характер. Режиссер, придумавший целый мир героев, безмерно обожаемых несколькими поколениями: «Равновесие страха», «Бегемотик», «Принцесса и людоед», «Охота», «Жил-был пёс», «Путешествие муравья», «Про Сидорова (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражка, мюзикл, комедияРежиссер: Эдуард НазаровАктеры: Лев Любецкий, Георгий Бурков, Армен Джигарханян, Эдуард Назаров, Леонид Куравлёв, Нина Русланова, Нина Корниенко, Александр Градский и др.Субтитры: отсутствуютПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BE2580FAEC88BC8F22A425045CF0FB00057123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757951   (37104) от 16.11.2024
+
+Дикий робот / The Wild Robot (2024) UHD WEB-DL [H.265/2160p] [4K, SDR, 8-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Робот ROZZUM 7134 (сокращенно «Роз») терпит кораблекрушение на необитаемом острове. Он должен научиться приспосабливаться к суровым условиям, постепенно выстраивая отношения с животными на острове и становясь приемными родителем для осиротевшего гусенка.Производство: США / DreamWorks Animation, Universal PicturesЖанр: мультфильм, фантастика, приключенияРежиссер: Крис СандерсАктеры: Лупита Нионго, Педро Паскаль, Кит Коннор, Билл Найи, Стефани Сюй, Мэтт Берри, Винг Реймз, Марк Хэмилл, Кэтрин О'Хара, Boone StormПеревод: дублированный (Red Head Sound, TVShows), профессиональный многоголосый (LostFilm)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full,SDH)Продолжительность: 01:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C362A6F2607E4C81E4F27B25B0FE9B7B3C0ABD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760865   (37061) от 16.11.2024
+
+Лиосаксы в кино / The Lyosacks Movie (2020) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37061.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении многих лет Лиосаксы были смертельными врагами злого доктора Эквила — самого умного ребёнка на свете. Но как раз в тот момент, когда он пытается всё исправить, на планету вторгаются инопланетяне, которые готовы уничтожить человечество, если к утру им не доставят Эквила. Лиосаксы оказываются перед сложным выбором.Производство: ПеруЖанр: мультфильм, фантастикаРежиссер: Альваро КальметАктеры: Альваро Кальмет, Джулиан Дорра, Джон Бэйли, Макс Бауманн, Бенни Ботрос, Реджин Брюн, Аннетт Калмет, Аксель Калмет, Jae Choi, Кэлвин КлерПеревод: Дублированный (NDRecords Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA3011A2F5DF465ABCABAE803DFA1F8D089ECD48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755324   (37036) от 17.11.2024
+
+Легенда о Vox Machina / Легенда Вокс Макины / The Legend of Vox Machina (2024) WEB-DL [H.264/1080p] (сезон 3, серии 1-12 из 12) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они хулиганы, они разношерстные, они неудачники, ставшие наемниками. Они больше заинтересованы в легких деньгах и дешевом эле, чем в реальной защите королевства. Но когда королевству угрожает зло, эта неистовая команда понимает, что только они способны восстановить справедливость...Производство: США / Аmazon StudiosЖанр: для взрослых, мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Ан Сон-джинАктеры: Лора Бэйли, Толизин Джаффе, Эшли Джонсон, Лайам О’Брайэн, Мариша Рэй, Сэм Ригел, Трэвис Уиллингэм, Мэттью Мерсер, Стефани Беатриз, Хари ПэйтонПеревод: Многоголосый профессиональный (NewStation) - Присутствует ненормативная лексика!Язык озвучки: Русский, английскийСубтитры: русские (naruhinka и Где тексты, Лебовски?), английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC48E6FECD043E84F7F3E246D8FBCCD0A2C9A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755326   (37007) от 17.11.2024
+
+Легенда о Vox Machina / Легенда Вокс Макины / The Legend of Vox Machina (2024) WEB-DL [H.264/720p] (сезон 3, серии 1-12 из 12) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они хулиганы, они разношерстные, они неудачники, ставшие наемниками. Они больше заинтересованы в легких деньгах и дешевом эле, чем в реальной защите королевства. Но когда королевству угрожает зло, эта неистовая команда понимает, что только они способны восстановить справедливость...Производство: США / Аmazon StudiosЖанр: для взрослых, мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Ан Сон-джинАктеры: Лора Бэйли, Толизин Джаффе, Эшли Джонсон, Лайам О’Брайэн, Мариша Рэй, Сэм Ригел, Трэвис Уиллингэм, Мэттью Мерсер, Стефани Беатриз, Хари ПэйтонПеревод: Многоголосый профессиональный (NewStation) - Присутствует ненормативная лексика!Язык озвучки: Русский, английскийСубтитры: русские (naruhinka и Где тексты, Лебовски?), английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A9C7FEA1BB14BF08CFC9DA8DCFE43E6E1473CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761028   (37003) от 17.11.2024
 
 Ван-Пис / One Piece (1999) DVDRip [H.265/1080p] (серии 1-206 из ???) Shachiburi, Comix-Art/OPRUS [hand made Upscale AI]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37003.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37000.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36910.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36905.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36904.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36889.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36875.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36795.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36635.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36624.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36622.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36615.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36500.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36422.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36391.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36382.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36376.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36350.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36331.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36278.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36234.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A624F2E65C3020003910F88D8D5E6431B12CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762617   (36102) от 26.11.2024
-
-Дикий робот / The Wild Robot (2024) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робот ROZZUM 7134 (сокращенно «Роз») терпит кораблекрушение на необитаемом острове. Он должен научиться приспосабливаться к суровым условиям, постепенно выстраивая отношения с животными на острове и становясь приемными родителем для осиротевшего гусенка.Производство: США / DreamWorks Animation, Universal PicturesЖанр: мультфильм, фантастика, приключенияРежиссер: Крис СандерсАктеры: Лупита Нионго, Педро Паскаль, Кит Коннор, Билл Найи, Стефани Сюй, Мэтт Берри, Винг Реймз, Марк Хэмилл, Кэтрин О'Хара, Boone StormПеревод: дублированный (Red Head Sound, TVShows)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full,SDH)Продолжительность: 01:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B074EF696B761E2B4CB81E1176ED105E4F8D2835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753713   (35989) от 27.11.2024
-
-Киллер Севен / Scissor Seven (2024) WEBRip [H.264/1080p-LQ] (сезон 5, серии 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стремясь восстановить свою память, вооруженный ножницами парикмахер, квази-ассасин натыкается на борьбу за власть среди враждующих фракций.Производство: Китай, BilibiliЖанр: комедия, приключенияРежиссер: Хэ СяофэнАктеры: Хэ Сяофэн, Цзян Гуантао, Дуань Исюань, Сун МинПеревод: Многоголосый профессиональный (NewStation)Язык озвучки: Русский, китайскийСубтитры: Китайский хардсабПродолжительность: ~00:15:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C7EBA3614EA728CA92D9CD3711EBCBE25BACFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448479   (35911) от 28.11.2024
-
-Иван Царевич и Серый Волк (2011)  Blu-ray 3D [H.264/1080p] [3D/2D]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательная история от создателей богатырской трилогии, в которой героев русских народных сказок ждут новые приключения, опасности и забавные ситуации.Производство: РоссияЖанр: Мультфильм, семейныйРежиссер: Владимир ТоропчинАктеры: Никита Ефремов, Иван Охлобыстин, Артур Смольянинов, Лия Ахеджакова, Кристина Асмус, Виктор Сухоруков, Сергей Гармаш, Михаил Боярский...Перевод: ОригиналСубтитры: НетПродолжительность: 01:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8147C12264DE148967F2933BD2A833FA63E4B2E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763077   (35773) от 29.11.2024
-
-Почти рождественская история / An Almost Christmas Story (2024) WEB-DL [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мун — любопытный совенок, который застревает на рождественской елке, предназначенной для Рокфеллер-плаза. В попытках сбежать из шумного города Мун знакомится с маленькой девочкой по имени Луна. Вместе они отправляются в захватывающее приключение.Производство: США / 88 Pictures, Disney Branded Television, Esperanto FilmojЖанр: мультфильм, короткометражка, фэнтези, приключения, семейныйРежиссер: Дэвид ЛоуриАктеры: Мамуду Ати, Кэри Кристофер, Джим Гэффиган, Gianna Joseph, Наташа Лионн, Estella Madrigal, Алекс Росс Перри, Джон Си Райли, Филип РозентальПеревод: Многоголосый профессиональный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 00:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E72A34D5B3723669551DBBC5A102AE75A8748C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763075   (35748) от 29.11.2024
-
-Сказки А. С. Пушкина (1940-1984) DVDRip [Полная реставрация изображения и звука]
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационные фильмы по сказкам А. С. ПушкинаПроизводство: СССР / СоюзмультфильмЖанр: мультфильм, детский, фэнтези, семейный, короткометражкаРежиссер: Михаил Цехановский, Иван Иванов-Вано, Александра Снежко-Блоцкая, Инесса Ковалевская, Иван Иванов-Вано - Лев МильчинАктеры: Анастасия Зуева, Мария Бабанова, Борис Чирков, Владимир Грибков, Георгий Милляр, Вера Попова, Мария Бабанова, Галина Новожилова, Зинаида Бокарева, Алексей Консовский и др.Субтитры: отсутствуютПродолжительность: 03:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AE6D255FC0A915CD0DB10FF69353D30F801318
 ```
 
 https://mybot314.ru/tekegram_catalog/

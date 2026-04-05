@@ -1,22 +1,22 @@
-###  Публикация: 1241845   (517825) от 19.08.2018
+###  Публикация: 929554   (518506) от 20.08.2015
 
-Апгрейд / Upgrade (2018) WEB-DLRip  [H.264/1080p] [MVO] [AD]
+А. И. Мельчин | Американская интервенция на советском Дальнем Востоке в 1918-1920 гг. (1951) [DJVU]
 
->>
->>
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_517825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518506.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие разворачивается в ближайшем будущем, в котором разнообразные технологии участвуют во всех аспектах человеческой жизни. Главный герой — технофоб, который мстит за убийство жены и собственную физическую травму, вызвавшую частичный паралич. Главное оружие возмездия — экспериментальный компьютерный чип-имплант под названием Stem.Производство: Австралия, Blumhouse Productions, Goalpost PicturesЖанр: Боевик, Ужасы, Фантастика, ТриллерРежиссер: Ли УоннеллАктеры: Логан Маршалл-Грин, Ричард Анастасиос, Роско Кэмпбелл, Ричард Коуторн, Линда Кроппер, Стив Даниелсен, Майкл М. Фостер, Бетти Гэбриел, Рена Галлахер, Харрисон Гилбертсон ...Перевод: Любительский многоголосый закадровый (Колобок)Субтитры: нетПродолжительность: 01:39:55Реклама: Присутствуют вставки текстовой рекламы
+Одним и наиболее активных направлений для агрессивных, грабительских устремлений американского империализма во второй половине XIX века, наряду с островом Гаити, Гавайскими и Филиппинскими островами и Китаем, стал русский Дальний Восток. Его упорное стремление захватить последний с его неисчерпаемыми богатствами определило и враждебную России политику правительства (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E3F3BDD675D3D6EE9A8872A14AB1D990CE420058
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241848   (517824) от 19.08.2018
+###  Публикация: 929739   (518505) от 20.08.2015
 
-Гоголь. Вий (2018) BDRip [H.264]
+Татьяна Тронина | Цветы мертвы (2005) [PDF, DJVU]
 
->>
->>
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_517824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518505.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Писарь из Санкт-Петербурга Николай Гоголь бросает вызов загадочному тёмному Всаднику, который жестоко расправляется с девушками в окрестностях села Диканька. Собрав команду из местного полицейского, пьяницы-доктора, суеверного кузнеца и странствующего философа-экзорциста, Гоголь пытается заманить злодея в ловушку, но на его пути встает самое жуткое порождение нечистой (   Читать дальше...   )Производство: Россия, Продюсерская компания «Среда»Жанр: Детектив, приключения, драмаРежиссер: Егор БарановАктеры: Александр Петров (II), Евгений Стычкин, Таисия Вилкова, Артём Ткаченко, Сергей Бадюк, Ян Цапник, Алексей Вертков, Марта Тимофеева, Юлия Франц, Ксения РазинаПеревод: Не требуется (Лицензия BD RUS)Субтитры: Русские, английскиеПродолжительность: 01:39:13
+Долгие годы Вадим, молодой отчим Ольги, отчаянно, страстно любил свою красавицу падчерицу. Теперь, когда жена умерла, он не собирается останавливаться ни перед чем, чтобы пробудить в девушке ответное чувство. И пусть Ольга, обвиняя Вадима в смерти матери, испытывает к нему жуткую ненависть, пусть бежит от него в маленький провинциальный городок — влюбленный мужчина (   Читать дальше...   )Жанр: РоманФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:8AAE68E264497BFA9D79189592FE1BABA2CFCB14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241816   (517823) от 19.08.2018
+###  Публикация: 929471   (518504) от 20.08.2015
 
-Девятый пассажир / The Ninth Passenger (2018) WEB-DLRip [MVO] [AD]
+Costa Cadeu - Cadeu (2015) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Glitch, Experiemental>
 
->>Остальное
->>Фильмы с Рекламой
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ночная вечеринка в открытом море. На борту яхты - восемь человек. Яхта принадлежит отцу одного из пассажиров, и отец этот является директором биотехнологической компании. Но из-за поломки веселье заканчивается довольно быстро, и герои вынуждены дрейфовать в сторону тёмного острова. Тут-то и выясняется, что среди них есть кое-кто ещё. Мутант-убийца начинает охоту.Производство: Канада \ 308 EntЖанр: Триллер, ужасыРежиссер: Кори ЛарджАктеры: Алексия Фаст, Джесси Меткалф, Тимоти В. Мерфи, Цинта Лаура Кил, Сабина Гадеки, Том Мэден, Вероника Данн, Кори Лардж, Дэвид Хеннесси, Эрик РобертсонПеревод: Многоголосый закадровый, любительский (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:15:40Реклама: Присутствуют вставки текстовой рекламы
+01. What (6:06)
+02. Shakes (5:09)
+03. Alexandra (5:14)
+04. Hellag (4:15)(   Читать дальше...   )Жанр: IDM, Ambient, Glitch, ExperiementalПродолжительность: 00:57:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42128D45B8D67D03551173A0BC4F1B0077FD7C76
+magnet:?xt=urn:btih:A83C2C6153DF0AC5123C5B2033C5F23D5B1B7508
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238707   (517822) от 19.08.2018
+###  Публикация: 929476   (518503) от 20.08.2015
 
-This Is the Police 2 (2018) [Ru/Multi] (1.0.7.0) License CODEX
+Failure - Fantastic Planet (1996) [OGG| 477-552 кб/с]<Alternative Rock, Space Rock, Grunge>
 
->>След.
->>Simulation (Other)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Трактуйте законы как вам вздумается в This Is the Police 2, продолжении знаменитой нуар-драмы This Is the Police! Руководите департаментом шерифа, управляйте копами, расследуйте, допрашивайте, заключайте под стражу. Принимайте сложные решения – и постарайтесь сами не угодить за решетку! – в этом коктейле из приключенческой игры, стратегии и пошаговых тактических (   Читать дальше...   )Тип издания: LicenseРазработчик: Weappy StudioЖанр: Adventure, Strategy, SimulationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+01. Saturday Saviour
+02. Sergeant Politeness
+03. Segue 1
+04. Smoking Umbrellas(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, GrungeПродолжительность: 01:08:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D28F3AAF656CA59B843835AB8F446B4B673260B
+magnet:?xt=urn:btih:353CA1ECA84E6A70909371B50777A71FB974E1EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241917   (517820) от 19.08.2018
+###  Публикация: 929454   (518502) от 20.08.2015
 
-Дэдпул 2 / Deadpool 2 (2018) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [Super Duper Cut]
+Failure - The Heart Is a Monster (2015) [OGG| 391-551 кб/с]<Alternative Rock, Space Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Единственный и неповторимый болтливый наемник — вернулся! Ещё более масштабный, ещё более разрушительный и даже ещё более голозадый, чем прежде! Когда в его жизнь врывается суперсолдат с убийственной миссией, Дэдпул вынужден задуматься о дружбе, семье и о том, что на самом деле значит быть героем, попутно надирая 50 оттенков задниц. Потому что иногда чтобы делать (   Читать дальше...   )Производство: США / Marvel EntertainmentЖанр: фантастика, боевик, комедия, приключенияРежиссер: Дэвид ЛитчАктеры: Джош Бролин, Райан Рейнольдс, Морена Баккарин, Зази Битц, Брианна Хилдебранд, Брэд Питт, Билл Скарсгард, ТиДжей Миллер, Терри Крюс, Роб ДеланиПеревод: Дублированный (Лицензия EUR)Субтитры: Русские, АнглийскиеПродолжительность: 02:13:59
+01. Segue 4
+02. Hot Traveler
+03. A.M. Amnesia
+04. Snow Angel(   Читать дальше...   )Жанр: Alternative Rock, Space RockПродолжительность: 01:03:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86E802DDDB4A12F109805CBC1E1B4FC42E629460
+magnet:?xt=urn:btih:5A609741728432B5C9FD59CE546DDC78AD124147
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,28 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241803   (517819) от 19.08.2018
+###  Публикация: 929507   (518501) от 20.08.2015
 
-VA - Top50: Tracks Deep House (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
+Airwave - LCD Sessions 001 - 005 (2015) [MP3|320 кб/с|(image + .cue)]<Trance, Progressive Trance,House>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 7even (GR) - Hard Tryin (Original Mix) 5:06
-02. Tebra - Mladost (Original Mix) 6:28
-03. Camelphat & Elderbrook - Cola (DJ Dark & MD DJ Remix Extended) 4:34
-04. KVPV - Without Your Love (Original Mix) 3:51(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 04:34:41
+01. Dim Line - Cold Home on Neptune
+02. ID - ID
+03. Monojoke & Tuxedo - Fallen Culture (Dark Soul Project In Love Remix)
+04. Reflection Soul pres. Dofamine - Lost Time (Alex Vidal Remix)(   Читать дальше...   )Жанр: Trance, Progressive Trance,HouseПродолжительность: 02:02:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCC6032BB65AF84CB31660C5C0D993B26346226A
+magnet:?xt=urn:btih:27DC05A6BF8660DB33BCB0D1984C251314461603
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,28 +166,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241806   (517818) от 19.08.2018
+###  Публикация: 929710   (518500) от 20.08.2015
 
-VA - Top50: Tracks Deep House Ver.2 (2018) [MP3|320 Kbps] <Deep House, Club House, GHouse, Voca lHouse>
+Вот что происходит. 15 лет после гибели "Курска". Как изменился подводный флот  (2015) SATRip
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. VetLove & Mike Drozdov - This Is The Time (Dub Mix) 6:06
-02. Antic - Can Believe (Original Mix) 5:06
-03. Golden Features - Woodcut (Original Mix) 4:04
-04. M-22 feat. Medina - First Time (Disco Fries Extended) 4:19(   Читать дальше...   )Жанр: Deep House, Club House, GHouse, Voca lHouseПродолжительность: 04:10:39
+Подводная лодка «Курск». 15 лет трагедии. Что случилось с атомоходом и какие изменения с тех пор произошли на флоте? Наш гость - капитан первого ранга, военный эксперт Виктор Сирык.Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: ТелепередачаПродолжительность: 00:15:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4845922404A8FBE35247CF73E64ECAC3503ABA50
+magnet:?xt=urn:btih:249E7B7FBE5A6655F851281E7FDBD17A85499DCC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,54 +192,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241765   (517817) от 19.08.2018
+###  Публикация: 929566   (518499) от 20.08.2015
 
-VA - Club Dance Ambience (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+Icecream Slideshow Maker 1.29 [Multi/Ru]
 
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517817.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adrian Lux - Teenage Crime (Shevtsov & Krasavin Remix)
-002. Aiden Jude &  Max Landry - Sub Zero (Kue Remix)
-003. Alen Morris - Over You (Club Mix)
-004. Alma Ft. Tove Styrke - Good Vibes (Just Kiddin Remix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro HouseПродолжительность: 07:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12397C927CF0302875AA57162EDF25EDE5955A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241842   (517816) от 19.08.2018
-
-Victoria 4.68b SSD Portable [En]
-
->>След.
+>>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатная программа "Victoria" предназначена для тестирования, измерения характеристик, сервисного обслуживания накопителей HDD, SSD, Flash с интерфейсами IDE/SATA, USB, SCSI, и др., в рамках стандарта по управлениюЯзык интерфейса: Английский
+Бесплатная, простая и эффективная утилита для создания презентаций и слайдшоу. Позволяет оживить набор фотографий с помощью большого количества эффектов и наложения музыки.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA7FB9AD8895145EA3C9BA5F7C249A41E2DF6237
+magnet:?xt=urn:btih:1FA5AB4AC417D4E90C0F0443DBFA2141558CE732
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,326 +218,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241668   (517815) от 19.08.2018
+###  Публикация: 929567   (518498) от 20.08.2015
 
-Windows 10 Enterprise VL (x86/x64) Elgujakviso Edition (v.18.08.18) [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборки сделаны на основе оригинальных образов от Microsoft. (April 2018).
-Установлен NET Framework 3.5 (включает .NET 2.0 и 3.0). Сборки предназначены для тех, кому нужно система полноценно рабочая стабильная, но без основных компонентов слежки и собирания информации. Для получения полной информаций об изменениях, читайте раздел "дополнительная информация".Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC0DC9C7117099C507094F89190A9B3389CB951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222843   (517814) от 19.08.2018
-
-The Forest (2018) [Ru/Multi] (1.09) License CODEX
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517814.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Forest — это необычный survival horror с открытым миром. Основная цель игры – выжить любой ценой на обитаемом острове. Главный герой попадает на остров в результате авиакатастрофы. Крушение самолёта происходит в случайном месте на острове, поэтому развивающиеся события полны неожиданностей. Вам предлагается основная задача – выжить, отыскать и спасти сына, которого (   Читать дальше...   )Тип издания: LicenseРазработчик: Endnight Games LtdЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EDB4F55B727B6B1A9960B4CD1D09278609BA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 330960   (517813) от 19.08.2018
-
-В бой идут одни «старики» (1973/2009) BDRip [H.264/1080p] [Цветной]
-
->>След.
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта эскадрилья стала «поющей» — так капитан Титаренко подбирал себе новичков. Его «старикам» было не больше двадцати, но «желторотиков», пополнение из летных училищ ускоренного выпуска, в бой все равно, по возможности, не пускали.
-Им еще многое предстояло испытать — и жар боев, и радость первой победы над врагом, и величие братства, скрепленного кровью, и первую (   Читать дальше...   )Производство: СССР, к/ст им. А. ДовженкоЖанр: Военный, Драма, КомедияРежиссер: Леонид БыковАктеры: Леонид Быков, Сергей Подгорный, Сергей Иванов, Рустам Сагдуллаев, Евгения Симонова, Ольга Матешко, Владимир Талашко, Алексей Смирнов, Виктор Мирошниченко, Григорий Гладий, Юрий Саранцев, Алим Федоринский, Александр Немченко, Вилорий Пащенко, и др.Субтитры: нетПродолжительность: 01:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CFCB032A5AD5051ABDD4D80EC8F2D27BD6A4720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302178   (517812) от 19.08.2018
-
-Трое из Простоквашино / Каникулы в Простоквашино / Зима в Простоквашино / Бобик в гостях у Барбоса / Приключения Васи Куролесова (1978-1984) HDRip
-
->>След.
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жил-был мальчик по прозвищу Дядя Федор. Он очень любил животных, но его родители и слышать ничего не хотели о том, чобы в их квартире завелся кто-то хвостатый и лохматый.
-И пришлось Дяде Федору со своими новыми приятелями - котом Матроскиным и верным песиком Шариком - отправиться в деревню Простоквашино.Жанр: Мультфильм, семейныйРежиссер: Владимир ПоповПерсонажи: Дядя Фёдор (Мария Виноградова), Кот Матроскин (Олег Табаков), Шарик (Лев Дуров), Печкин (Борис Новиков), Папа (Герман Качин), Мама (Валентина Талызина)Продолжительность: 01:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590364D46AE6CF69C46CBF906425546C6A1982BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241225   (517811) от 19.08.2018
-
-Adobe Photoshop CC 2018 (19.1.5.61161) Portable by XpucT [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC — многофункциональный графический редактор, разработанный и распространяемый фирмой Adobe Systems. В основном работает с растровыми изображениями, однако имеет некоторые векторные инструменты. Продукт является лидером рынка в области коммерческих средств редактирования растровых изображений и наиболее известным продуктом фирмы Adobe.Язык интерфейса: Русский и английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B748A4499734E64636C1518237E1DDAA3732A620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240956   (517810) от 19.08.2018
-
-ITVDN | Видео курс C++ Starter (2018) PCRec [H.264/720p-LQ]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс С++ Starter состоит из 13 логически взаимосвязанных уроков, изучив которые вы освоите синтаксис языка С++. После прохождения данного курса, вы будете понимать основные принципы работы и построения программ. Освоите основы хранения информации в памяти компьютера. Вы сможете создавать свои небольшие программы, работать с памятью компьютера и с данными которые (   Читать дальше...   )Производство: ITVDNЖанр: Программирование, C++Продолжительность: 09:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9F5361F2BCFD477296210D3134B3BEC458EC9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241878   (517809) от 19.08.2018
-
-Дэдпул 2 / Deadpool 2 (2018) BDRip [H.264] [Super Duper Cut]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственный и неповторимый болтливый наемник — вернулся! Ещё более масштабный, ещё более разрушительный и даже ещё более голозадый, чем прежде! Когда в его жизнь врывается суперсолдат с убийственной миссией, Дэдпул вынужден задуматься о дружбе, семье и о том, что на самом деле значит быть героем, попутно надирая 50 оттенков задниц. Потому что иногда чтобы делать (   Читать дальше...   )Производство: США, 20th Century Fox, Marvel Entertainment, Donners' Company, Kinberg Genre, Marvel EntertainmentЖанр: Фантастика, Боевик, Комедия, ПриключенияРежиссер: Дэвид ЛитчАктеры: Джош Бролин, Райан Рейнольдс, Морена Баккарин, Зази Битц, Брианна Хилдебранд, Брэд Питт, Билл Скарсгард, ТиДжей Миллер, Терри Крюс, Роб ДеланиПеревод: Дублированный (Лицензия)Субтитры: Русские (Full), Английские (Full)Продолжительность: 02:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8675DB56D03BCC875A47AB79BBD675B96EE1F496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560946   (517808) от 02.07.2022
-
-Sonny Clark & Buddy DeFranco (De Franco) Quartet - Complete Sessions (1954) 2CD, 2004, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517808.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jack the Fieldstalker [3:08]
-02. Cable Car [4:04]
-03. I Wish I Knew [4:54](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 02:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DA49E2860555037FBA32433953D33E9AA5E4A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560798   (517807) от 02.07.2022
-
-Overthrone - The Path of Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517807.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Masochist
-2. Endless Decay
-3. Watch the World Burn
-4.Prisoner(   Читать дальше...   )Жанр: Alternative, Metalcore, Post-HardcoreПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F21EE1C17B6F0AA1EDBA6021023BB62C8DFB89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560794   (517806) от 02.07.2022
-
-Blood Command - Praise Armageddonism (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Praise Armageddonism (Awake Theme) [00:02:50]
-02 - Saturday City [00:04:09]
-03 - The End is Her [00:03:41]
-04 - Everything You Love Will Burn [00:01:23](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8CAB91A182944135771EA2CD225DF04E0EB613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560568   (517805) от 02.07.2022
-
-Lodestar - 2 Albums (2021-2022) [MP3|320 Kbps] <Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morningstar [00:02:10]
-02. Go On Without Me [00:04:33]
-03. To Hell And Back [00:04:14]
-04. The Shining Path [00:04:33](   Читать дальше...   )Жанр: Doom Metal, Gothic MetalПродолжительность: 2 CD, 01:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54EA804618D1DF93C7DE8AD8AB55D5C8B16E909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560926   (517804) от 02.07.2022
-
-Iridient Developer 3.7.0 U2B [En]
+Icecream Image Resizer 1.23 [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.07.2022Разработчик: © 2022 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+Бесплатная программа, созданная для удобного и быстрого изменения размеров фотографий. Программа поддерживает основные графические форматы такие как JPEG, JPG, PNG и TIFF. Можно установить нужные значения высоты и ширины как вручную, так и используя готовые шаблоны. Image Resizer позволяет быстро добавить и уменьшить или увеличить размеры любого количества файлов.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AE6B5FAEE2CBE9DB14B1FDBE5DDBA2627AE1A24
+magnet:?xt=urn:btih:97E1A296371798D84F5241B8C6542EC3F4FF90E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,28 +244,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560395   (517803) от 02.07.2022
+###  Публикация: 929599   (518497) от 20.08.2015
 
-Lobate Scarp - You Have It All (2022) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
+Ghost - Meliora (2015) [MP3|320 кб/с]<Heavy Metal, Occult Rock>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Conduit (7:00)
-02. Nothing Wrong (6:17)
-03. In The Night I (0:55)
-04. Life-Line (5:55)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:06:42
+1. Spirit
+2. From The Pinnacle To The Pit
+3. Cirice
+4. Spöksonat(   Читать дальше...   )Жанр: Heavy Metal, Occult RockПродолжительность: 00:41:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB49CFF8681B42CBFF27C28A7230358766035789
+magnet:?xt=urn:btih:8F77C8C198ED77BE20FF1574D2315305976FEA5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,28 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560814   (517802) от 02.07.2022
+###  Публикация: 929679   (518496) от 20.08.2015
 
-Satyr - Totem (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Progressive, Math Rock>
+VA - Best Intim Music (2015) [MP3|320 кб/с]<Chillout, Lounge>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Seam
-02. Whelmed
-03. Vector
-04. Bloom(   Читать дальше...   )Жанр: Post-Hardcore, Progressive, Math RockПродолжительность: 00:40:40
+01. Mykel Mars - Good Time - Daft Lounge Mix
+02. Jess & Jess - Rotance
+03. Glady Gowans - Playing Around
+04. Emma Luna - Lunas(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 05:12:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B113C74366D7F56E5C49BF07B75297B9A8535654
+magnet:?xt=urn:btih:89EDEB888E5C478CC4F6D6BCAA0BFFDAF61B88C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,28 +302,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560796   (517801) от 02.07.2022
+###  Публикация: 929788   (518495) от 20.08.2015
 
-Superheist - MMXX (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rapcore, Nu Metal>
+VA - Trance Desire Volume 53 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Last Chance To Leave
-02. Medicated
-03. Destination Unknown
-04. A History Of Violence(   Читать дальше...   )Жанр: Alternative, Rapcore, Nu MetalПродолжительность: 00:51:11
+01. Nick Rowland - Abandoning The Faith (Nick Rowland Mix) (06:15)
+02. Neo & Farina - Alba Rossa (Remastered Original Vocal Mix) (09:33)
+03. Alex M.O.R.P.H. ft. Sylvia Tosun - An Angel's Love (Vocal Mix) (08:29)
+04. Michael Badal feat. Shanokee - Blue Skies (Temple One Remix) (03:40)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:09:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F006DD1B52ABC4E8F898225ADCF03EDDA4FA26D1
+magnet:?xt=urn:btih:8BF379C66E241ACDF9BE4DA2A512817C6AAFE6CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,28 +331,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560589   (517800) от 02.07.2022
+###  Публикация: 929736   (518494) от 20.08.2015
 
-Conjurer - Páthos (2022) [MP3|320 Kbps] <Sludge, Doom Metal, Post-Metal>
+Екатерина Мишаненкова (ред.) | Коко Шанель. У женщин нет друзей (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шанель совершила главное открытие ХХ века. Она открыла Женщину. Ее судьба уникальна. Ее высказывания – злые, умные, точные – это девиз каждого, кто называет себя Женщиной. Однако Шанель была также далека от феминизма, как доморощенные альфа-самцы.
+Это издание построено по очень удобной для читателя схеме. Афоризмы и цитаты великой Коко перемежаются с самыми интересными (   Читать дальше...   )Жанр: БиографииФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9171382C4CCC1AD02BFF7E2C433B90752C0A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929621   (518493) от 20.08.2015
+
+Blank & Jones - Relax Jazzed 2 by Marcus Loeber (2014) [FLAC|tracks + .cue]<Lounge, Chillout, Jazzy>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby (Les Yeux Fermes)   [5:57]
+  02. Balearic Blue   [5:20]
+  03. Sunny Side Up   [5:01]
+  04. Le Grand Bleu   [5:18](   Читать дальше...   )Жанр: Lounge, Chillout, JazzyПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5B219185A98F7ED6B226CFBA8624F2ED8B53FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929808   (518492) от 20.08.2015
+
+The Murder of My Sweet - Beth Out of Hell (2015) [MP3|320 кб/с]<Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It Dwells (07:05)
-02. Rot (06:19)
-03. All You Will Remember (07:25)
-04. Basilisk (05:14)(   Читать дальше...   )Жанр: Sludge, Doom Metal, Post-MetalПродолжительность: 00:50:20
+01. Hell on Earth
+02. The Awakening
+03. World in Ashes
+04. Always the Fugitive(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:11:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1C7115EE038245FCEAE37EFCBC98ACA8CC4F46D
+magnet:?xt=urn:btih:E0B9DF846B8B964FC28900D3674C9E943829A95F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,28 +416,300 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560934   (517799) от 02.07.2022
+###  Публикация: 929286   (518491) от 20.08.2015
 
-Peter Goalby - I Will Come Runnin' (2022) [FLAC|Lossless|image + .cue] <Classic Rock, AOR>
+Новый оптический чип позволяет перепрограммировать квантовый компьютер за секунды времени
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_518491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Will Come Runnin' (3:34)
-02. Rock 'n' Roll Crazy (3:29)
-03. A Brand New Love (3:35)
-04. Dancing On Water (3:38)(   Читать дальше...   )Жанр: Classic Rock, AORПродолжительность: 00:39:19
+Полностью перепрограммируемый оптический чип, способный обработать и направить фотоны света по бесчисленному количеству заранее запрограммированных путей в недрах квантовых компьютеров, был разработан совместными усилиями исследователей из университета Бристоля, Великобритания, и компании Nippon Telegraph and Telephone (NTT), Япония. Создание универсального "линейного (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2836907C65D9A9891CC07EB9181C36980472C5C
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929458   (518490) от 20.08.2015
+
+Armin van Buuren - Armin Only: Episode 2015(Mix and Compiled by Dj Snow (DV)) (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Armin van Buuren - Miserere & Rush Hour (Original Mix)
+02 Armin van Buuren & Jean-Michel Jarre - Stardust (Album Full Mix)
+03 Armin van Buuren - Communication part 2 (Original mix)
+04 Armin van Buuren pres. Gaia - In Principio (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 04:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAFE88E429D8178ACB2C2CF87A0BECA680B0F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929568   (518489) от 20.08.2015
+
+Icecream Media Converter 1.55 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и простой в использовании конвертер медиафайлов, поддерживающий основные аудио- и видеоформаты. Icecream Media Converter также позволяет скачать видео с Youtube и конвертировать его в AVI, MP4, MP3 и др. Благодаря интуитивно-понятному интерфейсу программы, задача преобразования файлов форматов AVI, MKV, MP4, WMV, MP3, WAV, MPEG, WMA и др. как в видео-, так (   Читать дальше...   )Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760DB69E718B54C19A3EB2F1E9B1B55D773E61F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929580   (518488) от 20.08.2015
+
+King Gizzard and the Lizard Wizard - I'm In Your Mind Fuzz (2014) [OGG| 487-614 кб/с]<Alternative, Psychedelic Rock, Garage Soul, Surf>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm In Your Mind
+02. I'm Not In Your Mind
+03. Cellophane
+04. I'm In Your Mind Fuzz(   Читать дальше...   )Жанр: Alternative, Psychedelic Rock, Garage Soul, SurfПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAFB97DD557EFCB7C3B70AFE7DC841F31D12D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929756   (518487) от 20.08.2015
+
+Wolfheart - Shadow World (2015) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518487.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aeon Of Cold
+2. Zero Gravity
+3. Storm Centre
+4. Last Of All Winters(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EE5151D2CA2A214A785BB41BDFAE2E75DD5247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929784   (518486) от 20.08.2015
+
+Виталий Вавикин | Суккубус (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихи Эдгара Аллана По, его страхи и надежды смешиваются с живыми картинами гениального художника и трагедией, унесший во время гражданской войны жизни его слуг и семьи, превратив гениальность в помешательство. Его картины становятся картой пережитых им страданий. Его дом превращается в галерею ужасов, способную открыть ворота в ад. Теперь зло ищет творца, способного (   Читать дальше...   )Жанр: мистикаПродолжительность: 08:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1319DE7A4D3C3744DFAE3A408DDB6207837BDB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929530   (518485) от 20.08.2015
+
+Железный Шурик (2012) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об известном советском политическом деятеле Александре Николаевиче Шелепине. Его карьере многие завидовали и считали крайне удачной. В сталинское время - один из лидеров московского комсомола; в хрущевский период - стремительный взлет до главы КГБ СССР (где получил прозвище "Железный Шурик") и одного из лидеров партии. Его считали доверенным (   Читать дальше...   )Телекомпания: ИсторияЖанр: ДокументальныйПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F2652FB0266E6345B1E03E66344E6803A1E8A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929534   (518484) от 20.08.2015
+
+Miami Horror - All Possible Futures (2015) [MP3|320 кб/с]<New Wave , Synth Pop , Electropop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518484.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. American Dream (3:39)
+2. Real Slow (feat. Sarah Chernoff) (4:46)
+3. Love Like Mine (feat. Cleopold) (4:10)
+4. Cellophane (So Cruel)Жанр: New Wave , Synth Pop , ElectropopПродолжительность: 01:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFC620AA171AEF6495554AE2089BE2DEEFE9D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929622   (518483) от 20.08.2015
+
+IObit Uninstaller 5.0.3.169 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518483.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller - поможет вам быстро и без усилий удалить ненужные программы и папки с вашего компьютера.Там, где встроенный неповоротливый диалог «Установка и удаление программ» не справляется с возложенной на него задачей, IObit Uninstaller принимает эстафету, эффективно выполняя свою работу.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB6DD872F561DA354962BB4F302AD939650B717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929655   (518482) от 20.08.2015
+
+Privacy Eraser Free 4.2.6 build 1541 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент для очистки системы от мусорных файлов и реестра от ненужных записей. Позволяет уничтожить следы работы с web-сайтами, локальными документами, программами и т.п. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК, а также позволяет настроить очистку системы "под себя".Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C941143B3E3E1A0A786E45A30559B092D3614C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929817   (518481) от 20.08.2015
+
+VA - Electro Life 38 (by ZiP)(2015) [MP3|320 kbps]<Electro House, Dubstep, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer - What A Feeling (Cassey Doreen Remix)
+02. Basto - Hold You (Extended Mix)
+03. Calvin Harris ft. Ellie Goulding - Outside (Original Mix)
+04. Celine Dion - My Heart Will Go On (Night Rain Project Remix)(   Читать дальше...   )Жанр: Electro House, Dubstep, HouseПродолжительность: 01:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9672C2EAAA59027CDC229BC073066635F6053FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

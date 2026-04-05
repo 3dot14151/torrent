@@ -1,32 +1,3 @@
-###  Публикация: 1482443   (22237) от 07.04.2025
-
-Zerocoder, Вадим Михалев | Зерокодер мобильных приложений [Тариф Бизнес] (2021) PCRec [AD]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый в СНГ курс по сверхбыстрой разработке приложений для IOS и Android без кода.
-Стоимость курса «Бизнес» 52 700 руб.
-Начало потока 31 марта 2021.
-(   Читать дальше...   )Производство: ZerocoderЖанр: Zerocoding, разработка мобильных приложенийПродолжительность: 23:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0870096B9D95476C2E1C3FDFA1F2C8860ABCC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698212   (22236) от 07.04.2025
 
 Zerocoder | Станьте профессиональным зерокодером (2023) WEB-DL [AD] [RU]
@@ -35,7 +6,7 @@ Zerocoder | Станьте профессиональным зерокодеро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22236.jpg" />
 </div>
 
 
@@ -63,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22235.jpg" />
 </div>
 
 
@@ -92,7 +63,7 @@ Zerocoder, Кирилл Пшинник, Мария Размазина и д.р. 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22234.jpg" />
 </div>
 
 
@@ -118,7 +89,7 @@ Zerocoder, Вадим Михалев | Зерокодер на Bubble (2020) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21893.jpg" />
 </div>
 
 
@@ -147,7 +118,7 @@ Stepik, Дмитрий Фокеев | Полный курс по React JS (Redux
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21394.jpg" />
 </div>
 
 
@@ -176,7 +147,7 @@ Udemy, Антон Ларичев | Docker + Ansible - с нуля, деплой 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21076.jpg" />
 </div>
 
 
@@ -202,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20952.jpg" />
 </div>
 
 
@@ -228,7 +199,7 @@ PurpleSchool, Антон Ларичев, Сергей Краснолобов | R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20350.jpg" />
 </div>
 
 
@@ -254,7 +225,7 @@ Udemy, Christ Raharja | Cloning Yourself with AI: Create AI Version of Yourself 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20337.jpg" />
 </div>
 
 
@@ -280,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19502.jpg" />
 </div>
 
 
@@ -306,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19501.jpg" />
 </div>
 
 
@@ -335,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19326.jpg" />
 </div>
 
 
@@ -364,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19224.jpg" />
 </div>
 
 
@@ -390,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18385.jpg" />
 </div>
 
 
@@ -419,7 +390,7 @@ PurpleSchool, Антон Ларичев, Игорь Орлов | Kubernetes и H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18375.jpg" />
 </div>
 
 
@@ -446,7 +417,7 @@ Udemy, Rick Crisci | Beginner Introduction to Containers, Docker, and Kubernetes
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18047.jpg" />
 </div>
 
 
@@ -472,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16639.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ Udemy, Виктор Быстров | Как БЫСТРО находить люд
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16460.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ PurpleSchool, Антон Ларичев | Основы Git (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15917.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ PurpleSchool, Андрей Соколов, Антон Ларичев | Осно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15904.jpg" />
 </div>
 
 
@@ -581,7 +552,7 @@ Udemy, Julien Deville | Blender 4.4 The complete training (2025) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15789.jpg" />
 </div>
 
 
@@ -607,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15402.jpg" />
 </div>
 
 
@@ -634,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15387.jpg" />
 </div>
 
 
@@ -663,7 +634,7 @@ LiveClasses, Антон Мартынов | Обзор возможностей D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15222.jpg" />
 </div>
 
 
@@ -689,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15196.jpg" />
 </div>
 
 
@@ -700,6 +671,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E9D09090C7B0A63FBCEB840C61EA25E6CCB5857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801125   (15192) от 09.06.2025
+
+Валерия Ананян | Нейросети для маркетплейсов и соцсетей. Тариф PRO (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс предназначен для тех, кто только начинает знакомиться с искусственным интеллектом, и для тех, кто уже имеет опыт работы с ИИ, но хочет расширить свои знания и навыки.Жанр: видеокурс, обучающий курс, нейросети, маркетплейсыЯзык озвучки: русскийПродолжительность: 04:56:41Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3902B3ADF63E26FC69A7D3A3AF977021AD8BBDF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

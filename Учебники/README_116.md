@@ -1,3 +1,56 @@
+###  Публикация: 1702953   (115349) от 27.02.2024
+
+И.Н. Добротворский | Теория электрических цепей. Задачник (1994) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является третьей частью комплекса учебной литературы по теории электрических цепей для техникумов связи (первые две части - учебник и лабораторный практикум того же автора изданы в 1990 и 1991 гг. соответственно). Главы и разделы данного сборника задач полностью соответствуют главам учебника. Более 40% задач снабжены объяснениями и разнообразными методическими (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Радио и связьФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC3716CA35FE1A4298C5D983C3337952CE41C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703032   (115346) от 27.02.2024
+
+С.И. Баскаков | Электродинамика и распространение радиоволн (1992) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излагаются основы макроскопической электродинамики, теория плоских электромагнитных волн в различных средах, методы расчетов волноводных и колебательных систем, а также устройств излучения и приема электромагнитных волн. Рассмотрены вопросы компьютерного анализа электродинамических систем.
+Материал книги разбит на два раздела, один из которых содержит основную часть (   Читать дальше...   )Жанр: ФизикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EE323BF66D2F7E9F36373F56ADF359263A1D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702971   (115337) от 27.02.2024
 
 Н.Н. Мансуров, В.С. Попов | Теоретическая электротехника (1966) [DJVU]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115337.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115336.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115179.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115075.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114881.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112979.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112301.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111832.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111634.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111459.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110901.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110315.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109223.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109143.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ Diane Larsen-Freeman, Marti Anderson | Techniques and Principles in Language Tea
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108829.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ Alex Forero | ESL Conversation Lessons (2016) [EPUB] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108770.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ John Hughes | ETpedia: 1,000 Ideas for English Language Teachers (2017) [PDF] [E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108765.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ Andrew William | ESL Classroom Games: 180 Educational Games and Activities for T
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108762.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107572.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107568.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107567.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106870.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106652.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106444.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFEB624C8D22F3F3667AABBC57CA7797F9623FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739046   (106231) от 25.07.2024
-
-А.Ф. Филиппов | Сборник задач по дифференциальным уравнениям (1979) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит материалы для упражнений по курсу дифференциальных уравнений для университетов и технических вузов с повышенной математической подготовкой.Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660A3ED9ADC20959960F24FA5BF0B5C8FF560B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739303   (106118) от 27.07.2024
-
-Н.С. Ахметов | Общая и неорганическая химия (1988) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106118.jpg" />
-</div>
-
-
-###  Подробнее
-
-На современном уровне рассмотрены основные понятия и законы химии: строение вещества, химическая связь (метод молекулярных орбиталей, метод валентных связей, зонная теория кристаллов), важнейшие положения химической термодинамики и химической кинетики, методы исследования структуры веществ. Химия элементов изложена на основе периодического закона Д.И. Менделеева (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1108081CA158256135421F0E71110992A62AF90
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 630435   (608213) от 27.06.2015
-
-Снежная королева (2012) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Россия (Wizart Animation, Bazelevs Distribution, Inlay Film)Жанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Максим Свешников, Владлен БарбэАктеры: Иван Охлобыстин, Нюша Шурочкина, Анна Ардова, Рамиля Искандер, Дмитрий Нагиев, Лиза Арзамасова, Галина Тюнина, Юрий Стоянов, Людмила Артемьева, Михаил ТихоновПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E7C6706811BBF7269C0325783FC20DBC6CD417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524862   (606990) от 21.07.2012
 
 Как приручить дракона 3D / How to Train Your Dragon 3D [Вертикальная стереопара](2010) BDRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606990.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606320.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604712.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604469.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603283.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599994.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597402.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ Angry Birds в кино / Angry Birds (2016) BDRip 3D [H.264/1080p] [Верти�
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597085.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596461.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRemux [H.264/1080p] [2D
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595545.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) BDRip 3D [H.264/1080p] [�
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595544.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595072.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595025.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593917.jpg" />
 </div>
 
 
@@ -398,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593865.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593459.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592256.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592199.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592193.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591289.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590008.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589463.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586114.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583743.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583346.jpg" />
 </div>
 
 
@@ -671,6 +645,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D41E6351EBD100839F02F7E3CACC915A5FF4E22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919503   (582701) от 19.07.2015
+
+Братва из джунглей / Delhi Safari (2012) BDRemux 3D [H.264/1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животные — обитатели национального парка возле Бомбея — встречают яркое солнечное утро под пение птиц. И вдруг идиллическую картинку дикой природы нарушает страшный грохот. Это, круша все на своем пути, джунгли атакует человек на бульдозере. На месте прекрасной рощи люди водружают табличку: здесь идет строительство жилого комплекса.
+
+Смертельно напуганные звери ночью (   Читать дальше...   )Производство: Индия / Krayon PicturesЖанр: мультфильмРежиссер: Никхил АдваниПерсонажи: Говинда, Акшай Кханна, Урмила Матондкар, Боман Ирани, Сунил Шетти, Шиварна Митра, Свини Кхера, Саурабх Шукла, Прем Чопра, Санджай МишраПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB9EFCF11A9F92AD93029612FEB2FF5B0D98547
 ```
 
 https://mybot314.ru/tekegram_catalog/

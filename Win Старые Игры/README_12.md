@@ -1,3 +1,55 @@
+###  Публикация: 509413   (674133) от 12.06.2012
+
+Railroad Tycoon 2 (Rip) [En] 1999 | RG Games (Pilotus)
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_674133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит стать железнодорожным магнатом, построить собственную сеть железных дорог и наблюдать за ходом дел не только с помощью унылых графиков и диаграмм, а в живую, то есть вы можете увидеть собственноручно купленные паровозики, волокущие вагоны от одной вашей станции до другой.(   Читать дальше...   )Тип издания: RipЖанр: Экономическая стратегияЯзык озвучки: n/aЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509426   (674011) от 12.06.2012
+
+Dangerous Dave Антология [En] (RePack) 1988-1993 | RG games (Pilotus)
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_674011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика аркадного жанра. Простенький платформер, где в роли паренька в красной кепке придется на протяжении десяти уровней сначала собирать призовые кубки, а затем прорываться к двери на следующий уровень. В качестве оружия для борьбы с различными монстрами выступает пистолет, который каждый уровень придется находить заново. Со времени второй части и до последней - это бодрая аркада на выживание с фантастически приятным черным юморомТип издания: RePackЖанр: АркадаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509417   (673878) от 12.06.2012
 
 Wolfenstein 3D [En] (RePack) 1992 | RG Games (Pilotus)
@@ -6,7 +58,7 @@ Wolfenstein 3D [En] (RePack) 1992 | RG Games (Pilotus)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673878.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Bio Menace (1993) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673828.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Guitar Hero 3: Legends Of Rock / Guitar Hero 3. Легенды рока (2008) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673535.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ D: The Game (1996) [En/Fr/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671211.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Robot Wars: Arena of Destruction [Ru] (P) 2002
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_669865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669865.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ War Wind (1996) [En/Fr/Ge] (1.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668513.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Alone in the Dark: The New Nightmare (2001) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666937.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Doom [En] (L) 1993
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666901.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Diggers 1 и Diggers 2: Extractors [En] (RePack) 1993-1995
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_665923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_665923.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Black Dahlia (1998) [En] (1.10) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664230.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Sid Meier's Pirates! (2004) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662654.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Company of Heroes (2006) [Ru/En] (2.700.2.43/dlc) SteamRip Let'sPlay
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656477.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656441.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ EuroCops / Полиция Европы: Спецподразделения [Ru] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656398.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Sid Meier's SimGolf / Магнат Гольфа [Ru/En] (P) 2002
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654403.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ GX UltraMoria [Ru] (L/0.9.9c) 1985
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654279.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира + Mod
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650835.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Warcraft: Orcs and Humans (1994) [En] (1.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646346.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ In Cold Blood / Не зная страха (2000) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646313.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ The Last Blade (1997) [Ru/Multi] (1.0.12541) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646200.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Merchant Prince 2 / Венецианский купец 2 (2001) [Ru] (1.1) Lice
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644387.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ ABZU (2016) [Ru/Multi] (1.1) License STEAMPUNKS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644261.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ Call of Cthulhu: Shadow of the Comet (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636901.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636812.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD39AEFBAD7001BD8FE08D86594E1F945C53423B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519486   (636687) от 06.07.2012
-
-Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 2007 | X-pack
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историки Второй мировой войны называют атаку на Перл-Харбор самой увесистой и хлёсткой пощёчиной, которую когда-либо получали вооружённые силы США. Японским лётчикам удалось застать противника врасплох: последовавший разгром военно-морской базы американцев спровоцировал затяжное и упорное противостояние на Тихом океане. Бывшие союзники, США и Япония бились с невероятным ожесточением, широко применяя флот, пехоту и в особенности авиацию. «В особенности», потому что самолёты палубного базирования одинаково хорошо подходили и для борьбы с наземными силами, и для поражения морских целей, и, разумеется, для достижения превосходства в воздухе.(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Simulator (Flight Combat) / 3DЯзык озвучки: n/aЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFD68132CB100A6D48F3C04E14AA1AD98827B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484316   (636585) от 06.07.2012
-
-Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игровой процесс в R6 исключил все, что в Red Storm посчитали несерьезным. По аккуратно смоделированным уровням передвигались оживленные с помощью motion capture спецназовцы. Необходимые двери поддавались вскрытию, заложники — освобождению, террористы — умерщвлению. Сами спецназовцы не умели даже прыгать, и в этом не было никакого самодурства разработчиков — как вы вообще себе представляете прыжки в столь серьезных операциях? Простовата графика? Право, самое ли время отравлять свою тактическую схему лишними деталями! Будучи все же одним из первых тактических шутеров, R6 держал баланс между варгеймом и шутером от первого лица, сохраняя аутентичность в обеих своих половинках.Тип издания: RePackЖанр: Тактический шутер от первого лицаЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

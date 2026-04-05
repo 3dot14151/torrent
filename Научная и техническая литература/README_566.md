@@ -1,136 +1,3 @@
-###  Публикация: 1518751   (152383) от 21.12.2021
-
-Юлия Андреева | Лёгкий русский совсем без нагрузки (2021) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы все общаемся на одном языке, но не всегда правильно понимаем друг друга. Как это работает, а главное – как это исправить? Ведь наше умение владеть речью влияет на качество рабочих и личных отношений.
-Перед вами квинтэссенция семилетней практики в обучении взрослых грамотности и культуре речи. Кому-то эта книга поможет восполнить пробелы в знании русского языка, (   Читать дальше...   )Жанр: Научно-популярная литература, Русский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F7D24D1B2C84938F4DEBE9CFE0FD817B433F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271172   (152380) от 22.12.2018
-
-А. С. Бубнов и др. (общ. ред.) | Гражданская война 1918-1921 [3 тома] (1928-1930) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гражданская война в истории человечества — явление не новое, так как вся история до сих пор существующего общества была историей борьбы классов, а классовая борьба, обостряясь до своего наивысшего предела, превращалась в гражданскую войну.
-
-Но если гражданская война в истории человеческого общества представляет из себя явление не новое, то гражданская война 1918—1921 (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3067B7BF80E5CFFF43FE6590BDA587B7A34124C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347394   (152376) от 23.12.2019
-
-Л. Я. Зиман | Капиталистический мир. Экономическая и политическая география (1934) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для буржуазной экономической и политической географии характерны, с одной стороны, грубый эмпиризм, нагромождение массы фактов без их обобщения и осмысливания, а с другой стороны, голые абстракции, максимально отрываемые от конкретной действительности. После того, как т. Сталин своим письмом в редакцию «Пролетарской революции» мобилизовал большевистскую бдительность (   Читать дальше...   )Жанр: История, политология, экономика, географии, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8780BE3699BD86BF4C03B26BF36E79CC90A9D91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271268   (152371) от 22.12.2018
-
-Барри Уилкинсон | Основы проектирования цифровых схем (2004) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена вопросам проектирования цифровых логических схем. В краткой, но строгой форме в ней излагаются методы проектирования основных классов логических схем - от вентилей до схем на программируемых логических матрицах. Данная книга будет особенно полезной для студентов, изучающих электронику и вычислительную технику. Великолепная методика изложения, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13C91EB398F3BB25183DD82ED576E2747FC7DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601289   (152321) от 30.12.2022
-
-Н.С. Фролова | Тектонофизика (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены 16 лекций по курсу ТектонофизикиЖанр: Физика, геологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150A998711ABD47E30A1EE66CF32FAEC28DDD78F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271288   (152274) от 22.12.2018
 
 С.Г. Фролов | Краткое справочно-методическое пособие главному инженеру (архитектору) проекта (2006) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152274.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152272.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152250.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152239.jpg" />
 </div>
 
 
@@ -246,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152232.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152204.jpg" />
 </div>
 
 
@@ -298,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152202.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152183.jpg" />
 </div>
 
 
@@ -351,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152112.jpg" />
 </div>
 
 
@@ -377,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152104.jpg" />
 </div>
 
 
@@ -404,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152102.jpg" />
 </div>
 
 
@@ -432,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152095.jpg" />
 </div>
 
 
@@ -458,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152034.jpg" />
 </div>
 
 
@@ -484,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152031.jpg" />
 </div>
 
 
@@ -510,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152005.jpg" />
 </div>
 
 
@@ -537,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151991.jpg" />
 </div>
 
 
@@ -563,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151973.jpg" />
 </div>
 
 
@@ -589,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151958.jpg" />
 </div>
 
 
@@ -615,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151939.jpg" />
 </div>
 
 
@@ -641,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151902.jpg" />
 </div>
 
 
@@ -667,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151897.jpg" />
 </div>
 
 
@@ -678,6 +545,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:977710BBB0E36E3250E9FE594DF48C9E197C9D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601126   (151875) от 30.12.2022
+
+Л.С. Атанасян, М.М. Цаленко | Задачник-практикум по геометрии (1994) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задачник-практикум соответствует программе по геометрии для физико-математических факультетов педагогических институтов. Он содержит задачи по разделам: «Геометрические построения на плоскости», «Методы изображений» и «Дифференциальная геометрия и топология». Задачник ориентирован на учебные пособия Атанасяна Л.С., Базылева В.Т. «Геометрия» ч. I, ч. II, и призван (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C8A0FFDD48C5AFCCD65F6A32DCEF777413EDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347469   (151801) от 23.12.2019
+
+Е.А. Хомутникова, Ю.С. Боровых | Англо-русский словарь фразеологизмов с компонентом-зоонимом (2019) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фразеологизмы с компонентом-зоонимом являются одной из древнейших форм языковой номинации. Данные единицы имеют национально-культурную специфику, отражают культурные особенности, менталитет народа, что позволяет получить определенные сведения о носителях языка. Словарь содержит 500 английских номинативных фразеологизмов с компонентом-зоонимом и их русских соответствий. (   Читать дальше...   )Жанр: СловарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD0A1271C3E5C784EFE3AAEDE8CC6EB0FF55179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086291   (151783) от 24.12.2016
+
+Марина Раевская, Анна Ковригина | Базовый курс испанского языка (+ CD) (2016) [PDF, MP3]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151783.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Базовый курс предназначен для широкой публики и, в частности, для студентов высших учебных заведений. Курс будет полезен в первую очередь тем, кто желает получить в короткий срок качественные базовые знания испанской грамматики и навыки устной и письменной речи. Внутри вы найдете интересные тексты, диалоги и упражнения, а также большой объем страноведческой (   Читать дальше...   )Жанр: Испанский языкФормат: PDF, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB0BDC6B9D4BE70F44FD54490666326873771AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588978   (151778) от 14.12.2012
+
+О.А. Адамайтис,  М.С. Сысоева | Русская керамика XVIII-XIX  начала века [1976] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это каталог русской керамики в собрании Загорского историко-художественного музея-заповедника. В основу коллекции керамики музея легло собрание Троице-Сергиевского монастыря. Каталог хорошо иллюстрирован и снабжен подробными описаниями.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149D88AA72F58D2369043625897385FA79C4C27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194965   (151757) от 27.12.2017
+
+М.П. Батура и др. | Теория электрических цепей (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теория электрических цепей как наука посвящена решению задач анализа и синтеза электрических цепей, схем и устройств и является важнейшим инструментом, широко используемым в электротехнике и радиоэлектронике. К электрическим цепям относятся технические устройства самого разнообразного назначения. Там, где речь идет об электрическом токе или электрическом напряжении, (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F74A722DBCC64D7253DB9AFCDB0F269A6FE77A
 ```
 
 https://mybot314.ru/tekegram_catalog/

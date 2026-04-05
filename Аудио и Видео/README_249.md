@@ -6,7 +6,7 @@
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216925.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216906.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216881.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216874.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216850.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216825.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216749.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216714.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216660.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216364.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216224.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215656.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215634.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215510.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215449.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215231.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215194.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Opus III - Mind Fruit (1994) [AAC|~286 Kbps] <Electronic, Techno, Chillout>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215187.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Hoffman Cruise - Odyssey (2020) [AAC|~305 Kbps] <Cyberpunk, Darksynth, Industria
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214986.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Hoffman Cruise - Arrival (2018) [AAC|~305 Kbps] <Cyberpunk, Darksynth, Industria
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214945.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Opus III - Guru Mother (1994) [AAC|~293 Kbps] <Electronic, Techno, Chillout>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214815.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214801.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214787.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Space - Лучшие Хиты (2016) [AAC|~338 Kbps] <Electronic, Synthpop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214608.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214469.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214434.jpg" />
 </div>
 
 

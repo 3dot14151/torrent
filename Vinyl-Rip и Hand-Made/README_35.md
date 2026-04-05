@@ -1,3 +1,32 @@
+###  Публикация: 1331068   (334550) от 13.10.2019
+
+Lana Del Rey - Norman Fucking Rockwell! (2019) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norman Fucking Rockwell (4:10)
+02. Mariners Apartment Complex (4:07)
+03. Venice Bitch (9:36)
+04. Fuck It, I Love You (3:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8159766C9373F2150ACA16540A87A0C748EE511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 841105   (332391) от 14.11.2014
 
 Black Sabbath - Technical Ecstazy (1976)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
@@ -6,7 +35,7 @@ Black Sabbath - Technical Ecstazy (1976)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Har
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332391.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dolly Parton · Linda Ronstadt · Emmylou Harris - Trio (1989) [FLAC 2.0|192/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332013.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Югославская Эстрадная Музыка (1976) [FLAC 2.0|96/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332009.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330981.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Hotrocks (1989) Repress [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Rol
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328048.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327320.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327217.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Madonna - Like A Virgin • Мадона - Като Дева • (1989) repress 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327132.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA С. Ротару feat. анс. Весёлые Ребята и Синтез-г
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326657.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326548.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ James Last - With Compliments (1970) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Eas
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324571.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ VA - Музикална Стълбица 1 (1985) [FLAC 2.0|192/24|image +.cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324413.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323378.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323362.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Mozart - The Best Of... (unknown year) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Class
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323245.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323187.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323186.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ VA - Super Rock Ballads (1992) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323180.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323177.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Rainbow - Ансамбль Rainbow (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323006.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Chris Rea - Road to hell (1989) [FLAC 2.0 96/24 |tracks(VinylRip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322080.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ UB40 - Крыса На Кухне • Rat In The Kitchen (1987) [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320742.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ Barbra Streisand - Guilty (1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Easy Li
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319542.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ Tina Turner - Foreign Affair (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318609.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ ABBA - ABBA (Sweden) (1975) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Pop Rock, Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314498.jpg" />
 </div>
 
 
@@ -730,35 +759,6 @@ ABBA - ABBA (Sweden) (1975) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Pop Rock, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E915AA641C3E25584EB443773267DB89DC80CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182160   (314339) от 11.11.2017
-
-VA - Наши баллады (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смысловые галлюцинации - Разум когда-нибудь победит
-02. Танцы минус - Не меняй меня
-03. Сплин - Пластмассовая жизнь
-04. Сегодня ночью - Между роскошью и тоской(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5434AD69CFD4823BAC88102C80729EFEC6783F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ NG: Убийцы с большого озера / The Lakeshore Killers (2015) H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484187.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484174.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484099.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484082.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484059.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483764.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483442.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483241.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482237.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Red Rooster Sydney Sup
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482207.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482177.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482176.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482165.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482162.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482159.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482114.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ NG: Тигр в бегах / Tiger On The Run (2015) HDTVRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482108.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482102.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482101.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482100.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482099.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482098.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482097.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482096.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481907.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481884.jpg" />
 </div>
 
 

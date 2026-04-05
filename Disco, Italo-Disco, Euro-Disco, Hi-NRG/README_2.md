@@ -6,7 +6,7 @@ Fancy - Masquerade (Les Marionnettes) (2021) [MP3|320 Kbps] <Pop ,  Eurodisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006756.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Cosmic Discotheque - 12 Junkshop Disco Funk Gems From The 70s (2021) Vol.4,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005803.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - ZYX Italo Disco Spacesynth Collection 7 (2021) 2CD, Compilation [MP3|320 Kb
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003827.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Fox & Promes - 2 Singles (1979) 7'' [MP3|320 Kbps] <Electronic, Disco, Funk Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001192.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Robyx Productions Vol.01-03 (1996) [MP3|320 кб/с]<Disco, Italo-Disco, Da
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998294.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Roberto Zanetti "Savage" - 4 альбома (1990-1994) [MP3|320 кб/с]<Pop, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997715.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Joutro Mundo - A Boogie Affair (2015) [MP3|320 кб/с] <Nu Disco, Funk, Electro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985932.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Joutro Mundo - Lost in Rio (2015) [MP3|320 кб/с] <Nu Disco, Funk, Electronic>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985853.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Alec R. Costandinos - 6 Albums (1978-1981) LP Collection [MP3|320 Kbps] <Electro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984859.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Crystal Grass featuring Steve Leach - Dance Up A Storm (1976) LP [MP3|320 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983619.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Cheetah - Cheetah (1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979128.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Le Pamplemousse - 4 Albums (1977-1980) LP [MP3|320 Kbps] <Electronic, Funk Soul,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979034.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Savage - I Love You (2020) Maxi-Single [MP3|320 Kbps] <Italo-Disco, House>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978891.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Cerrone - Disco Collection (2002) [MP3|320 кб/с]<Pop,Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977299.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Five Letters - 3 Studio Albums (1978-1980) LP [MP3|320 Kbps] <Electronic, Funk S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976764.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ East Coast - East Coast (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973168.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Hydro Featuring Lorna - Hydro (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964304.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Ihsan Al Munzer - Belly Dance Disco (1979) Reissue CD, 2020, BBE [MP3|320 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963162.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Donna Summer - 19 Albums, 3 Compilations (1974-2013) Collection [MP3|320 Kbps] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961781.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Fake - New Art (2009) Remastered [MP3|320 кб/с] <Italo-Disco, Synth-pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958418.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Mascara - See You In L.A. (1979) Reissue CD, 2012, Expansion [MP3|320 Kbps] <Ele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955815.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Judit Szucs - Judit (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955813.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ King Sporty & The Root Rockers - Fire Keep On Burning (1979) LP [MP3|320 Kbps] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954276.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Moulin Rouge - Moulin Rouge (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954201.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Mark Ashley - Greatest Hits II (2013) [MP3|320 Kbps] <Disco,  Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953751.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ The New Marketts - Step On It (1977) LP [MP3|320 Kbps] <Disco, Instrumental, Fun
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951109.jpg" />
 </div>
 
 

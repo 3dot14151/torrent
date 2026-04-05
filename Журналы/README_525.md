@@ -1,3 +1,135 @@
+###  Публикация: 1086543   (153321) от 24.12.2016
+
+Журнал | Всему свету по совету №1 (228) (январь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание содержит информацию познавательного характера, а также практические советы как редакции, так и читателей в области здоровья, красоты, кулинарии, домоводства, садоводства. В каждом номере – актуальная тема сезона: будь то встреча Нового года или празднование Пасхи, защита от простудных заболеваний или правила здорового загара, сборы в школу с минимальными (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B91CED1A89FE5BD39FF1751C301EF22A232097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677040   (153298) от 16.11.2023
+
+Журнал | Лечащий Врач (том 26) №9 (2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: ЗдоровьеИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F021BEF36E1DABAE118703440A81A1C36577722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086505   (153270) от 24.12.2016
+
+Газета | 1000 советов дачнику №24 (декабрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153270.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 Советов дачнику» - полезная и интересная газета для всех, у кого есть приусадебный участок.
+Собственный скан.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF6BB6A9F378052D41D208FEA3B8A86C754B627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086525   (153243) от 24.12.2016
+
+Журнал | Загадки истории №50 (декабрь 2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!
+Собственный скан.Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8917EA13D2DE3503B75A2B5CF6522472451212F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677041   (153226) от 16.11.2023
+
+Журнал | Лечащий Врач (том 26) №10 (2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: ЗдоровьеИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A750CFDB30985591BB4CAF15FD03D592CD1ED52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086513   (153156) от 24.12.2016
 
 Журнал | Ваш семейный доктор №1 (январь-февраль 2017) [PDF]
@@ -6,7 +138,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153156.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153101.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153082.jpg" />
 </div>
 
 
@@ -86,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153051.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153042.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152974.jpg" />
 </div>
 
 
@@ -166,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152955.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152932.jpg" />
 </div>
 
 
@@ -218,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152914.jpg" />
 </div>
 
 
@@ -244,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152849.jpg" />
 </div>
 
 
@@ -270,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152739.jpg" />
 </div>
 
 
@@ -296,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152708.jpg" />
 </div>
 
 
@@ -322,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152302.jpg" />
 </div>
 
 
@@ -348,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152222.jpg" />
 </div>
 
 
@@ -374,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152098.jpg" />
 </div>
 
 
@@ -400,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152043.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152007.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151834.jpg" />
 </div>
 
 
@@ -478,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151655.jpg" />
 </div>
 
 
@@ -504,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151623.jpg" />
 </div>
 
 
@@ -533,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151503.jpg" />
 </div>
 
 
@@ -544,138 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BD050ADDDD2E5B6B9557E9C67E985DB11ECDBDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968984   (151462) от 25.12.2015
-
-Журнал | Вязаная копилка №12 (декабрь 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пончо, шали, палантины, пелерины давно стали излюбленными женскими аксессуарами.
-Остромодное пончо - достойная альтернатива классическому жакету, классическая шаль - необходимый предмет гардероба в холодное время года, а изящные пелерины,накидки и палантины стильный акцент вечернего образа.
-В новом номере «Вязаной копилки» - объемные и ажурные модели, связанные спицами (   Читать дальше...   )Жанр: Домоводство, вязание, рукоделиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B46BA250911AE9E13407BB221E9B86F3995343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968690   (151446) от 25.12.2015
-
-Газета | Обереги от бед и утрат №17 (103) (2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как прогнать зло из вашего дома? Какие заговоры помогут близкому человеку найти вторую половинку? Как вернуть угасшие чувства?Жанр: Магия, приворот, заговорФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20258F5C7778700CE2C210A3D8582C047CD7CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195056   (151430) от 27.12.2017
-
-Газета | Мой друг компьютер №25 (278) (декабрь 2017) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание для пользователей ПК, в котором рассказывается, как выбрать компьютерную технику, установить и настроить программы, модернизировать компьютер с минимальными финансовыми затратами.Жанр: Компьютерная газетаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456F063C092A8B8EC5E8A1D19388CF3377CB2C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968436   (151283) от 25.12.2015
-
-Журнал | Домашняя энциклопедия здоровья №4 (58) (ноябрь 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тот, кто впервые откроет эту брошюру с интригующим названием "Календарь Космических вибраций", наверняка найдёт здесь ответы на многие волнующие его вопросы, и получит советы, которые придутся кстати в разных жизненных ситуациях. С помощью календаря Космических вибраций можно научиться взаимодействовать с окружающими энергиями, избежать множества проблем (   Читать дальше...   )Жанр: Здоровье, домоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823269F836328CB2F595C623D9F083650916F63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969012   (151226) от 25.12.2015
-
-Журнал | Сабрина №1 (январь 2016) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скоро наступит новый год, а с ним придет пора выполнять данные себе обещания: меньше стрессов, больше спорта и фитнеса, здоровое питание все это часто можно встретить в списках личных обязательств на 2016 год. Не пройдет и двух недель нового года, как многие благие намерения вновь будут забыты. Но не стоит забывать только об одном - о вязании. Рекомендуем от всей (   Читать дальше...   )Жанр: Домоводство, вязаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E938244F99322E5D0B44391954D9ABBE8A3D63
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,188 @@
+###  Публикация: 947508   (683667) от 25.06.2016
+
+This War of Mine (2014) [Ru/Multi] (2.2.2/dlc) License GOG [Soundtrack Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683667.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «This War of Mine» вы играете не за солдата элитных войск, а за группу мирных жителей, пытающихся выжить в осажденном городе, испытывая нехватку еды, лекарств и постоянную опасность со стороны снайперов и мародеров. Игра дает возможность прочувствовать войну с абсолютно новой перспективы. Игровой процесс в «This War of Mine» зависит от смены дней и ночей. Снайперы (   Читать дальше...   )Тип издания: LicenseРазработчик: 11 bit studiosЖанр: Strategy, 3D, LifestyleЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770C973AF6D54275CCCA970CBE34823A5DCABED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014639   (683665) от 25.06.2016
+
+Специалист | PHP. Уровень 4. Проектирование и разработка сложных веб - проектов на PHP 5 (2016) PCRec [H.264]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс является обязательным курсом в цепочке подготовки Веб-мастера к получению сертификации ZCE (Zend Certified Engineer).
+Курс рекомендован слушателям, имеющим опыт использования PHP, и желающим максимально расширить свои знания и опыт.
+
+В этом курсе рассматриваются основы сложных тем, таких как шаблоны проектирования (Design patterns), отражения (Reflection), (   Читать дальше...   )Производство: СпециалистЖанр: Программирование, PHPПродолжительность: 13:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF062DFFC8B33910F4E7E0240C5881CD999719F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029194   (683664) от 25.06.2016
+
+Мухаморы (2016) WEB-DLRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедия о провинциальном городке, застрявшем в 80-х годах.Производство: Россия, "Патриот синема"Жанр: КомедияРежиссер: Рубик ЗлословскиАктеры: Александр Баширов, Михаил Мухин, Ляля Бежецкая, Матлюба Алимова, Сергей Степасюк, Игорь Чирков, Юрий Леу, Александр Собищанский, Мурад Мусаев, Игорь Поколота, Сергей МедведюкПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8AC0E03BBA1E5FB1915E0A2640839B7677C4C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027391   (683662) от 25.06.2016
+
+Microsoft Windows 10 Professional x86-x64 1511 RU by OVGorskiy 06.2016 2xDVD [Ru]
+
+>>3
+>>12
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683662.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новейшей операционной системы Windows 10 Pro/Core (x86-x64) (msdn) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных нам кнопки и меню (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4736E7E9629AEA0E4B0C53D451ACF04848872EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643591   (683637) от 04.07.2013
+
+Kakumeiki Valvrave | Valvrave the Liberator | Валврейв Освободитель [TV-1][2013, TV, 12 эп.] HDTV 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683637.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далеком будущем люди живут в околоземном пространстве, вокруг Солнца раскинулась огромная сфера Дайсона, а человечество все так же рвут на части междоусобицы. Главными силами конфликта являются германская империя Доруссия, Атлантическая Федерация Арус и экономически успешный, но не богатый военными ресурсами Джиор, наследник маленькой, но гордой островной нации. (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Мацуо КоСубтитры: русские отПродолжительность: 12 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B8437CBDCC0B18B5A0811CF77F3774C5B492F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289258   (683497) от 17.03.2019
+
+Tesla представила маленький кроссовер Model Y
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_683497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Tesla представила маленький кроссовер Model Y, построенный на базе седана Model 3. Продажи электрокара начнутся осенью 2020 года. Самый доступный вариант Model Y с задним приводом и запасом хода 370 километров обойдётся в 39 тысяч долларов.От седана Model 3 кроссовер отличается изменённым кузовом в стиле Model X, но без фирменных дверей «крылья сокола». (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221666   (683494) от 17.03.2019
+
+BATTLETECH (2018) [Ru/En] (1.5.0/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battletech - это пошаговый ролевой экшен с роботами от создателей вселенной BattleTech и серии MechWarrior, который создается силами Harebrained Schemes, создателей последних частей Shadowrun, которые объединили усилия вместе с создателем оригинальной серии, Джорданом Вейманом.Тип издания: RepackРазработчик: Harebrained SchemesЖанр: Action, Strategy (TBS), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608D111192336633C549F6468349DDE276B78836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289819   (683491) от 17.03.2019
 
 Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGorskiy® 03.2019 1DVD
@@ -6,7 +191,7 @@ Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGor
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683491.jpg" />
 </div>
 
 
@@ -32,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>49
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_683489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_683489.jpg" />
 </div>
 
 
@@ -60,7 +245,7 @@ Dark Souls II/2 (2014) [Ru/Multi] (1.11/dlc) SteamRip Let'sРlay
 >>15
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682676.jpg" />
 </div>
 
 
@@ -86,7 +271,7 @@ Half-Life 2: FakeFactory Cinematic Mod 2015 Final Cliff99 RePack
 >>47
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682675.jpg" />
 </div>
 
 
@@ -113,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_682339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682339.jpg" />
 </div>
 
 
@@ -139,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_682321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682321.jpg" />
 </div>
 
 
@@ -165,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_682282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682282.jpg" />
 </div>
 
 
@@ -191,7 +376,7 @@ Adobe Premiere Pro CC 2017 (v11.1.1) Multilingual Update 3
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682260.jpg" />
 </div>
 
 
@@ -219,7 +404,7 @@ Adobe InDesign CC 2017 (v12.1.0) x86-x64 RUS/ENG Update 1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682257.jpg" />
 </div>
 
 
@@ -245,7 +430,7 @@ The Final Station (2016) [Ru/Multi] (1.4.3/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682255.jpg" />
 </div>
 
 
@@ -271,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682254.jpg" />
 </div>
 
 
@@ -298,7 +483,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4498.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682252.jpg" />
 </div>
 
 
@@ -324,7 +509,7 @@ AliExpress 5.2.9 [Rus/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682250.jpg" />
 </div>
 
 
@@ -351,7 +536,7 @@ The Flame in the Flood (2016) [Ru/Multi] (1.3.002) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682249.jpg" />
 </div>
 
 
@@ -377,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682248.jpg" />
 </div>
 
 
@@ -403,7 +588,7 @@ X-57 "Maxwell" - проект электрического самолета дл
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681966.jpg" />
 </div>
 
 
@@ -429,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681896.jpg" />
 </div>
 
 
@@ -455,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681775.jpg" />
 </div>
 
 
@@ -481,7 +666,7 @@ Suisei no Gargantia / Gargantia on the Verdurous Planet / Гаргантия н�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681722.jpg" />
 </div>
 
 
@@ -494,189 +679,6 @@ Suisei no Gargantia / Gargantia on the Verdurous Planet / Гаргантия н�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289443   (681680) от 18.03.2019
-
-Мединский заявил, что Россия не сможет создать аналог Netflix, пока не победит пиратов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681680.jpg" />
-</div>
-
-
-###  Подробнее
-
-По словам министра культуры, борьба с пиратством имеет большое значение, поскольку зрители все больше будут смотреть кино на стриминговых сервисах.Россия должна победить интернет-пиратство, иначе создание отечественных аналогов сервисов Netflix и HBO будет невозможным. Об этом заявил министр культуры Владимир Мединский.По словам министра, речь идет, в частности, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289493   (681674) от 18.03.2019
-
-Huawei разработала альтернативу Android и Windows из-за конфликта с США
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операционная система подойдет как для компьютеров, так и для смартфонов.Китайская компания Huawei Technologies разработала собственную операционную систему на случай невозможности использовать ОС Android и Windows из-за конфликта с властями США. Об этом сообщил гендиректор компании Ричард Ю в интервью немецкому изданию Die Welt.«Мы подготовили собственную операционную (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209034   (681671) от 18.03.2019
-
-Hunt Down The Freeman (2018) [En] (1.0/upd2) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Valve дала «зелёный свет» в Steam фанатскому спин-оффу Half-Life, под названием Hunt Down The Freeman. Игра, выросшая из популярной в узких кругах любительской модификации, может похвастаться нестандартным геймплеем и полноценным сюжетом, в котором геймерам предлагается примерить на себя роль члена военного спецподразделенияТип издания: LicenseРазработчик: Royal Rudius EntertainmentЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66880DDCD315D932D556EDE1174168322A30BC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029313   (681669) от 18.03.2019
-
-Волшебный фонарь (2015-2019) WEB-DLRip [H.264/720p-LQ] (сезон 1-4, серии 1-104 из 104) [Обновляемая]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая серия представляет собой просмотр диафильма семилетней девочкой Катей и ее пятилетним братишкой Митей – шалуном и фантазером. Сюжет диафильмов основывается на адаптированных пересказах великих произведений Ж. Верна, Стивенсона, К. Дойла, Свифта, Дефо, Уэллса, Лондона, По, Сервантеса, Распэ, Дюма, Кэрролла и др.
-Истории адаптированы для самых маленьких зрителей (   Читать дальше...   )Производство: Россия / Анимационная студия "Паровоз"Жанр: Детский, Компьютерная анимацияРежиссер: Роман ВерещакАктеры: Дарья Мазанова, Марк СметанкинПерсонажи: Катя, Митя, Кот АнтонПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~ 00:05:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD342E58278B3E902C0C83346301E8D89728EBD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013852   (681668) от 18.03.2019
-
-MInstAll v.17.03.2019 By Denysenko Stas [Ru]
-
->>3
->>15
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник программ MInstAll для быстрой установки необходимого и часто используемого софта. Представленные программы уже зарегистрированы и не требуют активации. Данная сборка имеет компактный размер, почти все программы устанавливаются в тихом режиме.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C340BF5C5CA875D6BF9532E4A6FE9D007CF4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029286   (681638) от 26.06.2016
-
-Adobe Photoshop CC 2015.5.0 (20160603.r.88) RePack by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D9C7A3155631D84864117C0BA925C7DD7807AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028688   (681629) от 26.06.2016
-
-Adobe Photoshop CC 2015.5.0 (20160603.r.88) [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C58BC70145E7163F6C7F7E28DEFF529D412B0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

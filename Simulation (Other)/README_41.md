@@ -1,3 +1,29 @@
+###  Публикация: 1712865   (7587) от 16.08.2025
+
+GearCity (2022) [Ru/Multi] (2.0.0.14 hf1) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7587.jpg" />
+</div>
+
+
+###  Подробнее
+
+GearCity – хардкорный экономический симулятор ведения бизнеса и управления автомобильной компанией. Симулятор имеет мощную историческую базу и пытается преподнести пользователям важную информацию – как именно стать лидером в бизнесе. Геймплейная механика предлагает с нуля построить процветающую компанию: управлять производством, регулировать поставки товаров и компонентов, (   Читать дальше...   )Тип издания: LicenseРазработчик: Visual Entertainment And TechnologiesЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский (перевод не полный), Английский, Немецкий и другиеЯзык интерфейса: Русский (перевод не полный), Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA4B7EC245AE5A950CEA988E71210089EC111D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781148   (7379) от 17.08.2025
 
 Arctic Motel Simulator (2025) [Ru/Multi] (3.0.2) Repack FitGirl
@@ -6,7 +32,7 @@ Arctic Motel Simulator (2025) [Ru/Multi] (3.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7379.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ ORDER 13 (2025) [Ru/Multi] (1.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7368.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.10776-250723/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6965.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.107761/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6944.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.107761/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6901.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ The Unholy Priest (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6521.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ The Unholy Priest (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6518.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Dystopika (2024) [Ru/Multi] (1.5.6+53) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6465.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ YetiParty (2025) [Ru/En] (build 19685742) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6361.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Stone Simulator - Just Be a Rock (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6359.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Photo Studio Simulator (2025) [Ru/Multi] (0.98) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6351.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4543/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6203.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.9.3.0/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5736.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Forever Skies (2023) [Ru/Multi] (1.3/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5586.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ RimWorld (2018) [Ru/Multi] (1.6.4566/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5443.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Countryballs: Power Protocol (2025) [Ru/Multi] (build 19413235) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5381.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Fly Corp (2021) [Ru/Multi] (1.8.6/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5364.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Tiny Bookshop (2025) [Ru/Multi] (Build 19513764) Repack Other s [Supporter Pack]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5248.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Prison Escape Simulator: Dig Out (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5236.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ WolfQuest: Anniversary Edition (2019) [En] (19315088/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4984.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Zoochosis (2024) [Ru/Multi] (1.6.8) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4688.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack Let'sРlay [Year 1 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4613.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Zoochosis (2024) [Ru/Multi] (1.6.8) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4598.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Tiny Glade (2024) [Ru/Multi] (1.14.2) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4509.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack SE7EN
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4506.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Farming Simulator 25  – это увлекательное приключени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F144A3C5BF6FDF4F2FC81676003244F110E8BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816347   (4446) от 04.09.2025
-
-Central Bank / Центральный Банк (2025) [Ru/Multi] (0.99b) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Центральный Банк! Это - симулятор Центрального Банка высшего уровня! Возьмите под контроль самое грозное оружие, известное человечеству: ключевую процентную ставку! В роли главы центрального банка вам дана власть, способная создавать или разрушать целые страны. Повышайте ставку - и увидите, как рынки рушатся, а толпы выходят на улицы. Снижайте (   Читать дальше...   )Тип издания: SceneРазработчик: Nabiulina software, Jerome Powerr studio, Rusalka Unreal LabsЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F554721107E09FAAB6E3775C96BC548022974F
 ```
 
 https://mybot314.ru/tekegram_catalog/

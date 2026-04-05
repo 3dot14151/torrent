@@ -1,81 +1,3 @@
-###  Публикация: 1664013   (186160) от 24.09.2023
-
-Джейсон Сандерс , Эдвард Кэндрот | Технология CUDA в примерах: введение в программирование графических процессоров (2011) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186160.jpg" />
-</div>
-
-
-###  Подробнее
-
-CUDA - вычислительная архитектура, разработанная компанией NVIDIA и предназначенная для разработки параллельных программ. В сочетании с развитой программной платформой архитектура CUDA позволяет программисту задействовать невероятную мощь графических процессоров для создания высокопроизводительных приложений, включая научные, инженерные и финансовые приложения. Книга (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.А. СлинкинИздательство: ДМК-ПрессФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4739A041949B60DA23C2EFD961261C5636F12A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426591   (185797) от 25.11.2020
-
-М.А. Федотенко | Разработка мобильных приложений. Первые шаги (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – практическое руководство для тех, кто уже делает первые шаги в разработке мобильных приложений под Android или пока только мечтает об этом. С ней вы легко освоите основы разработки, познакомитесь со средой разработки Android Studio, создадите собственные приложения, которыми можно поделиться с друзьями и со всем миром.Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B0488870385DEDF2874FD73E6CEC7175A0B3E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664198   (185660) от 25.09.2023
-
-Кевлин Хенни, Триша Джи | 97 вещей, о которых должен знать каждый Java-программист. Советы лучших экспертов (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что должен знать каждый Java-программист? Ответов на этот вопрос может быть очень много. Авторы этой книги собрали мнения нескольких десятков опытных разработчиков на Java, чтобы создать единое руководство для тех, кто только начинает свой путь в программировании. Когда так много нужно знать, так много нужно сделать и есть так много способов сделать это, ни один (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B8E236922F0F5FB90CF7B72DF492DC6FC6A16A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663675   (185644) от 25.09.2023
 
 Райан Уэйд | Аналитика в Power BI с помощью R и Python (2021) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185644.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ Wallace Wang | Pro iPhone Development with SwiftUI, 4th Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_185377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185377.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ Sufyan bin Uzayr | HTML: The Ultimate Guide (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_185032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185032.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ Madona S. Wambua | Modern Android 13 Development Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_185029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185029.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ Holden Karau, Mika Kimmins | Scaling Python with Dask (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184566.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ Magnus Larsson | Microservices with Spring Boot 3 and Spring Cloud, 3rd Edition 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184226.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184155.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184146.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ Christian Ullenboom | Java: The Comprehensive Guide to Java Programming for Prof
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184032.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183736.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183656.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ Tiago Rodrigues Antao | Fast Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182992.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ Zhenyu George Li | Unreal Engine 5 Game Development with C++ Scripting (2023) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182703.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182662.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182555.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ Matt Frisbie | Professional JavaScript for Web Developers, 5th Edition (2023) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182038.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ Marcelo Guerra Hahn, Araks Tigranyan, John Asatryan | Expert C++, 2nd Edition (2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_181820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_181820.jpg" />
 </div>
 
 
@@ -532,7 +454,7 @@ Som Prakash Rai | Core Java: Made Simple (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_181813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_181813.jpg" />
 </div>
 
 
@@ -560,7 +482,7 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181802.jpg" />
 </div>
 
 
@@ -586,7 +508,7 @@ Alexandre F Malavasi Cardoso | Enterprise Applications with C# and .NET (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_180657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_180657.jpg" />
 </div>
 
 
@@ -612,7 +534,7 @@ Paul McFedries | HTML, CSS, & JavaScript All-in-One For Dummies (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_180620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_180620.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180372.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ Anshul Saxena | Financial Modeling Using Quantum Computing (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_179915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_179915.jpg" />
 </div>
 
 
@@ -678,6 +600,84 @@ Anshul Saxena | Financial Modeling Using Quantum Computing (2023) [PDF][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B691DC4C7CD60246637D66C9D68AC160C9C85AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666156   (179885) от 03.10.2023
+
+Otavio Santana, Karina Varela | Persistence Best Practices for Java Applications (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_179885.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге представлены устоявшиеся паттерны и стандарты, которые могут быть использованы в Java-решениях, а также ценные сведения о плюсах и минусах модных технологий и фреймворков, используемых в облачных нативных микросервисах, наряду с хорошей практикой кодирования на Java. Вы столкнетесь с проблемами внедрения облачных технологий, особенно с теми, которые (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4140E3B9A27C0F11D9EE2EA92243F1AB7E85B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666471   (179299) от 04.10.2023
+
+Кристофер Прешерн | Язык С. Мастерство программирования (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторитетные рекомендации по программированию на C найти трудно. Для объектно-ориентированных языков в них нет недостатка, но для C их на удивление мало. В этой книге начинающие и опытные программисты на C найдут наставления по принятию проектных решений, включая пошаговое применение паттернов к сквозным примерам. Кристофер Прешерн, один из ведущих членов сообщества (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51CEDF5B4E011D74C6D371B1EC59ED51410376B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666602   (178822) от 05.10.2023
+
+Джозеф Албахари, Бен Албахари | LINQ. Карманный справочник (2009) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник посвящен технологии LINQ (Language Integrated Query) — новой функциональной возможности языка C# и платформы .NET Framework, которая позволяет писать безопасные структурированные запросы к локальным коллекциям объектов и удаленным источникам данных. Рассмотрены базовые понятия LINQ, такие как отложенное выполнение, цепочки итераторов и распознавание типов (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227F2BA62D936ACDA896E09D2D34E6313CC9B30B
 ```
 
 https://mybot314.ru/tekegram_catalog/

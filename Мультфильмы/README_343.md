@@ -1,3 +1,134 @@
+###  Публикация: 1599574   (159549) от 24.12.2022
+
+Паучок и его удивительные друзья / Spidey and His Amazing Friends (2022) SATRip (сезон 2, серии 1-4 из 4)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юному Питеру Паркеру, привыкшему работать в одиночку, предстоит узнать, что по-настоящему непобедимым он может стать только в команде с другими героями. Паучок и его друзья Майлз Моралес и Гвен Стейси, у которых тоже появились суперспособности после укуса паука, объединяют силы с Халком, Чёрной Пантерой и Мисс Марвел. Ведь только все вместе они смогут одолеть таких (   Читать дальше...   )Производство: Сша, Disney Junior, Disney Television Animation, Wild CanaryЖанр: развивающий, детский, мини сериал, короткометражныйРежиссер: Даррен Бачински, Крис Джиллигэн, Крис Морено.Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: ~00:11:46 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65C319884CCA67FB30E09098B6460BA7E2904CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675645   (159504) от 10.11.2023
+
+Ивашка из Дворца пионеров (1981) WEB-DLRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик Ваня попал в избушку Бабы Яги, чтобы стать угощением для ее гостей. Яркий и смешной советский мультикПроизводство: СССР, СоюзМультфильмЖанр: рисованная анимация, детский, сказка, развивающийРежиссер: Геннадий СокольскийАктеры: Светлана Харлап, Гарри Бардин, Ефим КацировСубтитры: нетПродолжительность: 00:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:239B90BEBF1EBA822C9E1970B015EDBCB2C3D34A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675522   (159499) от 10.11.2023
+
+Сказ о Евпатии Коловрате (1985) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159499.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам сюжетов исторических летописей ХIII века о разорении Рязани Батыем. Сюжет данного мультфильма должен быть известен каждому человеку. Великий Рязанский Богатырь - Евпатий Коловрат, возвращаясь из похода с подарками для своей семьи и родичей приезжает в свою родную разорённую и сожженную Рязань. Пред его очами предстает ужасная картина: сожженный град, кучи (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: мультфильм, история, короткометражкаРежиссер: Роман ДавыдовАктеры: Роман Филиппов, Алексей Консовский, Владимир Кениггсон, Степан Бубнов, Лев Шабарин, Герман Качин, Константин Захаров, Владимир БурлаковСубтитры: отсутствуютПродолжительность: 00:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A91217386F797F71F425DC33D4892E823E6D8980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599887   (159305) от 25.12.2022
+
+Микки: И снова под Рождество / Mickey's Twice Upon a Christmas (2004) WEB-DL [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приходите в гости к Санта Клаусу, Микки Маусу и другим диснеевским героям на праздник и узнайте, как они встречают Рождество. Старина Дональд всеми силами пытается противостоять празднику, в то время как Микки и Плуто веселятся от души.Производство: США / Disneytoon Studios, Walt Disney PicturesЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Тереза Петтенджилл, Кэрол Холлидэй, Пегги ХолмсПеревод: дублированныйСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B072B65A725D4126448D5348A609371FC8EDF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599877   (159289) от 25.12.2022
+
+Микки: Однажды под Рождество / Mickey's Once Upon a Christmas (1999) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микки, Минни и их знаменитые друзья Гуфи, Дональд, Дейзи и Плуто собираются вместе, чтобы рассказать в трех удивительных историях о волшебстве Рождества.
+Мини и Микки расскажут о том, как однажды решили подарить друг другу незабываемое Рождество. Гуфи и Макс поделятся впечатлениями о своих рождественских приключениях, а еще о том, как к ним в гости пришел настоящий (   Читать дальше...   )Производство: США / Disney Television Animation, Disneytoon Studios, Walt Disney Feature AnimationЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Джан Фалкенштейн, Алекс Манн, Брэдли РэймондПеревод: дублированныйСубтитры: русские (forced, full), английскиеПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F085D82AEE891657285F1EB305A6F6FFC4DCB1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599896   (159281) от 25.12.2022
 
 Волшебное рождество у Микки / Mickey's Magical Christmas: Snowed in at the House of Mouse (2001) WEB-DL [H.264/720p]
@@ -6,7 +137,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159281.jpg" />
 </div>
 
 
@@ -33,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159265.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159252.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159209.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158996.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158924.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ LEGO Скуби-Ду!: Призрачный Голливуд / Lego Scooby-Doo!:
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158920.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158911.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158906.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158880.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158862.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158836.jpg" />
 </div>
 
 
@@ -322,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158826.jpg" />
 </div>
 
 
@@ -350,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158744.jpg" />
 </div>
 
 
@@ -376,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158727.jpg" />
 </div>
 
 
@@ -402,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158666.jpg" />
 </div>
 
 
@@ -428,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158635.jpg" />
 </div>
 
 
@@ -454,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158079.jpg" />
 </div>
 
 
@@ -480,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158067.jpg" />
 </div>
 
 
@@ -506,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158055.jpg" />
 </div>
 
 
@@ -532,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157739.jpg" />
 </div>
 
 
@@ -543,137 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F931D6D74F35E7E145C54EAC8DCFE713B65F62C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570855   (157571) от 26.12.2014
-
-Метеор и крутые тачки / Bigfoot Presents: Meteor and the Mighty Monster Trucks (2006) DVDRip (Выпуски 1-7, 52 серии)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_157571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добрый мультфильм о маленьких машинках на больших колесах. Их мечта — поскорее стать взрослыми и участвовать в настоящем Автошоу Больших Машин. А пока они только учатся в начальной школе Крашингтон Парка.Жанр: мультфильм, семейныйРежиссер: Дэвид БиттиПеревод: Дублированный + Профессиональный (многоголосый, закадровый)Продолжительность: 07:21:30 (52 х ~ 00:11:35)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640439   (157430) от 26.12.2014
-
-Каю (82 серии) / Caillou (2008) SATRip [UKR]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения четырехлетнего мальчика по имени Каю, который каждый день обнаруживает что-то интересное с его мамой, папой, и старшей сестрой Рози. В приключениях участвуют домашний кот Гилберт, плюшевый мишка Тедди и игрушка динозавр Рекси. В каждом эпизоде Каю узнает что-то новое, как победить страх перед темнотой, важность терпения, как быть хорошим другом, хорошим (   Читать дальше...   )Жанр: Детский, Рисованная анимацияРежиссер: Ларри Джейкобс, Jean Pilotte, Ник РиджгерсбергПерсонажи: Каю, мама, папаПеревод: Дублированный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E47307FCAC8F49BDC2F3656D87530CFDD4ED26E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508518   (157249) от 18.12.2021
-
-Злыдни / Villainous (2021) WEB-DL [H.264/1080p]  (сезон 1, серии 1-6 из 6) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отнюдь не типичная жизнь злыдней, противостоящих супергероям, среди которых доктор Флаг и его верные помощники: плюшевый медведь и безумная Деменция.Производство: Мексика, HBOЖанр: Приключения, Фэнтези, КомедияРежиссер: Алан Итулиэль Перес, Пак Чхан-ёнАктеры: Алан Итулиэль Перес, Марк Эдвард Фишбах, Мелисса Гедеон, Хосе Антонио МасиасПеревод: Многоголосый профессиональный (NewStation)Продолжительность: ~00:11:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F05CAD2ED51530ACB2A7E9169B0C56EFF1781F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346415   (157240) от 20.12.2019
-
-Сказка о царе Салтане (1943) TVRip [H.264] [hand made colored]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157240.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сказке А.С.Пушкина - «Сказка о царе Салтане, о сыне его славном и могучем богатыре князе Гвидоне Салтановиче и о прекрасной царевне Лебеди» (1831).
-Три девицы под окном пряли поздно вечерком... . Подслушав их разговор, царь выбрал себе жену, которая к сентябрю родит ему сына-богатыря.Производство: СССРЖанр: Рисованная анимация, Сказка, ДетскийРежиссер: Зинаида Брумберг, Татьяна Басманова, Валентина БрумбергСубтитры: ОтсутствуютПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F7F27F24257834F05B33992DD51274192D3D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346825   (157158) от 20.12.2019
-
-Повелители мяча: 9009 / Ballmastrz 9009 (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серия 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157158.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета — некая странная игра с мячом, которой одержима вселенная. Здесь есть свои суперзвезды, среди них — вконец обнаглевшая тусовщица Гэз Дигзи. В какой-то момент ее лишают всех привилегий и отправляют играть за самую лузерскую команду. Теперь у нее есть только один путь назад к вершине — привести свой новый горе-клуб к победе на чемпионате.Производство: США, Rough Draft Studios, Rough House PicturesЖанр: Мультсериал для взрослых, фантастика, боевик, комедия, спортРежиссер: Кристи КаракасПеревод: Многоголосый любительский (NewStation) присутствует ненормативная лексика!Субтитры: английскиеПродолжительность: ~00:11:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952BD87ACAAD5732D355D9BBFFBBF2E2C9C887DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1567026   (211504) от 31.07.2022
+
+Englishteacup, Мила Хабирова | My Successful English Plan (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Составьте свой план занятий самостоятельно и начните заниматься регулярно
+ЗАЧЕМ ВАМ АНГЛИЙСКИЙ?
+Если ваш ответ - “Хочу свободно разговаривать”, “Хочу смотреть фильмы в оригинале и все понимать”, “Хочу путешествовать”, “Хочу помогать ребенку с уроками” или “Хочу замуж за границу”, то это звучит по-разному, но все-таки очень абстрактно.
+Скорее всего вы время от времени (   Читать дальше...   )Производство: EnglishteacupЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:30:40Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702F2365C5B8CEFBE8357C0E8CE6F9895E78617C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566840   (211487) от 31.07.2022
 
 Gnomon workshop, Eric Keller | Creature modeling with zbrush and marmoset toolbag (2022) PCRec [EN]
@@ -6,7 +35,7 @@ Gnomon workshop, Eric Keller | Creature modeling with zbrush and marmoset toolba
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211487.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ Udemy, Victory3D LLC | Facial Anatomy & Character Portrait for Blender Artists (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211480.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ Gumroad, Harry Roberts | Setting up DevTools for Performance Testing (2022) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211467.jpg" />
 </div>
 
 
@@ -86,7 +115,7 @@ Udemy - Create a High Quality Asset in Blender and Substance Painter (2021) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211392.jpg" />
 </div>
 
 
@@ -112,7 +141,7 @@ Udemy, Roman Dushkin | Введение в компьютерную логику
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211338.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211298.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ Udemy, Nexttut, Daniel da Costa | Realistic Character Making in Blender 3.2 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211233.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ Filschool, Софья Филиппова | Курс по веб-дизайну �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211211.jpg" />
 </div>
 
 
@@ -224,7 +253,7 @@ Udemy, in28Minutes Official | Learn AWS - Deploy Java Spring Boot to AWS Elastic
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211143.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ Imagination, Ирина Пирогова | Fashion Иллюстрация Pro (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211091.jpg" />
 </div>
 
 
@@ -280,7 +309,7 @@ Udemy, Airlan Technologie Sieciowe | Mikrotik from scratch for everyone (2022) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210988.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ Udemy, Mitchell Nickerson | I use Blender - 3D Modeling - Stylized Tiki Mask (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210900.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ Udemy, Coding Revolution | Starting with React & Redux: Build modern apps (2nd e
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210873.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210750.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210726.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Gumroad, Zak Boxall | REALISTIC Creature Texturing Painting Tutorial Using Mari 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210674.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Mackley Studios, Chris Tedin | Autodesk Maya Mythical Creature Animation (2017) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210637.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Skillshare, Darrin Lile | Create a Victorian Room with Blender and Substance Pai
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210628.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ CGMA, Sean Mcewan | Procedural Modeling for Production in Houdini (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210562.jpg" />
 </div>
 
 
@@ -521,7 +550,7 @@ Thinknetica Pro, Виктор Маслов | Автоматизация тест
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210335.jpg" />
 </div>
 
 
@@ -547,7 +576,7 @@ The Art of Aaron Blaise, Aaron Blaise | How to Draw: Drawing Human Anatomy (2016
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210295.jpg" />
 </div>
 
 
@@ -573,7 +602,7 @@ Yiihuu, wingfox, Zaoeyo | Masterclass Motion Graphic Animation in Cinema 4D (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210275.jpg" />
 </div>
 
 
@@ -599,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210267.jpg" />
 </div>
 
 
@@ -625,7 +654,7 @@ Vertex Workshop, Ackeem Durrant | Character Creation For Games by Ackeem Durrant
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210230.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ Artstation Masterclasses, The Gnomon Workshop, Brian Recktenwald | Designing a M
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210191.jpg" />
 </div>
 
 
@@ -665,33 +694,6 @@ Artstation Masterclasses, The Gnomon Workshop, Brian Recktenwald | Designing a M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01956DEA7469E7781C4130C77F52AB4AC65CC157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570889   (210188) от 19.08.2022
-
-Yiihuu, WingFox | Movie CG Opening Concept Short Film: Ultrain-Ultrain (2021) PCRec [CN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оголённый мозг, управляющий сверхцивилизованным космическим кораблем, чтобы сбежать с пустынной земли, дрейфующий в дальнем космосе, история разворачивается так...
-Вас когда-нибудь привлекало название какого-нибудь американского телешоу? Восхищаетесь их причудливым дизайном и характерными визуальными выражениями? Вы когда-нибудь думали о том, чтобы создать его самостоятельно, (   Читать дальше...   )Производство: YiihuuЖанр: Motion DesignЯзык озвучки: КитайскийПродолжительность: 08:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AAE4DAFC587D8909ACD424C5F09609173AF5E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

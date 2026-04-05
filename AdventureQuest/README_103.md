@@ -1,3 +1,81 @@
+###  Публикация: 1790370   (22065) от 08.04.2025
+
+LEILA (2025) [Ru/Multi] (Build 18011991) Repack Other s [Supporter Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Играйте за Лейлу и пройдите через все этапы ее жизни, раскрывая ключевые моменты ее судьбы. Разгадывайте головоломки, наполненные фрагментами ее повествования, чтобы понять мотивы решений Лейлы. Погружаясь в ее психику и эмоциональный пейзаж, вы обнаружите отражение своей личности в жизненном пути этой, казалось бы, обыденной женщины.Тип издания: RepackРазработчик: Ubik StudiosЖанр: ИндиЯзык озвучки: Английский, ТурецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7728B4200BA1C37E8984D536C6D4879F4C6D0E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790330   (22063) от 08.04.2025
+
+PEPPERED (2025) [Ru/Multi] (Build 18001699) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22063.jpg" />
+</div>
+
+
+###  Подробнее
+
+PEPPERED — это экзистенциальный платформер, где у тебя один шанс на всё. Каждый выбор, каждая битва с боссом и каждая неудача влияют на развитие сюжета и определяют, как будет развиваться история и чем она закончится. Видя апатию перед лицом конца света, офисный стажёр решает спасти мир самостоятельно. Но мир отвечает вызовом полиции, деревенщин и СМИ, которые объявляют (   Читать дальше...   )Тип издания: RepackРазработчик: Mostly GamesЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151F5AA6238E75370CB0DDC31642D0E03292DB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789389   (22025) от 09.04.2025
+
+The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10407.714/dlc) Repack seleZen [Remastered]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя пять лет после страшного путешествия по охваченной эпидемией Америке Элли и Джоэл осели в Джексоне, штат Вайоминг. Обосновавшись в процветающей общине, они обрели желанную стабильность, несмотря на постоянную угрозу нападения зараженных и теряющих смысл жизни выживших. Но однажды жестокие события разрушают эту идиллию, и Элли снова отправляется в изнуряющее (   Читать дальше...   )Тип издания: RepackРазработчик: Naughty Dog LLC, Nixxes Software, Iron Galaxy StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96888F03849CEB880B368C3019F084563E7253D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790424   (21980) от 09.04.2025
 
 LEILA (2025) [Ru/Multi] (Build 18011991) Repack FitGirl [Supporter Edition]
@@ -6,7 +84,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack FitGirl [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21980.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Stalked 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21906.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.2 185185) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21883.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (build 18057167) Repack seleZe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21787.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (729654) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21772.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.4.1637/dlc) Repack FitGirl [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21681.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Venus Vacation PRISM: DEAD OR ALIVE Xtreme (2025) [Multi] (1.02/dlc) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21595.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Alan Wake II (2) (2023) [Ru/Multi] (1.2.8/dlc) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21094.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ CAPTURED (2024) [Ru/Multi] (1.2.1.0.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21028.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Myst (2021) [Ru/Multi] (3.0.4) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21019.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Wanterlude [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20871.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Biped (2020) [Ru/Multi] (2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20861.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0 Build 8682/dlc) Repack Ot
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20613.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17717270/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20543.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Post Trauma (2025) [Multi] (1.04) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20522.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20515.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20497.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Brassheart (2025) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20495.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Fort Solis (2023) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20454.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Blackwell Epiphany (2014) [En] (3.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20439.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Shivah (2013) [En] (3.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20435.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Resonance (2012) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20427.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Blackwell Convergence (2009) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20414.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Black Convergence - третья часть известной приключе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:420714B27D4E23DE768179EB8F6DEE13DBB1036B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637482   (20351) от 25.04.2025
-
-Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умиротворяющий симулятор фермы с элементами песочницы, где вы будете управлять своим хозяйством и незабываемо проведете лето наедине с природой. Создайте собственного персонажа и отправляйтесь в увлекательное путешествие в долину Евердрим, где обитает настоящая магия. Днем занимайтесь хозяйством, а с наступлением ночи вам предстоит раскрыть темную сторону очаровательного (   Читать дальше...   )Тип издания: LicenseРазработчик: MooneatersЖанр: Приключение, Строительство, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Польский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75111A58333DA219AFFDEE2812B57D87AF3D2AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793573   (20330) от 25.04.2025
-
-Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.37915) License GOG [Digital Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь на поиски больших белых птиц в загадочном краю. Ответьте на зов приключений: отправьтесь в затерянную страну под названием Amerzone, что находится в Латинской Америке, и исполните последнее желание покойного исследователя. Исследуйте заросшие руины, общайтесь с необычными, глубоко проработанными персонажами и разгадывайте сложные головоломки, чтобы раскрыть (   Читать дальше...   )Тип издания: LicenseРазработчик: Microids Studio ParisЖанр: Экшены, Приключенческие игры, СимуляторыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4BD5622E5A88BEEB05D13BE8A544A7955CBC80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790701   (20326) от 25.04.2025
-
-South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели игр Contrast и We Happy Few представляют South of Midnight - захватывающее приключение от третьего лица, разворачивающееся среди пейзажей Глубокого Юга США. Играя за Хейзел, вы погрузитесь в мифы и легенды и познакомитесь с таинственными созданиями южного фольклора в этом мрачном и причудливом мире. Когда на ее родной город обрушивается катастрофа, Хейзел (   Читать дальше...   )Тип издания: RepackРазработчик: Compulsion GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42065530C951CAE36AEBB9D594A57D22257726C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

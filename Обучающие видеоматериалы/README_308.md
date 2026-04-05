@@ -1,3 +1,29 @@
+###  Публикация: 827014   (26755) от 23.02.2025
+
+Seelentera | Ajax vs Node.JS (2014) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс Ajax vs Node.JS от учебного центра Seelentera Курс Ajax vs Node.JS научит вас создавать свой собственный чат, используя jQuery Ajax и Node.JS.Жанр: Обучающее видеоЯзык: РусскийПродолжительность: 01.34.41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB955EAD403A6994E5FC4410CA11406A7777ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 110617   (26748) от 23.02.2025
 
 Serberg | Видеоурок "Восстановление Windows в считанные секунды..." [2005]
@@ -6,7 +32,7 @@ Serberg | Видеоурок "Восстановление Windows в счита
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26748.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Udemy, Andrei Dumitrescu | Linux Security: The Complete Iptables Firewall Guide 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26728.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26698.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26690.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26688.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26679.jpg" />
 </div>
 
 
@@ -175,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26674.jpg" />
 </div>
 
 
@@ -201,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26665.jpg" />
 </div>
 
 
@@ -229,7 +255,7 @@ Udemy | Игры со словами на C# (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26653.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ PlayThis, Артём Мироненко | Набор Профессионала 
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26634.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26623.jpg" />
 </div>
 
 
@@ -313,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26621.jpg" />
 </div>
 
 
@@ -340,7 +366,7 @@ Boosty, Антон Назаров | Осознанная Меркантильн�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26550.jpg" />
 </div>
 
 
@@ -368,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26480.jpg" />
 </div>
 
 
@@ -395,7 +421,7 @@ Boosty, Антон Назаров | Осознанная Меркантильн�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26425.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ The Gnomon Workshop, Josh Docherty | Modeling For Film & TV Hard-Surface Vehicle
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26403.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26369.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26301.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26290.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26276.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26264.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Color Grading Central | Davinci Resolve 11 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26226.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26222.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ PurpleSchool, Udemy, Антон Ларичев | Next.js 15 - с нуля, React
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26217.jpg" />
 </div>
 
 
@@ -668,7 +694,7 @@ Abe Leal 3D | Complete Guide to Retopology (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26167.jpg" />
 </div>
 
 
@@ -679,32 +705,6 @@ Abe Leal 3D | Complete Guide to Retopology (2025) WEB-DL [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF460BF4082EAAB0D15F452266336FCD1586EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782411   (26166) от 28.02.2025
-
-Екатерина Сваровская | Хачапури (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26166.jpg" />
-</div>
-
-
-###  Подробнее
-
-На курсе вы научитесь готовить несколько видов теста для хачапури, несколько видов начинок (сырная, из фасоли, мясная), несколько видов соусов.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC677B2A87B584FE521F7A02B7A476B20CA1F303
 ```
 
 https://mybot314.ru/tekegram_catalog/

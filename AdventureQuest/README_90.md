@@ -1,3 +1,81 @@
+###  Публикация: 1715438   (38164) от 06.11.2024
+
+Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Ace Ventura, основанная на одноименном фильме, погрузит Вас в красочный мир, полный юмора и всеобщего веселья. Главный герой, частный детектив Эйс Вентура, специализируется на розыске пропавших животных. Вместе с ним и его ручной обезьянкой Вам предстоит пережить незабываемое приключение. Вы побываете на подводной лодке капитана Немо, в Баварии и на таинственной (   Читать дальше...   )Тип издания: RepackРазработчик: 7th LevelЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45F432C7B1FBFED5DEBC3619661912B593E9419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759059   (38116) от 06.11.2024
+
+Massacre At The Mirage (2024) [En] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра ставит участников в центр разворачивающегося ужаса в кинотеатре, месте, которое когда-то было местом радости в общине Кримсон-Ридж. Атмосфера резко меняется, когда фигура в маске, замаскированная под клоуна, начинает бесчинствовать, превращая некогда безопасное место в поле боя. По мере нарастания напряжения юзерам предстоит ориентироваться в запутанной планировке (   Читать дальше...   )Тип издания: LicenseРазработчик: Tainted PactЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529EB74BAA9D9626C793C88C8669532291E1AEFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163605   (38057) от 07.11.2024
+
+Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласно сюжету игры главный герой - ученый Джордж Уэйлс создает машину времени и отправляется на 800 000 лет в будущее, но свершается непредвиденное: машина времени исчезает, а главный герой оказывается посреди мира, который разрушается под действием "времятрясений". Из-за этих явлений в мире возможно все: нереальные пейзажи, смещение во времени, мгновенное (   Читать дальше...   )Тип издания: RepackРазработчик: Index+Жанр: КвестЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0F01B885198B000935705FF1F1F6F68F0F7C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742541   (38006) от 07.11.2024
 
 Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
@@ -6,7 +84,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38006.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Lula 3D (2006) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37825.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Chicken Police: Into the HIVE! / Chicken Police: в Улей! (2024) [Ru/Multi] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37806.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37783.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Chicken Police - Paint it RED! (2020) [Ru/Multi] (438) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37735.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Two Falls (Nishu Takuatshina) (2024) [Multi] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37729.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Shadow Corridor 2 (2024) [Multi] (1.14.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37726.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Abyss School (2024) [Multi] (1.6.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37714.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Demonologist (2023) [Ru/Multi] (1.5.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37625.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37542.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Hello Neighbor 2 (2022) [Ru/Multi] (4.27.2.0/dlc) License GOG [Deluxe Edtion]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37511.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (1.003) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37488.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Destiny Star Girlfriend 2 (2024) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37416.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Destiny Star Girlfriend (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37390.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37326.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Dragonsphere (1994) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37322.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Black Book / Черная Книга (2021) [Ru/Multi] (build 12000953) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37245.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Tavern Talk (2024) [Multi] (20241111/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37240.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Gori: Cuddly Carnage (2024) [Multi] (1.0.187/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37162.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Witch of Fern Island (2023) [Multi] (1.0.4b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37153.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37133.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.0.4) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37120.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ You Are Grounded (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37098.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ You Are Grounded (2024) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88349F02A16D226611E27685D68AE7B281D64B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760830   (37092) от 16.11.2024
-
-Beyond The Darkness (2024) [Ru/En] (Build 16409241) Scene Rune
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beyond The Darkness - это мрачная история, которая окунёт вас в детские кошмары, даже если вы успели о них позабыть. Помогите маленькой девочке Милли сразиться с ужасами, таящимися во тьме, и найдите её пропавшую семью. Вы окажетесь причудливых мирах воспоминаний, искажённых страхом и отчаянием, а вашим единственным оружием станет свет маленькой лампы…Тип издания: SceneРазработчик: My Little StudioЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:515782352BD11B471638C39036CFE92B176CC8F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760745   (37090) от 16.11.2024
-
-Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beyond The Darkness - это мрачная история, которая окунёт вас в детские кошмары, даже если вы успели о них позабыть. Помогите маленькой девочке Милли сразиться с ужасами, таящимися во тьме, и найдите её пропавшую семью. Вы окажетесь причудливых мирах воспоминаний, искажённых страхом и отчаянием, а вашим единственным оружием станет свет маленькой лампы…Тип издания: RepackРазработчик: My Little StudioЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4085F7C3DB4BF2AA6E6B2A0BB8601E306450E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760742   (37073) от 16.11.2024
-
-Dave the Diver (2023) [Ru/Multi] (1.0.3.1535/dlc) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dave the Diver - это казуальная приключенческая RPG для одного игрока, в которой днем проводятся глубоководные исследования и рыбалка, а ночью - управление суши-рестораном. Присоединяйтесь к Дэйву и его причудливым друзьям, которые стремятся раскрыть секреты таинственной Голубой бездны. Исследуйте и разгадывайте тайны в глубинах Голубой бездны днем и управляйте успешным (   Читать дальше...   )Тип издания: RepackРазработчик: MINTROCKETЖанр: Adventure, CasualЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AAEC2B703087C6845B1B508A44FD236CB77AF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

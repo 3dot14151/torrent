@@ -1,3 +1,55 @@
+###  Публикация: 1170471   (399152) от 01.10.2017
+
+Скрипты - VideoHive - VFX Box - 20112674 [FFX, JSXBIN]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399152.jpg" />
+</div>
+
+
+###  Подробнее
+
+VFX Box - пакет дополнений для After Effects и Premiere Pro, призванный придать Вашему проекту еще больше стиля и индивидуальности.Формат: FFX, JSXBIN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A9E778B6161FF7958EE2261E34A2A563DD53FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164265   (399144) от 01.10.2017
+
+Grand Theft Auto Anthology (1997-2015) [Ru/En] Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы провести серию дерзких ограблений и выжить в большом неприветливом городе, уличному ловчиле, вышедшему на пенсию грабителю банков и вселяющему ужас психопату приходится иметь дело с самыми опасными и безумными преступниками, а также шоуменами и госслужащими Западного побережья.Тип издания: RepackРазработчик: Rockstar North, Rockstar San Diego и Rockstar LeedsЖанр: Action (Shooter), Racing (Cars), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E4A7B93957FC7BDC7B75D25DA9536BC7632BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528133   (398601) от 27.10.2012
 
 Люди Альфа / Alphas (2012) WEB-DLRip [Season 2] [LostFilm] (Обновляемая раздача)
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398601.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397484.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Fallout Shelter (2016) [Ru/Multi] (1.13) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397253.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Medal Of Honor: Warfighter [PS3] [RUSSOUND] [PAL] [FULL] [3.41/3.55] (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396509.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Medal of Honor Warfighter: Deluxe edition [Ru/En] (RePack/1.0.0.2) 2012 | R.G. S
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396508.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Need For Speed: Most Wanted [PS3] [RUSSOUND] [NTSC] [FULL] [3.55] (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396506.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Rayman Jungle Run v2.3.3 [EN]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396336.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Worms 2: Armageddon 1.4.1 [EN] / Обновлено: 03.10.2017 /
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396331.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [Ru] (1.03) RePack Fenixx [Deluxe E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396267.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ A.J. Hoge (San Francisco, California, United States) | Effortless English [2006-
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396056.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Clover 2.0.165.0 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395566.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_395489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_395489.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Windows 7 SP1 DVD x86 x64 v30.004.12 StartSOFT [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_395418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_395418.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ Gothic / Готика Антология [Ru] (Lossless RePack) 2001-2010 | PURG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394935.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ Mozilla Firefox 56.0.1 Final RePack (& Portable) by D!akov  [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394504.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Adobe Photoshop Elements 2018 (v16.0) Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394497.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ CrossOver Linux 11.3.1 [i386] (deb, rpm, bin)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_394393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_394393.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ Need for Speed Most Wanted: Limited Edition [Ru] (RePack/1.0) 2012 l R.G. Torren
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394392.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ Sorcery [PS3] [RUSSOUND] [PAL] [MOVE] [FULL] [3.55] (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394384.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ Pink Floyd - The Dark Side Of The Moon (2011) 1973 [MLP5.1 96/24|DTS5.1 96/24|DV
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394012.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393599.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_393443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_393443.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392592.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391634.jpg" />
 </div>
 
 
@@ -627,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6BAE19A2B52625E708FCAFDB73B10D41D871453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542716   (391392) от 03.11.2012
-
-Sleeping Dogs - Limited Edition [Ru/Multi7] (RePack/1.7/20 DLC) 2012 l R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Гонконг, город, в котором дрожащий свет неоновых огней тесно переплетается с повседневной жизнью, город, чьи экзотические места и бурлящие улицы скрывают одну из самых могущественных и опасных криминальных организаций во всем мире — Триад.
-В этой игре с открытым миром вам предстоит примерить на себя роль Вей Шена, полицейского под прикрытием, который пытается разрушить банды Триад изнутри. Докажите свою значимость на пути к верхушкам этой организации, приняв участие в жестоких криминальных операциях, и не дайте преступникам раскрыть себя. Разрываясь между верностью к полицейскому значку и бандитским кодексом чести, вам придется поставить на кон всё и не запутаться в размытых границах между правдой, преданностью и справедливостью. (   Читать дальше...   )Тип издания: RePackЖанр: ActionЯзык озвучки: Английский, КитайскийЯзык интерфейса: Английский, Русский, Французский, Немецкий, Испанский, Итальянский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD46FB1ECF34DEE25E2CF4A8B61B12B0914E10A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569645   (390591) от 04.11.2012
-
-Вспомнить всё / Total Recall (2012) DVD5
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_390591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он — обычный рабочий-строитель, живущий в маленькой квартирке в захудалом районе города будущего где-то в Новой Азии. Хотя собственная жизнь его в целом устраивает, он не может избавиться от чувства, что ему хочется чего-то большего. Потребность в новых будоражащих впечатлениях приводит его в офис компании «Вспомнить всё», имплантирующей в память своих клиентов воспоминания-фантазии, которые они могут получить не рискуя при этом пережить сами события в реальности. Пока герой выбирает, какие именно воспоминания ему приобрести, отряд спецназа штурмует комнату, где он находится, и уже было берет его под арест. К своему собственному удивлению, он молниеносно уничтожает весь отряд при помощи невероятных бойцовских навыков, о владении которыми он и не подозревал…Жанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Лен УайзманПродюсер: Тоби Джаффе, Нил Х. Мориц, Рик КидниАктеры: Колин Фаррелл, Кейт Бекинсейл, Джессика Бил, Брайан Крэнстон, Джон Чо, Билл Найи, Букем Вудбайн, Уилл Юн Ли, Милтон Барнс, Джеймс Макгоун ...Перевод: ДублированныйПродолжительность: 01:53:26
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

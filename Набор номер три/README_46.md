@@ -1,3 +1,160 @@
+###  Публикация: 1486825   (1003968) от 03.08.2021
+
+Смартфон на выброс. Почему техника стала неремонтопригодной
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все чаще некритичные поломки смартфона, например треснувший экран, оборачиваются не ремонтом, а покупкой новой модели. Эксперты усматривают в этом особую тактику производителей. Внакладе остаются покупатели и сервисы. Почему так происходит — мы расскажем в этом материале.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487055   (1003955) от 03.08.2021
+
+Судьба диверсанта (2020) WEBRip [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина посвящена подвигам советских подпольщиков и партизан, героически сражавшихся с немецкими оккупантами в годы Великой Отечественной войны. Образ главного героя железнодорожника Алеся Арловича собирательный, но в его основе — судьба советского подпольщика Федора Крыловича, совершившего самую крупную сухопутную диверсию Второй мировой войны на железнодорожной (   Читать дальше...   )Производство: Россия, Беларусь / БеларусьфильмЖанр: драма, биографияРежиссер: Дмитрий АстраханАктеры: Алексей Суренский, Андрей Смоляков, Александр Семчев, Владимир Тимофеев, Виктор Васильев, Валентина Ляпина, Лиана Гриба, Михаил Жмако, Олег Коц, Александр ТкаченокЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3555B77CF6A7CEE99401EEE5555EC13762A95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 645250   (1003953) от 03.08.2021
+
+Вызов / Непокорная Земля / Defiance (2013) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13) BaibaKo
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сериала "Вызов" рассказывает о Земле, какой она стала после Бледных войн: противостояния землян и прилетевших "на поселение" инопланетян, чья система бинарных солнц превратилась в сверхновую. После того, как потери с обеих сторон достигли ужасных размеров и на Землю по ошибке попали терраформирующие машины инопланетян, горстка солдат осознала (   Читать дальше...   )Производство: США / Five & Dime Productions, Universal Cable ProductionsЖанр: фантастика, боевик, драмаРежиссер: Майкл Нанкин, Аллен Крокер, Энди ВолкАктеры: Грант Боулер, Джули Бенц, Стефани Леонидас, Тони Кёрран, Джейми Мюррэй, Грэм Грин, Миа Киршнер, Дьюшэйн Уильямс, Николь Муньос, Джастин РэйнПеревод: Многоголосый профессиональный (BaibaKo)Язык озвучки: Русский, английскийСубтитры: английские (форсированные hardsub)Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92D6F1B0A9D51470E38005710B7AD2C5012ADDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349197   (1003913) от 03.01.2020
+
+В России появился собственный «Cybertruck» – стоимостью всего 10800 долларов
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из четырех российских ютуберов Пушка Гараж из подмосковных Химок сделали то, что от них вряд ли кто ожидал. Специалисты по малобюджетному гаражному тюнингу старых российских автомобилей, приложив немалые усилия, создали из подручных материалов российскую версию нашумевшего «Tesla Cybertruck».Проект обошелся его создателям в скромные 1300 долларов (включая (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330004   (1003910) от 03.01.2020
+
+Bokutachi wa Benkyou ga Dekinai! | We Never Learn: Bokuben Season 2 | Мы не можем учиться! [ТВ-2] [2019, TV, 13] WEBRip 720p raw
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003910.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Нариюки Юйга последний и самый трудный год в старшей школе. Чтобы получить «особую рекомендацию VIP», которая предоставит ему полную стипендию для обучения в колледже, он должен теперь обучать своих одноклассников, которые пытаются подготовиться к вступительным экзаменам. Среди его учеников «спящая красавица литературного леса» Фумино Фурухаси и «суперкомпьютер (   Читать дальше...   )Производство: SilverЖанр: комедия, романтикаРежиссер: Ивасаки ЁсиакиПеревод: AniLibria (rus); Cranchroll (остальное)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Испанские, ПортугальскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E194B081B2C3E39ACCCC0155EEF4419051319E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001512   (1003894) от 03.01.2020
+
+Онлайн Радио Yo!Tuner v1.11.8 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы цените свое время и музыкальные вкусы, скорее скачивайте это «умное радио»! Это практически искусственный интеллект, да еще полностью БЕСПЛАТНЫЙ — все функции доступны сразу после установки, ни за что доплачивать не нужно! В базе 6500+ радиостанций, и она постоянно пополняется. Вот ещё веские причины, почему это онлайн-радио нужно скачать прямо сейчас:Тип издания: Пиратка (открыт Premium)Релиз состоялся: 26.11.2019Разработчик: SoftInvent, LLCПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6053D7230AE453F03A09EADA4E2A867C685A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349271   (1003892) от 03.01.2020
 
 MInstAll v.31.12.2019 By Andreyonohov & Leha342 [Ru]
@@ -6,7 +163,7 @@ MInstAll v.31.12.2019 By Andreyonohov & Leha342 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003892.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Wolfenstein II: The New Colossus / Wolfenstein 2: The New Colossus (2017) [Ru/En
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003890.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003889.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003888.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ Forza Horizon 4 (2018) [Ru/Multi] (1.473.944.0/dlc) SteamRip InsaneRamZes [Ultim
 >>22
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003691.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003651.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ Microsoft продолжит выпускать обновления для Wind
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003645.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ MultiBoot HDD 2020 31.12.2019 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003637.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003635.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003629.jpg" />
 </div>
 
 
@@ -266,7 +423,7 @@ SkillBox | Python-разработчик (2019) PCRec
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003626.jpg" />
 </div>
 
 
@@ -292,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003463.jpg" />
 </div>
 
 
@@ -318,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003401.jpg" />
 </div>
 
 
@@ -344,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003390.jpg" />
 </div>
 
 
@@ -370,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003389.jpg" />
 </div>
 
 
@@ -396,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003182.jpg" />
 </div>
 
 
@@ -422,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003177.jpg" />
 </div>
 
 
@@ -448,7 +605,7 @@ Necromunda: Hired Gun (2021) [Ru/Multi] (1.59641/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003161.jpg" />
 </div>
 
 
@@ -474,7 +631,7 @@ Raft (2018) [Ru/Multi] (1.0/upd13.01) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003160.jpg" />
 </div>
 
 
@@ -500,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003082.jpg" />
 </div>
 
 
@@ -511,163 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49AF9D27311E1E733A120B84AA629C2AB111F78B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350080   (1003080) от 06.01.2020
-
-В Microsoft прокомментировали прекращение поддержки Windows 7
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нас вынуждают стать пиратами — рунет о прекращении поддержки Windows 7
-Компания Microsoft прекратит поддержку операционной системы Windows 7 14 января. Об этом говорится в сообщении на сайте компании.В сообщении отмечается, что после этой даты Microsoft прекратит техническую поддержку системы по любым вопросам, обновление программного обеспечения, а также обновление (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974255   (1003077) от 06.01.2020
-
-Секретные материалы / The X-Files (1993-2016) HDRip,WEBRip [H.264] (Сезон 1-10, серии 1-208 из 208) ОРТ, ТВ3, РЕН ТВ [MP4|960x540]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пропадает без вести сотрудница ФБР, и последней надеждой её коллег становятся Фокс Малдер и Дана Скалли, бывшие специальные агенты, вынужденно, хотя и по разным причинам, оставившие службу. Единственным человеком, дающим следствию хоть какую-то информацию, является престарелый Джозеф Криссман, в прошлом священник, отбывший наказание за совращение малолетних, который (   Читать дальше...   )Производство: США, КанадаЖанр: ужасы, фантастика, триллерРежиссер: Крис КартерАктеры: Дэвид Духовны, Джиллиан Андерсон, Аманда Пит, Билли Коннолли, Иксзибит, Митч Пилледжи, Каллум Кит Ренни, Адам Годли, Алекс Дьякун, Никки ЭйкоксПеревод: дублированныйСубтитры: русские, английскиеПродолжительность: 01:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B055CA0D361A2DD64C82613DF2501E46C394D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487594   (1003031) от 07.08.2021
-
-В 2021 году услуги VPN будут расти из-за ограничений Роскомнадзора и роста спроса
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласно опросу «Коммерсанта», проведенному среди производителей VPN-продуктов, спрос на услуги такого рода в этом году будет расти. В первую очередь это связано с ростом спроса, а также блокировкой Роскомнадзором нескольких VPN-программ.В компании Navicon ожидают роста цен на 5–12 %, в Red Shield VPN — на 10–15 %. При этом в последней отметили, что за последний (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487503   (1002974) от 07.08.2021
-
-Apple собирается искать запрещённые фото на iPhone пользователей
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщило издание 9to5mac.com, компания Apple планирует в скором времени анонсировать систему сканирования фотографий, сохранённых в памяти смартфона. Система предназначена для обнаружения изображений жестокого обращения с детьми. В основе решения лежит алгоритм хеширования.С целью сохранности личных данных сканирование изображений будет производится локально, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350458   (1002867) от 07.01.2020
-
-Ford против Ferrari / Ford v Ferrari (2019) DVDScr [H.264/1080p-LQ] [MVO] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о взаимоотношениях американского автомобильного конструктора Кэрролла Шелби и отважного британского гонщика Кена Майлза, которые вместе бросили вызов корпорациям и собственным демонам, чтобы создать абсолютно новый спорткар, который смог конкурировать с Ferrari на чемпионате мира, прошедшем во Франции в середине 1960-х.Производство: США, Франция, 20th Century Fox Film Corporation, ...Жанр: Биография, Спорт, Драма, БоевикРежиссер: Джеймс МэнголдАктеры: Кристиан Бэйл, Мэтт Дэймон, Катрина Балф, Трэйси Леттс, Джон Бернтал, Ноа Джуп, Джош Лукас, Ремо Джироне, Рэй Маккиннон, Джей Джей ФилдПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 02:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BE3169BB6B6C9B63347CFBD6D9808294398166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350129   (1002863) от 07.01.2020
-
-Пользователи считают Windows 95 намного понятнее, чем Windows 10.
-
->>3
->>21
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002863.jpg" />
-</div>
-
-
-###  Подробнее
-
-На известном американском форуме Reddit разгораются дебаты относительно того, что Windows 10 потеряла в процессе эволюции графического интерфейса. Многие сходятся в том, что потеряла она, пожалуй, одну из самых главных своих черт — наглядность.В доказательство приводится скриншот Windows 95 и тех ее элементов, которых в Windows 10 больше нет, но которые были бы очень (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

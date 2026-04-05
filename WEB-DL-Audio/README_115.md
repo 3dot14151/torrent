@@ -6,7 +6,7 @@ Scooter - Open Your Mind And Your Trousers (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62131.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Deep Purple - Machine Head (Super Deluxe) (2024) [FLAC 24/96.0, 48.0, 44.1 kHz|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61402.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sheryl Crow - Evolution (2024) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61393.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ De-Phazz - Pit Sounds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Tri
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61391.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mark Knopfler - One Deep River (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60016.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sexual Music Collection, Romantic Love Songs Academy - Midnight Jazz Confessions
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59594.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Pearl Jam - Dark Matter (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59180.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Ghost Inside - Searching for Solace (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58983.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bonnie Tyler - In Berlin (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58767.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Pabllo Vittar - Batidao Tropical Vol. 1-2 (2021-2024) [FLAC 24/44.1,48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57923.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mark Knopfler - The Boy (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57704.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Michael Jackson - Thriller (1982) 2008 [FLAC 24/176.4|Lossless|WEB-DL|tracks] <S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57615.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Michael Jackson - Bad (Remastered) (1987) 2012 [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57532.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Scorpions - Virgin Killer (1976) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57425.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Scorpions - In Trance (1975) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57392.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Scorpions - Fly To The Rainbow (1974) Remastered 2023 [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57388.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Creedence Clearwater Revival - The Complete Studio Albums (1968-1972) Compilatio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57342.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56755.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Billie Eilish - HIT ME HARD AND SOFT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56270.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ New Kids On The Block - Still Kids (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56246.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56132.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Jazz Erotic Lounge Collective, Jazz Music Collection - Erotic Improvisation: Sen
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56042.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ twenty one pilots - Clancy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55509.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55307.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Snoop Dogg & Dj Drama - Gangsta Grillz: I Still Got It (2022) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54552.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ com.pass - Полюса (2021) [FLAC|Lossless|WEB-DL|tracks] <Russian Metalcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54551.jpg" />
 </div>
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1643796   (196246) от 03.07.2023
+
+Udemy, David Makowski | Modern Unity UI with UI Toolkit (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196246.jpg" />
+</div>
+
+
+###  Подробнее
+
+This course is a deep dive into Unity's UI Toolkit. You will learn most of the components that make up UI Toolkit and be able to create complex UI Systems for your games or apps.
+
+This course uses a mix of theory and practice. We will create dozens of little UI-Components and examples. Furthermore, we will have a course project on which we will practice what we learned (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 22:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DDD296CD1D47747A3CFA37D6566B1527986DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643320   (196215) от 02.07.2023
 
 Foxford (Фоксфорд), Дарья Романова | Финансовая грамотность. Продвинутый курс (2023) WEB-DL [AD] [RU]
@@ -6,7 +34,7 @@ Foxford (Фоксфорд), Дарья Романова | Финансовая �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196215.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196107.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196088.jpg" />
 </div>
 
 
@@ -92,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196053.jpg" />
 </div>
 
 
@@ -120,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196044.jpg" />
 </div>
 
 
@@ -148,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196034.jpg" />
 </div>
 
 
@@ -177,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196028.jpg" />
 </div>
 
 
@@ -205,7 +233,7 @@ Runn.consulting, Николай Русанов | Умный дом как биз
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196020.jpg" />
 </div>
 
 
@@ -234,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195951.jpg" />
 </div>
 
 
@@ -263,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195947.jpg" />
 </div>
 
 
@@ -292,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195900.jpg" />
 </div>
 
 
@@ -318,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195880.jpg" />
 </div>
 
 
@@ -347,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195845.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195833.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195779.jpg" />
 </div>
 
 
@@ -432,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195765.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195756.jpg" />
 </div>
 
 
@@ -490,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195753.jpg" />
 </div>
 
 
@@ -519,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195748.jpg" />
 </div>
 
 
@@ -548,7 +576,7 @@ Hudozhnik Online, Роман Круглов | Марафон по графике
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195683.jpg" />
 </div>
 
 
@@ -576,7 +604,7 @@ Contrse, Дарья Калугина | Photoshop: финальный штрих 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195672.jpg" />
 </div>
 
 
@@ -605,7 +633,7 @@ Geometrium, Павел Герасимов, Алексей Иванов | Фот�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195669.jpg" />
 </div>
 
 
@@ -634,7 +662,7 @@ WhitePhotoSchool, Сергей Гунин | Гуру света - Практик
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195668.jpg" />
 </div>
 
 
@@ -660,7 +688,7 @@ Videosmile, Вероника Полякова | Супер Illustrator (2018) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195666.jpg" />
 </div>
 
 
@@ -688,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195639.jpg" />
 </div>
 
 
@@ -699,34 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:115717E6306CF92BEF0D4751FA75E7BE346C1251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647272   (195635) от 17.07.2023
-
-Дарья Калугина | Интуитивная композиция (2020) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальная композиция — что это?
-В искусстве нет ничего идеального, а если вдруг, появились бы, это разрушило бы всю концепцию художественного видения в целом
-Лёгкий дисбаланс, естественность, не нарочитые линии и акценты — все это основа живого кадра. В своё время один вопрос не давал мне покоя. Как же построить красивый, НЕ идеальный, гармоничный кадр, если нужно (   Читать дальше...   )Жанр: ФотографияЯзык озвучки: РусскийПродолжительность: 02:50:31Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:850E43DFBA3583E5A53DA8DB7C4A6124230F57C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

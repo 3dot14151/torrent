@@ -6,7 +6,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. | OreGairu | Мой подро
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963461.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tokyo Ghoul / Токийский гуль [2014, TV, 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958328.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957273.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957258.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dirty Pair no Ooshoubu: Nolandia no Nazo | Dirty Pair: Affair of Nolandia | Гр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955733.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dirty Pair (1987) | Грязная парочка [1987, OVA, 10 из 10] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955637.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dirty Pair: Lovely Angels Yori Ai o Komete | Dirty Pair: With Love From the Love
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955632.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dirty Pair: Project Eden | Грязная парочка: Проект Эдем 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955613.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Dirty Pair Flash | Ослепительная грязная парочка [199
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955606.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Dirty Pair: Bouryaku no 005-bin | Dirty Pair: Flight 005 Conspiracy | Грязн
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955513.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Dirty Pair | Грязная парочка [1985, TV, 24 из 24] BDRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955491.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Mirai Shonen Conan / Future Boy Conan / Конан - мальчик из буд�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954926.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Hikaru no Go | Hikaru's Go | Хикару и го [2001, TV, 75 + 1] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950902.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Kyoushoku Soukou Guyver / Guyver: The Bioboosted Armor / Гайвер [ТВ] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950176.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Cop Craft | Мастерство копа [2019, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948218.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948038.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Kimi to, Nami ni Noretara | Ride Your Wave | Оседлать волну с то
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948029.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Promare | Промар [2019, Movie + 2 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948022.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | DanMachi II | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947848.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Fate/Grand Order -First Order- | Судьба: Великий Приказ — �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944088.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Bikini Warriors OVA / Воительницы в бикини OVA [2016, OVA, 2 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942651.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mayoi Neko Overrun! / Stray Cats Overrun! / Нашествие бродячих 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941083.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940834.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Soukyuu no Fafner: Dead Aggressor - Exodus | Небесный Фафнир: Ис
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939586.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Kagaku na Yatsura OVA / Эти чокнутые учёные OVA [2013, OVA, 1] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939572.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Orange: Mirai | Орендж: Будущее [2016, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939418.jpg" />
 </div>
 
 

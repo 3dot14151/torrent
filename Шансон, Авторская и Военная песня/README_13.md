@@ -1,3 +1,32 @@
+###  Публикация: 1197238   (798624) от 04.01.2019
+
+Александр Дюмин - 8 Альбомов (1998 - 2011) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Роза
+02. Сибиряк
+03. Братушка
+04. Байкал(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEFBDD78353155A83AB3FFE228A4B0943A2BBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171981   (797832) от 07.11.2021
 
 группа Бутырка - 7 Альбомов (2002 - 2009) [FLAC|Lossless|image + .cue]<Шансон>
@@ -6,7 +35,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797832.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Москва златоглавая II - VIII (1995 - 1998) [FLAC|Lossless|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797758.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797753.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Мужские истории 2 (2004) [FLAC|Lossless|image + .cue]<Шан�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796329.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Шансон по-русски.Новые хиты (2001) [FLAC|Lossless|tr
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793971.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793964.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793914.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793817.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793180.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Кураж судьбы 2 (2001) [FLAC|Lossless|image + .cue]<Шансон>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793049.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Москва златоглавая IV (1996) [FLAC|Lossless|image + .cue]<
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793012.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792855.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792813.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792775.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792490.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792413.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792236.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792192.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792185.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792165.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791947.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791780.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791562.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790858.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790811.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83A227C783147F16079480813FA53EB0710962CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202492   (789826) от 29.01.2018
-
-Олег Погудин - Союз друзей. Песни Булата Окуджавы (2018) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789826.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пожелание друзьям
-2. Ещё один романс
-3. Песенка о дальней дороге
-4. Песенка об открытой двери(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECF7B699A34D7393FB0ABE6954CABB43BF8164B
 ```
 
 https://mybot314.ru/tekegram_catalog/

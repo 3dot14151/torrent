@@ -1,3 +1,159 @@
+###  Публикация: 1390180   (783394) от 14.06.2020
+
+Пела кукушка (1980) TVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм прозвучал как страстная исповедь об охране природы. Причину гибели природы режиссёр видит в человеке.Телекомпания: СССР, КиргизфильмЖанр: Документальный, ПриродаПеревод: Не требуется (фильм без диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C06BB8BDD76FD16765FE9632D615515298A0B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390185   (783360) от 14.06.2020
+
+Чудо техники с Сергеем Малозёмовым (14.06.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электросамокаты, гироскутеры, моноколеса: как в нашей стране хотят урегулировать перемещение этого новомодного личного транспорта? Стоит ли экономить на домашних мойках? Дроны из Московского авиационного института: зачем их научили танцевать и какая польза от этих гаджетов? А также — тефлоновый коврик для выпечки, дезинфектор смартфонов и водонепроницаемая сумка (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3842577E17800EF4D2E1AA09809E6D8E7360D635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390199   (783345) от 14.06.2020
+
+Остров героев (13.06.2020) WEB-DLRip [H.264/1080p-LQ] (выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чего стоят подписчики, когда нечего есть? Каким будет утреннее селфи, если провести ночь на земле со змеями? Что важнее: зажечь на тусовке или зажечь костер, чтобы не замерзнуть? Восьми популярным блогерам предстоит найти ответы на эти вопросы в новом реалити-шоу «Остров героев»! Они отправятся выживать на необитаемый остров Мого-Мого в Панаме и покажут, на что способны (   Читать дальше...   )Телекомпания: ТНТ, ООО «Остров Героев Интернешнл»Жанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708B7CACAD29A6016E54EDB3506DC583D9FAA0D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390189   (783343) от 14.06.2020
+
+Будапешт / Budapest (2019) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша видео команда была очень впечатлена Будапештом - это феноменальный город. Он впитал лучшее из многих величайших городов Европы. Посмотрите внимательно на архитектуру, и вы найдёте что-то из всего - немного Парижа, немного Санкт-Петербурга, фрагменты Лондона ...Производство: ВенгрияЖанр: Документальный, видовойРежиссер: Timelab.proПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA9EAE12EBAE24B076B83E1700AB85B60993675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390276   (783307) от 14.06.2020
+
+Воскресный вечер с Владимиром Соловьевым (14.06.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, то здесь (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 02:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E8FB897A0FE49C7C08EF5409B29B6BE897528B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390427   (783042) от 15.06.2020
+
+Магия Гонконга / Magic of Hong Kong (2019) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Азиатский город мира в захватывающем художественном видео от Timelab.proПроизводство: КитайЖанр: Документальный, видовойРежиссер: Timelab.proПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11FC221426A7C21F943AB2308F4AE3AC40FAADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390430   (783039) от 15.06.2020
 
 Цивилизация / Civilization (2019) WEBRip [H.264/2160p]
@@ -6,7 +162,7 @@
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783039.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782939.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782934.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782931.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782928.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782923.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782921.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782892.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782664.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782659.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ U2 at the BBC (U2: Live in London) (2017) HDTV [H.264/1080i]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782657.jpg" />
 </div>
 
 
@@ -296,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782601.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782510.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782492.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782477.jpg" />
 </div>
 
 
@@ -400,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782343.jpg" />
 </div>
 
 
@@ -426,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782241.jpg" />
 </div>
 
 
@@ -452,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782230.jpg" />
 </div>
 
 
@@ -478,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782122.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782088.jpg" />
 </div>
 
 
@@ -515,162 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:416FC72C767FF0C725B4E05BCA95B0D63F02FAC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206459   (782055) от 14.02.2018
-
-Раскрытие тайн Вавилона / Babylon Unveiled (2013) SATRip (2 серии из 2)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какие тайны хранит в себе некогда самый великий город мира Вавилон? Документалисты из Южной Кореи совершают очередную попытку в приоткрытии завесы над загадками этого величайшего рукотворного сооружения.Телекомпания: Южная КореяЖанр: Документальный, историяРежиссер: Донгджон Ким, Юйол КимПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:03+00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B589E8690F861647EF12D15FD069523716A99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391114   (781841) от 18.06.2020
-
-Эми Уайнхаус: История альбома "Back to Black" / Amy Winehouse: Back to Black (2007) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Back to Black — второй и последний студийный альбом британской певицы Эми Уайнхаус, выпущенный 4 октября 2006 года на Island Records. Большинство музыкальных критиков положительно отозвались об альбоме, оценив талант автора в песнях, написанных Уайнхаус под влиянием классического соула и спродюсированных Саламом Реми и Марком Ронсоном. На 50-й церемонии «Грэмми» (   Читать дальше...   )Телекомпания: Великобритания/Island RecordsЖанр: Документальный, Искусство, История, БиографияРежиссер: Phil GriffinПеревод: Двухголосый профессиональныйСубтитры: Русские (Teletext)Продолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC814B2E9BEEC44747DD1846A241EB9BFF392C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390917   (781837) от 18.06.2020
-
-Волшебная Исландия / Magisches Island - Leben auf der groessten Vulkaninsel der Welt (Magical Iceland) (2019) BDRemux [H.264/1080p] (3 фильма)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исландию называют страной воды и огня. Термальные источники, вулканы и ледники – это сила первозданной природы во всем ее проявлении. Здесь самый капризный климат на Земле, и все же от хрупкой красоты Исландии захватывает дух, а природа этой страны уникальна.Производство: Германия, NautilusfilmЖанр: Документальный, природа, флора, фаунаРежиссер: Ян ХафтПеревод: Одноголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: 00:50:21+00:30:48+00:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FBFE0FD85868D94BF66B2EE248304EE1E0D917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206873   (781717) от 15.02.2018
-
-Солдаты наши меньшие (2015) SATRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подвиги солдат, воевавших в Великой Отечественной войне, навсегда увековечены в памяти потомков. Все тяготы сурового военного времени вместе с людьми разделяли и братья наши меньшие. Конные упряжки тянули обозы с боеприпасами, передвижные кухни и лазареты. На фронтах широко использовались сторожевые, санитарные, диверсионные, разведывательные, противотанковые, минно-розыскные (   Читать дальше...   )Телекомпания: Россия, АО ТПО «Киностудия им. М. Горького»Жанр: Документальный, война, животныеРежиссер: Татьяна МирошникПродолжительность: 00:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCC7E02C06D4000D5B1CD9210BA4C6E6726214B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206649   (781708) от 15.02.2018
-
-Беседа с Евгением Федоровым (08.02.2018) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Активисты Национально-Освободительного Движения встретились с депутатом Государственной Думы России, координатором НОД Евгением Федоровым. Темы беседы: атака США по армии Сирии; Отечественнаявойна - ключ к победе сирийского народа; кто сбил нашего летчика Романа Филипова в Сирии; о важности ценности Отечество; особенности конкуренции наций; английская конструкция (   Читать дальше...   )Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 01:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB47744674A76A794DCE397E5E285F2C394B710C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206376   (781695) от 15.02.2018
-
-Трофей / Trophy (2017) WEBRip [H.264/1080p-LQ] [EN / EN, SPA, FRA Sub]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об охоте на крупную дичь, разведении и сохранении дикой природы в США и Африке, а также раскрывает сложные последствия обработки животных как трофеев.Производство: Великобритания, Намибия, ЮАР, Зимбабве, США / Candescent Films, Pulse Films, Reel Peak FilmsЖанр: ДокументальныйРежиссер: Christina Clusiau, Шол ШварцАктеры: Филипп Гласс, Кристо Гомес, Джон Хьюм ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, Испанские, ФранцузскиеПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2B4749BB306CA3FBEFB2503F1359E92E973AD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

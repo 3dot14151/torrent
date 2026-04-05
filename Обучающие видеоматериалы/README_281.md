@@ -1,3 +1,32 @@
+###  Публикация: 1689070   (124917) от 31.12.2023
+
+1С Учебный центр №1 | Ведение учета в прикладном решении «1С:Медицина. Больничная аптека» (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124917.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе представлены примеры хозяйственных ситуаций, которые охватывают наиболее распространенные операции при ведении учета в больничной аптеке.
+Цели курса:
+✅Формирование знаний и практических навыков ведения учета в программе «1С:Медицина. Больничная аптека»
+✅Освоение работы с сервисом 1С:Номенклатура(   Читать дальше...   )Производство: 1С Учебный центр №1Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 03:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F04E5789BDD89049CD94D4BF29050B0C9E9DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689412   (124819) от 01.01.2024
 
 Udemy, Nam Ha Minh | Spring Boot REST APIs Ultimate Course (2023) WEB-DL [EN / EN Sub]
@@ -6,7 +35,7 @@ Udemy, Nam Ha Minh | Spring Boot REST APIs Ultimate Course (2023) WEB-DL [EN / E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124819.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124802.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124797.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Udemy, Virtual Pair Programmers, Richard Chesterwood, Prageeth Warnak | Kubernet
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124706.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ Domestika, Nick Liefhebber | Illustrated pattern design: Eye catching vector ill
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124705.jpg" />
 </div>
 
 
@@ -144,7 +173,7 @@ Udemy, Jestoni Esteban | Affinity Designer: A Comprehensive Guide for Beginners 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124683.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124618.jpg" />
 </div>
 
 
@@ -200,7 +229,7 @@ Udemy, Thomas Harle | Unreal 5 Niagara - Introduction To Niagara (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124593.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ Enterclass, Владислав Татаринов | Такая разная во
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124576.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ SMD pro, Андрей Нифедов | VirtualDj и Подкастинг (2010) 
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124571.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Artstation, Michael Gerard | Unreal Complete Scene - Forest Environment (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124443.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124428.jpg" />
 </div>
 
 
@@ -335,7 +364,7 @@ FastTrackTutorials, Tilmann Milde | Ultimate Lighting Course - In-Depth Tutorial
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124418.jpg" />
 </div>
 
 
@@ -364,7 +393,7 @@ Mashafotoblog, Маша | Мобильная фотосъемка и обраб�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124266.jpg" />
 </div>
 
 
@@ -393,7 +422,7 @@ Enterclass, Анастасия Беседина | В осеннем парке (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124220.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ Skillshare, Isabel Aracama | Learn to Use the Pen Tool in Affinity Designer (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124208.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Udemy, Stone River eLearning | Affinity Designer For Beginners (2018) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124201.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Udemy, Valeri Visuals | Premium Logo Animation in Adobe After Effects (2023) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124126.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124125.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Stepik, Renat Lotfullin | Microsoft Excel - Продвинутый пользо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124119.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124114.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124104.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Udemy, Emma Grimberg | Искусство создания текстов с ч�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124094.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ Skillshare, Dawid Tuminski | How To Create A Flat Design Night Camping in Affini
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124060.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Udemy, Creativity Unleashed | Complete Adobe After Effects Megacourse: Beginner 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124017.jpg" />
 </div>
 
 
@@ -680,32 +709,6 @@ Udemy, Creativity Unleashed | Complete Adobe After Effects Megacourse: Beginner 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC71B8BDF46279182C576FD2B0676134A5FD6BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690680   (123894) от 08.01.2024
-
-Онлайн школа RealManual, Василий Егоров | Gitlab-CI - только практика (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разберем конвейер для CI\CD процессов, хранение и версионирование кода, сборку имеджей для докера, а так же реальные кейсы из жизни без лишней воды и теории.Производство: Онлайн школа RealManualЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 04:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02150E638B262165D520CCFF497446D5818C395
 ```
 
 https://mybot314.ru/tekegram_catalog/

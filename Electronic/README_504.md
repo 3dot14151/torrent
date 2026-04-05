@@ -1,3 +1,117 @@
+###  Публикация: 1777356   (71084) от 05.02.2025
+
+VA - Kontor Top Of the Clubs: Jan 2025 (DJ Mix) (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiscore & MYT - Nur Der Rave (Mixed) (02:40)
+02. Niklas Dee - Around the World (feat. René Miller)Жанр: Dance, Club, House, ElectronicПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9818FD3E6A5D556900B9C5FCECEAD05D0326BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777471   (71024) от 06.02.2025
+
+VA - Kontor Top of the Clubs (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leony, G-Eazy & Felix Jaehn - By Your Side (In My Mind) Part II (02:43)
+02. Morgan Seatree & Florence + The Machine - Say My Name (Remix) (02:48)
+03. Tiscore; Future Breeze - Guide Me Home (02:37)
+04. Klaas & Neptunica - Chewing Gum (02:14)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88EC39F652CE95459416D1D907D2E371A9B39CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777871   (70966) от 07.02.2025
+
+PARAFRAME - Metropolis (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PARAFRAME & Avis Vox - Bird Life (Extended Mix) [6:07]
+02. PARAFRAME - Breathe (Extended Mix) [5:38]
+03. PARAFRAME - We Are The Only Ones (Extended Mix) [5:31]
+04. PARAFRAME - Mermaids (Extended Mix) [5:47](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32750AE1D3CE2D5D884264D6342D86524F7E2690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777800   (70950) от 07.02.2025
+
+VA - Armin van Buuren - A State Of Trance 1211 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JOA – Missing Part Of Me
+02. Lycii – Alone
+03. Matt Fax – Vision
+04. Jerome Isma-Ae & JES – Come Alive(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8F92E19ADABAB6F6C24A82F4A1FF5BB9CD3DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777802   (70940) от 07.02.2025
 
 VA - Uplifting Only Episode 626 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +120,7 @@ VA - Uplifting Only Episode 626 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70940.jpg" />
 </div>
 
 
@@ -35,7 +149,7 @@ Fatboy Slim - Right Here, Right Then (A Big Beach Boutique Celebration) (2022) C
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70935.jpg" />
 </div>
 
 
@@ -64,7 +178,7 @@ VA - The Sound of 2025, Chapter 1: Milan (Night Mix) (2025) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70917.jpg" />
 </div>
 
 
@@ -93,7 +207,7 @@ Korolova - Live @ Tulum, Mexico (2025-02-07) [MP3|320 Kbps] <Progressive House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70904.jpg" />
 </div>
 
 
@@ -122,7 +236,7 @@ A-Mase - Indian Journey (Extended) (2025) [MP3|320 Kbps] <Progressive House, Mel
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70892.jpg" />
 </div>
 
 
@@ -151,7 +265,7 @@ Markus Schulz - Global DJ Broadcast World Tour (Open to Close Solo Set, Avalon H
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70883.jpg" />
 </div>
 
 
@@ -180,7 +294,7 @@ Distain! - Homesick Alien (1998) [FLAC|Lossless|tracks + .cue] <Electronic, Synt
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70833.jpg" />
 </div>
 
 
@@ -209,7 +323,7 @@ VA - Love and Peace, Lounge & Chill Out, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70830.jpg" />
 </div>
 
 
@@ -238,7 +352,7 @@ VA - Redux Selection, Vol. 3 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70808.jpg" />
 </div>
 
 
@@ -267,7 +381,7 @@ VA - Winter Deep House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70794.jpg" />
 </div>
 
 
@@ -296,7 +410,7 @@ Ilan Bluestone - Anthem Test (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70766.jpg" />
 </div>
 
 
@@ -325,7 +439,7 @@ VA - Ibiza 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70722.jpg" />
 </div>
 
 
@@ -354,7 +468,7 @@ VA - Beast Mode Activated in the Gym (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70719.jpg" />
 </div>
 
 
@@ -383,7 +497,7 @@ VA - A State of Trance 2025 - TRANSFORMATION (The Official Album) (2025) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70705.jpg" />
 </div>
 
 
@@ -412,7 +526,7 @@ VA - 50 DJ Tracks Vol. 1 (2025) [MP3|320 Kbps] <Dance, House, Club, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70656.jpg" />
 </div>
 
 
@@ -441,7 +555,7 @@ VA - Black Hole House Music 02-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70645.jpg" />
 </div>
 
 
@@ -470,7 +584,7 @@ VA - Black Hole Trance Music 02-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70641.jpg" />
 </div>
 
 
@@ -499,7 +613,7 @@ VA - Armin van Buuren - A State Of Trance 1212 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70640.jpg" />
 </div>
 
 
@@ -528,7 +642,7 @@ VA - Winter Tech House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70634.jpg" />
 </div>
 
 
@@ -557,7 +671,7 @@ VA - Ori Uplift - Uplifting Only Episode 627 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70619.jpg" />
 </div>
 
 
@@ -586,7 +700,7 @@ VA - ADE Underground Amsterdam Sampler (2025) [MP3|320 Kbps] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70618.jpg" />
 </div>
 
 
@@ -615,7 +729,7 @@ VA - Exploration Tales #01 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70570.jpg" />
 </div>
 
 
@@ -629,122 +743,6 @@ VA - Exploration Tales #01 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E4008905CAFA14ADA7DF08DAD6DAA099509DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779855   (70565) от 15.02.2025
-
-VA - Best of Trippy Code Melodic Techno & Progressive House Vol.1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimi Python & Iida Niini - Ghost (Original Mix) [5:53]
-02. Y do I - Live 2 B Free (Original Mix) [7:49]
-03. Deviu - Moon Landing (Original Mix) [5:01]
-04. Raul Ron - Defcon 5 (Original Mix) [7:20](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 04:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA4F78782D10CB07450049A152B63FD3C648253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780140   (70557) от 16.02.2025
-
-Ernestronix (Ernesto) - Synths Earth Orbit (Launch Ignition) (2025) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Space-Dance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Italo Space Dance (Extended) (5:33)
-02. Time Machine (3:13)
-03. Time Is Many (5:51)
-04. Sunshine (5:02)(   Читать дальше...   )Жанр: Spacesynth, Space-DanceПродолжительность: 02:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06747EC9A871C76C011369AC087491716BF2067A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780096   (70546) от 16.02.2025
-
-Tiesto - Live @ Club Space Miami, United States (2025-01-24) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANNA ft. Ravid - Future Hearts
-02. Argy & TNY - DURO
-03. Rebūke - Along Came Polly (Konstantin Sibold & ZAC & CARMEE Remix)
-04. TH;EN - Rakata(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 04:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753206705E694FABBA2A3049B4669A39B69FBCD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780094   (70543) от 16.02.2025
-
-VA - Uplifting Only Top 15: February 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sylenth17 - A Gift For You (Emotional Intro Mix) [8:56]
-02. Denis Airwave & Sarah Escapé - Horizon (Tycoos Extended Remix) [5:57]
-03. New World - Afterlife (Original Mix) [9:20]
-04. LR Uplift - Stay (Extended Mix) [7:17](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67765CE66E9717CCE73F2C3D5104F6FA98AD9B92
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - We Chill del Mar, Vol. 1 (2013) [AAC|~323 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609631.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Chillout Room Session #1 (2012) [AAC|~300 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609627.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - In the Forest: Urban Deep Chill Music (2022) [AAC|~333 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609617.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Sax for Sex, Christmas Edition (2014) [AAC|~329 Kbps] <Lounge, Chill Out, S
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609506.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Sax for Sex, Vol. 2 (2013) [AAC|~317 Kbps] <Lounge, Chill Out, Smooth Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609503.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Sax for Sex, Vol. 1 (2013) [AAC|~311 Kbps] <Lounge, Chill Out, Smooth Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609497.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609190.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Jason Graves - Tomb Raider (2013) [AAC|WEB-DL|256 кб/с]<Score>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608827.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608777.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608773.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608596.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608481.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608363.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608242.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [576p]
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608226.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608185.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608170.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - My Cat Loves to Chill: Chillout Your Mind (2022) [AAC|~322 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608130.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - The 100, Vol. 2 (2022) [AAC|~320 Kbps] <Progressive House, Deep House, Tech
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607993.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [1080p
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607930.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606888.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606878.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606773.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Bear McCreary - Черные паруса / Black Sails (2014) [AAC|WEB-DL|256 �
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606743.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606563.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606562.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Tiktock Best Of 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216520.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Simply the Best 80's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Other
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216307.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Vanessa Daou - Songs for Solace (2020) Compilation [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216170.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bjork - Fossora (2022) [FLAC|Lossless|image + .cue] <Pop, Electronic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215638.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214975.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Supermax - Living In A World (1996) [FLAC|Lossless|image + .cue] <Pop, reggae, d
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214767.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Supermax - 20th Anniversary (1997) 2CD, Compilation [FLAC|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214312.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Now That's What I Call Merry Christmas (2018) [FLAC|Lossless|tracks + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214215.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Vanessa Paradis - Best Of & Variations (2019) 2CD, Compilation [FLAC|Lossless|WE
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213621.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213562.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Riccardo Fogli - I Grandi Successi (2008) 2CD [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212277.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Pop Blockbusters 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212056.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Joe Dassin - 23 Succes (1989) [APE|Lossless|image + .cue] <Pop, Chanson>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211420.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Texas - The Very Best Of 1989 – 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211221.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Madonna - The Universal (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210771.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Taylor Swift - Speak Now (Taylor's Version) (2023) 2xCD [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209409.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Brian McFadden - The Irish Connection (2013) [FLAC (tracks + .cue)]<Pop, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208898.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Michael Bolton - Spark of Light (2023) [FLAC|Lossless|image + .cue] <Pop Rock, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208878.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Michael Bolton - Spark of Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208861.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Rita Ora - You & I (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208811.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Stars On 45 - 40 Years Anthology (2022) 2CD, Remastered [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208709.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Hot Pop Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208531.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Minelli - Silver & Gold - Chapter II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208021.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Joe Dassin - Les Champs-Elysees / La Fleur Aux Dents (2019) Compilation [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207848.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Mylene Farmer - L'amour XXL (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207846.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ In-Grid - Chansons D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207628.jpg" />
 </div>
 
 

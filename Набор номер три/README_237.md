@@ -1,3 +1,159 @@
+###  Публикация: 1528844   (732603) от 06.02.2022
+
+В России перестал работать популярный VPN-сервис Tunnelbear
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Решение о блокировке было вынесено Дюртюлинским районным судом Республики Башкортостан ещё в 2017 году, и до недавнего времени пользователям помогала опция GhostBear в настройках клиента, но теперь она не спасает ситуацию.Российские пользователи жалуются на недоступность популярного VPN Tunnelbear. Как отмечает «Roskomsvoboda. Tech Talk», блокировка на сервис была (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529113   (732592) от 06.02.2022
+
+ООН признала Москву лучшим мегаполисом в мире по качеству жизни
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Организация Объединенных Наций (ООН) назвала Москву лучшим мегаполисом двум показателям: «Качество жизни» и «Уровень развития инфраструктуры».В первом оценивались сфера здравоохранения, культура и досуг, образование, наука и технологии, уровень развития инфраструктуры, безопасность и общественные пространства. Москве удалось опередить Сингапур и Гонконг. А во втором (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526935   (732584) от 06.02.2022
+
+Windows 10 21H2 + LTSC 2021 (x64) 20in1 +/- Office 2021 by Eagle123 (01.2022) [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 v21H2 19044.1466, включающая в себя 5 русских и 5 английских редакции x64, с обновлениями по 01.2022, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, Publisher, Outlook (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4484BFA80564EF691EE09151C67BC6E607EB87A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528890   (732581) от 06.02.2022
+
+Свингеры (2021) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Новым годом всем хочется немного любви. Успешный бизнесмен Игорь ищет острых ощущений, а его девушка, сногсшибательная топ-модель, хочет, чтобы их отношения, наконец, вышли на новый уровень. В то же время в совершенно обычной семье Ирина жаждет снова разжечь страсть в своем муже. Вместе их всех случайно сводит приложение для обмена партнерами, и теперь предновогодняя (   Читать дальше...   )Производство: Россия, Латвия, Cinevilla Studio, Мотор Фильм СтудияЖанр: комедия, мелодрамаРежиссер: Андрейс Экис, Дмитрий ФиксАктеры: Дмитрий Нагиев, Ирина Пегова, Олеся Судзиловская, Наталья Рудова, Илья Носков, Иван Злобин, Дарья Руденок, Алексей Бояджи, Виктор КузинПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52417ABBADD0E7577A0BAF77668F7E8605BFF38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156669   (732580) от 06.02.2022
+
+Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03) License GOG
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая игра от создателей Heavenly Sword, Enslaved: Odyssey to the West и DmC: Devil May Cry о путешествии в глубины легенд и безумия. В эпоху викингов измученная кельтская воительница отправляется в ужасную страну мертвых, чтобы сразиться за душу погибшего возлюбленного.Тип издания: LicenseРазработчик: Ninja TheoryЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064D8683B41F87A4F831BAE9F606C5C91F72D229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310351   (732578) от 06.02.2022
+
+Televizo  (ранее OTTplay) IPTV v1.9.3.21 [Ru/Multi]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проигрыватель для OTT IPTV телевидения. Смотрите Ваши любимые фильмы, мультфильмы, сериалы и передачи от Вашего провайдера на телевизоре, телефоне или планшете!Тип издания: Пиратка (разблокирована)Релиз состоялся: 01.02.2022Разработчик: Andrey MenscikovПоддерживаемая ОС: Android 5.0+, Android TVЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285A78F9CB79027157FF2B3B3B6D89D9E5E21325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021382   (732436) от 29.05.2016
 
 Компания SpaceX осуществила третью успешную посадку ракеты Falcon 9 на морскую платформу
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_732436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732436.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_732404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732404.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Winstep Nexus Ultimate 16.5 Repack by Nemo [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732377.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_732372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732372.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack Othe
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732359.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ Armikrog (2015) [Ru/Multi] (1.03) Repack R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732358.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ Jinn'sLiveUSB 9.4 - флешка с Windows 7, 8.1 и 10 [Ru/En] [Авторск
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732357.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ Windows 7 Ultimate SP1 (7601.17514) Compact x64 by Flibustier [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732353.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_732352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732352.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732296.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732291.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732290.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ The Elder Scrolls 5: Skyrim (2011-2013) [Ru/En] (1.9.32.0.8) RePack SEYTER
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732240.jpg" />
 </div>
 
 
@@ -349,7 +505,7 @@ iGO Primo 2012 9.6.22.297071 + карты и контент (26.05.2013) <Ru/Mul
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_732237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732237.jpg" />
 </div>
 
 
@@ -375,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731585.jpg" />
 </div>
 
 
@@ -403,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731495.jpg" />
 </div>
 
 
@@ -429,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731467.jpg" />
 </div>
 
 
@@ -455,7 +611,7 @@ InterNyet — как в Советском Союзе изобрели инте�
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731457.jpg" />
 </div>
 
 
@@ -481,7 +637,7 @@ Advanced Archive Password Recovery Enterprise Edition 4.54.110 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731455.jpg" />
 </div>
 
 
@@ -508,7 +664,7 @@ Discovery: Крутой тюнинг (52 серии) / OverHaulin (2007-2008) SA
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731454.jpg" />
 </div>
 
 
@@ -519,162 +675,6 @@ Discovery: Крутой тюнинг (52 серии) / OverHaulin (2007-2008) SA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:912E5E325CE2AA51E1C14E59E74AABD706FC33A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283244   (731452) от 18.02.2019
-
-AAct 4.0 Portable [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731452.jpg" />
-</div>
-
-
-###  Подробнее
-
-AAct - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2, 2016 а также Office 2010, 2013, 2016, 2019. Возможна активация Office 2010 VL на Windows XP. Программа написана с применением оригинальных технологий и реализует другую, отличную от обычной, идеологию конструирования подобных программных средств. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAEFFB9390557604EF8C58B97CD48968CF60112D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529768   (731384) от 08.02.2022
-
-Meta допустила уход Facebook и Instagram из ЕС из-за европейских стандартов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корпорация Meta допускает возможность прекращения работы принадлежащих ей соцсетей Facebook и Instagram на территории Евросоюза, следует из ежегодного отчета компании для Комиссии по ценным бумагам и биржам США.Как отмечается в документе, такое решение может быть обусловлено принятием в ЕС законодательства, согласно которому данные жителей сообщества должны быть (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529657   (731376) от 08.02.2022
-
-Сдать автомобильный аккумулятор за деньги будет нельзя.    За это придется заплатить сбор
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отлаженная годами схема скупки автомобильных аккумуляторов у населения может рухнуть уже с 1 марта. Тогда вступают в силу новые правила сбора и утилизации отработанных свинцово-кислотных аккумуляторов. Сейчас АКБ у населения скупают небольшие фирмы – непосредственно за деньги или за скидку на покупку новой батареи. Затем фирмы продают эти аккумуляторы перерабатывающим (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 158084   (731367) от 08.02.2022
-
-Чудо (2009) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731367.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу фильма положены реальные события, произошедшие в Самаре в 1956 году и известные как «Стояние Зои». Во время праздника в Доме культуры девушка, не дождавшись своего суженого, снимает со стены икону Николая Чудотворца и начинает с ней танцевать, но внезапно застывает на месте. Это стояние продолжается много месяцев. Жители провинциального городка напуганы (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Александр ПрошкинАктеры: Константин Хабенский, Сергей Маковецкий, Полина Кутепова, Виктор Шамиров, Сергей Новиков, Виталий Кищенко, Анна Уколова, Вячеслав Степанян, Илона АрсентьеваПеревод: ОригинальныйПродолжительность: 01:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B376934EF8B447C021E9FCDCDAF765DA15FBA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127418   (731364) от 21.04.2017
-
-Защитники (2017) BDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во времена Холодной войны секретная организация «Патриот» создала отряд супергероев, в который вошли участники из различных советских республик. Долгие годы героям приходилось скрывать свою сущность, однако в тяжелые для страны времена они вновь берутся за дело.Производство: РоссияЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Сарик АндреасянАктеры: Антон Пампушный, Санжар Мади, Себастьян Сисак, Алина Ланина, Станислав Ширин, Валерия Шкирандо, Вячеслав Разбегаев, Александр Семенов, Владимир Бутенко, Мила МаксимоваПеревод: Не требуется, русский (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C907F529D5554B663D263DF0B590CEE2CB873F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127115   (731363) от 21.04.2017
-
-Windows 10 будет подавлять фоновые приложения
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некоторые приложения созданы таким образом, что они потребляют много ресурсов, даже находясь в фоновом режиме. Очевидно, что это негативно сказывается на времени работы устройств без подзарядки.Для борьбы с этой проблемой в новой сборке Windows 10, предназначенной для инсайдеров, появилась функция Power Throttling, которая сводит к минимуму активность процессора (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,134 @@
+###  Публикация: 1667471   (176522) от 08.10.2023
+
+Приключения мишек Гамми / Adventures of the Gummi Bears (1985-1991) WEB-DLRip [H.265/2160p] (сезон 1-6, серии 1 из 65) ВГТРК, 1+1 [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красочный и добрый мультсериал о приключениях Мишек Гамми – сказочных медведях, тайно живущих рядом с людьми, и о которых ходят легенды по всей земле, ведь они не раз спасали королевство и подданых короля от нападений злых гоблинов под руководством хитрого графа Игторна и другой нечистой силы. Этих медведей полюбят все дети. Сказки про них нам расскажет Дисней. Ловкие, (   Читать дальше...   )Производство: США, Disney Television AnimationЖанр: рисованная анимация, кукольный, сказка, комедияРежиссер: Дэвид Блок, Арт Вителло, Алан ЗасловАктеры: Джун Форэй, Ноэль Матловски, Лоренцо Мьюзик, Кэти Ли, Кори Берто, Майкл Рай, Уилл Райан, Пол Уинчелл, Брайан Каммингс, Роб ПолсенПеревод: Дублированный (ВГТРК (Останкино)), Многоголосый (1+1)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: английскиеПродолжительность: ~00:22:53 (серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2244B2AD48A2E02AD05AD85FA07A6978CE39E640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667327   (176515) от 08.10.2023
+
+Ишь ты, Масленица! (1985) Betacam-Rip [H.265/2160p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жадный землевладелец так и норовит ободрать крестьян как липку, но голь на выдумки хитра.Производство: СССР, АрменфильмЖанр: рисованная анимацияРежиссер: Роберт СаакянцАктеры: Ярослава Турылёва, Марина Гаврилко, Артем Карапетян, Юрий ЛеонидовСубтитры: отсутствуютПродолжительность: 00:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F27EAB709D5D53FFE987B458CECB29DABC00A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667322   (176506) от 08.10.2023
+
+В синем море, в белой пене... (1984) Betacam-Rip [H.265/2160p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик и дедушка поймали в рыбные сети кувшин. Открыв его, они освободили Владыку моря.Производство: СССР, АрменфильмЖанр: Анимация, Детский, Музыкальный, Приключения, Семейный, ФэнтезиРежиссер: Роберт СаакянцАктеры: Гарри Бардин, Анаит Каначян, Ярослава ТурылёваСубтитры: отсутствуютПродолжительность: 00:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30612041D36512990D9A5E86487FFCFBAA49EF34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667384   (176480) от 08.10.2023
+
+Алиса в Стране Чудес. Алиса в Зазеркалье (1981-1982) DVDRip [H.264/1080p-LQ] [handmade Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационные фильмы по мотивам сказки Льюиса Кэрролла "Алиса в Стране Чудес" и "Алиса в Зазеркалье", сняты в 1981 - 1982 гг...
+Вместе с девочкой Алисой Вы познакомитесь с фантастическими жителями удивительной страны Чудес и Зазеркалья и переживёте невероятные превращения и опасные приключения.Производство: СССР / КиевнаучфильмЖанр: мультфильм, короткометражка, фэнтезиРежиссер: Ефрем ПружанскийАктеры: Марина Неёлова, Георгий Кишко, Вячеслав Невинный, Евгений Паперный, Ростислав Плятт, Александр Ширвиндт, Татьяна Васильева, Рина Зелёная, Александр Бурмистров, Мальвина ШвидлерСубтитры: ОтсутствуютПродолжительность: 00:30:15 + 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92036EDBCDB90AF5FA102112C30049426241D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667317   (176468) от 08.10.2023
+
+Ух ты, говорящая рыба! (1983) Betacam-Rip [H.265/2160p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старик отпускает обратно в море пойманную говорящую рыбу, которая затем является им со старухой в облике юноши, спасающего их с помощью небылиц от волшебника по имени Ээх.Производство: СССР, АрменфильмЖанр: Анимация, Детский, Приключения, Семейный, ФэнтезиРежиссер: Роберт СаакянцАктеры: Леонид Белозорович, Борис Плотников, Артем Карапетян, Ирина КарташёваСубтитры: отсутствуютПродолжительность: 00:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2668D01BA5B0803E018E5AB2FB98C505477D4826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667305   (176437) от 08.10.2023
 
 Чудеса на виражах / TaleSpin (1990 – 1991) DVDRip (1 сезон, серии 1 из 65) [H.265/2160p] [hand made Upscale AI]
@@ -6,7 +137,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176437.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176432.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176403.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176400.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176293.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176282.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176084.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176078.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175838.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175790.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175766.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175751.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175639.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175397.jpg" />
 </div>
 
 
@@ -371,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175340.jpg" />
 </div>
 
 
@@ -397,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175338.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175311.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175305.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175281.jpg" />
 </div>
 
 
@@ -501,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175124.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174887.jpg" />
 </div>
 
 
@@ -538,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6710A9962FE36A83199152393BCE93A0504876F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595607   (174840) от 06.12.2022
-
-Как приручить дракона / How to Train Your Dragon (2010 - 2019) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [Трилогия]
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы узнаете историю подростка Иккинга, которому не слишком близки традиции его героического племени, много лет ведущего войну с драконами. Мир Иккинга переворачивается с ног на голову, когда он неожиданно встречает дракона Беззубика, который поможет ему и другим викингам увидеть привычный мир с совершенно другой стороны…Производство: США / DreamWorks Animation, Mad Hatter Entertainment, DentsuЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дин ДеБлуа, Крис СандерсПеревод: дублированныйЯзык озвучки: русский, украинский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 01:37:52 / 01:41:55 / 01:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9021CF37E852A547ABC7C201455D018A36717F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595576   (174837) от 06.12.2022
-
-Дневник слабака: Правила Родрика / Diary of a Wimpy Kid: Rodrick Rules (2022) WEB-DLRip [DVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174837.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Джеффа Кинни "Дневник Слабака: Родрик рулит". Грег Хеффли идет в школу после летних каникул. Все, чего он хочет сейчас, - стереть последние три месяца из памяти своего старшего брата, Родрика, который узнал о Грегори одну очень постыдную вещь. Грегори понимает, что Родрик готов рассказать всему свету об этом позоре… и готов на все, чтобы этого (   Читать дальше...   )Производство: Канада, США / 20th Century Fox Animation, Disney+, DisneyToon Studios, Nickelodeon Movies, Pinkfong, Twentieth Century Animation, Walt Disney Company, TheЖанр: мультфильм, драма, комедия, семейныйРежиссер: Luke CormicanАктеры: Брэйди Нун, Ethan William Childress, Хантер Диллон, Эрика Серра, Крис Диамантополос, Эдвард Эснер, Линда Лавин, Лоретта Дивайн, Присцилла Лопес, Нэйтан АренасПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90928B6DD3851BEFCE6066307AA8DBE6398C62C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595574   (174805) от 06.12.2022
-
-Дневник слабака: Правила Родрика / Diary of a Wimpy Kid: Rodrick Rules (2022) WEB-DL [H.264/1080p] [DVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174805.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Джеффа Кинни "Дневник Слабака: Родрик рулит". Грег Хеффли идет в школу после летних каникул. Все, чего он хочет сейчас, - стереть последние три месяца из памяти своего старшего брата, Родрика, который узнал о Грегори одну очень постыдную вещь. Грегори понимает, что Родрик готов рассказать всему свету об этом позоре… и готов на все, чтобы этого (   Читать дальше...   )Производство: Канада, США / 20th Century Fox Animation, Disney+, DisneyToon Studios, Nickelodeon Movies, Pinkfong, Twentieth Century Animation, Walt Disney Company, TheЖанр: мультфильм, драма, комедия, семейныйРежиссер: Luke CormicanАктеры: Брэйди Нун, Ethan William Childress, Хантер Диллон, Эрика Серра, Крис Диамантополос, Эдвард Эснер, Линда Лавин, Лоретта Дивайн, Присцилла Лопес, Нэйтан АренасПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA3AD516691622AB8C5A4789739466327C4B2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595481   (174765) от 06.12.2022
-
-Я краснею / Turning Red (2022) BDRip [H.265/1080p] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Торонто, 2002 год. Активная и неунывающая 13-летняя Мэйлинь всеми силами пытается быть первой во всём, чтобы угодить строгой гиперопекающей матери. Семья девочки живёт при храме и поклоняется Богине-прародительнице. Одним прекрасным утром Мэйлинь просыпается и вместо привычного отражения в зеркале видит красную панду — теперь, когда она волнуется, злится или испытывает (   Читать дальше...   )Производство: США, Канада / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Доми ШиАктеры: Розали Чян, Сандра О, Ава Морс, Майтреи Рамакришнан, Пак Хе-ин, Джеймс Хун, Саша Ройз, Джордан Фишер, Финнеас О’Коннелл, Вай Чин Хо, Лори Тан ЧиннПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские, АнглийскиеПродолжительность: 01:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5084094B9E00C541AD83BB21A08A357A59F2454A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 246035   (174644) от 08.12.2020
-
-Как приручить дракона / How to Train Your Dragon (2010) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы узнаете историю подростка Иккинга, которому не слишком близки традиции его героического племени, много лет ведущего войну с драконами. Мир Иккинга переворачивается с ног на голову, когда он неожиданно встречает дракона Беззубика, который поможет ему и другим викингам увидеть привычный мир с совершенно другой стороны…Производство: США / DreamWorks AnimationЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Дин ДеБлуа, Крис СандерсАктеры: Джей Барушель, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер, Кристен Уиг, Робин Аткин Даунс, Филип МакГрэйдПеревод: ДублированныйПродолжительность: 01:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B04D2F863D7A3B9716B24BD80E5755AB45211B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1249684   (430742) от 25.09.2018
+
+Истощение / Attrition (2018) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о бойце, который вынужден вернуть старую команду, чтобы спасти пропавшую тайскую девушку...Производство: Таиланд, Гонконг, Великобритания, США / Sivko Partners,Steamroller ProductionsЖанр: БоевикРежиссер: Матье ВешлерАктеры: Стивен Сигал, Руди Янгблад, Витхая Пансрингарм, Луис Фань, Джеймс П. Беннетт, Чарли Юн, Танапол Чуксрида, Юй Кан ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2186C98B093027007ADB50BBD090A3F70FA44DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249695   (430392) от 25.09.2018
 
 Бои без правил / A Prayer Before Dawn  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430392.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430384.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429879.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429463.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427646.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427641.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426603.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426294.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426091.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423177.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423172.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421355.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421076.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419890.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419864.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419784.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419441.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418910.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418573.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418322.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418308.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417373.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416450.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415328.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415327.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A488606CC88D89A7DD8F3290B18E44049836429D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325250   (413909) от 14.09.2019
-
-Человек-паук: Вдали от дома / Spider-Man: Far from Home (2019) BDRip [H.264/1080p] [EN / EN Sub] [PR]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Питер Паркер вместе с друзьями отправляется на летние каникулы в Европу. Однако отдохнуть приятелям вряд ли удастся: Питеру придётся согласиться помочь Нику Фьюри раскрыть тайну существ, вызывающих стихийные бедствия и разрушения по всему континенту.Производство: США / Columbia Pictures, Pascal Pictures, Marvel StudiosЖанр: Фантастика, Боевик, ПриключенияРежиссер: Джон УоттсАктеры: Том Холланд, Зендая Колеман, Энгаури Райс, Джон Фавро, Джейк Джилленхол, Сэмюэл Л. Джексон, Коби Смолдерс, Мариса Томей, Мартин Старр, Нуман АджарПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25ECC51E8D0270C03158707A2EC197FF9BF06C25
 ```
 
 https://mybot314.ru/tekegram_catalog/

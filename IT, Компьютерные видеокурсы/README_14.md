@@ -1,29 +1,3 @@
-###  Публикация: 1457143   (1024534) от 25.03.2021
-
-TalkPython, Chris Moffitt | Move from Excel to Python with Pandas Course (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы работаете с Excel и когда-либо думали - «должен быть способ лучше», то этот курс для вас! Excel уже много лет используется для автоматизации и поддержки предприятий, а также для решения проблем бизнес-пользователей. Но есть много недостатков в том, чтобы так сильно полагаться на Excel при обработке данных. В этом курсе вы увидите, как современные библиотеки (   Читать дальше...   )Производство: TalkPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE94CC2963575A18A51D2C632A1C24BFFFB03DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457138   (1024527) от 25.03.2021
 
 TalkPython, Michael Kennedy | Mastering PyCharm Course (2019) PCRec [En]
@@ -32,7 +6,7 @@ TalkPython, Michael Kennedy | Mastering PyCharm Course (2019) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024527.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Udemy, Andrei Neagoie и др. | Complete React Native Developer in 2021: Zero t
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024506.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Udemy, Colt Steele | The Git & Github Bootcamp  (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024499.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ Web Dev Simplified | Упрощенный JavaScript - Advanced (Beta) / JavaScr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024353.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Udemy, Глеб Михайлов | Анализ Данных на Python с Гл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024297.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024091.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ Log2Base2 | Pointers In C (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024028.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ Udemy, Rahul Shetty | Selenium Design Patterns/Best Practices for Framework Desi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024021.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ Log2Base2 | Algorithms (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024016.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ Udemy, Tim Buchalka и др. | The Advanced Xamarin Developer Masterclass  (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024015.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ Manning, Reuven M. Lerner | Manning - Python Workout (video edition) (2020) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024007.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ Log2Base2 | Data Structure (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023989.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ Udemy, Ravinder Deol | The Complete 'No Code' Developer Course: Build 23 Project
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023981.jpg" />
 </div>
 
 
@@ -378,7 +352,7 @@ Udemy, Denis Panjuta | The Windows Presentation Foundation WPF Guide for beginne
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023940.jpg" />
 </div>
 
 
@@ -406,7 +380,7 @@ Udemy, Andrei Dumitrescu | Linux Security: The Complete Iptables Firewall Guide 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023934.jpg" />
 </div>
 
 
@@ -433,7 +407,7 @@ Udemy, Felipe Gavilán | Programming in Blazor - ASP.NET Core 5 (2021) PCRec [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023932.jpg" />
 </div>
 
 
@@ -462,7 +436,7 @@ Udemy, Frank Kane | Elasticsearch 7 and the Elastic Stack: In Depth and Hands On
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023907.jpg" />
 </div>
 
 
@@ -488,7 +462,7 @@ ITVDN, Роман Самчук и др. | Специальность Unity / Gam
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023891.jpg" />
 </div>
 
 
@@ -517,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023751.jpg" />
 </div>
 
 
@@ -543,7 +517,7 @@ Udemy, Ryan Dhungel | React Node MERN Marketplace - Build A Hotel Booking App (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023745.jpg" />
 </div>
 
 
@@ -569,7 +543,7 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023554.jpg" />
 </div>
 
 
@@ -595,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023548.jpg" />
 </div>
 
 
@@ -623,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023358.jpg" />
 </div>
 
 
@@ -651,7 +625,7 @@ Udemy, Emile Ackbarali | An Introduction to Profibus DP Networking  (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023312.jpg" />
 </div>
 
 
@@ -678,7 +652,7 @@ Udemy, Emile Ackbarali | An Introduction to the Ethernet/IP Protocol  (2021) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023300.jpg" />
 </div>
 
 
@@ -691,6 +665,33 @@ Ethernet / IP (промышленный протокол Ethernet) - это ст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A85DD80A8161BC4B82287F91A6AD26E135020C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459252   (1023297) от 01.04.2021
+
+Udemy, Mark Lassoff и др. | jQuery for Application Development: Fundamentals  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023297.jpg" />
+</div>
+
+
+###  Подробнее
+
+jQuery остается самой популярной библиотекой разработки на стороне клиента в Интернете. Библиотека jQuery, разработанная для выполнения тяжелой работы в JavaScript, используется на миллионах сайтов.
+Хотя это не самая привлекательная или новейшая библиотека JavaScript, jQuery остается самой распространенной. Это элемент, который необходимо знать, если вы собираетесь (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5EFF338C3660A14B0533347BDB9604E89B0EEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

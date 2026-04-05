@@ -6,7 +6,7 @@ NG: Очевидцы: День «Д» / Eyewitness: D-Day (2019) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125199.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Паранормальная Ирландия / Spooked: Ireland (202
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122819.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121791.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121787.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117625.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116954.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Discovery: Войны нашего столетия / The Century of Warfare (19
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116807.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ BBC: Семь периодов жизни звезды / Seven Ages of Starlight
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116768.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ NG. Поднимается буря / Storm Rising (2021) HDTV [H.264/1080i] (с
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116765.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116305.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116283.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ History Channel. Как создавались империи / Engineering an E
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114757.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ BBC: Горизонт. Каковы размеры Вселенной? / Horizon
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104030.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101689.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101683.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98561.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96091.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94499.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90484.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ BBC: Планета Земля / Planet Earth (2006) BDRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88912.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88855.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ History Channel: Секреты языка тела / Secrets of Body Language (
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87818.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87814.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87555.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87553.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87146.jpg" />
 </div>
 
 

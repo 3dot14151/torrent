@@ -1,3 +1,32 @@
+###  Публикация: 1657231   (193155) от 02.09.2023
+
+Mind Swell - Mind Swell (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Beatdown, Deathcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painted Worlds
+02. Memories
+03. Hands of Fire
+04. Sever the Hand(   Читать дальше...   )Жанр: Beatdown, Deathcore, HardcoreПродолжительность: 00:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0769CD553093C8328E25384739C51E4737815879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657191   (193153) от 02.09.2023
 
 The Fires Below - Masquerade (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal>
@@ -6,7 +35,7 @@ The Fires Below - Masquerade (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193153.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Stalemate - Greatest Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193151.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Timechild - Blossom & Plague (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193148.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Tragic Forms - Arms 'Round The Armistice (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193145.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Electron - Defiance (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193140.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Black Oak Arkansas - The Devil's Jukebox (2023) [FLAC|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193137.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Diamonds and Guns - Making Cash For Heartless Crooks (2023) EP [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193135.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Frankie and the Witch Fingers - Data Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193119.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Rock Paper Sisters - One In A Million (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193118.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Sprain - The Lamb as Effigy (2023) [FLAC|Lossless|WEB-DL|tracks] <Noise Rock, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193117.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Art of Dysfunction - Art of Dysfunction (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193116.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Avi Rosenfeld - Black Rock Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193115.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Chris Manning - Reach the Sky - Reach the Sky (2023) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193113.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Grace Potter - Mother Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193104.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Andromeda - Definitive Collection (2000) Reissue, 2023, Angel Air [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193093.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ H.E.A.T - Extra Force (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193082.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Decomposed - Hope Finally Died... (1993) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193025.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Blood Of Christ - ...A Dream To Remember (1997) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193023.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Vulture - The Guillotine (2017) Japanese Edition [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193021.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Dr. Acula - Dr. Acula (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193019.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Benediction - The Grotesque - Ashen Epitaph (1994) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193018.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Blood Of Christ - Iesvs·nazarenvs·rex·ivdaeorvm (2012) Compilation, Dismal Re
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193011.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Lost Souls - Closeyoureyesanditwonthurt (1996) [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193010.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Fallujah - Undying Light (2019) [FLAC|Lossless|tracks + .cue] <Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193007.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ October Ends - PHASES (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193005.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ October Ends - PHASES (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E7126C7E644C2E7BC43B93A9A1E490CFA01F613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587216   (193003) от 30.10.2022
-
-Hostage - MEMENTO MORI (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Swarm [00:03:06]
-02. Cancer [00:04:11]
-03. Vanitas [00:03:55]
-04. Ark [00:04:12](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1403D42B22004F88E016E72CA14EBC276137073F
 ```
 
 https://mybot314.ru/tekegram_catalog/

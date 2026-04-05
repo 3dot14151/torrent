@@ -1,3 +1,55 @@
+###  Публикация: 952881   (57259) от 08.05.2024
+
+Гримм / Grimm (2015) WEB-DLRip (сезон 5, серии 1-22 из 22) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57259.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования мрачной и фэнтезийной полицейской драмы от канала NBC - детектив Ник Буркхардт, который думал, что готов к суровой действительности, работая в отделе убийств. Но это было до того, как он начал видеть вещи, которые он не мог объяснить: привлекательная женщина на его глазах превращалась в ведьму, а заурядный Джо в опасного тролля. От единственного (   Читать дальше...   )Производство: США / GK Productions, Hazy Mills Productions, Universal TelevisionЖанр: фэнтези, ужасы, драма, детективРежиссер: Норберто Барба, Терренс О’Хара, Эрик ЛанёвилльАктеры: Дэвид Джинтоли, Битси Таллок, Сайлас Уэйр Митчелл, Расселл Хорнсби, Саша Ройз, Регги Ли, Клэр Коффи, Бри Тёрнер, Роберт Бланш, Дэнни Бруно и др.Перевод: Многоголосый профессиональный - LostFilmЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543AFF3B8B0AC6B25D98249830E300A9C68F637C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722308   (57050) от 10.05.2024
+
+Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50/dlc) Repack FitGirl [Ultimate Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57050.jpg" />
+</div>
+
+
+###  Подробнее
+
+RRed Dead Redemption 2 – приключенческий шутер от третьего лица, сюжет которого разворачивается в 1899 году на Диком Западе. Действия затрагивают банду Датча Ван Дер Линде, которую преследуют законники после неудачного ограбления парома. Игрок возьмет управление над Артуром Морганом, одним из участников банды.Тип издания: RepackРазработчик: Rockstar GamesЖанр: 3rd Person, Action, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C2EF26B2447D832E74592B1A9C3E22C90A8342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721532   (57044) от 10.05.2024
 
 30 фильмов о Второй мировой войне
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57044.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56947.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56929.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56828.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56735.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56722.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Microsoft разблокировала обновления для пользо�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56619.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56526.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56419.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56317.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56316.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56315.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56314.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56213.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56210.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56187.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56184.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56179.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ Knights of Honor II: Sovereign (2022) [Ru/Multi] (2.1a) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56105.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56002.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56000.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55855.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55798.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55791.jpg" />
 </div>
 
 
@@ -625,61 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E46D043A211F725A77F675C5861EDA5BBD6090C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912446   (55790) от 22.05.2024
-
-Форс-мажоры / Костюмы в законе / Suits (2015) WEB-DLRip (сезон 5, серии 1-16 из 16) NewStudio [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55790.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Форс-мажоры» — сериал о тандеме профессионального юриста Харви Спектра и студента-лжеца Майка Росса.
-Майк и Харви – это команда победителей. Хотя Майк и гений, ему все еще надо много чего узнать о законах. Харви кажется бесстрастной и хладнокровной акулой бизнеса, однако, сочувствие клиентам и озабоченность их делами Майка, поможет Харви вспомнить, зачем он в свое (   Читать дальше...   )Производство: США, Hypnotic, Universal Cable Productions, Dutch OvenЖанр: драма, комедияРежиссер: Майкл Смит, Антон Кроппер, Крис МисианоАктеры: Патрик Дж. Адамс, Гэбриел Махт, Меган Маркл, Джина Торрес, Рик Хоффман, Сара Рафферти, Аманда Шулл и др.Перевод: Двухголосый профессиональный - NewStudioЯзык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: ~00:42:00 серияРеклама: присутствуют аудио вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD95CA1BA16493C70F033A9C85EFA9FD9612A33E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725158   (55693) от 23.05.2024
-
-КриптоПро CSP 5.0.13000 + cades/plugin и pkcs#11 (сертифицированная версия) [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55693.jpg" />
-</div>
-
-
-###  Подробнее
-
-КриптоПро CSP 5.0 — новое поколение криптопровайдера, развивающее три основные продуктовые линейки компании КриптоПро: КриптоПро CSP (классические токены и другие пассивные хранилища секретных ключей), КриптоПро ФКН CSP/Рутокен CSP (неизвлекаемыe ключи на токенах с защищенным обменом сообщениями) и КриптоПро DSS (ключи в облаке).
-
-Все преимущества продуктов этих (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8ECE4355572A97B220BF238C10882080308783
 ```
 
 https://mybot314.ru/tekegram_catalog/

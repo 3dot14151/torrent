@@ -1,3 +1,32 @@
+###  Публикация: 1586140   (218430) от 25.10.2022
+
+Breath of Sindragosa - The Decaying Seeds of Hatred (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As the Maggots Crawl [00:02:52]
+02. Emotional Grave [00:04:20]
+03. Everything Bleeds [00:04:31]
+04. Watching the World Burn [00:04:41](   Читать дальше...   )Жанр: Symphonic Deathcore, MetalcoreПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E09738A16AFE54C47634A9A7DEB5394F356BE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586154   (218417) от 25.10.2022
 
 Abandoned In Destiny - Rays of Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metal, Post-Hardcore>
@@ -6,7 +35,7 @@ Abandoned In Destiny - Rays of Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218417.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ John 5 and The Creatures - Live Invasion (2020) [FLAC|Lossless|image + .cue] <Ex
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218416.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218413.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Demons of Guillotine - 4 Albums (2004-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218400.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Amarionette - Gemini (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Progre
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218392.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Paul Simon - Greatest Hits - Shining Like A National Guitar (2000) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218381.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Morpheus - Духи Чумы (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Bla
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218373.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Plirom - Путь в вальгаллу (2022) [MP3|320 Kbps] <MetalCore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218362.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Golgotha - Mors Diligentis (2022) [MP3|320 Kbps] <Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218353.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Wilderun - Epigone (2022) [FLAC|Lossless|tracks + .cue] <Symphonic Progressive, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218349.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Soreption - Monument Of The End (2018) [WavPack|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218337.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Rabbit Junk - Apocalypse for Beginners (2022) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218335.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Blood Python - Acheron (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218328.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218317.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Keith Richards - 5 albums, 3 singles, 18 CD (1988-2020) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218304.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Bon Jovi - New Jersey (1988) Reissue, Remastered, 1998, Mercury [OGG Vorbis|480 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218296.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Iggy Pop - Avenue B (1999) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218270.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Lost in Kiev - Rupture (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Post-Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218242.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Venom Inc. - There's Only Black (2022) [FLAC|Lossless|image + .cue] <Heavy, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218239.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The PlayStations - X (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcor
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218201.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Skid Row - The Gang's All Here (2022) [FLAC|Lossless|image + .cue] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218182.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Deep Purple - Time for Bedlam (2016) Single [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218170.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Sorrow - Death of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218138.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ White Canyon & The 5th Dimension - Gardeners of the Earth (2023) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218031.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Jay Tausig - Amorphous Architecture (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217977.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Jay Tausig - Amorphous Architecture (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyche
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04689B08067143E9914E7659329B98F673BD9A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514388   (217952) от 03.12.2021
-
-Blackhearth - The Wrath Of God (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betrayal
-02. Into The Unknown
-03. My Bornless Child
-04. Rotten To The Core(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DA8C94FCBE9FE198A94D77EC1D5C426889D1DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

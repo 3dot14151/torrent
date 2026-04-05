@@ -1,138 +1,3 @@
-###  Публикация: 1521647   (734387) от 02.02.2022
-
-Книжная серия | «Философия – Neoclassic» [45 книг] (2016-2022) [FB2, EPUB, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734387.jpg" />
-</div>
-
-
-###  Подробнее
-
-В серии публикуются работы, ставшие определяющими в развитии мировой философии и касающиеся разных областей человеческой мысли: экономики и социологии, психологии и религии, культурологии и этики, гностики и методологии. В их числе — сделавшиеся основой теории коммунизма «Капитал» Карла Маркса и «Анти‑Дюринг» Фридриха Энгельса, послужившие началом науки Нового (   Читать дальше...   )Жанр: Научно-популярная литература, Психология, Философия, Социология и др.Формат: FB2, EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952FFF52A649A035E8BE4EC647868E8F88FB2077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399099   (734158) от 29.07.2020
-
-Т.Н. Игнатова | Английский язык. Интенсивный курс [+AudioCD] (1990) [PDF, DOCX, MP3]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник предназначен для начального этапа обучения английскому языку и направлен на выработку умений и навыков практического применения языка на основе принципов методической системы интенсивного обучения. Курс рассчитан на 120-150 аудиторных часов и построен на базе 2500 лексических единиц.
-Для студентов неязыковых специальностей вузов, а также для лиц, желающих (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF, DOCXПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D5D1222F33BAEC865B4CB219A5F248ED17E9C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788794   (734092) от 22.05.2014
-
-Николай Стариков | Адмирал Колчак. Протоколы допроса (2014) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_734092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Протоколы допроса Колчака — важнейшее свидетельство истории.
-В ночь с 6 на 7 февраля 1920 года А. В. Колчак был расстрелян, а его тело сброшено в прорубь реки Ангары. Это конец жизни адмирала, Верховного правителя России, полярного исследователя, моряка, отца, мужа, возлюбленного…
-Преданный союзниками, арестованный революционерами, Колчак прекрасно понимал, что его (   Читать дальше...   )Жанр: ИсториографияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199AFD874A44D5DE736DF52FD3CBD6ED33ACC9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528713   (733938) от 03.02.2022
-
-И. А. Леенсон | Химические элементы. Популярный иллюстрированный гид (2021) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атомы железа в крови человека синтезированы в недрах звезд, твердый водород – самое легкое твердое вещество, а в одной клетке образуется 3500 белков. За 4000 лет до н.э. в Древнем Китае применяли индиго и кермес, а в Египте – медь. В периодической таблице 7 периодов, 18 групп и 118 элементов, из которых, как известно, состоит все на свете.
-
-Биографии и характеры (   Читать дальше...   )Жанр: Научно-популярная литература, Общая химия, ЭнциклопедииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5694CA94D1863140B61CE90DBF5BAAB4DFA0696D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488019   (733920) от 03.02.2022
-
-Книжная серия | «О самом главном с доктором Мясниковым» [29 книг] (2013-2021) [FB2, PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здоровье — вот что касается каждого из нас. И как важно не ошибаться, не вестись на уловки фармфирм, не тратить лишние деньги и время на навязанные медицинские услуги! В серии книг «О самом главном с доктором Мясниковым» Александр Мясников, известный врач, развенчивает множество мифов отечественной медицины, дает необходимые и правильные ответы на вопросы, которые (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно о медицине, Здоровье, Медицина, Вирусология, Справочная литератураФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AA3B1399E7532EDFBE336733B3FCF8B3F7B222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399214   (733876) от 30.07.2020
 
 К. Хилл | Английская революция (1947) [DJVU, PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733876.jpg" />
 </div>
 
 
@@ -169,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733875.jpg" />
 </div>
 
 
@@ -198,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733685.jpg" />
 </div>
 
 
@@ -226,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732450.jpg" />
 </div>
 
 
@@ -254,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732403.jpg" />
 </div>
 
 
@@ -280,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732228.jpg" />
 </div>
 
 
@@ -306,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732081.jpg" />
 </div>
 
 
@@ -332,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732080.jpg" />
 </div>
 
 
@@ -358,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732079.jpg" />
 </div>
 
 
@@ -384,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732060.jpg" />
 </div>
 
 
@@ -412,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731974.jpg" />
 </div>
 
 
@@ -438,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731958.jpg" />
 </div>
 
 
@@ -466,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731907.jpg" />
 </div>
 
 
@@ -492,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731834.jpg" />
 </div>
 
 
@@ -518,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731731.jpg" />
 </div>
 
 
@@ -545,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731722.jpg" />
 </div>
 
 
@@ -571,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731719.jpg" />
 </div>
 
 
@@ -599,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731624.jpg" />
 </div>
 
 
@@ -625,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731607.jpg" />
 </div>
 
 
@@ -651,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731586.jpg" />
 </div>
 
 
@@ -679,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731579.jpg" />
 </div>
 
 
@@ -690,6 +555,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA1BA2FB126AC6FBB29A8AE178CC4261E84E1B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 159263   (731578) от 18.02.2019
+
+А.П. Рябушко | Сборник индивидуальных заданий по высшей математике Часть 2 [1991] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является составной частью комплекса учебных пособий по курсу высшей математики, направленных на развитие и активизацию самостоятельной работы студентов вузов. Содержаться теоретические сведения и наборы задач для аудиторных и индивидуальных заданий по следующим разделам: комплексные числа, определенные и неопределенные интегралы, функции нескольких переменных (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27288A9124874F2ADE7032967B97BA72F77DA8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 161517   (731577) от 18.02.2019
+
+Карл Ротхаммель | Антенны [2007] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Радиолюбители уже в течение многих лет неизменно обращаются к справочному пособию Карла Ротхаммеля, ставшему стандартом технической литературы. Сжатые теоретические сведения в сочетании с подробным описанием технических решений позволяют успешно строить перечисленные в книге антенны даже тем, кто слабо разбирается в технике.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3242EAE0D871A8FE311E622A7679F91369816DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185723   (731468) от 18.02.2019
+
+Подборка книг | Волоконная оптика (1983-2007) [61 книга] [DJVU, PDF, DOC]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка содержит сорок три книгина русском языке, имеющие непосредственное отношение к волоконно-оптическим технологиям.
+Книги сгруппированы в три раздела:Жанр: Наука и техникаФормат: DJVU, PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADC11A26CE2E6942A99DA88769C48745C301C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 159259   (731461) от 18.02.2019
+
+А.П. Рябушко | Сборник индивидуальных заданий по высшей математике Часть 1[1990] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемое пособие адресовано преподователям и студентам и предназначено для проведения практических занятий и самостоятельных (контрольных работ) в аудитории и выдачи ИДЗ по всем разделам курса высшей математики. Данная книга является первой частью комплекса учебных пособий под общим названием " Сборник индивидуальных заданий по высшей математике".
+ (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715452FAA42CE2C8B993462F8C9816E82CCCCF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021854   (731421) от 30.05.2016
+
+Шон Кэрролл | Вечность. В поисках окончательной теории времени (2016) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое время в современном понимании и почему оно обладает именно такими свойствами? Почему время всегда двигается в одном направлении? Почему существуют необратимые процессы? Двадцать лет назад Стивен Хокинг пытался объяснить время через теорию Большого Взрыва. Теперь, Шон Кэрролл, один из ведущих физиков-теоретиков современности, познакомит вас с восхитительной (   Читать дальше...   )Жанр: Естественные науки, Теоретическая физикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9BD51E8E68C299F8A89B52F4F44ADDA817443C
 ```
 
 https://mybot314.ru/tekegram_catalog/

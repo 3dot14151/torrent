@@ -1,3 +1,110 @@
+###  Публикация: 1418678   (339720) от 28.10.2020
+
+NBA JAM by EA SPORTS™ 04.00.80 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Играйте со своими любимыми звездами из всех 30 команд NBA в непревзойденной баскетбольной аркаде "2 на 2"! Игра, которую вы помните, обрела новый облик!Тип издания: ПираткаРелиз состоялся: 18 февраля 2020 г.Разработчик: ELECTRONIC ARTSПоддерживаемая ОС: Android 5.0 и вышеЖанр: Sports (Спортивная игра)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92790F0EDB8675F941A399313851225D6E26474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073593   (339675) от 18.11.2016
+
+Ace Stream Media 3.1.11.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система Ace Stream - это инновационная медиа-платформа нового поколения, которая откроет для вас новый высококачественный уровень мультимедийного пространства в сети Интернет:
+
+- наслаждаетесь онлайн просмотром огромного количества трансляций, с наилучшем аудиовизуальным качеством в Интернете (ТВ-каналы, пользовательские стримы, фильмы, мультфильмы и др.), вещание (   Читать дальше...   )Тип издания: бесплатноРелиз состоялся: 09.11.2016Разработчик: Ace StreamПоддерживаемая ОС: Android 4.0.1 и вышеЯзык интерфейса: русский, английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D5277052BF04581CEB4D9F5655DF6348E9C520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419229   (339575) от 28.10.2020
+
+Тысяча (1000) Онлайн v1.14.6.202 [Ru/En] (обновляемая)
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем новую версию Тысячи Онлайн с улучшенным дизайном и с отличной стабильностью - Тысячу Онлайн HD!Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 13.10.2020Разработчик: JagPlayПоддерживаемая ОС: Android 4.1+Жанр: КарточныеЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32EF4CF8F76610B2346EA4DA19841BDADE87170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419392   (339338) от 28.10.2020
+
+Aerofly 2 Flight Simulator v2.5.41 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря авиасимулятору Aerofly 2 вы сможете познакомиться с миром полетов на самолетах с таким качеством, которое вы еще никогда не видели прежде. Вас ждет большой выбор высокодетализированных самолетов с полностью анимированными 3D-кабинами и полеты в фантастическом районе залива Сан-Франциско и его окрестностях.
+Авиасимулятор Aerofly 2 — это реалистичная физика (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 20 июня 2020 г.Разработчик: IPACSПоддерживаемая ОС: Android 5.0 и вышеЖанр: Simulation (Симулятор)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7053AB466FB641ABD2EF787E523435D1E7F29001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418403   (339335) от 28.10.2020
 
 FAR: Lone Sails  v1.27 [Ru/Multi]
@@ -6,7 +113,7 @@ FAR: Lone Sails  v1.27 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339335.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339328.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Barcode Scanner v4.7.4 / Barcode Scanner+ v1.12.2 [Ru/Multi] - Сканер шт
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338947.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ Learn Languages with Music 2.1.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338727.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Business English by BEP 1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338580.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ Fluenz 2.6.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338411.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ Simple Rockets 2 v0.9.506 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337682.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ Sonic Back In Time 1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337177.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ Comica v1.41 [En] - превратить фотографии в комиксы 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337056.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336920.jpg" />
 </div>
 
 
@@ -270,7 +377,7 @@ Garmin: City Navigator Japan NT 2015.10 M All [Jp]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336912.jpg" />
 </div>
 
 
@@ -296,7 +403,7 @@ Earthworm Jim Eternity 1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336798.jpg" />
 </div>
 
 
@@ -322,7 +429,7 @@ Forvo Pronunciation Guide 4.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336301.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ Meditopia: Сон и Медитация v3.7.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336260.jpg" />
 </div>
 
 
@@ -377,7 +484,7 @@ Check Engine 1.3.0.19 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335448.jpg" />
 </div>
 
 
@@ -403,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335239.jpg" />
 </div>
 
 
@@ -429,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335200.jpg" />
 </div>
 
 
@@ -456,7 +563,7 @@ Cover Fire 1.17.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334319.jpg" />
 </div>
 
 
@@ -482,7 +589,7 @@ Path of Giants v2.2.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333760.jpg" />
 </div>
 
 
@@ -509,7 +616,7 @@ Deep Town: Шахтерская фабрика v4.6.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333667.jpg" />
 </div>
 
 
@@ -535,7 +642,7 @@ AR Plan 3D Ruler v3.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333565.jpg" />
 </div>
 
 
@@ -563,7 +670,7 @@ Five Nights at Freddy’s: HW v1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333402.jpg" />
 </div>
 
 
@@ -574,111 +681,6 @@ Five Nights at Freddy’s: HW v1.0 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6870859F21D770E04085E6AEE5A0E897FA8C1E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331222   (333249) от 14.10.2019
-
-zetaTorrent Pro 3.7.9 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и мощный торрент клиент со встроенным браузером, файлменеджером, RSS каналом и передачей файлов по Wi-FiТип издания: ПираткаРелиз состоялся: 11.10.2019Разработчик: teeonПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACA5373376AE3ADFE39D15ACA938CE101B2E7E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331092   (333241) от 14.10.2019
-
-En16 2019.819.2020.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333241.jpg" />
-</div>
-
-
-###  Подробнее
-
-En16 - это простой и эффективный способ изучить основы английского языка.
-Приложение последовательно проведет вас через 16 интерактивных занятий, в рамках которых вам будет предложено ознакомиться с теоретическими основами языка, пройти практические занятия и сдать экзамен.Тип издания: Пиратка (все уроки открыты)Релиз состоялся: 25.08.2019Разработчик: Partner.mobile.appsПоддерживаемая ОС: Android: 4.0.3 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1FAF507C3BE2B4E537CAD4A9ACBA7C949292C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420591   (332198) от 01.11.2020
-
-Шведский дизайн интерьера 3D v1.14.1 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведский дизайн интерьера 3D - простое и удобное приложение, которое позволит вам быстро и просто создавать красивые планировки домов, дизайн кухни, интерьер спальни, гостиной и других комнат! Больше не нужно специальных навыков и долгого знакомства с инструкцией - рисуйте красивые и аккуратные планировки квартир, планы домов и интерьеры всего за несколько минут (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 29.10.2020Разработчик: Planner 5DПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E27D9977A45655DAD469608B430DBF17480BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420396   (332191) от 01.11.2020
-
-Ассистент Дуся v2.3.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ассистент Дуся - Где бы вы ни были, и что бы не делали это приложение поможет вам в любых ваших начинаниях. Голосовой ассистент который быстро набрал популярности на просторах СНГ. Знакомьтесь это Дуся, голосовой ассистент который сможет ответить практически на любой интересующий вас вопрос, и выполнит любую поставленную задачу. Более того с её помощью вы сможете (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 12 марта 2019 гРазработчик: UseYoVoiceПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A340B304F37DC25E67D9E76F3456B51A2A65AC21
 ```
 
 https://mybot314.ru/tekegram_catalog/

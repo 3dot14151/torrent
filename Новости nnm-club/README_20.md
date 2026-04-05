@@ -1,3 +1,29 @@
+###  Публикация: 1353183   (992321) от 17.01.2020
+
+Набор обновлений UpdatePack7R2 для Windows 7 SP1 и Server 2008 R2 SP1 20.1.17 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B46E47E673C5FCD31C00045397B0F2D49C81F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353073   (991579) от 18.01.2020
 
 Японский миллиардер Маэдзава ищет женщину для полета на Луну
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991579.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Diablo 2: Lord of destruction / Median XL Ultimative v6d [Ru] (Mod) 2000/2013
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991437.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991264.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990529.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Windows 10 Pro VL x64 v.1909.18363.592 3in1 OEM Jan2020 by Generation2 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990357.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGor
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990351.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Adobe Acrobat Pro DC 2019.021.20061 RePack by Diakov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990348.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ KMSnano Automatic by Heldigard 19 [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989831.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Dead Space 3 [XBOX360] [Region Free] [En] [LT+3.0] (XGD3 / 15574) (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989791.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ uTorrent 3.5.5 (build 45493) Portable by SanLex (Ad-Free) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989592.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989488.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_989235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_989235.jpg" />
 </div>
 
 
@@ -334,7 +360,7 @@ COWBOY WPI DVD Project II StartSoft 15 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988797.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ Metro 2033 / Метро 2033 [En/Multi7] (L) 2010 | PROPHET
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988780.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ Macross Frontier / Макросс Фронтир OSTs+OP+ED+Other <mp3 320K>
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_988272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_988272.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ DriverPack Solution 2015 + Драйвер-Паки 15.12.5 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988161.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Kaspersky Internet Security 2016 16.0.1.445 MR1 (Technical Release) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988158.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ LoftSchool | Kомплексное обучение разработке на PH
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988152.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988151.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988150.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987816.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987637.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986815.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ ABBYY FineReader 15.0.112.2130 Corporate RePack (& Portable) by Diakov [Multi/Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986724.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ Frostpunk (2018) [Ru/Multi] (1.5.0/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986722.jpg" />
 </div>
 
 
@@ -674,32 +700,6 @@ Frostpunk – это новейшая игра от создателей This Wa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:097790E2E6067DCA0DCB7EEDE621344A8464C312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612085   (986548) от 01.02.2013
-
-uTorrent 3.3 build 29038 Stable [MULTi / Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986548.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую полосу пропускания, быстрое восстановление прерванной загрузки и многое другое.Название программы: µTorrentЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

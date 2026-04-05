@@ -1,3 +1,32 @@
+###  Публикация: 1573765   (408814) от 02.09.2022
+
+Mike Tramp - For Første Gang For Altid (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Det Jeg Var (5:14)
+02. Vejkort (4:23)
+03. For Første Gang For Altid (4:50)
+04. Jeg Holder Fast (5:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC329BB992FCF8743F6D456F36DDE5276B79117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573753   (408811) от 02.09.2022
 
 Blind Guardian - The God Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
@@ -6,7 +35,7 @@ Blind Guardian - The God Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408811.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Epica - Live At Paradiso (2022) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408809.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Alan Parsons Project - Tales of Mystery and Imagination (1976) Japanese Edit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408791.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Клинское Продвижение (2002) [FLAC|Lossless|tracks + .cue
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408786.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Flash And The Pan - 6 Albums (1978-1992) CD Collection [MP3|320 Kbps] <Electroni
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408781.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ King's X - Three Sides Of One (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Hard Rocк>
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408751.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Blind Guardian - The God Machine (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Progress
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408748.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408743.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Blind Guardian - The God Machine (2022) [MP3|320 Kbps] <Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408739.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Steve Hackett - Genesis Revisited Live: Seconds Out & More (2022) Live in Manche
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408738.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Florence + The Machine - Dance Fever (2022) Poem Versions [FLAC 2.0|96/24|WEB-DL
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408732.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Florence + The Machine - Dance Fever (2022) Deluxe Edition [FLAC 2.0|96/24|WEB-D
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408664.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ The Hu - Rumble Of Thunder (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Folk Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408660.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408657.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ The Doors - The Singles (2017) 2CD + Blu-ray, Blu-ray Audio, Deluxe Edition Box 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408642.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Art Nation - Liberation (2017) Sony Music [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408612.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408579.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Megadeth - The Sick, the Dying... and the Dead! (2022) Deluxe Edition [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408578.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Timelight - Selah! (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408543.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Nachtblut - Vanitas (2020) [FLAC|Lossless|image + .cue] <Dark Metal, Melodic Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408539.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408538.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Tarja - In The Raw (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408533.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Genesis - Radio Sessions 1970-1972 (2020) Live, Compilation [MP3|320 Kbps] <Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408432.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Greg Puciato - Do You Need Me to Remind You? (Maxi-Single) (2020) Federal Prison
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408424.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Albert Hammond - In Symphony (2016) [MP3|320 Kbps] <Pop Rock, Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408380.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Albert Hammond - In Symphony (2016) [MP3|320 Kbps] <Pop Rock, Soft Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4455E472A61D72C09BD22F36AEA106DF5D622976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413464   (408340) от 04.10.2020
-
-Steve Lee (Gotthard) - The Eyes of a Tiger: In Memory of Our Unforgotten Friend! (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Ballads>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Life One Soul [00:03:45]
-02. Let It Be [00:04:27]
-03. In the Name [00:03:33]
-04. Lonely People [00:03:23](   Читать дальше...   )Жанр: Hard Rock, BalladsПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834AA76D86F2F1B7838973FA45125E9D79874431
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554832.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554794.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Империя / BBC: Empire (2012) HDTVRip (Серии 1-5 из 5)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554705.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ History Channel: Битвы богов / Clash of the Gods (2009) HDTVRip HDTVRi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554645.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ History Channel: Битвы богов / Clash of the Gods (2009) HDTVRip (10 с
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554644.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Герои Средиземноморья / Heroes of the Mediterranean (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554428.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NGW: Тайны дикой природы / Secrets Of The Wild (2013) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554388.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NGW: Городские джунгли / Urban Jungle (2014) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554151.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW. Стая: Львы / The Pack: Lions (Leslie Schwerin) (2010) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554149.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NGW. Тигр в бегах / Tiger on the Run (2015) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554147.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NGW: Убийцы с большого озера / The lakeshore Killers (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554141.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Animal Planet: Кубинская акула / Cuban Shark (2015) HDTV [H.264/10
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554105.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553914.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Animal Planet: Остров гигантской акулы / Island Of The Mega
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553895.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Animal Planet: В дикие края с Эваном. Обезьяны Амаз
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553473.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Animal Planet: Необычные животные Ника Бейкера. Ры
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553466.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Discovery: История изобретений. С чего всё начин�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553075.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Animal Planet: Заплыв с чудовищами / Swimming with Monsters (20
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552733.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551783.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551736.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551733.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551692.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551678.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551649.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ BBC: Horizon. Океаны Солнечной системы / Oceans of the Sol
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551294.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Da Vinci Learning: Музыка мозга / Music of the Brain (2009) SATRip
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551293.jpg" />
 </div>
 
 

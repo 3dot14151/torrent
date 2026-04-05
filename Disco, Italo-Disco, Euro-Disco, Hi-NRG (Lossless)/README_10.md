@@ -1,119 +1,3 @@
-###  Публикация: 1540189   (654950) от 28.03.2022
-
-VA - Turbo Disco International - Vol. 1 (2004) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gibson Brothers - Cue Sera Mi Vida
-02. Jairo Pereira - Pais Tropical
-03. Supermax - African Blood
-04. Ricchi & Poveri - Acapulco(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCD33F6E0FAEDFCC450553A9AD6407647264F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226481   (654780) от 21.05.2018
-
-Tonschatz - DAO - Follow Your Heart (2018) [FLAC|Lossless|image + .cue] <Euro-Disco, Europop, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Your Heart (Reset Your Life) (4:03)
-02. Midlife Dreams (3:26)
-03. Odyssey (You Can Change Your Life) (4:16)
-04. Columbus (3:26)(   Читать дальше...   )Жанр: Euro-Disco, Europop, Synth-popПродолжительность: 00:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651B76ABB8F6ABD91CAECA012FE0D95C084D0C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540341   (653963) от 29.03.2022
-
-Fancy - Turbo Disco (2002) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Voice In The Dark
-02. Die For You
-03. Fools Cry
-04. Pretty Woman(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672103AB8450E6F55A14E6E332A8E12FC4C84B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141029   (653935) от 08.06.2017
-
-Munich Machine - Get On The Funk Train (1996) Remaster, 2011, Repertoire Records, Compilation [FLAC|Lossless|image + .cue] <Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get On The Funk Train (15:43)
-02. Love To Love You Baby (2:33)
-03. Trouble Maker (2:47)
-04. Try Me, I Know We Can Make It (3:31)(   Читать дальше...   )Жанр: Disco, ElectronicПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC5A3F0DD1C1831898B1939BDF9D677A45235C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540346   (653899) от 29.03.2022
 
 C.C. Catch - The Best Of C.C. Catch (2004) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
@@ -122,7 +6,7 @@ C.C. Catch - The Best Of C.C. Catch (2004) [FLAC|Lossless|tracks + .cue] <Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653899.jpg" />
 </div>
 
 
@@ -151,7 +35,7 @@ Baccara - I Belong to Your Heart (2017) [FLAC|Lossless|tracks + .cue] <Euro-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653740.jpg" />
 </div>
 
 
@@ -180,7 +64,7 @@ Disco Giants - Volume 1-10 (2013) 20CD Box Set [FLAC|image+.cue]<Disco, Soul, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652872.jpg" />
 </div>
 
 
@@ -209,7 +93,7 @@ Gürcan Erdem - Dancing On The Fire (2018) Limited Edition, Remastered [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650500.jpg" />
 </div>
 
 
@@ -238,7 +122,7 @@ VA - The Very Best Of Disco (2001) [FLAC|Lossless|tracks + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646653.jpg" />
 </div>
 
 
@@ -267,7 +151,7 @@ VA - Fancy & Friends (2010) [FLAC|Lossless|image + .cue] <Pop, EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645840.jpg" />
 </div>
 
 
@@ -296,7 +180,7 @@ T.Ark - H.A.P.P.Y. Radio (2010) [APE|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_645341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645341.jpg" />
 </div>
 
 
@@ -331,7 +215,7 @@ VA - Best Of The Best (1995) 2CD[FLAC|image +.cue]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641466.jpg" />
 </div>
 
 
@@ -360,7 +244,7 @@ Samantha Fox - Диско 80-х (2007) [FLAC|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641034.jpg" />
 </div>
 
 
@@ -389,7 +273,7 @@ Samantha Fox - Touch Me: The Very Best Of (2014) [FLAC|image+.cue]<Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637630.jpg" />
 </div>
 
 
@@ -418,7 +302,7 @@ VA - Italo Disco: Instrumental Versions (2016) 2CD, Limited Edition [FLAC|Lossle
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635366.jpg" />
 </div>
 
 
@@ -447,7 +331,7 @@ Disco Digitale - In The 25th Century (2007) EP [FLAC|Lossless|image + .cue] < It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635252.jpg" />
 </div>
 
 
@@ -476,7 +360,7 @@ Disco Digitale - Computer Dreams (2006) [FLAC|Lossless|image + .cue] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635250.jpg" />
 </div>
 
 
@@ -505,7 +389,7 @@ Disco Digitale - Electronic Passion (2014) [FLAC|Lossless|image + .cue] <Italo-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635122.jpg" />
 </div>
 
 
@@ -534,7 +418,7 @@ Patty Ryan - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633431.jpg" />
 </div>
 
 
@@ -563,7 +447,7 @@ Ottawan - серия "Золотые хиты дискотек" (2001) compilati
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632162.jpg" />
 </div>
 
 
@@ -592,7 +476,7 @@ VA - Venti Compilation 3 (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631486.jpg" />
 </div>
 
 
@@ -621,7 +505,7 @@ VA - I Love Disco Presents: Rewind To The Disco Vol.1 (2009) 2CD, Compilation [F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627957.jpg" />
 </div>
 
 
@@ -650,7 +534,7 @@ Bad Boys Blue - The Fifth & Kiss (2000) Unofficial Release [FLAC|Lossless|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627591.jpg" />
 </div>
 
 
@@ -679,7 +563,7 @@ VA - The Best of Dance 80 (2015) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco, Po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627468.jpg" />
 </div>
 
 
@@ -708,7 +592,7 @@ VA - Хиты 80-х в Новых Версиях (2012) [FLAC|Lossless] <Pop, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627107.jpg" />
 </div>
 
 
@@ -737,7 +621,7 @@ Miko Mission - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|tr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625965.jpg" />
 </div>
 
 
@@ -751,6 +635,128 @@ Miko Mission - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E160B51DCF3DF6410736CCCF53FDDDCEBE5A303D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294861   (625794) от 09.04.2019
+
+Sabrina - Boys: The Best Of Sabrina (2013) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Boys (Summertime Love) (Maxi Version) (5:47)
+02 Hot Girl (New Version) (3:29)
+03 All Of Me (Maxi Version) (5:16)
+04 Afraid To Love (4:46)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E6EF7DBB80548C11BC813DD196CE7536E21212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144830   (625635) от 23.06.2017
+
+Bad Boys Blue - House Of Silence (1991) [FLAC|Lossless|image + .cue] <Disco, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of Silence (3:57)
+02. Under The Boardwalk (3:34)
+03. Train At Midnight (3:30)
+04. Baby Blue (3:48)(   Читать дальше...   )Жанр: Disco, EurodanceПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D29BFA4E22183CF78AFD855F788A7EA96E9C11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521756   (624587) от 12.07.2012
+
+Savage - Tonight (2009) [FLAC|Lossless]<italo-disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624587.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Radio 6:02
+2 A Love Again 5:30
+3 Fugitive 4:56
+4 Tonight 3:40
+5 Only You 3:51
+6 Turn Around 3:54
+7 Don't Cry Tonight 3:58
+8 Computerized Love 3:38
+9 A Love Again (Remix) 6:34
+10 Fugitive (12" Version) 6:43(   Читать дальше...   )Жанр: italo-discoПродолжительность: 62:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294975   (623872) от 10.04.2019
+
+Belle Epoque - The Best Of (2015) DV Digital [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, 70s>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Is Black (Mix) (13:34)
+ 02. Bamalama (Mix) (11:25)
+ 03. Miss Broadway (7:19)
+ 04. Let Men Be (4:21)(   Читать дальше...   )Жанр: Disco, Funk, 70sПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFE43441437E6F57E30043BD7B6369627727D3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

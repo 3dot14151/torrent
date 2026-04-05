@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816619.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816596.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815392.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815142.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815132.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815005.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Jean-Michel Jarre - Welcome to the Other Side (Live In Notre Dame VR) (2021) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813680.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813335.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812889.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812882.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812801.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812728.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Nightwish - Vehicle of Spirits (2016) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812626.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Yello - Final Essential Exclusive Limited Edition (2009) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812614.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Julies Massenet "Manon" (2008) - Netrebko, Villazon, Daza, Fischesser - 2DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811640.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811459.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811076.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810968.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Led Zeppelin - Danmarks Radio (1969) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810859.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810746.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Depeche mode-Devotional. Live In Barcelona (1993) DVDRip (MC GROM-Release)
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810628.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Mylene Farmer - Stade de France (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810587.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810206.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809964.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809931.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809827.jpg" />
 </div>
 
 

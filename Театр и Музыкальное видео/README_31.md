@@ -6,7 +6,7 @@ Alestorm - Treasure Chest Party Quest (2020) WEBRip [H.264/1080p-LQ] <Scottish P
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876708.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ILL NINO - 18 Music Videos (2001-2020) WEBRip [H.264/480p/720p/1080p/2160p-LQ] <
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876619.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876612.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875943.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Mariza - Concerto em Lisboa / Live at Lisbon  (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875637.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875521.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Megadeth - коллекция видеоклипов (1986-2011) [H.264] DVDRip,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875484.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Metallica - The Videos 1989-2004 [iTunes M4V Album] (2006) [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875237.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Feuerschwanz - Das Elfte Gebot (2020) WEBRip [H.264/1080p-LQ]<Mitellater Folk-Ro
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874435.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873388.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Major Lazer feat. Busy Signal & The Flexican & FS Green - Watch Out For This (Bu
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873265.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872834.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Megatherium - The Eye (2020) WEBRip [H.264/1080p-LQ]<Psychedelic Stoner, Doom Me
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872828.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Sodom - Napalm In The Morning (Apocalypse Now!) (2009) WEBRip [H.264/720p-LQ]<Th
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872579.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Metallica – Quebec Magnetic (2012)[iTunes Movie – HD]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871597.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Paul van Dyk - Music Video (Подборка из 11 клипов) (2000-2009) D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871447.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870798.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870602.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Pink Floyd - The Later Years 1987-2019 (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870240.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870204.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869527.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Styx And The Contemporary Youth Orchestra: One With Everything (2006) [1080i] Bl
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868053.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867871.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867434.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Gangnam Style 3D / PSY - Gangnam Style (2012) HDRip [H.264/1080p]  [ Гориз�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867127.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867087.jpg" />
 </div>
 
 

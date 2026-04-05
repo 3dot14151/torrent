@@ -1,174 +1,3 @@
-###  Публикация: 1201066   (793947) от 23.01.2018
-
-Ханна - Мысли. Часть 1 (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793947.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не вернусь
-2. Глаза
-3. Буду
-4. Изучай меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD4B50777F1EAEB85808488B8E31DB19E5DE19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201029   (793938) от 23.01.2018
-
-Ministry Of Beat - 100% Strength (2018) [MP3|320 Kbps] <Dance, Eurobeat, Electro>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – That’s Physical
-02 – Muscle Games
-03 – Lost In Your Mind
-04 – Adrenalin Love(   Читать дальше...   )Жанр: Dance, Eurobeat, ElectroПродолжительность: 03:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0721705A89DE81A9072554D7CFAAB8B61F5207A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201104   (793809) от 23.01.2018
-
-Mylene Farmer  - Rolling Stone (2018) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mylène Farmer - Rolling StoneЖанр: PopПродолжительность: 03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E772B1CDEC0AA2B5DA567532496388BFEA2033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200999   (793802) от 23.01.2018
-
-Julio Iglesias - Se Tornassi... All The Hits (2013) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Manuela
-02. Un Giorno Tu Un Giorno Io
-03. Quando Si Ama Davvero(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD8368860AB57DF047DD11C3F263D2001FF59D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386948   (793627) от 30.05.2020
-
-Hot Sauce - Baby Tenderness (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Tenderness (3:06)
-02. May Be (3:43)
-03. Funky Train (3:10)
-04. Conga (2:45)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE4B690E1A98CFD50C3AED5A0481316F8231974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012370   (793583) от 01.05.2016
-
-Demis Roussos - Mon Île (Ile) (1997) Unofficial Release [APE|Lossless|image + .cue] <Pop, Folk, World & Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mon Ile
-02. Je Te Donnerai Ma Vie
-03. Dinata
-04. Elle Attend(   Читать дальше...   )Жанр: Pop, Folk, World & CountryПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA14CF475DA749F1927E830AD39CB745AA198ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011775   (793563) от 01.05.2016
 
 Demis Roussos - Forever & Ever (the Best Of) (2013) [APE|Lossless|image + .cue] <Pop>
@@ -177,7 +6,7 @@ Demis Roussos - Forever & Ever (the Best Of) (2013) [APE|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793563.jpg" />
 </div>
 
 
@@ -206,7 +35,7 @@ Apollonia 6 - Apollonia 6 (1984) Reissue CD, 1990, Warner Bros. Records [MP3|320
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793552.jpg" />
 </div>
 
 
@@ -235,7 +64,7 @@ Ladies Of Soul - Live At The Ziggo Dome (2016)  [FLAC|Lossless|image + .cue] <Po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793551.jpg" />
 </div>
 
 
@@ -264,7 +93,7 @@ VA - New Pop Top Hits 2020 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793467.jpg" />
 </div>
 
 
@@ -293,7 +122,7 @@ VA - Айсберг. Каникулы с Андреем Губиным (2001) [M
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793432.jpg" />
 </div>
 
 
@@ -322,7 +151,7 @@ Michael Bolton - Michael Bolton: Greatest Hits (2020) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793409.jpg" />
 </div>
 
 
@@ -351,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793398.jpg" />
 </div>
 
 
@@ -380,7 +209,7 @@ Roberta Flack Featuring Donny Hathaway - Roberta Flack Featuring Donny Hathaway 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793389.jpg" />
 </div>
 
 
@@ -409,7 +238,7 @@ Thomas Anders - Alles Anders Collection (2020) 3CD, Limited Edition [FLAC|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793352.jpg" />
 </div>
 
 
@@ -438,7 +267,7 @@ VA - Айсберг. Дискотека 1-2 (2001) 2CD [MP3|image + .cue|320 Kbp
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793314.jpg" />
 </div>
 
 
@@ -467,7 +296,7 @@ Silver Convention - The Very Best Of (2004) Compilation, 2CD [FLAC|Lossless|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793296.jpg" />
 </div>
 
 
@@ -496,7 +325,7 @@ Thomas Anders - Pures Leben (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793147.jpg" />
 </div>
 
 
@@ -525,7 +354,7 @@ Jess Glynne - Always In Between (2018) Deluxe Edition [FLAC|Lossless|tracks + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793047.jpg" />
 </div>
 
 
@@ -554,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793004.jpg" />
 </div>
 
 
@@ -583,7 +412,7 @@ Melody Stewart - Action Satisfaction (1980) Reissue CD, 2009, Unidisc [MP3|320 K
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792929.jpg" />
 </div>
 
 
@@ -612,7 +441,7 @@ VA - The Best Christmas Album In The World...Ever! 2021 [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792830.jpg" />
 </div>
 
 
@@ -641,7 +470,7 @@ Al Bano & Romina Power - Original Album Classics (2019) 5xCD, Compilation [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792755.jpg" />
 </div>
 
 
@@ -670,7 +499,7 @@ VA - 2018 Grammy Nominees (2018) [FLAC|Lossless|tracks] <Pop, Hip Hop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792699.jpg" />
 </div>
 
 
@@ -699,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792640.jpg" />
 </div>
 
 
@@ -728,7 +557,7 @@ VA - DMC - Cool Grooves 61 (2020) [MP3|320 Kbps] < Electronic, Hip Hop, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792637.jpg" />
 </div>
 
 
@@ -742,6 +571,181 @@ VA - DMC - Cool Grooves 61 (2020) [MP3|320 Kbps] < Electronic, Hip Hop, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8769DE3B99DC47B3352D06CC744BC2C539AAE9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387167   (792628) от 31.05.2020
+
+VA - Summer Hits of the 10s (2020) [MP3|320 Kbps] <Pop, Lyrics>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wynter Gordon - Dirty Talk
+02. Cody Simpson - La Da Dee
+03. Nickelback - When We Stand Together
+04. Guy Sebastian & Lupe Fiasco - Battle Scars(   Читать дальше...   )Жанр: Pop, LyricsПродолжительность: 01:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555EDFFCF4EBFD03DB4768D2D1E004026DD52F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123361   (792527) от 07.04.2017
+
+VA - Айсберг 5. Международный (2001) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Da Mutz - Wassup!
+02. 98 Degress - Gimme just one night (une noche)
+03. Point Break - Do we rock
+04. a-ha - Minor Earth, major sky (ATB club remix)(   Читать дальше...   )Жанр: Pop
+Издание: Iceberg Music - HH-34CD/01Продолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CBED060A29E9737F1EAA43E94020D811FF90E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387220   (792520) от 31.05.2020
+
+Icehouse - 9 Studio Albums (1981-1995) Collection [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icehouse - это австралийский рок-проект, который сформирован в 1977. Первоначально назывались Flowers, играли паб-рок, позже перешли на pop rock и synthpop с элементами new wave. Добились успеха на мировом рынке, издали несколько десятков хитов в США и Европе. Основным творческим деятелем считается Ива Дэвис (Iva Davies), часто для записей нанимались сольные исполнители. (   Читать дальше...   )Список альбомов:
+1981 - Icehouse
+1982 - Primitive Man
+1984 - Sidewalk(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-popПродолжительность: 10:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8355A2BD36198782C5AE56347AFB7BF4B5668A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387151   (792466) от 31.05.2020
+
+VA - Clubfete 90er: 60 Club & Party Hits Of The 90's Vol.2 (2020) [MP3|320 Kbps] <Club, Euro-House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snap! - The Power (7' Version) 3:47
+02. Music Instructor - Hymn (Single Edit) 3:50
+03. Charly Lownoise & Mental Theo - Stars (Video Mix) 3:37
+04. Scooter - How Much Is The Fish (Radio Edit) 3:46(   Читать дальше...   )Жанр: Club, Euro-House, EurodanceПродолжительность: 03:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC33F8CA51713B7952E7F4E44D5FFC72E811B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123291   (792450) от 07.04.2017
+
+Levante - Nel Caos di stanze stupefacenti (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Caos (Preludio)
+02.	1996 La Stagione Del Rumore
+03.	Io Ti Maledico
+04.	Non Me Ne Frega Niente(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077680E35C0163DCB200C95E74306F68B3F5969A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123146   (792405) от 07.04.2017
+
+The Chainsmokers - Memories...Do Not Open (2017) [MP3|320 Kbps] <Pop, Indie Pop, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The One  2:58
+02.  Break Up Every Night  3:28
+03.  Bloodstream  3:44
+04.  Don't Say ( feat. Emily Warren) 3:49(   Читать дальше...   )Жанр: Pop, Indie Pop, ElectropopПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BA570653D8DF1CA027D7E5A0F1153D0EA66F0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1161510   (514801) от 22.08.2018
+
+Inherit the Earth (1994) [En/Ge] (1.1) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы видим небо, мы видим землю и воду. Неужели мы здесь одни? Задолго до нас Землёй правили Люди. Они делали удивительные вещи, двигали целые горы. Она знали секрет Полёта, секрет Счастья и многие другие тайны, какие мы не можем и вообразить... Именно такой «поэмой» начинается старушка Inherit the Earth, сделанная «Гильдией Мечтателей» в период расцвета сказочных (   Читать дальше...   )Тип издания: LicenseРазработчик: The Dreamers Guild, Wyrmkeep EntertainmentЖанр: Adventure, Point&Click, FantasyЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC415D56DD261B087CF25593002633F7AFDBBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536925   (513366) от 19.08.2012
+
+SWIV 3D [En] (RePack) 1996 | RG Games/Pilotus
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра напоминает смесь из Return Fire и Wild Metal Country.  Тоже вертолётики и машинки, а также какие-то ещё странные передвижные средства.  Среди всех прочих игр жанра SWIV 3D выделяется интересным ландшафтом, красивыми спецэффектами и занятным геймплеем, от которого порой тяжело оторваться.
+(   Читать дальше...   )Тип издания: RePackЖанр: Аркадный экшен, вертолетная аркада, авто экшенЯзык озвучки: -/-Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536948   (513226) от 19.08.2012
 
 The Broken Land / Заброшенные земли [Ru] (RePack) 2000 | RG games/Pilotus
@@ -6,7 +59,7 @@ The Broken Land / Заброшенные земли [Ru] (RePack) 2000 | RG game
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513226.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ State of War / Военное положение [Ru/En] (RePack) 2001 | RG Game
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513193.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ Marvel Comics Spider-Man: The Sinister Six [En] (RePack) 1996 | RG Games/Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512117.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ Prey [Ru/En] (Repack/1.4) 2006 | R.G. Origami
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511155.jpg" />
 </div>
 
 
@@ -118,7 +171,7 @@ eXtinction / Тотальное истребление [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509064.jpg" />
 </div>
 
 
@@ -144,7 +197,7 @@ Painkiller / Painkiller: Крещёный кровью (2004) [Ru] (1.64) Licens
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508618.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ Pilot Brothers / Братья Пилоты: По следам полосатог
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507777.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ Kane and Lynch: Dead Men (2007) [Multi] (1.0.0.129) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505892.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ Terminal Velocity (1995) [En] (1.2) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505797.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ Kane and Lynch: Dead Men / Kane and Lynch: Смертники (2007) [Ru] Licens
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505145.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ True Crime Дилогия [Ru/En] (RePack) 2004-2006 | Mailchik
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504062.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ Pontifex 2 / Bridge Construction Set [En] (L/1.30) 2002
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502920.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ Theme Park (1994) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502122.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Atlantis 2: Beyond Atlantis / Атлантида 2 (1999) [Multi] (1.0) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500269.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ Traffic Giant / Транспортный гигант (2001) [Ru/En] (1.0) Unoff
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496573.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ Peter Jackson's King Kong (2005) [Ru/Multi] (1.0.0.1) Repack R.G. Механик
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491507.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ Pirates of the Caribbean: At World's End / Пираты Карибского м�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485399.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ Real Myst (2000) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483656.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483297.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ TRON 2.0 [Ru/En] (Repack/1.042) 2003 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475553.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ Clive Barker's Jericho [Ru/En] (RePack/1.0) 2007 | R.G. Element Arts
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475425.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ I.G.I. Дилогия [Ru/En] (Rip/RePack/1.0-1.2) 2000-2003 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471103.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ Clive Barker's Undying [Ru/En] (Repack) 2001 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471093.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ Lords of the Realm 3 / Властители земель 3 (2004) [Ru/En] (1.01)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463599.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ Lords of the Realms 3 посвящена истории средневековь
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:937C58B6BB2279A06C9DCC42B9E0F7FFF6C1C4C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549696   (461886) от 20.09.2012
-
-New York Race / Погоня за 5 элементом [Ru] (L) 2001
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам хотелось бы оказаться на месте Корбена Далласа, удирающего от полиции по лабиринту нью-йоркских небоскребов в 2215 году? Если да, то Ваша мечта сбылась: садитесь за руль знаменитого такси и примите участие в гонках по Нью-Йорку "Пятого элемента" со скоростью 500 километров в час! Вам предстоят воистину захватывающие воздушные гонки. На скоростных летающих машинах Вы промчитесь из конца в конец Нью-Йорка, от самых ужасных трущоб до сияющих вершин роскошных небоскребов.Тип издания: ЛицензияЖанр: Гонки, АркадаЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA8858FF7BE39D7E8CDDDF6FE0C9807FCD681F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348826   (461527) от 08.08.2022
-
-Blade Runner (1997) [Multi] (1.0.1016) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461527.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1997 году Westwood Studios выпустила игру, которая завоевала любовь игроков и критиков по всему миру и получила немало наград, в том числе титул «Лучшая приключенческая игра года» от AIAS. Игра Blade Runner, действие которой разворачиваются параллельно сюжету классического научно-фантастического фильма Ридли Скотта «Бегущий по лезвию», вышедшего в 1982 году, вернулась (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood Studios, Inc.Жанр: Приключение, От третьего лица, ФантаcтикаЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756ABF6EB675588AEC8CBDDA47ACE6E51DAE9F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

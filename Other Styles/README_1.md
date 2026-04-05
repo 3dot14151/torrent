@@ -1,3 +1,61 @@
+###  Публикация: 1442221   (1036880) от 24.01.2021
+
+Gabriella Quevedo - Acoustic Cover Songs, Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Brick In The Wall (4:27)
+02. Back (3:44)
+03. Blackbird (2:30)
+04. Californication (5:56)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29679E3EB1DF0295465921166ADE858898B3DD3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442225   (1036870) от 24.01.2021
+
+Gabriella Quevedo - Gabriella’s Acoustic Arrangements (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sultans Of Swing (5:24)
+02. That's Life (3:18)
+03. Wanted Dead Or Alive (5:02)
+04. Lay All Your Love On Me (4:48)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: 01:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CACE22C23373E01D94FF0BC8A19A255B5CEF499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616678   (1036112) от 03.03.2023
 
 VA - Enigma-Forest-Transit 2 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
@@ -6,7 +64,7 @@ VA - Enigma-Forest-Transit 2 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036112.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ David Arkenstone - Celtic Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036101.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Enigma-Forest-Transit 1 (1998) [OGG Vorbis|480 Kbps] <Electronic, Folk, Amb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036092.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - meditation mix (2023) [MP3|320 Kbps] <Meditation, Piano, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036089.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ DJ Chill del Mar - Fresh Mix Chillout 2021 [FLAC|Lossless|WEB-DL|tracks] <New ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036009.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Langhorne Slim - Strawberry Mansion (2021) [FLAC|Lossless|tracks + .cue] <Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035730.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA-Enigmatica II / DJ Fact`ry volume 2 (2001) [FLAC|Lossless|tracks + .cue] <Eni
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034913.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ FolkBeat (FolkBeat RF) - Collection (2 Album, 3 EP, 6 Singles) (2015-2020) [FLAC
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034891.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Relax Time Zone - Bathroom Wellbeing Relax with Calm Piano (2023) [FLAC|Lossless
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034797.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Enigma-Forest-Transit 5 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034731.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Enigma-Forest-Transit 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034538.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Enigma-Forest-Transit 3 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034536.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Mi
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034352.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Yakuro - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033969.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Flaer Smin - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033513.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Flaer Smin - Karma (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033506.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Yakuro - My Space (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033495.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Baran Yildiz - Interbeing (2019) [FLAC|Lossless|WEB-DL|tracks] <Handpan, World, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033396.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033392.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Romantic Piano - the Rose (1999) [FLAC|Lossless|image + .cue] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033276.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Deguess - Chillstep Piano Renditions Vol. 1 (2014) [FLAC 2.0|24/44.1|tracks|WEB-
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033267.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Wardruna - Kvitravn (2021) [FLAC 2.0|24/48|tracks + .cue|WEB-DL] <Nordic, Ambien
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033248.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Amure (Alexey Khatsko) - Дискография (2010-2020) [FLAC|Lossless|WEB|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033234.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Yulia Monastyrenko - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, P
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032507.jpg" />
 </div>
 
 
@@ -687,65 +745,6 @@ Yulia Monastyrenko - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F91A2D57C562EFC719E0041C8EF02CB34F861365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619215   (1032497) от 18.03.2023
-
-VA - Enigma-Forest-Transit 13 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indigo - Indigo Sunshine + As Above, So Below
-02. Dao Dezi - Hebrides
-03. Deep Forest - Madazulu
-04. Wes - Ken Mouka(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF19E3ECB09159F2569881BC0BDECC336ADC4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619964   (1032492) от 18.03.2023
-
-Blackmore's Night - Shadow Of The Moon (2023) 25th Anniversary Edition [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все песни были смикшированы заново и зазвучали по-новому, а в некоторых местах аранжировки обрели совсем иной характер.
-На издании присутствуют два бонус-трека, записанные Ричи и Кэндис в прошлом году - это новые акустические версии "Shadow of The Moon" и "Spirit Of The Sea".01. Shadow of the Moon (25th Anniversary New Mix)
-02. The Clock Ticks On (25th Anniversary New Mix)
-03. Be Mine Tonight (25th Anniversary New Mix)
-04. Play Minstrel Play (25th Anniversary New Mix)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C979B485CF82F614EFC6E90A1FD22D9B6B9DBD52
 ```
 
 https://mybot314.ru/tekegram_catalog/

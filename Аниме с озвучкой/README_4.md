@@ -1,3 +1,139 @@
+###  Публикация: 1446941   (1032152) от 11.02.2021
+
+Psycho-Pass: Sinners of the System | Психопаспорт: Грешники системы [2019, Movie, 3 из 3] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трилогия полнометражных фильмов, действие которых будет сосредоточено на пяти персонажах:
+
+Фильм 1: Преступление и наказание (Мика и Гино)
+(   Читать дальше...   )Производство: Япония, Production I.G / プロダクション・アイジーЖанр: приключения, фантастикаРежиссер: Сиотани НаоёсиПеревод: Sovet Romantica (1), YouNet Translate (2,3)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 1-2 фильм по 60 мин. 3 фильм 70 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F196121398DC4DC1ED98943DC82D6C6B0768CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605658   (1031994) от 20.03.2023
+
+Пожинатель огня [ТВ-1, часть 1] | Король огненной охоты [ТВ-1, часть 1] | Hikari no Ou | The Fire Hunter [2023, TV, 10 из 10] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последняя война человечества изменила мир до неузнаваемости: земли ушли под власть леса, а людей поразил некий патоген. Стоит только больному вступить в контакт с пламенем, и он сам мигом вспыхнет как спичка. Единственным безопасным источником огня для инфицированных оказались чёрные звери, именуемые Духами огня и обитающие в глубинах леса. На них люди и стали охотиться. (   Читать дальше...   )Производство: Япония / Студия Signal MDЖанр: Исторический, фэнтезиРежиссер: Нисимура ДзюндзиЯзык озвучки: Русский многоголосый, закадровый, Японский
+- Ditaro, Hekomi, Lobanow, NastyhaGrizli (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6325BE79630710BFB93112804FA4FCF1BAC4D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604781   (1031992) от 20.03.2023
+
+Ijiranaide, Nagatoro-san 2nd Attack | Don't Toy with Me, Miss Nagatoro 2nd Attack | Не издевайся, Нагаторо: Вторая атака [2023, TV, 12 из 12] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда школьник-интроверт встречает девушку по имени Хаясэ Нагаторо, его жизнь переворачивается с ног на голову. Сначала она спокойно наблюдает за его реакцией на оскорбления со стороны других школьниц, но потом с удивлением понимает, что они идут ему на пользу. Поэтому Нагаторо начинает сама дразнить его, что парадоксальным образом приводит к росту его популярности.Производство: Жанр: комедияРежиссер: Усиро СиндзиЯзык озвучки: Русский любительский двухголосый (Субтитры: Русские (Надписи (по умолчанию); SovetRomantica; Crunchyroll)Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5DEBA0603562DC43A95BE4467CEA80E0AA8927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447254   (1031940) от 12.02.2021
+
+Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, TV, 10 из 10] WebRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вскоре после Токийской Олимпиады в 2020 году японский народ погружается в хаос, возникший после сильного землетрясения. Экстремальные условия для выживания, расставания с родными и близкими — всё это не обходит стороной ни одну японскую семью.
+
+Одна из них — семья Муто, состоящая из четырёх человек, пытающаяся выбраться из города. Сталкиваясь с ужасающей реальностью, (   Читать дальше...   )Производство: Япония, Science Saru / サイエンスSaruЖанр: приключенияРежиссер: Юаса МасаакиПеревод: Sovet Romantica (1, 2), D&A SUBS (3-10)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: (10 эп.), 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF4A82F62B23D88D8F7EE990CB1A10968A12D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447290   (1031939) от 12.02.2021
+
+Странствующая ведьма [ТВ-1] | Majo no Tabitabi | Wandering Witch: The Journey of Elaina [TV-1] [2021, TV, 12 из 12] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жила-была путешественница, которую звали Элейна. Совсем молодая, она уже успела стать магом высшего разряда — ведьмой. Невероятно умная девушка, что тут ещё сказать. С раннего детства она зачитывалась путевыми заметками, а потому и сама теперь гуляет по всему свету: идёт туда, куда глаза глядят. В пути Элейне встречаются совершенно разные, необычные люди: так она (   Читать дальше...   )Производство: Япония, студия C2CЖанр: приключения, фэнтезиРежиссер: Кубоока ТосиюкиЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6A01C5F4F75F2E9CD2C614231716AE0E5EF774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447378   (1031693) от 13.02.2021
 
 Majo no Takkyuubin | Kiki's Delivery Service | Ведьмина служба доставки [1989, Movie] BDRip 1080p HEVC 10-bit raw+rus+eng
@@ -6,7 +142,7 @@ Majo no Takkyuubin | Kiki's Delivery Service | Ведьмина служба д�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031693.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031518.jpg" />
 </div>
 
 
@@ -59,7 +195,7 @@ Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + Special] BDRip 720p ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031494.jpg" />
 </div>
 
 
@@ -85,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031073.jpg" />
 </div>
 
 
@@ -112,7 +248,7 @@ Gekijouban Bem: Become Human | Bem Movie: Become Human | Бэм: Стать че
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030909.jpg" />
 </div>
 
 
@@ -138,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030847.jpg" />
 </div>
 
 
@@ -165,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030399.jpg" />
 </div>
 
 
@@ -192,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030169.jpg" />
 </div>
 
 
@@ -219,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029959.jpg" />
 </div>
 
 
@@ -246,7 +382,7 @@ Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестро�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029950.jpg" />
 </div>
 
 
@@ -272,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029763.jpg" />
 </div>
 
 
@@ -299,7 +435,7 @@ Kyou kara Ore wa!! | Сегодня и начну!! [1993, OVA, 10 из 10] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029690.jpg" />
 </div>
 
 
@@ -325,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029561.jpg" />
 </div>
 
 
@@ -355,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029555.jpg" />
 </div>
 
 
@@ -382,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028754.jpg" />
 </div>
 
 
@@ -411,7 +547,7 @@ Futari Ecchi / Step Up Love Story / Хроники молодоженов [2002,
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026810.jpg" />
 </div>
 
 
@@ -437,7 +573,7 @@ Erementar Gerad | Elemental Gelade | Воздушные пираты [2005, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026579.jpg" />
 </div>
 
 
@@ -464,7 +600,7 @@ Windaria | Once Upon a Time | Виндария [1986, Movie] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026570.jpg" />
 </div>
 
 
@@ -491,7 +627,7 @@ Shinpi no Sekai El Hazard | El Hazard: The Wanderers | Эль-Хазард: Ст
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026541.jpg" />
 </div>
 
 
@@ -518,7 +654,7 @@ Le Chevalier D'Eon | Шевалье Д'Эон [2007, TV, 24 эп.] HDTVRip 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026540.jpg" />
 </div>
 
 
@@ -545,7 +681,7 @@ Speed Grapher | Спидграфер [2005, TV, 24 эп.] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026534.jpg" />
 </div>
 
 
@@ -557,136 +693,6 @@ Speed Grapher | Спидграфер [2005, TV, 24 эп.] DVDRip 480p raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BC480CA24DC391D45A1D7D6C075C09ADA03C338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175140   (1026289) от 14.03.2021
-
-Getbackers: Dakkanya | Get Backers | Агентство по возврату утраченного [2002, TV, 49 эп.] DVDRip 480p rus+raw
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026289.jpg" />
-</div>
-
-
-###  Подробнее
-
-У вас что-то пропало? Что-то сверх ценное только для вас или что-то сверх ценное не только для вас, но и для других личностей которым это что-то позарез как необходимо? Тогда не тратьте время даром, а вперёд, в компанию двух мастеров возврата под названием *Get Backers*. Найдут, достанут (кого надо и что надо), привезут в лучшем, что называется, виде. Перечень услуг (   Читать дальше...   )Производство: студия Studio Deen / スタジオディーンЖанр: приключения, комедия, мистикаРежиссер: Фурухаси КадзухироПеревод: The knyazzz, MoonsoldierЯзык озвучки: #1: Русский; #2: Японский;Субтитры: РусскиеПродолжительность: 49 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6C0BCEC44FDCAB75EF38A3C02E345F9562D5BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453828   (1026274) от 14.03.2021
-
-Death Note | Тетрадь Смерти [2006, TV, 37 из 37] BDRip 1080p raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026274.jpg" />
-</div>
-
-
-###  Подробнее
-
-У старшеклассника Лайта Ягами в жизни есть всё: успехи в школе, популярность среди сверстниц, замечательные родители, блестящее будущее. Возможно, поэтому так тяжело ему жить в мире, полном несправедливости, и осознавать, что никакие законы не способны исправить людей – и очистить мир от зла. Но однажды юноша находит странную чёрную тетрадку и знакомится с её владельцем (   Читать дальше...   )Производство: Япония, Madhouse StudiosЖанр: Аниме, Мистика, Триллер, Детектив, ДрамаРежиссер: Тэцуро Араки, Наоясу Ханьюй, Томохико ИтоЯзык озвучки: Русский, Английский, ЯпонскийСубтитры: Русские (форсированные, полные), Английские (полные)Продолжительность: 37 серий по ~23 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92632903787ACFAFF49C7DE7E4D777D4EEE11C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438585   (1025514) от 19.03.2021
-
-Клетки за работой! КОД: ТЬМА | Hataraku Saibou Black [TV-1] [2021, TV, 13 из 13] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный эритроцит каждый день неустанно разносит кислород по телу. Но среда, где ему приходится работать, объята непроглядной тьмой… Алкоголизм, курение, стресс, нехватка сна… Что думают клетки, которые до изнеможения работают в мире, похожим на разваливающийся завод? Эта история о вашем теле…Производство: Япония, студия Liden FilmsЖанр: Боевик, Драма, КомедияРежиссер: Ямамото ХидэёЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8888FCFCE02C92A315C7B454760F0C53C083AF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416989   (1025507) от 19.03.2021
-
-Higurashi no Naku Koro ni: Gou / Higurashi: When They Cry - Gou / Когда плачут цикады (2020) [2020, TV, 24 ep] WEB-DL 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025507.jpg" />
-</div>
-
-
-###  Подробнее
-
-В том, что в тихом омуте черти водятся, юному Кэйчи пришлось убедиться на своём собственном опыте. Переехав с родителями из города в живописную деревушку Хинамидзаву и подружившись в маленькой местной школе с очаровательными одноклассницами, он даже не подозревал, насколько обманчиво его представление об этом безмятежном крае и его обитателях. Но, как позднее выяснил (   Читать дальше...   )Жанр: триллер, ужасы, мистика, детективРежиссер: Кавагути КэйитироЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизода по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D53D03D850D409A7F0B2B6747701F3AC663B69DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456438   (1024970) от 22.03.2021
-
-Доктор для девушек-монстров | Monster Musume no Oisha-san | Monster Girl Doctor [TV-1] [2020, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024970.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городе Линдворме, где люди и монстры мирно сосуществуют, молодой доктор Глен день за днём принимает пациентов! Будь то осмотр жабр русалки, наложение швов голему, помощь гарпии в откладывании яиц или же ощупывание всех чешуек у драконихи — доктор Глен готов всеми силами помочь таким разнообразным девушкам… Ассистентка-ламия Сафентита едва ли не душит его своим (   Читать дальше...   )Производство: Япония, студия Arvo Animation / アルボアニメーションЖанр: романтика, фэнтези, комедияРежиссер: Ивасаки ЁсиакиЯзык озвучки: Русский закадровый, многоголосый (AniDUB), (AniLibria), Английский дублированный (Crunchyroll)Субтитры: Русские надписи, Русский, English, Français, Español, Italiano, German, PortuguêsПродолжительность: 12 эпизодов по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A43A63DDE469D960FE832DDC981FDE48A1C5E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

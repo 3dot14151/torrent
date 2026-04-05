@@ -1,3 +1,133 @@
+###  Публикация: 1532677   (712545) от 20.02.2022
+
+Одеялко (2020) WEBRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Про то, как бурый медведь гостил у белого медведя.Производство: СССР, СоюзмультфильмЖанр: Мультфильм, короткометражкаРежиссер: Марина МошковаПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16CFDD6BBD014AF0159689BF113EB2AB1889581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130767   (712281) от 03.05.2017
+
+Лига справедливости / Justice League (2004 – 2006) 2xBlu-ray [H.264/1080p] (Сезон 2, серий 01-26 из 26)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лига доблестных героев оберегает покой человечества! Каждый воин Света располагает своими уникальными способностями и без остатка отдает себя служению людям: Бэтмен, Супермен, Флэш, Марсианский Охотник, Затанна и многие другие готовы сразиться со злодеями и армиями их прихвостней.Производство: СШАЖанр: ПриключенияРежиссер: Батч Лукич, Дэн РибаПерсонажи: Бэтмен, Супермен, Чудо-женщина, Джонн Джонзз, Флэш, Зелёный Фонарь, Орлица, Аквамен, Марсианский Охотник, ЗатаннаПеревод: ДублированныйСубтитры: НетПродолжительность: 00:22:00 x 26 серий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2647983F597D3EF3A1F04761A44BA0BAE254A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130796   (712274) от 03.05.2017
+
+Кубо. Легенда о самурае / Kubo and the Two Strings (2016) Blu-ray [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубо — наследник великого рода, но когда возвратились духи прошлого, жаждущие мести, на его защиту отважилась встать лишь странная парочка хранителей. И теперь для Кубо единственный шанс на спасение — найти магические доспехи отца, легендарного самурая.Производство: США / Focus Features, Laika EntertainmentЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Трэвис НайтПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские, английские, испанские, португальскиеПродолжительность: 01:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4E697B8226DDCC4945E52F5AF978505BE15A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130841   (712169) от 03.05.2017
+
+Кубо. Легенда о самурае / Kubo and the Two Strings (2016) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубо — наследник великого рода, но когда возвратились духи прошлого, жаждущие мести, на его защиту отважилась встать лишь странная парочка хранителей. И теперь для Кубо единственный шанс на спасение — найти магические доспехи отца, легендарного самурая.Производство: СШАЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Трэвис НайтПеревод: Дублированный (Лицензия)Субтитры: отсутствуют.Продолжительность: 01:41:36Реклама: отсутствует.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CFE8F5C05B4E155E0E57270E8A974B6FBA4658A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130885   (712103) от 03.05.2017
+
+Кубо. Легенда о самурае / Kubo and the Two Strings (2016) BDRip H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубо — наследник великого рода, но когда возвратились духи прошлого, жаждущие мести, на его защиту отважилась встать лишь странная парочка хранителей. И теперь для Кубо единственный шанс на спасение — найти магические доспехи отца, легендарного самурая.Производство: СШАЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Трэвис НайтПерсонажи: Арт Паркинсон, Шарлиз Терон, Рэйф Файнс, Джордж Такей, Кэри-Хироюки Тагава, Бренда Ваккаро, Руни Мара, Мэттью МакКонахи, Мейрик Мерфи, Мина НодзиПеревод: Дублированный (Лицензия)Субтитры: Русские, английскиеПродолжительность: 01:41:36Реклама: отсутствует.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3516AAB64EC41EDDCABD694E5F79B55D279599C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 329424   (711993) от 28.04.2011
 
 Мы с Джеком (1973) DVDRip
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711993.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711899.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711749.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711596.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711591.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711521.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711485.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711316.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710389.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710225.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710223.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710215.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710084.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710072.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709975.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709632.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709329.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709286.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709195.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709192.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709183.jpg" />
 </div>
 
 
@@ -543,138 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:126F6FC48ED4D3D527DE8CD18E1F63E70F7A18AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401495   (709052) от 10.08.2020
-
-LEGO Супергерои DC: Флэш / Lego DC Comics Super Heroes: The Flash (2018) WEB-DLRip [H.264/720p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атом посещает Зал справедливости, где знакомится с Бэтменом, Суперменом, их питомцами немецкой овчаркой Эйсом и суперпсом Крипто, а также с Киборгом. К ним присоединяются Чудо-женщина, Пластикмен и Огненный Шторм и они приглашают Атома вступить в Лигу Справедливости.
-
-Внезапно поступает сигнал тревоги и Лоис Лейн сообщает, что Джокер напал на Метрополис. Он поражает (   Читать дальше...   )Производство: США / DC Entertainment, The LEGO Group, Warner Bros. AnimationЖанр: мультфильм, фантастика, боевикРежиссер: Этан СполдингПеревод: Многоголосый профессиональныйСубтитры: русскиеПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD75B42C5BAC421FA8B2E6F6475C459C926894D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401483   (709041) от 10.08.2020
-
-ЛЕГО Фильм-2 / The Lego Movie 2: The Second Part (2019) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло пять лет с тех пор, как всё было прекрасно, и теперь жители пластмассового мира столкнулись с новой невероятной угрозой – вторженцами LEGO DUPLO®, прибывшими из космоса и разрушающими всё на своем пути куда быстрее, чем герои могут построить вновь. В результате жёлтым человечкам приходится жить в мрачной постапокалиптике, но Эммет этого не замечает и продолжает (   Читать дальше...   )Производство: Дания, Норвегия, Австралия, США / Warner Bros., Warner Animation Group, LEGO System A/SЖанр: мультфильм, мюзикл, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Майк МитчеллПеревод: Дублированный (Лицензия)Субтитры: русские, украинские, английскиеПродолжительность: 01:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACB40788184F8E7A90A1C37E2D3218D900043BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401550   (709039) от 10.08.2020
-
-Принц Египта / The Prince of Egypt (1998) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история случилась на заре цивилизации в Древнем Египте. Стремительный и величавый Нил вынес на берег перед дворцом фараона корзину с младенцем. Могущественный правитель усыновил крошечного мальчика и дал ему имя Моисей. Шли годы… Моисей и его брат Рамзес росли вместе. Но придет день, когда один из братьев станет владыкой величайшей империи на земле, а другой (   Читать дальше...   )Производство: США / DreamWorks SKG, DreamWorks AnimationЖанр: Мультфильм, мюзикл, фэнтези, драма, приключения, семейныйРежиссер: Бренда Чепмен, Стив Хикнер, Саймон УэллсАктеры: Вэл Килмер, Рэйф Файнс, Мишель Пфайффер, Сандра Баллок, Джефф Голдблюм, Дэнни Гловер, Пэтрик Стюарт, Хелен Миррен, Стив Мартин, Мартин ШортПеревод: Дублированный, профессиональный двухголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55987EBD6FC486F4DD64EDA748FB59AA134781A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401487   (708927) от 10.08.2020
-
-Лего Шазам: Магия и монстры / LEGO DC: Shazam - Magic & Monsters (2020) BDRip [H.264/720p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчику супергерою Шазаму предлагают присоединиться к Лиге Справедливости, и поначалу он сомневается. Но когда враждебное Лиге Общество Монстров наносит удар, лишь Шазам может спасти своих новых друзей.Производство: США / DC Entertainment, The LEGO Group, Warner Bros. AnimationЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Мэтт ПитерсПеревод: Многоголосый профессиональный (Flarrow Films)Субтитры: английскиеПродолжительность: 01:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C22B09B45F6742F2D6CFBFB96277F7EEDE9501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401481   (708923) от 10.08.2020
-
-ЛЕГО Ниндзяго Фильм / The LEGO Ninjago Movie (2017) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ниндзяго-сити призывает на свою защиту юного Ллойда, он же Зеленый ниндзя, и его друзей, тайных воинов и Великих мастеров ЛЕГО. Под предводительством кунг-фу мастера Ву, столь же умного, сколь и остроумного, они должны одолеть злобного диктатора Гармадона, Самого Злодейского Злодея, который оказывается отцом Ллойда. Роботы против роботов, сын против отца; эпическое (   Читать дальше...   )Производство: США, Дания, Австралия / LEGO System A/S, Lin Pictures, Lord MillerЖанр: мультфильм, боевик, комедия, приключения, семейныйРежиссер: Чарли Бин, Пол Фишер, Боб ЛоганВ ролях: Джеки Чан, Дэйв Франко, Фред Армисен, Кумэйл Нанджиани, Майкл Пенья, Эбби Джейкобсон, Зак Вудс, Дэвид Берроуз, Алекс Кауффман, Джастин ТеруПеревод: Дублированный (Лицензия)Субтитры: русские, английскиеПродолжительность: 01:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBAE93C164BB2A7BB2CE175A9A4FD85F5C9A6551
 ```
 
 https://mybot314.ru/tekegram_catalog/

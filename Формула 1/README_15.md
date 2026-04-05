@@ -1,3 +1,115 @@
+###  Публикация: 1183234   (309948) от 13.11.2017
+
+Формула 1. Гран-при Бразилии 2017. 19-й Этап. Гонка (12.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бразильский «Интерлагос» — это трасса контрастов. Конфигурация круга и перепад высот делают её едва ли не самой сложной для установки настроек болида. На первом и третьем секторе главной оказывается мощность двигателя и максимальная скорость, а на втором участке (узком и извилистом) — высокая прижимная сила.
+Трасса расположена на высоте около 800 м над уровнем моря, (   Читать дальше...   )Телекомпания: Россия, Матч HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFF3FB7E5101E29553537C1540ACEC19E779C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183241   (309930) от 13.11.2017
+
+Формула 1. Гран-при Бразилии 2017. 19-й Этап. Гонка (12.11.2017) HDTV [H.264/1080i]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бразильский «Интерлагос» — это трасса контрастов. Конфигурация круга и перепад высот делают её едва ли не самой сложной для установки настроек болида. На первом и третьем секторе главной оказывается мощность двигателя и максимальная скорость, а на втором участке (узком и извилистом) — высокая прижимная сила.
+Трасса расположена на высоте около 800 м над уровнем моря, (   Читать дальше...   )Телекомпания: Россия, Матч HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: Русские (Вшитые, отключаемые)Продолжительность: 01:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C935115ACCD0582991C9B047F94BB9976C0388E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261501   (303414) от 11.11.2018
+
+Формула 1. Сезон 2018. 20-й Этап. Гран-при Бразилии. Квалификация (10.11.2018) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303414.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 ноября 2018 года, суббота. 20:00 МСК
+Формула 1. 20-й Этап сезона 2018 года. Гран-при Бразилии. Сан-Паулу (Бразилия).
+Квалификация
+Арена: Автодром Интерлагос - Жозе Карлос Пасе (Сан-Паулу, Бразилия)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28372050ABAF803D2A8A7C758B14732EE1E65EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261503   (303398) от 11.11.2018
+
+Формула 1. Сезон 2018. 20-й Этап. Гран-при Бразилии. Квалификация (10.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303398.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 ноября 2018 года, суббота. 20:00 МСК
+Формула 1. 20-й Этап сезона 2018 года. Гран-при Бразилии. Сан-Паулу (Бразилия).
+Квалификация
+Арена: Автодром Интерлагос - Жозе Карлос Пасе (Сан-Паулу, Бразилия)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5421028A96CBF353AB919DFB868DD45E986BDA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077928   (302459) от 30.11.2016
 
 Формула 1. Гран-При Абу-Даби. Гонка (2016.11.27) HDTVRip [H.264/720p] [hand made 50fps]
@@ -6,7 +118,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302459.jpg" />
 </div>
 
 
@@ -34,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301198.jpg" />
 </div>
 
 
@@ -60,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301181.jpg" />
 </div>
 
 
@@ -88,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301167.jpg" />
 </div>
 
 
@@ -117,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300090.jpg" />
 </div>
 
 
@@ -146,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300073.jpg" />
 </div>
 
 
@@ -175,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298064.jpg" />
 </div>
 
 
@@ -204,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297950.jpg" />
 </div>
 
 
@@ -232,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297945.jpg" />
 </div>
 
 
@@ -261,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297874.jpg" />
 </div>
 
 
@@ -289,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297858.jpg" />
 </div>
 
 
@@ -317,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296741.jpg" />
 </div>
 
 
@@ -345,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296739.jpg" />
 </div>
 
 
@@ -373,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295576.jpg" />
 </div>
 
 
@@ -401,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295562.jpg" />
 </div>
 
 
@@ -429,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293756.jpg" />
 </div>
 
 
@@ -455,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291312.jpg" />
 </div>
 
 
@@ -481,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285845.jpg" />
 </div>
 
 
@@ -509,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284254.jpg" />
 </div>
 
 
@@ -537,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284085.jpg" />
 </div>
 
 
@@ -565,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283383.jpg" />
 </div>
 
 
@@ -592,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282522.jpg" />
 </div>
 
 
@@ -604,114 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA826037EAD10D0C9A0D61F32DD62EE4455BBC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187009   (282364) от 27.11.2017
-
-Формула 1. Гран-при Абу-Даби 2017. 20-й Этап. Гонка (26.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282364.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ноябре на острове Яс проходит последний этап чемпионата мира по автогонкам Формулы-1. Даже если ты не поклонник подобных развлечений, на таком мероприятии стоит побывать хотя бы раз в жизни.
-От всех остальных трасс Марина Яс отличается в первую очередь самым протяжённым прямым участком. Часть трассы проходит рядом с побережьем, поэтому наблюдать за гонкой можно (   Читать дальше...   )Телекомпания: Россия, Матч HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0A28375F22BF49298400E3650F00CA2AFF09CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586246   (281582) от 11.12.2015
-
-Формула 1 / Formula 1. Весь сезон (2012) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весь сезон Формулы 1 2012 года. Квалификация + Гонка.Телекомпания: SkySports F1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: - квалификация ~ 01:30:00;  - гонка ~ 02:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538610EE62630EBB0E2516EB061BDB863254CA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073729   (280154) от 11.12.2016
-
-Формула 1. Сезон 2016. Официальные видеоклипы / Race Edits, Race Highlights & Onboard (2016) WEBRip [H.264/720p] (21 гонка из 21)
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессионально сделанные видеоклипы в формате высокой четкости по каждой из гонок сезона 2016. А так же раздача содержит круговые клипы с каждой трассы в режиме ONBOARDТелекомпания: f1.comЖанр: СпортПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: ~00:06:00 (одна часть)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA08E7AB22C070897B76CF8D4C5634D6AADB16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264816   (277780) от 25.11.2018
-
-Формула 1. Сезон 2018. 21-й Этап. Гран-при Абу-Даби. Квалификация (24.11.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277780.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 ноября 2018 года, суббота. 16:00 МСК
-Формула 1. 21-й Этап сезона 2018 года. Гран-при Абу-Даби. Абу-Даби (ОАЭ).
-Квалификация
-Арена: Автодром Яс Марина (Абу-Даби, ОАЭ)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2977FB6DFB3847C8E4A39F907A62446BA81CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

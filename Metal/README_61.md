@@ -6,7 +6,7 @@ Royal Hunt - Devil's Dozen (2015) Japanese Limited Edition [MP3|320 кб/с]<Mel
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513945.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ U.D.O. - Steelfactory (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512818.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Order Of Elijah - Accession (2012) [MP3|320 кб/с]<Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512594.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ Marlugubre - Maladie (2022) [MP3|320 Kbps] <Death Metal, Post-Black, Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512591.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Disturbed - Immortalized (2015) Deluxe edition [MP3|320 кб/с]<Alt. Metal, Har
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512567.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Secret Signs - For A Lifetime (2012) [MP3|320 кб/с]<Gothic Metal, Female Voca
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512464.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Die Krupps - V - Metal Machine Music (2015) 2CD [MP3|320 кб/с]<Industrial Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510775.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Motorhead - Bad Magic (2015) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510706.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Tad Morose - St. Demonius (2015) [MP3|320 кб/с]<Power/Heavy, Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510336.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Soilwork - The Ride Majestic (2015) Limited Edition [MP3|320 кб/с]<Melodic De
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510046.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Soilwork - 10albums + 2EP (1998-2015) [MP3|320kbps] <Modern Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509834.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Arkuum - Trostlos (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Post-Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509544.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Within Temptation - Don't Pray For Me (2022) EP [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508935.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Through Fire - All Animal (2019) [MP3|320 kbps] <Alternative Metal, Modern Rock,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508827.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Halo Of Catastrophe - Symphony From Ruin (2022) [MP3|320 Kbps] <Melodic Heavy Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507046.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Graveyard of Shadows - Abyssal (2022) [MP3|320 Kbps] <Melodic Doom, Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506317.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ High On Fire - De Vermis Mysteriis (2012) Special Edition [MP3|320 Kbps] <Stoner
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506315.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Mothercow - Death Before Defeat (2022) [MP3|320 Kbps] <Southern, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506312.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Meei - The Aftermath (2022) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506309.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Pentagram - Curious Volume (2015) [OGG| 486-535 кб/с]<Doom Metal, Hard Rock, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506248.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Praying Mantis - Legacy (2015) [OGG| 489-523 кб/с]<Melodic Heavy Metal, Hard 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506176.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Amorphis - Under The Red Cloud (2015) Limited Edition [MP3|320 кб/с]<Progress
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505061.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Thy Art Is Murder - Human Target (2019) [MP3|320 кб/с] <Technical Deathcore, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504224.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Iron Maiden - The Book of Souls (2015) 2CD [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504078.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Black Capricorn - Cult Of Blood (2022) [MP3|320 Kbps] <Psych, Stoner, Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503816.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Birth - Birth (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503812.jpg" />
 </div>
 
 

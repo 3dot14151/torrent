@@ -1,3 +1,55 @@
+###  Публикация: 1588936   (190767) от 07.11.2022
+
+Принц драконов / The Dragon Prince (2022) WEB-DL [H.264/1080p] (сезон 4, серии 1-9 из 9) [EN / RU, EN, multi Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190767.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента битвы у Штормового шпиля минуло два года. Жители Зедии и Королевства людей налаживают новую мирную жизнь, Король Эзран пытается укрепить мир между двумя народами, а его старший брат Каллум улучшает свои навыки волшебства. Однако, на пороге появляется новая угроза – легендарный Архимаг Ааравос по прозвищу “Падшая звезда”.Производство: США, Канада / Bardel Entertainment, Madison Wells, Wonderstorm, NetflixЖанр: Мультфильм, фэнтези, боевик, триллер, драма, приключенияРежиссер: Вилладс Спандсберг, Lih Liau, Джанкарло Вольпе и Меруан СалимПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Английские и другие.Продолжительность: ~00:28:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95DC8DD0F7753364C39202266DFAF390FD4C7780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575484   (190494) от 08.11.2022
+
+Пантеон / Pantheon (2022) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка начинает получать сообщения от неизвестного номера, который утверждает, что это ее умерший отец. Пытаясь выяснить правду, она натыкается на большой заговор, связанный с сингулярностью.Производство: США, AMC StudiosЖанр: мультфильм, фантастика, драмаРежиссер: Крейг СилверстайнАктеры: Пол Дано, Уильям Хёрт, Тейлор Шиллинг, Лара Пулвер, Мод Апатоу, Скут МакНэйри, Аарон Экхарт, Дэниэл Дэ КимПеревод: Многоголосый профессиональный (NewStation)Субтитры: английскиеПродолжительность: ~00:41:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5EE775530A6B46E071C89668C0E25A157B5C8DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575485   (190484) от 08.11.2022
 
 Пантеон / Pantheon (2022) WEB-DLRip (сезон 1, серии 1-8 из 8) NewStation
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190484.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190479.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189899.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189878.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189874.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189254.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189024.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188987.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188954.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188372.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187820.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187650.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186502.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186158.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185013.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184963.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184758.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184017.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184012.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184002.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182698.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182650.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182643.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182629.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:164A3029B262517248C3A9C97A94E598E515E515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592874   (182377) от 24.11.2022
-
-Эрнест и Селестина: Короткие истории / Ernest et Célestine, La Collection (2017-2021) WEB-DLRip [H.264] (сезон 1-2, серий 1-52 из 52)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эрнест — большой косолапый медведь, клоун и музыкант — однажды приютил в своем доме маленькую Селестину — мышку-сиротку, сбежавшую из подземного мира своих сородичей. Эти два одиночки чувствуют себя очень комфортно вместе и всячески помогают друг другу, тем самым нарушая установленный порядок. Потому что обычно в мире медведей не одобряют дружбу с мышами. Как и в (   Читать дальше...   )Производство: Франция, Folivari, Les Armateurs, Mélusine Productions, So-NordЖанр: рисованная анимация, детскийРежиссер: Жюльен Шен, Жан-Кристоф РожеАктеры: Полин Брюннер, Ксавье ФаньонПеревод: ДублированныйПродолжительность: ~00:13:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80674084063F375C7522DD4458A476DA4AAC249B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665527   (182266) от 30.09.2023
-
-Разочарование / Disenchantment (2023) WEB-DL [H.264/720p-LQ] (сезон 5, серии 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в Средневековье в королевстве Дримландия, где живёт юная принцесса-алкоголичка Бин. Отказавшись выходить замуж, Бин отправляется в путешествие по стране в компании эльфа и демона. По дороге трио встретит множество фантастических тварей и дураков людского происхождения.Производство: США / Curiosity Company, The, NetFlix, ULULU CompanyЖанр: приключения, комедия, фэнтези, Для взрослыхРежиссер: Ира Шерак, Дуэйн Кэри-Хилл, Брайан ШислиПеревод: Многоголосый профессиональный (NewStation)Язык озвучки: русский, английскийСубтитры: русские, английские, украинские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:28:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938A2621BFA057E5E49B60325532AF1BEEB65D42
 ```
 
 https://mybot314.ru/tekegram_catalog/

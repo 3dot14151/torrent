@@ -1,3 +1,112 @@
+###  Публикация: 1574998   (381310) от 07.09.2022
+
+Volume Styles 4.4.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите полный контроль над ползунками громкости с помощью самого продвинутого приложения регулировки громкости в Play Store.
+Volume Styles позволит вам полностью настроить панель громкости и ползунки.
+Изменение цвета, применение различных тем, таких как iOS и MIUI, изменение положения и многое другое!
+Также, вы можете добавить дополнительные ярлыки и изменить яркость, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 16 июн. 2022 г.Разработчик: Tom BayleyПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3F7DD96732F57032E25010F6323784886C6C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574827   (381300) от 07.09.2022
+
+No Smoking 2.1.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внимание! Наша программа содержит страшные картинки!!!
+Мы создали приложение для людей, которые решили бросить курить и которые нуждаются в дополнительной мотивации.
+Наше приложение, поможет Вам более детально понять, какой ущерб Вы приносите вашему здоровью от курения сигарет.Тип издания: AdfreeРелиз состоялся: 10 февр. 2022 г.Разработчик: Vizorg AppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD20366425FBCA6F34917A1195DFA1FC099C9F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574947   (380960) от 07.09.2022
+
+1C Big Keyboard 1.89 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мне 58. Зрение не самое лучшее, на руках пальцы, а не спички. Эту клавиатуру дизайнил для себя. Если Вам нет 35, она понадобится Вам попозже, а вот вашим родителям определенно может пригодиться.Тип издания: AdfreeРелиз состоялся: 1 сент. 2022 г.Разработчик: 1C WearableПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630A4CF73971F9D3D0E2842F6C69C86CBAC06DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175300   (380925) от 17.10.2017
+
+Багаж - список вещей v2.0 AdFree [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Багаж - список вещей - это бесплатное приложение, которое поможет Вам составить список вещей, которые необходимо взять в поездку. В зависимости от времени и цели поездки, приложение самостоятельно сформирует список необходимых вещей и поможет ничего не забыть взять с собой. Сформировав список вещей, Вы можете поделится им с друзьями и знакомыми, чтобы они также ничего (   Читать дальше...   )Тип издания: Пиратка (удалена реклама)Релиз состоялся: 17.05.2017Разработчик: ianchuk.comПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86208C69D397986F8CBCF94EBBE7829BB83597F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068124   (379716) от 01.11.2016
 
 GPS HUD Speedometer Plus v3.27 [En/Rus] - спидометр с навигацией на лобовом стекле
@@ -6,7 +115,7 @@ GPS HUD Speedometer Plus v3.27 [En/Rus] - спидометр с навигаци
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379716.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379691.jpg" />
 </div>
 
 
@@ -62,7 +171,7 @@ Beyond Ynth HD  1.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379532.jpg" />
 </div>
 
 
@@ -90,7 +199,7 @@ Tides app & widget - eTide HDF 1.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379339.jpg" />
 </div>
 
 
@@ -118,7 +227,7 @@ Quick Video Recorder - Background Video Recorder v1.3.3.9 Mod by Balatan, >root<
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378129.jpg" />
 </div>
 
 
@@ -144,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377977.jpg" />
 </div>
 
 
@@ -170,7 +279,7 @@ Music Writer - Music Composer 1.2.275 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377089.jpg" />
 </div>
 
 
@@ -196,7 +305,7 @@ Universal AC Air conditioner Remote Control 8.8.7.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376995.jpg" />
 </div>
 
 
@@ -223,7 +332,7 @@ Guitar Effects, Amps, Deplike 5.9.3.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376991.jpg" />
 </div>
 
 
@@ -251,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375902.jpg" />
 </div>
 
 
@@ -277,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373899.jpg" />
 </div>
 
 
@@ -303,7 +412,7 @@ EveryCircuit v2.19 [En/Rus] - Проектирование и моделиров
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372107.jpg" />
 </div>
 
 
@@ -332,7 +441,7 @@ Helium 1.1.4.1 [Ru] - Альтернатива Titanium Backup
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371965.jpg" />
 </div>
 
 
@@ -358,7 +467,7 @@ Syberia (Full) 1.0.5 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371962.jpg" />
 </div>
 
 
@@ -384,7 +493,7 @@ Syberia 2 v1.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371852.jpg" />
 </div>
 
 
@@ -410,7 +519,7 @@ Full Scientific Calculator v1.76 Pro [En] - мощный многофункци�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370877.jpg" />
 </div>
 
 
@@ -436,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370874.jpg" />
 </div>
 
 
@@ -462,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369909.jpg" />
 </div>
 
 
@@ -488,7 +597,7 @@ Dracula 2: The Last Sanctuary v1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369899.jpg" />
 </div>
 
 
@@ -514,7 +623,7 @@ Dracula 4 V1.0.3 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369895.jpg" />
 </div>
 
 
@@ -540,7 +649,7 @@ Garmin: City Navigator Australia & New Zealand NT HERE 2016.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369726.jpg" />
 </div>
 
 
@@ -567,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369569.jpg" />
 </div>
 
 
@@ -578,111 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B341F5A58F37C51B787A00E29451AB8A6B16DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901724   (369470) от 26.10.2015
-
-The Room Two 1.06 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369470.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Room Two - Продолжение замечательной андроид игры, которая стала шедевром в мире трехмерных головоломок. Как и раньше, вас ждет большое количество комнат, в которых вам нужно решить различные задачи. Без выполнения нужной задачи, вы не сможете продвинутся дальше. В игре неплохая трехмерная графика и очень увлекательный геймплей, который не требует подробного (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 15 сентября 2015 г.Разработчик: Fireproof GamesПоддерживаемая ОС: Android 2.3+Жанр: PuzzleЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292F4D225CFDD6F8EA92516CBE3A613C5F5710ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416311   (369243) от 15.10.2020
-
-Мы из СССР v8.5.1z [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369243.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Вас ждут задания, в которых Вы окунётесь в историю великой страны СССР. Всё, что связано с Советским Союзом - люди, события, факты, предметы, привычки и обычаи, фильмы и исторические хроники - это и многое другое встретится Вам при прохождении игры СССР.Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 25.07.2020Разработчик: GYYAПоддерживаемая ОС: Android 5.0+Жанр: Словесные игрыЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4006F1F4134059D49C1EF7B921B93EB8D553EFAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102191   (367590) от 16.10.2018
-
-Terrarium TV-Premium v1.9.10 Mod v8 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terrarium TV это Android-приложение, которое позволяет просматривать поток и скачать бесплатно HD ТВ-шоу и фильмы на ваше Android устройство. Она обеспечивает практически любые телепередачи и фильмы. Абсолютно бесплатно. Вы можете загрузить их на вашем Android устройстве или смотреть онлайн. Фильмы и ТВ-шоу на оригинальном языке. К некоторым есть субтитры на русском (   Читать дальше...   )Тип издания: Пиратка (PREMIUM features Unlocked | Analytics disabled) + ModРелиз состоялся: 16.10.2018Разработчик: Terrarium TVПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395C1F161975F58BF1194FDD4BAA92B6AE5242F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950831   (367133) от 27.10.2015
-
-Мой говорящий Том / My Talking Tom 2.9.1 Mod [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра номер один в 135 странах! Возьми на воспитание маленького котенка и вырасти из него взрослого кота. Хорошо заботься о своем виртуальном любимце, дай ему имя и сделай его частью своей повседневной жизни, кормя его, играя с ним и воспитывая его, по мере того как он растет.
-Одевай Тома во что угодно — в твоем распоряжении множество предметов, а поменять можно даже (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 21 октября 2015 г.Разработчик: Outfit7Поддерживаемая ОС: Android 4.0.3 или более поздняяЖанр: КазуальныеЯзык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5938DFFF313CAF295FC181CD6E8E5722E93D1ADB
 ```
 
 https://mybot314.ru/tekegram_catalog/

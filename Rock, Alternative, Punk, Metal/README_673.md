@@ -1,3 +1,32 @@
+###  Публикация: 1067867   (383094) от 31.10.2016
+
+Theocracy - Ghost Ship (2016) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paper Tiger
+02. Ghost Ship
+03. The Wonder Of It All
+04. Wishing Well(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1F33878836298B3EA6FB53641AF744A29A7CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1068201   (383086) от 31.10.2016
 
 The Angina Pectoris - Seven Year Itch (2016) [MP3|320 Kbps] <Gothic Rock, Metal>
@@ -6,7 +35,7 @@ The Angina Pectoris - Seven Year Itch (2016) [MP3|320 Kbps] <Gothic Rock, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383086.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Suffocate for Fuck sake - In my blood (2016) [MP3|320 Kbps] <Post-Metal, Post-Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382981.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Hammer King - King Is Rising (2016) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382971.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Klee Project - The Long Way (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382965.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Evolution Eden - Modern Nostalgia (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382961.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ John Wesley - A Way You’ll Never Be (2016) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382944.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_382940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_382940.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ John Lennon - GIMME SOME TRUTH. (2020) Deluxe Edition [MP3|320 Kbps] <Rock, Sing
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382881.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Green Bullfrog - Natural Magic (1971) Reissue, 1980, ECY Street Records [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382824.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Riverside - Eye Of The Soundscape (2016) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382819.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382815.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382798.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_382757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_382757.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Rave The Reqviem - The Gospel Of Nil (2016) [MP3|320 Kbps] <Industrial Metal, Cy
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382657.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382656.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Two Door Cinema Club - Gameshow (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382653.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Roxxie Dee - Leather Up (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382650.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Ophidian Spell - Nux / Hêmera (2016) [MP3|320 Kbps] <Symphonic Death Metal, Got
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382641.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_382575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_382575.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ The Beatles - 272 Albums, 39 Singles & EPs (1962-2014) Discography /EMI Music 19
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_381931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_381931.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381692.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ Alchemists - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381664.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ WUUTHRAD - Prophecies of the Elder Scrolls (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381663.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ Doom Scroll - 2 Albums (2021) [FLAC|Lossless|WEB-DL|tracks] <Сrust Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381662.jpg" />
 </div>
 
 
@@ -711,7 +740,7 @@ The Scurves - Shelter in Place (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381661.jpg" />
 </div>
 
 
@@ -725,35 +754,6 @@ The Scurves - Shelter in Place (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:281643F3AA756BB0EDA89C9B22FB2154A2E6C89F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574764   (381660) от 07.09.2022
-
-Naked Soldier - Naked Soldier (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Green Pool (00:03:19)
-02 - No Option (00:03:58)
-03 - Embrace the Chaos (00:04:19)
-04 - Wicked Man (00:04:16)(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16B316875243E82992CE5444FFE9434600819B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1550529   (236073) от 11.05.2022
+
+Шетланд / Shetland (2014) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский сериал «Шетланд» является экранизацией романов английской сочинительницы детективов Энн Кливз. В шесть серий вошли три её произведения из колоритного «шетладского» цикла про вернувшегося на родину детектива Джимми Переса. Это «Вороново крыло», «Мёртвая вода» и «Синяя молния». На каждый из романов отводится два эпизода. В роли вернувшегося в родные туманы, (   Читать дальше...   )Производство: Великобритания / ITV Studios, Silverprint Pictures, BBC ScotlandЖанр: драма, криминал, детективРежиссер: Ян Мэттис, Тадеус О’Салливан, Ребекка ГатуардАктеры: Дуглас Хеншэлл, Элисон О’Доннелл, Стивен Робертсон, Марк Боннар, Льюис Хауден, Эрин Армстронг, Джули Грэм, Энн Кидд, Конор МакКэрри, Нив МакИнтош и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:55:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF3833DDCC7249136922F1791CD243CE8BD5CDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531025   (234434) от 18.05.2022
+
+911: Одинокая звезда / 9-1-1: Lone Star (2022) WEBRip (сезон 3, серии 1-18 из 18) RuDub (Ex-Baibako) [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-йоркский пожарный Оуэн Стрэнд вместе с сыном переезжает в Остин и влюбляется в начальницу местного госпиталя Мишель Блэйк.Производство: США / 20th Century Fox Television, Brad Falchuk Teley-Vision, Ryan Murphy TelevisionЖанр: боевик, триллер, драмаРежиссер: Брэдли Букер, Санаа Хамри, Марита ГрабякАктеры: Роб Лоу, Лив Тайлер, Ронен Рубинштейн, Сьерра Эйлина МакКлейн, Джим Пэррак, Наташа Карам, Брайан Майкл, Rafael Silva, Джулиан Уоркс, Марк Елиас и др.Перевод: Многоголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:46:00 серияРеклама: присутствуют рекламные вставки (видео / аудио / баннер)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9109FF89D2BEAC2B1243D38064281A70A56B364A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577950   (233783) от 21.09.2022
 
 Шетланд / Shetland (2018) WEB-DLRip (сезон 4, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233783.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233329.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230477.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229389.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229360.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228690.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228576.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228437.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228281.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228142.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227565.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227282.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227179.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227135.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226492.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226341.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226277.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225740.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225012.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224356.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223862.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223385.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223287.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223183.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3E2804C2300B90B54BE9A09A2601F3F970ABF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944898   (221335) от 16.12.2015
-
-Ты, я и конец света / Ты, я и апокалипсис / You, Me and the Apocalypse (2015) HDTVRip (сезон 1, серии 1-10 из 10) AlexFilm [AD]
-
->>След.
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда группа обычных людей узнаёт о комете, диаметром в тринадцать километров, которая летит навстречу Земле, они спускаются под город Слау, чтобы наблюдать за концом света по телевизору. Но кто эти люди, и как пересеклись их пути?Производство: Великобритания, США / Working Title Television, Big Balls FilmsЖанр: комедияРежиссер: Сауль Метцштайн, Тим Киркби, Майкл ЭнглерАктеры: Кайл Соллер, Эдвард Джадж, Мэтью Бэйнтон, Дженна Фишер, Джоэль Фрай, Роб Лоу, Меган Маллалли, Макс Браун, Найджел Барбер, Пол Блэкуэлл и др.Перевод: Многоголосый закадровый, профессиональный - AlexFilm
-Внимание! Присутствует ненормативная лексика.Озвучка: Татьяна Манетина, Евгения Тихонова, Пётр Гланц Иващенко, Александр Дасевич, Михаил Суслов, Михаил Шорыгин, Михаил АлексеевПродолжительность: ~00:43:00 серияРеклама: В начале каждой серии видео реклама ставок на спорт
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48172E0B8ED9C2990A9B597334F7B1ED929C4FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503570   (220581) от 01.12.2021
-
-Чаки / Chucky (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) LakeFilms [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злобная кукла Чаки вновь начинает терроризировать жителей американских пригородов.Производство: Канада, США / David Kirschner Productions, Eat the Cat, Universal Content ProductionsЖанр: УжасыРежиссер: Самир Реэм, Дермотт Даунс, Дон МанчиниАктеры: Закари Артур, Брэд Дуриф, Карина Баттрик, Кристин Элиз, Давид Кольсмит, Яна Пек, Алекс Винсент, Бьоргвин Арнарсон, Тео Брионес, Эйвери ЭстевесПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:40:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E924E54A7F85A0DD5505A72D46AFFE0ADE5AEAA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

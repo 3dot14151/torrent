@@ -6,7 +6,7 @@ Motley Crue - The End: Live in Los Angeles (2016) BDRip [H.264/1080p-LQ] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013806.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011265.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ One Desire - One Night Only - Live In Helsinki (2021) ВDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011097.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRemux [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011083.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010122.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009651.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Toto: С небольшой помощью моих друзей / Toto: With A 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008824.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008680.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007566.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [720p] [hand made 60fps]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004654.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004429.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003916.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003423.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003142.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003136.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Nightwish: Decades - Live in Buenos Aires (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002373.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ David Garrett: Music Live In Concert (2012) Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000331.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000317.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000314.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000099.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998999.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998798.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998768.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ U.D.O. - Live in Sofia (2012) Blu-Ray [custom]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998520.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Schiller / Atemlos Live (2010) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998454.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998013.jpg" />
 </div>
 
 

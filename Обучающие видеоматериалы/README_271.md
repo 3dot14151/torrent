@@ -1,3 +1,29 @@
+###  Публикация: 1273280   (137202) от 31.12.2018
+
+Itproger | Изучение Java (2018) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс рассчитан на новичков, которые хотят улучшить знания в Java разработке. В курсе будут рассмотрены такие темы, как: программирование на Java, создание UI дизайна приложений и добавление к ним функциональности, а также разработка программ в Android Studio под многочисленные Андроид устройства.Производство: ItprogerЖанр: Программирование, JavaПродолжительность: 13:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D44429D951E60076CA08F71D478E89516730EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679581   (137141) от 25.11.2023
 
 English with Lucy and Linguamarina | Boost Your Vocabulary (2022) WEB-DL [AD] [EN]
@@ -6,7 +32,7 @@ English with Lucy and Linguamarina | Boost Your Vocabulary (2022) WEB-DL [AD] [E
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137141.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Udemy, Daniel Gakwaya | The C++20 Masterclass : From Fundamentals to Advanced (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137106.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Udemy, Irek Mirgaleev | Test-Driven Development Masterclass with Angular (2019) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137077.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ CG Fast Track | Быстрый путь в Substance Painter: Основы / Sub
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136643.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Vitaly Bulgarov | Character Design and Modeling for Next-Gen Games (2009) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136625.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ CG Fast Track | Искусство освещения в Blender 2.83 / The Art 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136621.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135760.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135477.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135161.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ Fstoppers, Andres Moline | Mastering Macro Photography - The Complete Shooting a
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135155.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135142.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ English With Lucy | The Collocations Challenge (2022) WEB-DL [AD] [EN]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135109.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ Profileschool, Артур Орлов | Основы создания музык�
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135104.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ AEJuice | I Want To Learn It All Bundle (2021) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135103.jpg" />
 </div>
 
 
@@ -395,7 +421,7 @@ English With Lucy | The Vocabulary Expansion Challenge (2023) WEB-DL [AD] [EN / 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135093.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ English With Lucy | The Idioms Challenge (2022) WEB-DL [AD] [EN / EN Sub]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135081.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ English with Lucy | English Grammar Challenge (2022) WEB-DL [AD] [EN / EN Sub]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135067.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Udemy, The Table Of Bosses, Cornell Literacy | ChatGPT Python Alchemy: Elevate Y
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135054.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Udemy, Chris Sivewright | Strokes disable. Heart attacks/strokes also kill - tho
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134848.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134803.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ SlrLounge | Complete Wedding Photography Training System (2018) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134797.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134765.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134488.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134457.jpg" />
 </div>
 
 
@@ -680,7 +706,7 @@ Domestika, Alexander Steenhorst | Drawing the Human Figure & Expressive Poses (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134453.jpg" />
 </div>
 
 
@@ -693,33 +719,6 @@ Domestika, Alexander Steenhorst | Drawing the Human Figure & Expressive Poses (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:176636BAF3A06580A97F4CD5C55CA57291313933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680301   (134451) от 28.11.2023
-
-5DayDeal | Video Creators Bundle (2023) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основной пакет
-Идеальный стартовый набор для создания видео для всех, кто хочет превратить свои видео-творения из скучных в зрелищные — будь то видеоролики для социальных сетей, рекламные ролики, высококачественные фильмы или что-то среднее.Производство: 5DayDealЖанр: Видео продакшнЯзык озвучки: АнглиийскийПродолжительность: 39:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2132D0C327E308E85F26371679623F71CAD91E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1127616   (729365) от 23.04.2017
+
+В Microsoft появилась дисциплина? Windows 10 будет обновляться строго в марте и сентябре
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729365.jpg" />
+</div>
+
+
+###  Подробнее
+
+До сегодняшнего дня трудно было угадать, когда Microsoft выкатит обновления с новыми функциями (feature upgrade) для Windows 10. С сентября 2017 года график выхода станет более стабильным: компания объявила, что большие обновления Windows 10, Office 365 ProPlus и System Center Configuration Manager будут выходить дважды в год по установленному графику: в сентябре (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127962   (729363) от 23.04.2017
+
+Sandboxie 5.18 Final [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie - небольшая, но достаточно интересная программа, которая расценивается как дополнение для веб-браузеров, призванное повысить безопасность ПК при работе с "неблагонадежными" сайтами. Sandboxie защищает компьютер ото всех нежелательных изменений, которые могли бы быть совершены активным содержимым сайтов (например, установка нежелательного ПО). (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF02FDBD93E8F5D3E7E2A03D56E4C36BE822839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022210   (729314) от 01.06.2016
+
+Суперкомпьютер рассчитал самое большое математическое доказательство, объем данных которого составил 200 терабайт
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое ученых, Мэриджн Хеул (Marijn Heule) из Техасского университета, Оливер Куллман (Oliver Kullmann) из университета Суонси и Виктор Марек (Victor Marek) из университета Кентукки загрузили суперкомпьютер задачей поиска доказательства одной из известных математических проблем. Для поиска этого доказательства суперкомпьютеру требовалось "перемолотить" более (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128073   (729293) от 23.04.2017
+
+Стоимость бензина в России превысила цены на топливо в США
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бензин в США в первом квартале 2017 года стал в среднем дешевле, чем в России. Таковы результаты исследования агентства Bloomberg.Разница в цене заметна, если за единицу измерения взять американский галлон, который составляет 3,785 литра. По состоянию на 19 марта его средняя стоимость за три месяца в США составила 2,57 доллара, а в России — 2,58 доллара, что эквивалентно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127695   (729289) от 23.04.2017
+
+Adobe Audition CC 2017.1 10.1.0.174 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FBFBD8582A340C5554070363230597BD13C23F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021926   (729230) от 01.06.2016
+
+Компания General Atomics начинает разработку корабельного рельсового орудия, мощностью 10 МДж
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729230.jpg" />
+</div>
+
+
+###  Подробнее
+
+На симпозиуме Navy League's 2016 Sea-Air-Space, который проходил в середине мая этого года, представители известной оборонной компании General Atomics объявили о том, что они выделили 50 миллионов долларов из собственных средств и направили их на разработку нового рельсового орудия, энергия выстрела которого будет равняться 10 МДж (мегаджоулям). Таким образом руководство (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128239   (729205) от 23.04.2017
 
 Adobe Premiere Pro CC 2017.1 11.1.0.222 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +162,7 @@ Adobe Premiere Pro CC 2017.1 11.1.0.222 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729205.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Autodesk AutoCAD 2018.0.2 x86-x64 RUS-ENG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729200.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Adobe Photoshop CC 2017 (v18.1.0) x86-x64 RUS/ENG Update 2
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729198.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729197.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729196.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729195.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729194.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729154.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Corona Renderer 1.4 for 3ds Max 2011-2017 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729139.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729137.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Navitel / Навител Навигатор 9.6.2519 Full [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729133.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729131.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ The Witcher: Anthology / Ведьмак: Антология (2008-2015) [Ru/Mult
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729130.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ SCAD Office 21.1.1.1 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729129.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Promt Professional 9.0.443 Giant & Спец. словари 9.0 Unattended
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729072.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729071.jpg" />
 </div>
 
 
@@ -423,7 +579,7 @@ Commandos Антология [Ru] (L) 2011 | R.G. Origins
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729067.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729045.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729041.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729040.jpg" />
 </div>
 
 
@@ -515,163 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284361   (728411) от 21.02.2019
-
-Ежегодное послание Президента России Владимира Путина Федеральному Собранию (20.02.2019) HDTV [H.264/1080i-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Путин обратился с Посланием к Федеральному Собранию. Церемония оглашения прошла в Москве, в Гостином дворе. На церемонии присутствовали члены Совета Федерации, депутаты Государственной Думы, члены Правительства, руководители Конституционного и Верховного судов, губернаторский корпус.Телекомпания: Россия 1 HDЖанр: Документальный, ПолитикаСубтитры: отсутствуютПродолжительность: 01:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F271DA56B62EEDA1B7CE9CE267662DA1726C6F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284124   (728377) от 21.02.2019
-
-Пользователи Windows 7 должны будут установить патч поддержки SHA-2, чтобы получать обновления
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_728377.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале 2019 года Microsoft планирует выпустить обновления для операционных систем Windows 7 и Windows Server 2008, которые добавят поддержку обработки обновлений SHA-2На данный момент все обновления доставляются с помощью SHA-1 и SHA-2. Алгоритм хеширования SHA-1 имеет ряд известных недостатков, и Microsoft планирует отказаться от SHA-1 и полностью перейти на улучшенный (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284036   (728376) от 21.02.2019
-
-Хроники хищных городов / Mortal Engines (2018) WEB-DL [H.264/1080p] [Open Matte]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошли тысячелетия после того, как мир настиг апокалипсис. Человечество адаптировалось и теперь живет по новым правилам. Гигантские движущиеся мегаполисы рассекают пустоши и поглощают маленькие города ради ресурсов. Том Нэтсуорти из нижнего уровня великого Лондона оказывается в смертельной опасности, когда на его пути появляется скрывающаяся от закона бунтарка Эстер (   Читать дальше...   )Производство: Новая Зеландия, США / Media Rights Capital (MRC), Scholastic Productions, Silvertongue FilmsЖанр: Фантастика, фэнтези, боевик, триллер, приключенияРежиссер: Кристиан РиверсАктеры: Гера Хилмарсдоттир, Роберт Шиэн, Хьюго Уивинг, Джихе, Ронан Рафтери, Лейла Джордж, Патрик Мэлахайд, Стивен Лэнг, Колин Сэлмон, Марк МитчинсонПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 02:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD2994A5549858274FEFCCF235CABFC1A461B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284340   (728373) от 21.02.2019
-
-Metro Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.0.0/dlc) License CPY [Gold Edition]
-
->>3
->>20
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728373.jpg" />
-</div>
-
-
-###  Подробнее
-
-2036 год. Прошло четверть века с тех пор, как ядерная война опустошила землю. Москва лежит в руинах, и несколько тысяч выживших вынуждены бороться за существование в тоннелях метро. Их не убила отравленная природа и мутировавшие чудовища, они пережили сверхъестественный кошмар и ужасы гражданской войны.Тип издания: LicenseРазработчик: 4A GamesЖанр: Action, shooter, 3D, 1st personЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE996041B75CBE9811B22DF29ECC47FECF89C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529720   (728329) от 11.02.2022
-
-Правда ли, что существует профессия переворачивателя пингвинов?
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_728329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие слышали об уникальных работниках Южного Заполярья — переворачивателях, или поднимателях, пингвинов, которые спасают жизнь опрокинувшимся на спину птицам, помогая им снова принять вертикальное положение. Мы выяснили, существует ли такая профессия.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 41491   (728308) от 11.02.2022
-
-BBC: Планета Земля / Planet Earth (2006) HD-DVDRip [H.264/720p] (серии 1-11 из 11) [PR]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели отмеченного многократными наградами документального сериала "Голубая планета" сделали новый фильм, показывающий Землю такой, какой ее еще никто не видел прежде. Невероятные по красоте пейзажи и очаровательная дикая природа самых заповедных и малоизученных уголков нашей планеты. Земля предстает во всем своем многообразии, рассказывая самые сокровенные (   Читать дальше...   )Производство: Великобритания / British Broadcasting Corporation (BBC)Жанр: Документальный, ПриродаРежиссер: Аластер Фотергилл, Марк ЛинфилдПеревод: профессиональный одноголосый (читает Николай Дроздов)Продолжительность: серии ~ по 50 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A81CF38C6AE8BE0C78B969C8FD7541A19EF570C
 ```
 
 https://mybot314.ru/tekegram_catalog/

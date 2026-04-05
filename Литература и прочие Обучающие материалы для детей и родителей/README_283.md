@@ -1,3 +1,55 @@
+###  Публикация: 1063666   (432147) от 17.10.2016
+
+Владимир Сутеев | Сказки и картинки (2016) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Григорьевич Сутеев знаком нам как автор и иллюстратор книжек для детей, однако знаменит он не только этим. В. Сутеев стоял у истоков советской и ныне — российской — мультипликации, он работал и сценаристом (написал около 40 (!) сценариев, которые почти все были экранизированы), и режиссёром, и, конечно, художником! Все сказки, вошедшие в эту книгу, тоже (   Читать дальше...   )Жанр: Детская проза, сказкаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9878B245EDE047AAF79136C16B33470A2526E41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410984   (431827) от 23.09.2020
+
+Елена Зимирёва | Всё для детского сада. Самолёты (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из небольшой книжки "Самолёты" серии "Всё для детского сада" - юные читатели узнают, почему самолёт летает, зачем ему нужны крылья, как они устроены и как работают, зачем нужен хвост, какие бывают двигатели и ещё много интересного. Мальчики и девочки побывают в аэропорту, поймут, на что смотреть в иллюминатор, когда они полетят на самолёте, и (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B9D305CF6597FC8DAEFDAB53F8C97E78A3D9DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571525   (431770) от 22.08.2022
 
 Русская народная сказка | Кот Котофеевич (1959) [PDF]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431770.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431740.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431728.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431686.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431559.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431428.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431420.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430609.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430344.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430340.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430303.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430296.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430294.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429715.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429710.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429709.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429704.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429693.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429603.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429601.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429490.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429304.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429082.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429068.jpg" />
 </div>
 
 
@@ -633,61 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:111DE4962C25988E432D5E4200D24B123E842C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165998   (428475) от 15.09.2017
-
-Виктория Романенко | Маленьким эрудитам (2004) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вам совершить увлекательное путешествие в сказочную страну гномов. Оно непременно заинтересует вашего маленького непоседу.
-Занимаясь вместе с Людвиком, ребёнок научится логически рассуждать, сравнивать и считать предметы, составлять высказывания на основе рисунков, обобщать; ознакомится с понятиями «головоломка», «кроссворд», «ребус».
-Сведения о жизни (   Читать дальше...   )Жанр: ДосугФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA12F22FCDD23A2A89661855A440BFED4F7E0A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064328   (428211) от 19.10.2016
-
-Александр Асмолов | Сказочные дали [4 книги] (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки Дальнего леса. Книга 1
-В лесу под названием Дальний стало исчезать время. Некоторые и не сразу заметили беду. А вот забавный медвежонок, который раньше только менялся снами, стал попадать в другие времена и судьбы. Ему открылась пещера Желаний, где можно становиться кем угодно. Это место тайных забав повелителя времени, но медвежонок оказался там не случайно. (   Читать дальше...   )Жанр: Сказки. Детская фантастика. Детские приключения.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D4E8E324E23A4F9C01B24E95DA296EE01AA6D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

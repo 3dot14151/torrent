@@ -1,3 +1,59 @@
+###  Публикация: 1024195   (715834) от 09.06.2016
+
+Meteora - Gradients II Westerlies (2016) [MP3|320 кб/с] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyclone Belt
+02. Twisting Monster
+03. Westerlies
+04. Cataclysm(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 01:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BB58EA58471BAD1A79B1025EE0B4E35605670A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025836   (715753) от 01.05.2017
+
+Label Pack - Rielism - 45 Releases (2015-2017) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GoRiel (07:01)
+02. GoRiel (JOC deconstruction) (05:50)Жанр: TranceПродолжительность: 05:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8326881C29A15EA88D3CCF64C2533C4BCD85077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 893079   (715362) от 28.04.2015
 
 Biosphere - Microgravity (Expanded Edition) (2015) [FLAC|Lossless|WEB-DL]<Techno Ambient, Downtempo>
@@ -6,7 +62,7 @@ Biosphere - Microgravity (Expanded Edition) (2015) [FLAC|Lossless|WEB-DL]<Techno
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715362.jpg" />
 </div>
 
 
@@ -36,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715229.jpg" />
 </div>
 
 
@@ -64,7 +120,7 @@ Thomas Gandey - 4 Releases (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715089.jpg" />
 </div>
 
 
@@ -93,7 +149,7 @@ Lost Souls Of Saturn - Holes In The Holoverse (2019) EP [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715087.jpg" />
 </div>
 
 
@@ -121,7 +177,7 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715085.jpg" />
 </div>
 
 
@@ -150,7 +206,7 @@ Washed Out - Purple Noon (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715023.jpg" />
 </div>
 
 
@@ -179,7 +235,7 @@ Weval - The Weight (2019) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Dub, Downtempo,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714931.jpg" />
 </div>
 
 
@@ -208,7 +264,7 @@ Chris Wonderful - Music for Lovers, volume 1 (2013/2018) [FLAC|Lossless|image + 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714927.jpg" />
 </div>
 
 
@@ -237,7 +293,7 @@ Gregory Esayan - My Guiding Star (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714923.jpg" />
 </div>
 
 
@@ -266,7 +322,7 @@ Giuseppe Ottaviani - Liberation V6: Wax Format 10 Years (Vinyl Set), Fabric Lond
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714746.jpg" />
 </div>
 
 
@@ -295,7 +351,7 @@ CHVRCHES - 4 Альбома, 3 EP, 2 Сингла (2013-2018) [FLAC|tracks|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714511.jpg" />
 </div>
 
 
@@ -324,7 +380,7 @@ VA - Chill Out Brain Playlist (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714487.jpg" />
 </div>
 
 
@@ -353,7 +409,7 @@ VA - Bhudda Propensity (Deep Serendipity Mind State) (2017) [MP3|320 Kbps] <Bale
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714486.jpg" />
 </div>
 
 
@@ -382,7 +438,7 @@ VA - Wet & Hot Chill Beatz (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714482.jpg" />
 </div>
 
 
@@ -411,7 +467,7 @@ VA - In The Mood For Love Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714426.jpg" />
 </div>
 
 
@@ -440,7 +496,7 @@ Aly & Fila - Future Sound Of Egypt 494 (2017) [MP3|320 Kbps] <Trance,Uplifting T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714425.jpg" />
 </div>
 
 
@@ -469,7 +525,7 @@ Saint Of Sin, Thunderbrain - 45 Minutes Epic Fantasy Music (2017) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714416.jpg" />
 </div>
 
 
@@ -498,7 +554,7 @@ VA - Piano del Mar: Easy Listening Chill Lounge Moods (2017) [MP3|320 Kbps] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714415.jpg" />
 </div>
 
 
@@ -527,7 +583,7 @@ VA - Running Magic 90s Comeback Hits (2017) [MP3|320 Kbps] <Funky, Club House, D
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714413.jpg" />
 </div>
 
 
@@ -556,7 +612,7 @@ Hatikwa - The Second Narration (2017) [MP3|320 Kbps] <Goa Trance, Psy-Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714341.jpg" />
 </div>
 
 
@@ -585,7 +641,7 @@ COAM - The Study Of Change (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychi
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714335.jpg" />
 </div>
 
 
@@ -614,7 +670,7 @@ Clouds Testers, Arne Woutersax - Messenger (2015) [FLAC|Lossless|tracks] <Electr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714140.jpg" />
 </div>
 
 
@@ -643,7 +699,7 @@ Wilkinson - Hypnotic (2017) [FLAC|Lossless|WEB-DL|tracks] <Mainstream Drum & Bas
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714122.jpg" />
 </div>
 
 
@@ -672,7 +728,7 @@ vidnaObmana - Crossing The Trail | Deluxe 20th (2018) Projekt Records [FLAC|Loss
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714028.jpg" />
 </div>
 
 
@@ -686,64 +742,6 @@ vidnaObmana - Crossing The Trail | Deluxe 20th (2018) Projekt Records [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:233003FCCA8DB6AA983E097EA418DCF93E25EA51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219422   (714026) от 14.04.2018
-
-VA - Miami South Beach Sessions (2018) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina Lares – You And I (Tony Humphries Unreleased Guitar Mix) (8:29)
-02. Teflon Dons – Tomorrow People (Applejac’s Unreleased Unhooked Generation Remix) (feat. Gregory Porter) (7:38)
-03. Nina Lares – Uncover Me (AC’s Unreleased Afternoon Delight Remix) (7:23)
-04. David Harness – Feeling Mighty (feat. Ultra Nate) (5:20)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37119A278DE370563D5332DB8F990D1EACBD52C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219383   (713912) от 14.04.2018
-
-VA - Ibiza Deep House Sensations (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daspa - Alone 5:07
-02. Djschluetex - Feel Them 4:13
-03. 246 - Prophets Of Science Fiction 4:28
-04. Chrizz Morisson - Never Give Up (Dub Mix) 4:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86C8E57E9FE1E53BF388128251044665C90F21A
 ```
 
 https://mybot314.ru/tekegram_catalog/

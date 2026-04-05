@@ -1,3 +1,108 @@
+###  Публикация: 163902   (987211) от 06.01.2010
+
+Audio Comparer 1.0.901 Rus
+
+>>След.
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Comparer ™ это Windows приложение для поиска схожих по звучанию MP3, MP2, MP1, WMA, AIF, WAV, WavPack, FLAC, APE, AAC и OGG аудиофайлов. Основное применение программы - это поиск дубликатов аудиофайлов и файловые операции с ними - перемещение, удаление, копирование.
+Главное отличие Audio Comparer от других поисковиков дубликатов MP3 заключается в том, что Audio Comparer "слушает" ваши аудиофайлы и сравнивает их по звучанию, а не по тэгам или каким-то внешним файловым признакам. Программа работает примерно как и человеческое ухо, но необычайно быстрое и с практически неограниченной памятью. При этом программа никогда не забывает услышанную однажды мелодию. Именно поэтому программа умеет находить дубликаты, даже если они сжаты разными алгоритмами и с различным битрейтом. Audio Comparer умеет находить похожие файлы, в то время как конкуренты, не умеющие анализировать аудио-файлы по их звучанию, могут находить только полные файловые дубликаты.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973234   (979775) от 08.01.2016
+
+QuickTime Pro 7.7.9.80.95 [Multi/Ru]
+
+>>След.
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979775.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuickTime - это мощная, надежная, гибкая платформа с широчайшими возможностями для работы с мультимедийными технологиями, дающая широчайшие возможности. При помощи QuickTime Pro вы можете преобразовать файлы в формат, оптимизированный для iPhone, iPad, iPod, Apple TV и других устройств.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341A4F3F569A0FBCED32110953254F9716782C0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360518   (959077) от 16.02.2020
+
+DVDFab Player Ultra 6.0.0.9 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959077.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVDFab Media Player - мультимедийный плеер для Windows, способный качественно проигрывать видео различных форматов. Многие используют его для просмотра Blu-ray (UHD) дисков, тоже самое относится к DVD носителям. DVDFab Media Player не только проигрывает Blu-Ray, DVD диски и другие видео файлы во всех форматах, но и воспроизводит Blu-Ray папки, файлы ISO-образов, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25DD148BF646127CF39EE32DF3E48DF2ECD5970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099011   (905971) от 31.01.2017
+
+SAM CoDeC & DeCoDeR Pack 2017 6.12 [Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сейчас существует множество различных кодек-паков, но подбор компонентов в них не является оптимальным и не дает возможности просмотра максимального числа форматов файлов без поиска дополнительных декодеров или фильтров. SamLab предлагает свой вариант подборки нужных декодеров и кодеков для проигрывания и упаковки мультимедийных файлов. Теперь все декодеры, которые (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69889C98D78B4EC956628CE4FF4763B1226A370E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839198   (824258) от 27.11.2025
 
 VLC Media Player 3.0.22 + Portable [Multi/Ru]
@@ -6,7 +111,7 @@ VLC Media Player 3.0.22 + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824258.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ GoPro VR Player 2.2.0 [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823824.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.7.13 Final + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799703.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ Soft4Boost AMPlayer 5.7.1.315 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793287.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ Aurora Blu-ray Media Player 2.19.4.3289 RePack by вовава [Ru/En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788460.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ Zoom Player MAX 14.1 Build 1410 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785202.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ SopCast 4.1.0 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760504.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ VideoSolo Blu-ray Player 1.0.18 RePack by вовава [Ru/En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737724.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ CyberLink PowerDVD 16.0.1713.60 VL Corporate | Corporate BD [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725449.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723026.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ Tipard Blu-ray Player 6.2.12 RePack by вовава [Ru/En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723016.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ AnyMP4 Blu-ray Player 6.3.16 RePack by вовава [Ru/En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723011.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ Leawo Blu-ray Player 1.9.3.5 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675789.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ CoreAVC 3.0.1 Professional Edition [Английский]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671774.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ J.River Media Center 20.0.113 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652781.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ Wise Video Player 1.15.28 RePack (& Portable) by ZVSRus [Ru/En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648142.jpg" />
 </div>
 
 
@@ -427,7 +532,7 @@ DVDFab Media Player 3.0.0.0 Final [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628183.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ DivX Pro 10.6.1 Retail (Веб-установщик) [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627863.jpg" />
 </div>
 
 
@@ -479,7 +584,7 @@ JRiver Media Center 25.0.40 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575730.jpg" />
 </div>
 
 
@@ -505,7 +610,7 @@ Media Player Codec Pack 4.4.5 [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573930.jpg" />
 </div>
 
 
@@ -532,7 +637,7 @@ Mirillis Splash v2.7.0 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541448.jpg" />
 </div>
 
 
@@ -558,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519247.jpg" />
 </div>
 
 
@@ -569,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75EA4871C68900B09ACF9482CCB1DBF3391AF583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934003   (504110) от 03.09.2015
-
-ZJMedia Easy DVD Player 4.6.4.2065 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный в работе "все в одном", медиа проигрыватель для PC. Он способен воспроизвести разные Blu-ray диски с очень высоким качеством. Этот удивительный плеер, может воспроизводить не только blu-ray диски, но и все популярные видео и аудио форматы, а также ISO-образы. Он надежен и прост в применении.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529216EEFBF85FCC4A1002601F2F63ABAC80D703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935762   (498122) от 09.09.2015
-
-Corel WinDVD Pro 11.7.0.7.301148 [Multi/Ru]
-
->>След.
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corel WinDVD Pro 11 — это передовой проигрыватель двух- и трехмерных видеоматериалов, поддерживающий Blu-ray 3D™, AVCHD™, DVD и все новейшие видеоформаты. WinDVD входит в число самых популярных продуктов в мире: на сегодняшний день продано уже более 250 миллионов копий. К особенностям этой новой версии относятся технология воспроизведения трехмерных видеоматериалов, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C6AA4B19500FA7A4F02B36C6F6AC2CAF48176C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935867   (496998) от 10.09.2015
-
-Nvidia 3D Vision Video player 1.7.5 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоплеер от известного производителя видеокарт и драйверов компании Nvidia. Плеер способен воспроизводить видео форматы (*.avi), MPEG-1 (*.mpg), MPEG-2 (*.mpg, *.m2ts, *.mts, *.ts), MP4 (*.mp4), 3D Blu-ray files (*.ssif), Windows Media (*.wmv, *.asf), QuickTime (*.mov), Material Exchange Format (*.mxf), Matroska (*.mkv) и Flash (*.flv), поддерживает файлы Windows (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C27869C9A54E05031E2A3E24A1A180586DE82B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936545   (493305) от 12.09.2015
-
-Corel WinDVD Pro 11.7.0.7 RePack by KpoJIuK [Ru]
-
->>След.
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corel WinDVD Pro 11 — это передовой проигрыватель двух- и трехмерных видеоматериалов, поддерживающий Blu-ray 3D™, AVCHD™, DVD и все новейшие видеоформаты. WinDVD входит в число самых популярных продуктов в мире: на сегодняшний день продано уже более 250 миллионов копий. К особенностям этой новой версии относятся технология воспроизведения трехмерных видеоматериалов, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6386E994474F5910084F5718E91AE554178D7AD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

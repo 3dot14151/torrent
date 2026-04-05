@@ -6,7 +6,7 @@ Art Pepper - The Complete Surf Ride Plus (1951 - 1954) 2CD, 2002, Savoy Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693431.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Buddy Rich - Three Classic Albums Plus (1953 - 1955) 2CD, 2012, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692470.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Humphrey Lyttelton - Four Classic Albums Plus (1950 - 1958) 2010, 2CD, Avid Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692443.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jeremy Bruger - Moods (2020) Black & Blue [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692359.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dominique Di Piazza - Living Hope (2016) La Note Bleue Prod [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692229.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dizzy Gillespie - Diggin' Dizz (1937 - 1954) 2CD, 2008, Le Chant du Monde [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692227.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Miriam Aida & Fredrik Kronkvist - Live At The Palladium (2005) Sittel Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692224.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Anthony Braxton - Nine Compositions (Hill) (2000) CIMP [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691665.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Hiram Bullock - First Class Vagabond (1982) 2000, JVC [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691663.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Paul Desmond - Glad To Be Unhappy (1963, 1964) 2017, Sony Music [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691662.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Serge Chaloff - Blue Serge (1956) 1992, Toshiba-EMI [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691538.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Joanne Brackeen & Clint Houston - New True Illusion (1976) Remaster, 2015, Solid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690971.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Warren Wolf - Convergence (2016) Mack Avenue Records[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690967.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Benjamin Faugloire Project - Birth (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690965.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Brad Mehldau Trio - Blues and Ballads (2012/2014) 2016, Nonesuch Records[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690878.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Cannonball Adderley Quintet - The Price You Got To Pay To Be Free (1970) 2016, R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690877.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Earl Hines - One For My Baby (1974) 1994, Black Lion [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690844.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Alison Young - So Here We Are (2018) Triplet Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690599.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Fredrik Kronkvist 3 - In The Raw (2006) Connective Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690513.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jack Teagarden - 1934 - 1939 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689776.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Miles Davis - Ascenseur Pour L'Echafaud (Complete Recordings) (1958) Reissue, Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689661.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Vladimir Tolkachev (Владимир Толкачев) Big Band - Plays Duke (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689569.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Alice Francis - Electric Shock (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689098.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Cy Touff - His Octet & Quintet (1955) 1998, Pacific Jazz Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688949.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Brother Jack McDuff & David Newman - Double Barrelled Soul (1967) Remaster, 2012
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688861.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jimmy Smith - The Complete Sermon Sessions (1957-1958) 2CD, 2009, Groove Hut Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688856.jpg" />
 </div>
 
 

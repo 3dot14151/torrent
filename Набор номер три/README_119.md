@@ -1,3 +1,162 @@
+###  Публикация: 614060   (891750) от 04.04.2013
+
+Dead Space 3 (2013) [Ru/En] (1.0.0.1/8dlc) Repack Fenixx [Limited Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891750.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Dead Space 3 Айзек Кларк и не знающий жалости солдат Джон Карвер отправятся далеко в космос, чтобы найти источник нашествия некроморфов. Совершив аварийную посадку на заснеженной планете, Айзек вынужден преодолевать суровые условия окружающей среды в поисках ресурсов и деталей для оружия. Чтобы выжить, придется задействовать все свои инженерные навыки. На холодной (   Читать дальше...   )Тип издания: RePackРазработчик: Visceral GamesЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7D634714A08DFE8E23088F5B4BD315907B2FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561353   (891748) от 04.04.2013
+
+Ходячие мертвецы / The Walking Dead (Сезон 3 полный (16)) (2012) WEB-DLRip (Кубик в кубе)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891748.jpg" />
+</div>
+
+
+###  Подробнее
+
+После страшной болезни, превратившей жителей Земли в зомби, небольшая группа пока еще живых людей изо дня в день борется за выживание в новом, враждебном мире. Под предводительством бывшего полицейского Рика они ищут безопасное для жизни место, но зомби — это не самое страшное, что их ждет, основная опасность — это жестокое внутреннее соперничество среди выживших...Производство: США, AMCЖанр: Ужасы, триллер, драмаРежиссер: Фрэнк Дарабонт, Эрнест Р. Дикерсон, Гай ФерлендПеревод: Профессиональный двухоголосый закадровый - Кубик в кубеПродолжительность: ~ 45:00 мин серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562436   (891745) от 04.04.2013
+
+Ходячие мертвецы / The Walking Dead (Сезон 3 полный (16 серий)) (2012) WEB-DLRip (LostFilm)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891745.jpg" />
+</div>
+
+
+###  Подробнее
+
+После страшной болезни, превратившей жителей Земли в зомби, небольшая группа пока ещё живых людей изо дня в день борется за выживание в новом, враждебном мире. Под предводительством бывшего полицейского Рика они ищут безопасное для жизни место, но зомби — это не самое страшное, что их ждёт, основная опасность — это жестокое внутреннее соперничество среди выживших.Жанр: Ужасы, триллер, драмаПеревод: Профессиональный многоголосый закадровый - LostFilmОзвучка: Студия "LostFilm"Формат: AVIПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24F37A61A7869A1F81310BA76D11356DD920390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 638225   (891743) от 04.04.2013
+
+WINDOWS 7 ULTIMATE x64 REACTOR FULL 04.13 [Russian]
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891743.jpg" />
+</div>
+
+
+###  Подробнее
+
+За основу взят оригинальный образ
+ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso
+Оставлена одна, полная редакция Ultimate
+Компоненты не удалялись(   Читать дальше...   )Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 7866   (891726) от 05.09.2021
+
+Classic Albums: Nirvana - Nevermind (2005) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безумно интересный фильм. Большую часть фильма показывают Батча Вига, который сидит за пультом и просто до мозга костей разбирает записи с альбома NEVERMIND, параллельно комментируя звучание голоса, гитар и всего звука в целом. Он по отдельности разбирает все партии гитар и вокала. Показывает, как бы это звучало без наложения двойного голоса Курта, без добавления (   Читать дальше...   )Жанр: Видеоклипы, концертыПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0706F18C6B82BFAF08D387CB4DADF142BB2602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 299507   (891720) от 05.09.2021
+
+Миссия невыполнима / Mission: Impossible (1971) DVDRip (Сезон 6, серии 01-22 из 22) В.Белов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа оперативников, подчиняющаяся таинственному «министру», выполняет крайне сложные задания: предотвращение убийства политиков и ученых, срыв планов мафиози, мошенников, шпионов и диктаторов, возврат украденных ценностей, секретных документов и приборов… и множество других заданий. Много операций проводится в странах Восточной Европы, в которых у руля стоят коммунисты.Производство: США, Desilu Productions (1966-1968), Paramount Television (1968-1973)Жанр: Боевик, Приключения, ТриллерРежиссер: Реза Бадии, Бэрри Крэйн, Пол Красны и др.Актеры: Питер Грейвз, Барбара Бэйн, Грег Моррис и др.Перевод: Одноголосый закадровый, любительский - В.БеловПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2364BAF96C3420D2DB583FF398DC307200087CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 191438   (891712) от 05.09.2021
 
 Миссия невыполнима / Mission: Impossible (1969) DVDRip (Сезон 4, серии 01-26 из 26) В.Белов
@@ -6,7 +165,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891712.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891711.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891710.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891709.jpg" />
 </div>
 
 
@@ -113,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891708.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ Carbon Based Lifeforms - Discography 27 Releases (1998-2021) Ultimae Records, Le
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891707.jpg" />
 </div>
 
 
@@ -168,7 +327,7 @@ HITMAN 3 / HITMAN III (2021) [Ru/Multi] (3.50.0/upd8/dlc) Repack =nemos= [Deluxe
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891706.jpg" />
 </div>
 
 
@@ -194,7 +353,7 @@ CRSED: FOAD (2018) [Ru/Multi] (2.0.4.171) License (обновляемая)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891705.jpg" />
 </div>
 
 
@@ -220,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891621.jpg" />
 </div>
 
 
@@ -246,7 +405,7 @@ NASA показало полностью электрический самоле
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891553.jpg" />
 </div>
 
 
@@ -272,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891492.jpg" />
 </div>
 
 
@@ -298,7 +457,7 @@ Dorohedoro | Дорохедоро [2020, TV, 12 эп.] HDTV 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891315.jpg" />
 </div>
 
 
@@ -324,7 +483,7 @@ Ishuzoku Reviewers | Interspecies Reviewers | Межвидовые реценз�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891307.jpg" />
 </div>
 
 
@@ -350,7 +509,7 @@ Bright Memory (2020) [Ru/Multi] (1.0/upd1) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891305.jpg" />
 </div>
 
 
@@ -376,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891304.jpg" />
 </div>
 
 
@@ -403,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891300.jpg" />
 </div>
 
 
@@ -429,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891140.jpg" />
 </div>
 
 
@@ -455,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890871.jpg" />
 </div>
 
 
@@ -482,7 +641,7 @@ Waterfox 44.0.3 x64 Final RePack (& Portable) by D!akov [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890805.jpg" />
 </div>
 
 
@@ -508,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890772.jpg" />
 </div>
 
 
@@ -520,166 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993353   (890694) от 07.03.2016
-
-Новая версия Windows 10 выйдет в июне
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Microsoft ведет разработку следующего крупного обновления операционной системы Windows 10. Апдейт (рабочее название — Redstone) выйдет в двух частях. Первая (RS1) увидит свет уже в июне этого года, а вторая (RS2) — весной 2017-го.Как сообщает сайт WinBeta, Microsoft уже выпустила несколько предрелизных сборок Redstone участикам программы тестирования Windows (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994137   (890690) от 07.03.2016
-
-Nox App Player 3.1.0.0 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nox App Player - мощный эмулятор операционной системы Android, позволяющий запускать приложения для этой "оси" прямо на ПК с Windows. От подобных эта программа отличается достаточно высокой производительностью, наличием дополнительных параметров управления, набором встроенных инструментов оптимизации и простой настройкой.
-Эмулятор построен на платформе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5306FA413A657D15B3FD5255E17E9B0600FE98EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994024   (890689) от 07.03.2016
-
-Омерзительная восьмерка / The Hateful Eight (2015) BDRip [H.264/720p] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890689.jpg" />
-</div>
-
-
-###  Подробнее
-
-США после Гражданской войны. Легендарный охотник за головами Джон Рут по кличке Вешатель конвоирует заключенную. По пути к ним прибиваются еще несколько путешественников. Снежная буря вынуждает компанию искать укрытие в лавке на отшибе, где уже расположилось весьма пестрое общество: генерал конфедератов, мексиканец, ковбой… И один из них — не тот, за кого себя выдает.Производство: США / The Weinstein Company LLC,Жанр: триллер, драма, криминал, детектив, вестернРежиссер: Квентин ТарантиноАктеры: Курт Рассел, Сэмюэл Л. Джексон, Тим Рот, Майкл Мэдсен, Дженнифер Джейсон Ли, Ченнинг Татум, Уолтон Гоггинс, Зои БеллПеревод: Дублированный (чистый звук, без рекламы) Авторский (одноголосый, закадровый) Д.Есарев, А.МатвеевЯзык субтитров: Русский, АнглийскийПродолжительность: 02:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98D490FF7A27C8D602F242F506BAAAE7F5CC5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994204   (890684) от 07.03.2016
-
-Where's My Mommy? (2016) [En] (1.0) Repack R.G. Механики
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пупи жила счастливой жизнью рядом с матерью в темном и влажном месте, которое считала своим домом. Но однажды произошло мощное землетрясение, после которого мать Пупи куда-то исчезла. И тогда героиня решила отправиться на ее поискиТип издания: RepackРазработчик: Exquisite GamesЖанр: ArcadeЯзык озвучки: АнглийскийЯзык субтитров: -/-Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D8EC99CF9D6243BF1DB3CAEBC186CC70469E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994370   (890674) от 07.03.2016
-
-The Sims 4 v.1.13.104.1010 (2015) [En] [OS X WineSkin]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Твои истории. Твой выбор. Твои правила в The Sims 4. Создавайте симов с сильным характером и уникальной внешностью. Управляйте разумом, телом и сердцем своих симов и играйте с жизнью!
-• Создайте кого угодно
-• Постройте идеальный дом
-• Играйте с жизньюТип издания: OS X WineSkinРелиз состоялся: 2015Разработчик: Electronic ArtsПоддерживаемая ОС: OS X 10.9 и вышеЖанр: God Sim, 3DЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90559E72DDFA9D7434AF32A116841123881BFA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 732530   (890339) от 15.02.2015
-
-Великолепный век / Muhtesem Yuzyil (2013) WEBRip, SATRip (сезон 4, серии 110-155) ТК Домашний
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет основан на реальных событиях, произошедших во времена правления султана Сулеймана I, и рассказывает о периоде жизни девушки Роксоланы, взятой в плен турками и названной Хюррем. Позже она стала первой официальной женой Сулеймана, но для этого ей пришлось пройти сложный путь…Производство: ТурцияЖанр: драма, мелодрама, историяРежиссер: Дурул Тайлан, Ягмур Тайлан, Мерт Байкал, Ягыз Альп АкайдынАктеры: Небахат Чехре, Окан Ялабык, Нур Айсан, Сельма Эргеч, Халит Эргенч, Филиз Ахмет, Tansel Öngel, Селим Байрактар, Барсу Туна, Альп Ойкен...Перевод: Дублированный (телеканал "Домашний")Продолжительность: ~ 01:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D670E12BBB1C514BE0DA25B527AF4EB0409E215
 ```
 
 https://mybot314.ru/tekegram_catalog/

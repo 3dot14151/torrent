@@ -1,29 +1,3 @@
-###  Публикация: 1508963   (794536) от 12.11.2021
-
-Skillbox, Артём Кожуховский | Базы данных для разработчиков (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь использовать, проектировать и оптимизировать базы данных и эффективно работать с ними через код. Сможете улучшать производительность приложений и подбирать подходящие базы под требования бизнеса.Производство: SkillboxЖанр: ПрограммированиеПродолжительность: 21:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52090AC034087CC0A05861514E24B115FBBAC903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386271   (794326) от 29.05.2020
 
 Udemy | React For The Rest Of Us (2020/05) PCRec [H.264/1080p-LQ]
@@ -32,7 +6,7 @@ Udemy | React For The Rest Of Us (2020/05) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794326.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ Skillbox | PHP-разработчик с нуля до PRO (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794215.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Udemy | Тестирование ПО. С нуля до Junior QA (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793116.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ CG Cookie - 2010 Blender Training Series (full parts 1 & 2) [2010, ENG] PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792792.jpg" />
 </div>
 
 
@@ -142,7 +116,7 @@ Udemy, Daniel Orchard | Vehicles in Unreal Engine 4 (2020) PCRec [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791950.jpg" />
 </div>
 
 
@@ -169,7 +143,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791739.jpg" />
 </div>
 
 
@@ -195,7 +169,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791737.jpg" />
 </div>
 
 
@@ -224,7 +198,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791736.jpg" />
 </div>
 
 
@@ -253,7 +227,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791734.jpg" />
 </div>
 
 
@@ -282,7 +256,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791728.jpg" />
 </div>
 
 
@@ -311,7 +285,7 @@ JUG Ru Group | Heisenbug 2021 Moscow. Конференция по тестиро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_791320.jpg" />
 </div>
 
 
@@ -340,7 +314,7 @@ Geekbrains | Frontend-разработчик. Часть 5 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791236.jpg" />
 </div>
 
 
@@ -368,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790159.jpg" />
 </div>
 
 
@@ -395,7 +369,7 @@ GeekBrains | Тестировщик ПО (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789958.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ Udemy, The Net Ninja (Shaun Pelling) | Создавайте Веб-Прилож�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789577.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ Udemy, Maximilian Schwarzmüller | Flutter & Dart - The Complete Guide (2021) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789556.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789223.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Udemy | Познавая вёрстку HTML, CSS и кое что ещё (2018)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789217.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ Udemy | Основы работы с Git и GitHub (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789210.jpg" />
 </div>
 
 
@@ -557,7 +531,7 @@ HTML Academy | Профессиональный JavaScript, уровень 2 (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789208.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Udemy | Изучите HTML и CSS за несколько часов (2018) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788820.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788258.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787912.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ GeekUniversity | Первая четверть. Разработка Frontend-а
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787907.jpg" />
 </div>
 
 
@@ -691,7 +665,7 @@ Udemy, Anfisa Breus | Elementor 2021- от новичка до профи (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787764.jpg" />
 </div>
 
 
@@ -705,6 +679,35 @@ Udemy, Anfisa Breus | Elementor 2021- от новичка до профи (2021)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87ACC155BE1E40813A5FA024879C6AE3F0F7D6E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512130   (787757) от 23.11.2021
+
+javascript.ninja, Виталий Слободин, Илья Климов | CI/CD для frontend-инженера (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787757.jpg" />
+</div>
+
+
+###  Подробнее
+
+DevOps - это прежде всего культура, а не должность. Эффективное понимание DevOps-процессов резко повышает вашу ценность для компании, а CI/CD - сердце DevOps
+C фокусом на JS. Не только фронт, но и бэк
+CI/CD - универсальная штука, не привязанная к языку. Тем не менее, везде есть определенная специфика и нюансы, связанные с инструментами и стеком
+(   Читать дальше...   )Производство: javascript.ninjaЖанр: АдминистрированиеПродолжительность: 25:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BFF1A7DD54E8BC6C0525738C0B41F8EE620E8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

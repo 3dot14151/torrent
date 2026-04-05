@@ -1,23 +1,24 @@
 https://t.me/izofen
-###  Публикация: 1858250   (1060319) от 10.03.2026
+###  Публикация: 1863310   (1063819) от 
 
-З.А. Кадыров, В.С. Степанов, М.В. Фаниев и др. | Варикоцеле и мужское бесплодие (2026) [PDF]
+Ю.Ю. Евич | Первая помощь при боевых действиях. Том 5. Выживание на ТВД: особенности экипировки и лайфхаки (2025) [PDF]
 
 >>Научная и техническая литература
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга содержит материал, посвященный эпидемиологии, этиологии, патофизиологии бесплодия с учетом последних научных исследований, диагностике и лечению больных с варикоцеле с нарушением сперматогенеза. Основу настоящего издания составляет опыт диагностики и лечения пациентов с варикоцеле на основе анализа мировой литературы за последние 50 лет. В книге подробно освещены (   Читать дальше...   )Жанр: МонографияИздательство: Наукоемкие технологииФормат: PDFКачество: Обработанный скан
+Пятый том книги "Первая помощь при боевых действиях".
+Врач-хирург, кандидат медицинских наук, три высших образования, четырнадцать трудов по тактической медицине, и две монографии (одна из них – в области экономики, одна хирургии). Старший лейтенант службы ДНР. Один из создателей отечественной школы тактической медицины. Основное направление деятельности: (   Читать дальше...   )Жанр: Учебно-методическое пособиеИздательство: СамиздатФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3690F6CD3671CFE19FB1D4C5F9F36020FE8CABF6
+magnet:?xt=urn:btih:2265034DEE11842FD9A2C399372967DC2C7DE47B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059679.jpg" />
 </div>
 
 
@@ -59,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059583.jpg" />
 </div>
 
 
@@ -85,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059579.jpg" />
 </div>
 
 
@@ -113,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059578.jpg" />
 </div>
 
 
@@ -141,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059577.jpg" />
 </div>
 
 
@@ -170,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059575.jpg" />
 </div>
 
 
@@ -198,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059549.jpg" />
 </div>
 
 
@@ -224,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058865.jpg" />
 </div>
 
 
@@ -251,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058852.jpg" />
 </div>
 
 
@@ -279,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058828.jpg" />
 </div>
 
 
@@ -305,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058825.jpg" />
 </div>
 
 
@@ -333,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058824.jpg" />
 </div>
 
 
@@ -359,7 +360,7 @@ Dr. Emma Blake | The Ultimate Men’s Vitality Bundle [5] (2025) [PDF]
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058602.jpg" />
 </div>
 
 
@@ -385,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058396.jpg" />
 </div>
 
 
@@ -403,33 +404,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854377   (1057167) от 17.02.2026
-
-Николай Сорокин | Секреты крепкого сна: спим умно и эффективно (2025) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057167.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге мы разберем, как спать умно и эффективно. Вы узнаете, как устроен сон, какие факторы влияют на его качество, и какие простые и научно обоснованные методы помогут улучшить ночной отдых.
-Цель этой книги - дать конкретные инструменты, которые можно сразу применять в повседневной жизни, чтобы каждый сон приносил максимальную пользу. После прочтения вы сможете (   Читать дальше...   )Жанр: ЗдоровьеИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D06A82F6AA81E9F4ACEF336D9ADD6774221EEF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852636   (1055924) от 08.02.2026
 
 Кристин Гиттер | Витамины и БАДы. Фармацевт об их пользе и вреде (2026) [FB2]
@@ -438,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055924.jpg" />
 </div>
 
 
@@ -464,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055923.jpg" />
 </div>
 
 
@@ -490,7 +464,7 @@ Melissa B. Miller, Andrea M. Prinzi, Kyle G. Rodino и др. | Cases in Medical 
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054604.jpg" />
 </div>
 
 
@@ -518,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054552.jpg" />
 </div>
 
 
@@ -546,7 +520,7 @@ Daniel D. Mais, Kimberly W. Sanford | Quick Compendium of Clinical Pathology. 5t
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054471.jpg" />
 </div>
 
 
@@ -572,7 +546,7 @@ Giulia Enders | Gut.The Inside Story of Our Body’s Most Underrated Organ (2026
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054291.jpg" />
 </div>
 
 
@@ -601,7 +575,7 @@ Steven McGee | McGee's Evidence-Based Physical Diagnosis. 6th Edition (2025) [PD
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054289.jpg" />
 </div>
 
 
@@ -627,7 +601,7 @@ John S. Duncan, Davide Giampiccolo | MRI Neuroanatomy. Cortex, Nuclei and Connec
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054280.jpg" />
 </div>
 
 
@@ -653,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054162.jpg" />
 </div>
 
 
@@ -681,7 +655,7 @@ Aleksandr Ovsianikov, James Yoo, Vladimir Mironov | 3D Printing and Biofabricati
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054041.jpg" />
 </div>
 
 
@@ -692,6 +666,35 @@ This volume provides an in-depth introduction to 3D printing and biofabrication 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23B43C263470586FC0EA98EAAD782C6AE4E9101F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849441   (1053833) от 23.01.2026
+
+Н.В. Чубарь | Пропаганда здорового образа жизни (2025) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное учебное пособие подготовлено в соответствии с требованиями профессиональных стандартов для специалистов со средним медицинским образованием.
+
+Целью данного пособия является повышение уровня знаний слушателей по вопросам пропаганды здорового образа жизни.
+(   Читать дальше...   )Жанр: Учебно-методические пособияИздательство: МиниТайпФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68B1566F55E84EE6AF6A931818E9667FEF8DE44
 ```
 
 https://mybot314.ru/tekegram_catalog/

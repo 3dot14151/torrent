@@ -1,3 +1,32 @@
+###  Публикация: 1055342   (488412) от 22.09.2016
+
+Lordi - Monstereophonic (Theaterror vs. Demonarchy) (2016) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Hard Rock, Shock Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Theaterror
+01. Scg8: One Message Waiting
+02. Let's Go Slaughter He-Man (I Wanna Be the Beast-Man in the Masters of the Universe)
+03. Hug You Hardcore(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Shock RockПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41E0C3849E88C84346EB6C43568669AB2FE3F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565898   (488408) от 26.07.2022
 
 Poison - Further Down into the Abyss (2006) Compilation, Iron Pegasus Records [FLAC|Lossless|image + .cue] <Thrash Metal, Death Metal>
@@ -6,7 +35,7 @@ Poison - Further Down into the Abyss (2006) Compilation, Iron Pegasus Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488408.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Deep Sun - Race Against Time (2016) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488366.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Inner Sense - Life Sentence (2015) [MP3|320 кб/с]<Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488322.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Preludio Ancestral - Oblivion (2018) Japan [FLAC|Lossless|image + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488287.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Lizzy Borden - My Midnight Things (2018) Japan [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488282.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Insomnium - Winter's Gate (2016) [MP3|320 кб/с] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488268.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Hansen & Friends - XXX - Three Decades In Metal (2016) Japanese Limited Edition 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488170.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Cravinkel - Garden Of Loneliness (1971) Reissue, 2003, Walhalla [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488133.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Cravinkel - Cravinkel (1970) Reissue, 1998, Repertoire Records [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488007.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487896.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Tower Of Babel - Lake Of Fire (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487895.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Niva - Magnitude (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487825.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487784.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Cannon - Burning Love (2012) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487719.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Ian Gillan - Chercazoo & Other Stories (1972) [MP3|192 кб/с]<Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487553.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Kaipa - Vittjar (2012) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487531.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ Callejon - Metropolis (2020) [FLAC|Lossless|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487285.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ Brutto - 2 Альбома, 5 Синглов (2014-2015) [MP3|320 кб/с]<Punk R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487203.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ From Ashes To New - Panic (2020) [FLAC|Lossless|tracks] <Post Hardcore, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487131.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ Otto Dix - Автократор (2020) [MP3|320 Kbps] <Darkwave, Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487119.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Tug Of War - Soulfire (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486815.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ VA - Re-Machined. A Tribute To Deep Purple's Machine Head (2012) [MP3|320 кб/�
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486767.jpg" />
 </div>
 
 
@@ -662,7 +691,7 @@ Tool - Fear Inoculum (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486683.jpg" />
 </div>
 
 
@@ -688,7 +717,7 @@ Gotye - 7 релизов (2003-2012) [MP3|320 кб/с]<Indie/Electronic/Downtemp
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486662.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ Necrophagia - Ready For Death (1986) Reissued, Xtreem Music, 2021 [APE|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486522.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ Necrophagia - Ready For Death (1986) Reissued, Xtreem Music, 2021 [APE|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36F9C5A60411F729B05FA22016B801B1E2724AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566158   (486517) от 27.07.2022
-
-Templars - King of Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (00:01:37)
-02 - War (00:04:16)
-03 - Nothing to Lost (00:04:03)
-04 - Pagan Gods (00:03:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438354DC3277ECF40CCA3CF1EB820445451EFDB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

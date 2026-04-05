@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062978.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Fuki & Unlucky Morpheus - Fuki Fes Live (2016) [AV1/1080p] [hand made upscale AI
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062458.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062019.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061611.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061457.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061377.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061226.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061116.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060807.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059992.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057980.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057718.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057124.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055026.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053904.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050841.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050213.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049562.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048522.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Andrea Bocelli: The Celebration 30th Anniversary (2025) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048328.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047448.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046376.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044844.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044630.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044608.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044386.jpg" />
 </div>
 
 

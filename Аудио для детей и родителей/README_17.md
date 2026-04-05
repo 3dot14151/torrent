@@ -1,3 +1,29 @@
+###  Публикация: 993736   (894002) от 06.03.2016
+
+Сельма Лагерлёф | Рассказы (2016) [MP3, Александр Котов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сельма Лагерлёф (1858 – 1940) – шведская писательница, первая женщина, получившая Нобелевскую премию по литературе. Она прожила восемьдесят два года, из них пятьдесят отдала творчеству. Лагерлёф стала автором двадцати семи крупных произведений. И любая из самых знаменитых ее книг могла бы обессмертить ее имя, вокруг которого уже в начале ХХ века начала складываться (   Читать дальше...   )Жанр: Зарубежная детская литератураИздательство: Радио КультураПродолжительность: 03:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1779AD37E0B1E397DEB4F68A47053D2E0009D143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102194   (893040) от 08.02.2017
 
 Джон Роналд Руэл Толкин | Письма Рождественского Деда (2017) [MP3]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893040.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Aprelevka Sound Production | Басни и русские народные пе�
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892920.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892432.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ VA - В гостях у сказки (2008) [MP3|320 kbps]<Детские пес
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892317.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892286.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892124.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891889.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891408.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891283.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891175.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891101.jpg" />
 </div>
 
 
@@ -313,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890176.jpg" />
 </div>
 
 
@@ -341,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889111.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Baby Einstein - Classical Animals (2002) [MP3|192 kbps] <Классическа�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889018.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Baby Einstein - Baby Bach (2000) [MP3|192 kbps]<Классическая муз�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888929.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Baby Einstein - Baby Beethoven (2000) [MP3|192 kbps]<Классическая м
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888864.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ VA - Классическая музыка для детей. Музыкальн
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888797.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887662.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887217.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887112.jpg" />
 </div>
 
 
@@ -574,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885934.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885811.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885791.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885789.jpg" />
 </div>
 
 
@@ -688,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885778.jpg" />
 </div>
 
 
@@ -702,35 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17F701A302EF13E86543C7EE80A3B91BC827434C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103389   (885769) от 12.02.2017
-
-Эдуард Успенский и др | Радионяня: Весёлые уроки (2002) [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885769.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Радионяня» — образовательная программа для младших школьников на всесоюзном радио в 1970-х—1980-х годов. Выходила в эфир в первое воскресенье месяца. Впервые вышла в эфир 1 января 1970 года.01. Весёлый урок «Физика: природа звука» (06:20)
-02. Песня «Звук» (01:58)
-03. Смешные случаи на уроках # 1 (01:44)
-04. Весёлый урок «Зоология: млекопитающие и их классификация» (03:59)(   Читать дальше...   )Жанр: РадиоспектакльПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF29A9DDFF0363848A8A183674D24CCB78E726A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1640743   (211099) от 19.06.2023
+
+В.А. Биллиг | Основы офисного программирования и документы Excel (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс посвящен Ехсеl - основам программирования в Ехсеl, связи Ехсеl с базами данных и другими источниками данных, анализу офисной деятельности, выполняемыми средствами Ехсеl, созданию интерактивных документов в Ехсеl, приданию Web-страницам функциональности Excel. Он познакомит слушателей с устройством и всеми тонкостями мира объектов Excel.
+Первые лекции, посвященные (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43A1271646910B4A54251EA2E08DE1E0ECB0AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640881   (211060) от 19.06.2023
+
+Н.Н. Вояковская и др. | Разработка компиляторов (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс посвящен принципам разработки компиляторов. Основные задача данного курса - познакомить студентов с базовыми идеями и методами, используемыми при создании современных компиляторов, а также дать практические навыки написания простых компиляторов. В качестве целевой платформы для компиляторов в данном курсе используется Microsoft .NET.
+Подразумевается, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E7C5BBDD95F18F791CA9A6E618F41AA25FE2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601937   (210989) от 03.01.2023
 
 С. В. Анофрикова | Методика преподавания физики в средней школе: Частные вопросы. (1987) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210989.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210952.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210850.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210630.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210579.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210539.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210439.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210218.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210057.jpg" />
 </div>
 
 
@@ -241,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210031.jpg" />
 </div>
 
 
@@ -267,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209941.jpg" />
 </div>
 
 
@@ -293,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209849.jpg" />
 </div>
 
 
@@ -319,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209750.jpg" />
 </div>
 
 
@@ -345,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209711.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209704.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209666.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209531.jpg" />
 </div>
 
 
@@ -452,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209512.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209347.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209333.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209142.jpg" />
 </div>
 
 
@@ -557,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209078.jpg" />
 </div>
 
 
@@ -583,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209017.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208851.jpg" />
 </div>
 
 
@@ -621,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85B193B8B2C62876A1C8986AAFED1E00C05A2A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646911   (208840) от 16.07.2023
-
-В.П. Невежин | Теория игр. Примеры и задачи (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемое учебное пособие предназначено для студентов, изучающих такие дисциплины, как "Теория игр", "Элементы теории игр", "Теория игр и стратегическое поведение фирм", "Математические методы и модели исследования операций" и т.п. Важным достоинством данного пособия является то, что в нем по каждой рассматриваемой теме (   Читать дальше...   )Жанр: Экономика, математикаИздательство: Форум, Инфра-МФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E405F7A620E03CD076D34C0CD8686B55FC891F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646935   (208837) от 16.07.2023
-
-С.Р. Гуриков | Основы алгоритмизации и программирования в среде LAZARUS (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие является руководством по программированию на языке Free Pascal в среде программирования Lazarus и содержит описание такого традиционного материала, как работа линейных, разветвляющихся и циклических структур, обработка одномерных и двумерных массивов, строк, программирование на основе функций и процедур.
-Рассматриваются типы данных, используемые в (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Инфра-МФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838C09D826DA18611962A46CC8995CE463BE694D
 ```
 
 https://mybot314.ru/tekegram_catalog/

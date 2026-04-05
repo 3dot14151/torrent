@@ -1,3 +1,133 @@
+###  Публикация: 917182   (589912) от 10.07.2015
+
+Журнал | Любимая дача. Спецвыпуск № 8. Дорожки и площадки (август 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальные выпуски журнала «Любимая дача» — это красочные издания, полные интересных идей и практических советов. Они охватывают круг тем, близких разным поколениям дачников, отвечают на животрепещущие вопросы подробно, с практической точки зрения. Каждый спецвыпуск посвящен конкретной теме, касающейся строительства, благоустройства дачи или участка. Материалы представлены (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4AF71235D81E58F3C1FCDE64158564759FFAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551497   (589778) от 16.05.2022
+
+Журнал | Electronics For You Express №2 (2022) [PDF][En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электроника для Вас - это журнал для людей, увлеченных электроникой и технологиями. Начиная с первого выпуска в 1969 году, журнал EFY публикует лучшие обзоры продуктов, сравнения аппаратного и программного обеспечения, технические новости, анализ, новости электроники, о продуктах, компонентах, компьютерном оборудовании, источниках питания, автоматизации промышленности (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AA1B4B468F30C3BDD901D5A6438FBF09A63680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551503   (589777) от 16.05.2022
+
+Журнал | Electronics For You Express №3 (2022) [PDF][En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электроника для Вас - это журнал для людей, увлеченных электроникой и технологиями. Начиная с первого выпуска в 1969 году, журнал EFY публикует лучшие обзоры продуктов, сравнения аппаратного и программного обеспечения, технические новости, анализ, новости электроники, о продуктах, компонентах, компьютерном оборудовании, источниках питания, автоматизации промышленности (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF1B541CA8A7B8F006D1D4006B328050BABC3E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551513   (589769) от 16.05.2022
+
+Журнал | Electronics For You Express №5 (2022) [PDF][En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электроника для Вас - это журнал для людей, увлеченных электроникой и технологиями. Начиная с первого выпуска в 1969 году, журнал EFY публикует лучшие обзоры продуктов, сравнения аппаратного и программного обеспечения, технические новости, анализ, новости электроники, о продуктах, компонентах, компьютерном оборудовании, источниках питания, автоматизации промышленности (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD526D8817F3AE6ED2DC30CAC5670494029FD434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551569   (589765) от 16.05.2022
+
+Журнал | Делаем сами №9 (2022) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589765.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF45D8C2D5A8DF44D7D3574594A87BB4CAE060A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917343   (589549) от 11.07.2015
 
 Журнал | MobiLux №4 (125) (апрель 2015) [PDF]
@@ -6,7 +136,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589549.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589476.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589440.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589383.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589356.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589339.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589249.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589105.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589104.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589089.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589065.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588923.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588920.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588919.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588908.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588888.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588854.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588790.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588785.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588770.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588680.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41B25BF7986934E4522E01680C16740AA19A311A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917910   (588679) от 13.07.2015
-
-Газета | Скатерть-самобранка №14 (339) (июль 2015) [DJVU]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588679.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Скатерть-самобранка" – кулинарная газета со множеством интересных рецептов от читателей.Жанр: КулинарияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFA61023CAE6A7195EAC1461705FBD2E32A4463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917917   (588670) от 13.07.2015
-
-Газета | Скатерть-самобранка. Спецвыпуск №12 (84) (июнь 2015) [DJVU]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Овощи на второе – это прекрасный вариант для обеда, поскольку клетчатка заполняет желудок и поддерживает ощущение сытости до самого вечера.Жанр: КулинарияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9F89DAFAF2398FB521679FDCE7C61E7BF8B0B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917980   (588669) от 13.07.2015
-
-Журнал | Дом в саду №8 (Август 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для неравнодушных к своим дачным участкам. Множество практических советов и рекомендаций помогут вам в выращивании и получении  высокого урожая а также комфортного пребывания на своих дачных участках.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A827DA961A1F179F80570F13FEA434775E38E815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917909   (588667) от 13.07.2015
-
-Журнал | Кухня батюшки Гермогена №12 (33) (2015) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие годы трапеза была его монашеским послушанием. Насельник Свято-Данилова монастыря иеромонах Гермоген (Ананьев) долгие годы служил келарем обители, то есть отвечал за кухню и питание. К своему послушанию он отнесся со всей душой, так что в результате его кулинарный опыт стал известен не только в монастыре, но и по всей России. Батюшка Гермоген сумел, не отступая (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F61A7DFCDC8A49F6941CB22834DB2B23097BA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917918   (588666) от 13.07.2015
-
-Журнал | С нами легко на кухне №6-7 (июль 2015) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девиз журнала: "Получается всегда! Пробуйте!" Рецепты читателей и советы профессионалов. В этом выпуске - Баклажаны фаршированные, запеченные, тушеные; Заготовки между делом, Молдавские плацинды, Гужеры, Домашнее слоеное тесто, Вареники, Лимончелло, Фанта и другие рецепты и кулинарные хитрости. Приятного аппетита!Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7342DC8D017946DC9CD27A03785B8C4A22967302
 ```
 
 https://mybot314.ru/tekegram_catalog/

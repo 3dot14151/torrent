@@ -1,3 +1,61 @@
+###  Публикация: 948676   (409794) от 21.10.2015
+
+VA - Halloween Lounge Collection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kusuma Orchestra - Beyond Reason
+02. Pyro Pyro - Sweet Up
+03. Collective Sound Members - Hot Summer Night
+04. Rinaldo Montezz - Can't Say Goodbye - Rinaldo Montezz Chill-It Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE460BCA048A2BEFE837304F0861831E4D323D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948777   (409642) от 21.10.2015
+
+VA - Halloween Private Chillout Party (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaxamalka - You Take My Breath Away
+02. Mind Conventions - Sweet Fever
+03. Collective Sound Members - Hot Summer Night
+04. Logophilia - Tongues of Wind(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60006CB1CD8D33E4DF877AD65A72B6FE29F793FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948686   (409639) от 21.10.2015
 
 VA - Halloween Witch Party Best of Chill Deep and House (2015) [MP3|320 кб/с]<Deep House, Chill House>
@@ -6,7 +64,7 @@ VA - Halloween Witch Party Best of Chill Deep and House (2015) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409639.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - New Order Of Chaos: Hardcore Monstr Mix (2018) [MP3|320 Kbps] <Hardcore, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409309.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Most Uplifting Trance Music (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409197.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Record Super Chart #504 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408787.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Illusion: Techno Sound Mix (2020) [MP3|320 Kbps] <Techno, Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408542.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Aquarell Herbst (2015) [MP3|320 кб/с]<Lounge, Downtempo, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408399.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - About Reality And Fantasy (2015) [MP3|320 кб/с]<Club, Funky House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408269.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Sunrise Avenue Vol 1 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408266.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Sunrise Avenue, Vol. 2 20 Lounge & Chill-Out Pearls (2015) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408265.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Sapphire Lounge (30 Luxury Chillout Tunes) (2013) [MP3|320 кб/с]<Lounge,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408259.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Uplifting Sexy Trance Sound (2015) [MP3|320 кб/с]<Trance, Uplifting Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408258.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Свежак Vocal Trance NNM (2020) [MP3|320 Kbps] <Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408097.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Beatport Deep House: Electro Sound Pack #176 (2020) [MP3|320 Kbps] <Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408095.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Beatport Progressive House: Electro Sound Pack #179 (2020) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408079.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Beatport Progressive Trance: Sound Pack #181 (2020) [MP3|320 Kbps] <Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407991.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Mega Cut Dreams (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407562.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - FreeFall Again (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407533.jpg" />
 </div>
 
 
@@ -511,7 +569,7 @@ VA - Dubstepium vol. 4 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407474.jpg" />
 </div>
 
 
@@ -546,7 +604,7 @@ VA - Seclusion: Techno Electronic Party (2019) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407426.jpg" />
 </div>
 
 
@@ -575,7 +633,7 @@ VA - Beatport Psy Trance: Electro Sound Pack #183 (2020) [MP3|320 Kbps] <Psy, Go
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407245.jpg" />
 </div>
 
 
@@ -604,7 +662,7 @@ VA - Beatport Drum And Bass: Electro Sound Pack #184 (2020) [MP3|320 Kbps] <Drum
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407239.jpg" />
 </div>
 
 
@@ -633,7 +691,7 @@ ATB - All the Best (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406913.jpg" />
 </div>
 
 
@@ -664,7 +722,7 @@ VA - The Key To Your Joy (2020) [MP3|320 Kbps] <R&B, Soul>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406831.jpg" />
 </div>
 
 
@@ -693,7 +751,7 @@ VA - Top50: Tracks Deep House Ver.22 (2020) [MP3|320 Kbps] <Deep-House, Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406771.jpg" />
 </div>
 
 
@@ -707,76 +765,6 @@ VA - Top50: Tracks Deep House Ver.22 (2020) [MP3|320 Kbps] <Deep-House, Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EFDAA38623D0726B8BCB3D6A1BCE726FE070D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560513   (406680) от 15.10.2012
-
-VA - Trance In Motion Vol.127 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denis Kenzo feat. Sveta B. - Lullaby Lonely (Original Mix)
-02. Rex Mundi - Bella Monaco (Original Mix)
-03. Velvetine - The Great Divide (Myon & Shane 54 Summer Of love Mix)
-04. Markus Schulz feat. Seri - Love Rain Down (Myon & Shane 54 Summer Of love Mix)
-05. Ashley Wallbridge - Grenade (Original Mix)
-06. Alan Morris - Club Rocket (Original Mix)
-07. Alex Kunari feat. Jon Hall - Sweet Melody (Maison & Dragen Remix)
-08. Jonathan Gering - Let you Go (Original Mix)
-09. Pedro Del Mar & Reorder feat. Fisher - Reaching Out (Reorder Deep Mix)
-10. Protoculture - Perpetual Motion (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2317E002623848FFABB2790E4C089C156307CD7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561419   (406212) от 17.10.2012
-
-VA - Deep+   Vol. 5 (2012) [MP3|320 кб/с]<Deep House(Tech House,Vocal House)>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alloise - Love Me Or Leave Me (Anturage & Amnesia Haze Dual Sided Mix) (4:56)
-02. Andrew Bayer - You (8:08)
-03. Biotones - My Little Inner World (Original Mix) (6:12)
-04. Kasper Bjorke - Bohemian Soul feat. Laid Back (Adana Twins 'On A Cloudy Day' Remix) (7:05)
-05. Brian Berg, Voxhoff - Have It All (Original Mix) (6:51)
-06. Bunte Bummler - The Hunger (feat. Daniel Wilde)(Betoko Remix) (7:16)
-07. Calippo - When Freddy's Done (Original Mix) (5:49)
-08. Chocolate Avenue - see dem boys (original mix) (7:06)
-09. Chocolate Puma - Destiny feat. Colonel Red (Lorenzo Kurizu Remix) (7:25)
-10. Chris James feat. Ria Moran - Song For Her (Audiojack's Dub for Ra) (6:09)(   Читать дальше...   )Жанр: Deep House(Tech House,Vocal House)Продолжительность: 04:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE8B05A60F3A080F4771ECECBA730C52DA4F698
 ```
 
 https://mybot314.ru/tekegram_catalog/

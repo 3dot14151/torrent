@@ -6,7 +6,7 @@ VA - Hellfest Open Air (2016) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688575.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687640.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Uriah Heep - Live At Koko (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687415.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687404.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Thunder - Stage (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687246.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Scorpions - Hellfest (2015) HDTVRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686091.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685990.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684681.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683984.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683235.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Evanescence - Live at Verizon Arena (2012) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683179.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_682779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682779.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682122.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681964.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681957.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Within Temptation / Within Temptation - Black Symphony (2008) (1080p) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680678.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Foreigner - Live at the Rainbow '78 (2019) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680129.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Eric Clapton, Steve Winwood, Jeff Beck, Jimmy Page - A.R.M.S. Concert 2 (1983) D
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679600.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Jimmy Page, Robert Plant & friends - California Poison II (1995) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679589.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Paul McCartney - Live at the BBC (2013) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679588.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678568.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_678424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678424.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Swinging Bach. Bobby McFerrin and Guests (Live in Leipzig) (2000) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678186.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677964.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677130.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676723.jpg" />
 </div>
 
 

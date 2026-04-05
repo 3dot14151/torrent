@@ -1,3 +1,107 @@
+###  Публикация: 881649   (639048) от 11.06.2015
+
+CM (Cleanmaster) Security 2.6.2 - Антивирус [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из лучших антивирусных движков: Антивирус создан на базе двойного локального и облачного движка Kingsoft, который имеет более 200 миллионов пользователей и 16-летнюю историю в обеспечении защиты ПК и мобильных устройств, неоднократно занимающего первые места по результатам тестов AV-Test (Ноябрь 2013) и AV-Comparatives (Август 2013). Он обнаруживает вирусы, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 29 мая2015 г.Разработчик: KS Mobile Inc.Поддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76A5326E822ABF1215AF2056623D480C5E1F562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907366   (639045) от 11.06.2015
+
+Muscle Premium v4.1.13 Unlocked [En] - анатомия мышц человека с точными 3D-моделями
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Muscle Premium представляет собой самое продуманное и полное приложение по анатомии мышц человека с точными 3D-моделями. В него входят очень подробные модели мышц и скелета, созданные группой профессиональных медицинских иллюстраторов с многолетним опытом работы в области медико-биологической визуализации. Эти специалисты работают вместе с профессорами и квалифицированными (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 15.10.2014Разработчик: Visible BodyПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB85818579B65157E25E05DFAFB664E8A9438F22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143377   (634972) от 18.06.2017
+
+Maths Formulas 9.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maths Formulas - программа, в которой Вы найдёте все основные формулы по математике на множестве языков. Приложение очень удобно для учащихся школ или вузов, а также инженеров. В справочнике приведены все необходимые формулы как школьного курса алгебры и геометрии, так и высшей математики. Структура программы позволит быстро найти нужную информацию и будет незаменимой (   Читать дальше...   )Тип издания: Ad-FreeРелиз состоялся: 17 июня 2017Разработчик: NSC CoПоддерживаемая ОС: Android 3.0+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31ED39BE3F1B425E6A67DF4AAD7EABC770EC8ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032711   (633805) от 13.07.2016
+
+Garmin: CarteBlanche Ukraine NT 2016.06 (КартБланш Украина) [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы рады сообщить о выходе новой версии карты Украины КартБланш Украина НТ 2016.06 для навигационных устройств Garmin® и Kenwood®!Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: июль 2016Разработчик: ООО «Карт Бланш Украина»Поддерживаемая ОС: GarminЯзык интерфейса: Русский, Английский, УкраинскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B7607FD32C69E683EF301FB2B84EA82AB3B2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908040   (633325) от 14.06.2015
 
 Пасьянс Паук. 1.0.1 [Ru]
@@ -6,7 +110,7 @@
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633325.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ Garmin: CarteBlanche Ukraine NT 2015.03 [Ru/Multi]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633215.jpg" />
 </div>
 
 
@@ -62,7 +166,7 @@ Runtastic GPS Бег 5.11 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631710.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ Power Media Player Pro v6.1.1 Unlocked [Ru/Multi] - Android версия PowerDV
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631500.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ Fotoo v2.3.7 Premium [En] - цифровая фоторамка и скринс�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629639.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ Angry Birds 5.1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629462.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ World of Goo 1.2.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629212.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629140.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628906.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ Tasker 4.7u1m [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627382.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ Major GUN v 3.5.6 Mod [Infinite Coins] [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626232.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ Call Of ModernWar: Warfare Duty 1.1.1 Mod [Money] [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626084.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ Swamp Attack 2.1.2 Mod [Money] [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626074.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ Garmin: City Navigator Thailand 2015.10 (Dual + Thai) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625671.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625461.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ Garmin: TOPO Norway Experience PRO v3 [No]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625427.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Garmin: City Navigator East & West Africa NT 2016.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623731.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623061.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ Garmin: City Navigator Middle East & Northern Africa NT 2016.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621564.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620345.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ IELTS® Speaking Pro v4.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620044.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ Garmin: Basarsoft NavCity Turkey 2015 T1 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619842.jpg" />
 </div>
 
 
@@ -574,111 +678,6 @@ Garmin: Basarsoft NavCity Turkey 2015 T1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C5CD7400C571362F08D5FE5BB5FB8266B2EAE94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910601   (619718) от 21.06.2015
-
-Schematic v2.2.1 [Ru/Multi] - составление и редактирование схем
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Schematic является простой и удобной в обращении CAD-программой, предназначенной для выполения разнообразных графических работ на вашем планшете или смартфоне. Примечание: пожалуйста не используйте аппаратное ускорение для предотвращения неправильной отрисовки объектов.Тип издания: ПираткаРелиз состоялся: 13.06.2015Разработчик: Dmitry UstimovПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF0BA4F7F9D98B63001D5897E0A3F9999794640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910943   (619626) от 21.06.2015
-
-Garmin: TopoActive West Europe V 2.02 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта карта предустановленна в новом навигаторе eTrex 20x.
-Garmin TopoActive помогает активно проводить время на свежем воздухе, занимаясь туризмом, ездой на велосипеде, альпинизмом и рыбной ловлей. Новая карта "Garmin TopoActive map of Western Europe" позволяет строить маршруты и показывает изменения высоты. Карта охватывает следующие 23 страны: Андорра, (   Читать дальше...   )Тип издания: карты разблокированыРелиз состоялся: май 2015Разработчик: Garmin / OSMПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3E8092A7BD32729C6D3FE3881886905F6E24F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145003   (619594) от 26.06.2017
-
-ЭкоГид: Птицы России v3.0.2  [RU] - определитель-энциклопедия птиц России
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный, первый отечественный ПОЛЕВОЙ гид и определитель-энциклопедия птиц, птичьих гнезд, яиц и голосов птиц России! 206 ВИДОВ ПТИЦ – каждая со своим подробным описанием, фотографией, рисунком и ГОЛОСОМ, который можно установить как рингтон на звонок прямо из приложения!Релиз состоялся: 20.03.2016Разработчик: ЭкосистемаПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F994B899611B816E16722C1F3213B686AA8109F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910894   (619488) от 21.06.2015
-
-Чапаев Шашки: Противостояние 1.2.8 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чапаев: Противостояние - интересная игра теперь в новом формате на андроид. Правила в игре остались теми же, какими они были и раньше, выбивать с поля боя войско врага. Выбирайте на какой стороне вы будете сражаться, это могут быть красные войска и ряды белогвардейцев, решать вам. Возглавьте свою армию, сражайтесь со своими друзьями на одном устройстве, выбивая у (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 21 июня 2015 г.Разработчик: ArsAnimaGamesПоддерживаемая ОС: Android 2.3+Жанр: Board gameЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2F35DA842A9F63F18120248D04881E03633594
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1015749   (771256) от 13.05.2016
+
+The Smiths - The Sound Of The Smiths (2008) [FLAC|Lossless|tracks] <New wave, Alternative rock, Indie pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771256.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1.	"Hand in Glove" (7" version) – 3:17
+2.	"This Charming Man" – 2:43
+3.	"What Difference Does It Make?" (Peel Session) – 3:13(   Читать дальше...   )Жанр: New wave, Alternative rock, Indie popПродолжительность: 02:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74E6AA332BA2F1D6D2AF26AFCB9C0F08E17A4B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016108   (771162) от 13.05.2016
+
+Найк Борзов - Молекула, vol. 2 (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_771162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стиль звучания песен в альбоме Найк Борзов называет «этно-техно». Во вторую часть «Молекулы» вошли хиты музыканта в свежей обработке и один новый трек, давший название всему альбому. Первая часть пластинки вышла в 2015 году.01. Поток
+02. День как день
+03. Последняя песня
+04. В будущем Луны(   Читать дальше...   )Жанр: Rock, Ethno-TechnoПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530F9847E5A82251222520249D5209467CA5B4EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016129   (771150) от 13.05.2016
+
+Led Zeppelin - Physical Rarities (2003) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jenning's Farm Blues (Studio Session 1969)
+02. Poor Tom (Outtake From Led Zeppelin IV 1971)
+03. Walter's Walk (Previously Unreleased Session Take 1972)
+04. Trampled Underfoot (Alternate Work-in Progress Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310A0FC1FD8F1E20E4810BDA4394196B969BC7FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391859   (770714) от 23.06.2020
+
+Binary Code - Memento Mori (2020) [MP3|320 Kbps] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filaments Dissolve (06:50)
+ 02. Into the Maw (04:13)
+ 03. The Absolute Nothing (04:18)
+ 04. Unborn (03:51)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A358888D2265CBB66206348CE40661A272A091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391787   (770689) от 23.06.2020
+
+Oceans of Slumber - The Banished Heart (2018) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Decay Of Disregard (09:01)
+ 02. Fleeting Vigilance (05:26)
+ 03. At Dawn (08:30)
+ 04. The Banished Heart (09:05)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E0E05EF2038EE8B415DC8FF578384D63C51445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 886135   (770667) от 08.04.2015
 
 Декабрь - Жара Декабря (2015) [MP3|320 кб/с]<Hard Rock>
@@ -6,7 +151,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_770667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_770667.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Bob Dylan - Rough & Rowdy Ways (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770621.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Platens - Out Of The World (2014) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770521.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Viot - Astana (2016) [MP3|320 кб/с] <Alternative, Indie Rock, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770519.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Moonland - Moonland (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770487.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Destruction - Under Attack (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770402.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Vega - Who We Are (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770291.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770276.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Namesake - Borders & Fences (2016) Deluxe Edition [FLAC|Lossless|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770274.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770144.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770141.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Sports Team - Deep Down Happy (2020) [MP3|320 Kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769894.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Omar Rodriguez-Lopez - The Clouds Hill Tapes, Pt. I (2020) [MP3|320 Kbps] <Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769892.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Hum - Inlet (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769875.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ VA - The Ultimate History Of Rock 'N' Roll Collection (1997) 10CD, Box Set [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769783.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Mindwarp - A Cold Black Day (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769743.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Blue October - Sway (2013) [MP3|320 кб/с]<Alternative, Modern Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769718.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Joe Cocker - Civilized Man (1984) [FLAC|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769686.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Joe Cocker - Unchain My Heart (1987) [APE|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769634.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Joe Cocker - Cocker (1986) [FLAC|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769632.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Joe Cocker - One Night Of Sin (1989) [FLAC|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769629.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Joe Cocker - One Night Of Sin (1989) [FLAC|Lossless|image + .cue] <Rock, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D32B767778A83A0AC68A83AB3574FAA5F815F8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016749   (769622) от 15.05.2016
-
-Jane Air - Unreleased'n'Live (2016) [MP3|320 кб/с] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стёкла стекла
-02. Обрывки (Demo version)
-03. Не забывай меня
-04. Новый год одна(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D626344B57369EBB061DBBBC5F76F119F0208D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017039   (769570) от 15.05.2016
-
-The Squirrels - The Not-So-Bright Side Of The Moon (2000) [MP3|320 кб/с] <Progressive Rock, Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще один кавер на "Альбом всех времен и народов". Отличие от большинства остальных: музыканты совершенно свободно переходят от стиля к стилю, в том числе и в течение одной композиции. Можно услышать и блюграсс, и фанк, и поп, и рок... и классический флойдовский саунд тоже.01. Speak to Me
-02. Breathe
-03. On the Run
-04. Time(   Читать дальше...   )Жанр: Progressive Rock, Rock, PopПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D302A022CA82FF9B96C28386D209DC74D7362A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016854   (769564) от 15.05.2016
-
-Joe Cocker - Night Calls (1991) [FLAC|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Alive
-02. Little Bit Of Love
-03. Please No More
-04. There's A Storm Coming(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229F820371C06418AD44EAB04971B6EF18AB73FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016699   (769562) от 15.05.2016
-
-Status Quo - Aquostic Stripped Bare (2014) [FLAC|Lossless|tracks] <Classic Rock, Acoustic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pictures Of Matchstick Men (3:39)
- 02. Down The Dustpipe (2:41)
- 03. Na Na Na (2:55)
- 04. Paper Plane (3:38)(   Читать дальше...   )Жанр: Classic Rock, Acoustic RockПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B841F5827B160A967545CE5F04B3E64E10BDE740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016865   (769559) от 15.05.2016
-
-Волчья Сотня - Печаль Ангела (2016) [MP3|320 кб/с] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рагнарок
-02. Выбор твой
-03. Иди к мечте!
-04. Жги до тла(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40DE1D405D4CEC698A658DB8788187877A28FF0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

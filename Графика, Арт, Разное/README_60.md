@@ -1,3 +1,29 @@
+###  Публикация: 1031481   (651020) от 04.07.2016
+
+Живые обои - Animated Wallpapers 4 (DREAM-NNM) [DREAM]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Animated Live Wallpapers - живые видео обои (часть 4)Формат: DREAMРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4777689C27E6E6C8F3B1AF7F00CDB2AC1C7E973D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516664   (650956) от 29.06.2012
 
 Репродукции картин - Художник Сергей Лим [JPG]
@@ -6,7 +32,7 @@
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650956.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650246.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650137.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649939.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649119.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648387.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646343.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645271.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645262.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645177.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645163.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645149.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645121.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645065.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644828.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643321.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643074.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643073.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643069.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643033.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643028.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642937.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642936.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642935.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642931.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5621E5F3FFFFE6C2E04BE9104EC3225B8F24121E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292386   (642930) от 31.03.2019
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (228) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36A2BBC87EF9D36EBD56DC5B9D28F6395C157FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

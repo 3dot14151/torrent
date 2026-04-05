@@ -1,31 +1,3 @@
-###  Публикация: 1691825   (123142) от 13.01.2024
-
-SparkCertCourse, Florian Roscheck | Apache Spark Certification Training (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apache Spark является ключевым навыком в области данных - вот как вы можете доказать, что владеете им!
-Изучите Apache Spark с нуля и продемонстрируйте свои знания с помощью сертификации Databricks Associate Developer для Apache Spark. Этот курс превратит вас в профессионала PySpark и подготовит к успешной сдаче популярной сертификации Databricks Spark.
-Присоединяйтесь (   Читать дальше...   )Производство: SparkCertCourseЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 15:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657B94D5F6194AF9482BAD52014DB5CCA233B3A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691963   (123018) от 14.01.2024
 
 Евгений Паромов | FSD - полный курс (2023) WEB-DL [RU]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123018.jpg" />
 </div>
 
 
@@ -63,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123016.jpg" />
 </div>
 
 
@@ -89,7 +61,7 @@ Let's Get Rusty | Rust Developer Bootcamp (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123015.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ frontcat1 | Грокаем собеседования. Frontend developer (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123014.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ Stepik, Глеб Учитель | Проектирование архитект�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123010.jpg" />
 </div>
 
 
@@ -167,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123005.jpg" />
 </div>
 
 
@@ -193,7 +165,7 @@ Podlodka Crew | Podlodka QA Crew. Сезон 7. Оптимизируем про�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122992.jpg" />
 </div>
 
 
@@ -222,7 +194,7 @@ Softwaretesting, Арсений Батыров, Виталий Котов | Ав
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122984.jpg" />
 </div>
 
 
@@ -249,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122692.jpg" />
 </div>
 
 
@@ -278,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122669.jpg" />
 </div>
 
 
@@ -306,7 +278,7 @@ WebRTCcourse, Tsahi Levent-Levi | Low-level WebRTC Protocols (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122399.jpg" />
 </div>
 
 
@@ -335,7 +307,7 @@ learn.nestjs.com | NestJS. Architecture and Advanced Patterns (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122299.jpg" />
 </div>
 
 
@@ -362,7 +334,7 @@ education.empireschool | Excel и Google-таблицы (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122296.jpg" />
 </div>
 
 
@@ -391,7 +363,7 @@ Net Ninja | TypeScript Masterclass (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122257.jpg" />
 </div>
 
 
@@ -419,7 +391,7 @@ WebRTCcourse, Tsahi Levent-Levi | Higher-level WebRTC Protocols (2023) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122201.jpg" />
 </div>
 
 
@@ -445,7 +417,7 @@ Udemy, Frantz Merine | OBS Studio - Learn how to become a Virtual Event Producer
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122064.jpg" />
 </div>
 
 
@@ -474,7 +446,7 @@ Udemy, Bogdan Stashchuk | Kubernetes - Полный Курс по Kubernetes (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121968.jpg" />
 </div>
 
 
@@ -500,7 +472,7 @@ Gary Simon | Advanced FrontEnds (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121934.jpg" />
 </div>
 
 
@@ -526,7 +498,7 @@ Udemy, D&A Programming | Программирование в Scratch с 6 лет
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121793.jpg" />
 </div>
 
 
@@ -552,7 +524,7 @@ Udemy, Лиана Климович | UI Design с нуля (2023) WEB-DL [AD] [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121782.jpg" />
 </div>
 
 
@@ -578,7 +550,7 @@ Udemy, Nata Vacheishvili | React Native: Mobile App Development (CLI) [2024] (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121640.jpg" />
 </div>
 
 
@@ -606,7 +578,7 @@ PurpleSchool | Прохождение собеседования (2023) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121630.jpg" />
 </div>
 
 
@@ -634,7 +606,7 @@ Udemy, John Smilga | NextJS & OpenAI - 2024 Edition (2023) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121609.jpg" />
 </div>
 
 
@@ -660,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121463.jpg" />
 </div>
 
 
@@ -686,7 +658,7 @@ Udemy, Piotr Jura | Master Nuxt 3 - Full-Stack Complete Guide (2023) WEB-DL [EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121367.jpg" />
 </div>
 
 
@@ -698,6 +670,32 @@ Udemy, Piotr Jura | Master Nuxt 3 - Full-Stack Complete Guide (2023) WEB-DL [EN 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:639AE0591A902AA9C7846EE8D4D823FA726F330D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693957   (121357) от 23.01.2024
+
+Udemy, Andre LaMothe | Fast and Furious Game Development with JavaScript and AI (2023) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121357.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ускоренная разработка игр: JavaScript и искусственный интеллект" была создана, чтобы научить любого человека, независимо от наличия опыта в программировании, основам HTML5 + CSS и JavaScript с нуля, используя графику и разработку игр в качестве платформы для обучения. И, имея на руках основы, мы отправляемся в одно из самых увлекательных путешествий в (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 45:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A2693637F0925E2280E79E85DD086A06C51722
 ```
 
 https://mybot314.ru/tekegram_catalog/

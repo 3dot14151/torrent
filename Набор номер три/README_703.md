@@ -1,3 +1,214 @@
+###  Публикация: 1798225   (17411) от 22.05.2025
+
+Первое достижение: 1000 релизов от messer20080
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17411.jpg" />
+</div>
+
+
+###  Подробнее
+
+ Первое достижение: 1000 релизов от messer20080 Дорогие друзья и гости клуба...Хочу познакомить вас с одним очень хорошим человеком: трудяга, кремень и просто верный друг и товарищ!!!
+Несмотря на все жизненные трудности, нашёл в себе силы преодолеть в первую очередь себя, и доказать всему миру: что рано ещё списывать со счетов. И в качестве доказательств своих твёрдых (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798462   (17359) от 23.05.2025
+
+В России массово переходят на личные электросамокаты — они удобнее и не контролируются
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за ужесточения правил кикшерингов — прокатных служб — россияне начали пересаживаться на собственные электросамокаты, продажи которых в последние месяцы, по разным оценкам, выросли до двух раз. Личные средства мобильности практически не контролируются и во многих случаях оказываются удобнее, пишут «Известия».С января по апрель 2025 года продажи электросамокатов (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798023   (17354) от 23.05.2025
+
+Притворись антивирусом — и система сдастся: как обмануть Windows в два клика
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый инструмент под названием Defendnot, свободно распространяемый на GitHub, способен полностью отключать Microsoft Defender на устройствах Windows, маскируясь под антивирусное программное обеспечение. Основной приём — использование нестандартного механизма в Windows Security Center (WSC), предназначенного для регистрации антивирусов. Когда система считает, что (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798564   (17347) от 23.05.2025
+
+Microsoft® Windows® 11 Pro-Home Optim Lite x64 24H2 RU by OVGorskiy 05.2025
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оптимизированная облегчённая (LITE) сборка на основе оригинального образа новой версии операционной системы Windows 11 x64 (64 бит.) 24H2 от Microsoft  Профессиональная и Домашняя. В сборке произведена оптимизация системы для более комфортной работы с ней. Из системы удалены все плиточные приложения, кроме магазина MicrosoftStore и кодеков. Удалена в оптимальном режиме (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2496B248501700898C7DD942E3D7B96F1FB875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078119   (17346) от 23.05.2025
+
+Tempest (2016) [Ru/Multi] (1.7.5/dlc) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эй, капитан! Теперь, когда Веселый Роджер развевается над твоим кораблем, ты готов бороздить моря, нападать на торговые корабли, полные трофеев, и штурмовать неприступные форты. Поднимай паруса и вперед, на поиски сказочных сокровищ! Разрабатывая Tempest, мы решили сосредоточиться на самом интересном в пиратской жизни – на морских сражениях. Путешествуя по опасным (   Читать дальше...   )Тип издания: LicenseРазработчик: Lion's ShadeЖанр: Экшны, Ролевые игрыЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44C5B1618F947C47738157833BE1A079249222A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798677   (17345) от 23.05.2025
+
+Windows 11 Pro 24H2 26100.4061 x64 by SanLex [Lightweight] [Ru/En] (2025.05.23)
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинальном образе Windows_11_Pro_edition_24h2_x64 для оптимального и комфортного пользования. Цель проекта — улучшить скорость реагирования, производительность и конфиденциальность Windows. Идеально подходит для повседневного домашнего пользования, игр, графического дизайна и работы.
+Удалены, отключены или заблокированы нежелательные (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1EEF55A1383FFE6DE4FF2C6E6606A07C396F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301837   (17344) от 23.05.2025
+
+AdGuard Premium 4.10.36 (Nightly) + 4.9.50 (Release) & Android TV + VPN 2.2.18 Mod by Balatan, derrin, DEXUNPACKER [Multi/Ru]
+
+>>3
+>>36
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17344.jpg" />
+</div>
+
+
+###  Подробнее
+
+AdGuard — это уникальный инструмент, который блокирует рекламу в приложениях и браузерах даже без получения root-прав, защищает ваши личные данные и помогает вам управлять своими приложениями.
+Легкий в установке и настройке, но мощный и многофункциональный — в AdGuard реализованы все возможности, которые нужны вам от блокировщика рекламы.Тип издания: Пиратка/PremiumРелиз состоялся: 21.05.2025Разработчик: Adguard Software LimitedПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDB315FC723D55F4C82768F63FC43603C518421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798562   (17229) от 24.05.2025
+
+В США пройдут усовершенствованные Игры с использованием допинга
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17229.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Лас-Вегасе пройдут спортивные соревнования, в которых спортсменам будет разрешено и, как утверждает The Guardian, даже рекомендовано использовать допинг-препараты.Ожидается, что первые в истории Enhanced Games состоятся 21–24 мая 2026 года. В программу соревнований войдут бег, плавание и тяжелая атлетика. У атлетов будет полный доступ к препаратам, запрещенным (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798428   (17215) от 24.05.2025
 
 WinPE 11-10 Sergei Strelec (x64) 2025.05.22 [Ru]
@@ -6,7 +217,7 @@ WinPE 11-10 Sergei Strelec (x64) 2025.05.22 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17215.jpg" />
 </div>
 
 
@@ -32,7 +243,7 @@ Mazda возобновила продажи автомобилей в Росси
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17075.jpg" />
 </div>
 
 
@@ -59,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17065.jpg" />
 </div>
 
 
@@ -85,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17039.jpg" />
 </div>
 
 
@@ -113,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17038.jpg" />
 </div>
 
 
@@ -139,7 +350,7 @@ Rain World (2017) [Ru/Multi] (1.10.4/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16923.jpg" />
 </div>
 
 
@@ -165,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16899.jpg" />
 </div>
 
 
@@ -191,7 +402,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16790.jpg" />
 </div>
 
 
@@ -217,7 +428,7 @@ Call of Duty: Modern Warfare II (2) (2022) [Ru/En] (9.2.12721522) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16789.jpg" />
 </div>
 
 
@@ -243,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16630.jpg" />
 </div>
 
 
@@ -269,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16621.jpg" />
 </div>
 
 
@@ -295,7 +506,7 @@ Kaspersky Free 21.21.7.384 Repack by LcHNextGen (29.05.2025) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16491.jpg" />
 </div>
 
 
@@ -321,7 +532,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack FitGirl
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16490.jpg" />
 </div>
 
 
@@ -347,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16484.jpg" />
 </div>
 
 
@@ -373,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16483.jpg" />
 </div>
 
 
@@ -399,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16445.jpg" />
 </div>
 
 
@@ -425,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16190.jpg" />
 </div>
 
 
@@ -451,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16176.jpg" />
 </div>
 
 
@@ -462,215 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0137943F0EC8376394E6E8EC5322729FDA1377FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799474   (16155) от 31.05.2025
-
-Россиян пригласили на «Олимпиаду на стероидах»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Организаторы Enhanced Games, которые носят неофициальное название «Олимпиада на стероидах», пригласили на соревнования российских спортсменов.В пресс-службе соревнований заявили, что поддерживают участие российских спортсменов. Они подчеркнули, что на Enhanced Games спортсмены соревнуются как индивидуальные участники. «Конечно, многие будут демонстрировать свою национальность, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799800   (16049) от 01.06.2025
-
-Все VPN — равны, но некоторые равнее: как выжить до осени
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Министерство цифрового развития РФ в течение ближайших шести месяцев намерено выработать единую политику в сфере использования VPN-сервисов в стране. Об этом сообщил глава ведомства Максут Шадаев в ходе выступления на конференции TAdviser Summit.По словам министра, в настоящее время наблюдается рост доли трафика, проходящего через VPN. При этом, как отметил Шадаев, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799403   (16038) от 01.06.2025
-
-Windows 11 Enterprise LTSC x64 24Н2 (build 26100.4061) by ivandubskoj 24.05.2025 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская сборка Windows 11 Enterprise LTSC (x64), с отключенной телеметрией, службами, обходом ограничений - требований к TPM, SecureBoot, RAM и Storage, и с актуальными обновлениями на момент создания релиза.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B0D9756BBFCEAEE33A67424C681AB191A9D26B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215975   (16032) от 01.06.2025
-
-Место встречи / The Place (2017) BDRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девять человек приходят в одно и то же место на встречу к таинственному Незнакомцу в надежде, что он исполнит их сокровенные желания. Загадочный мужчина может претворить в жизнь всё, что они захотят. Но за определенную цену… В обмен на осуществление мечты, каждому из гостей предлагается выполнить необычные задания. Чем сложнее исполнение этой мечты, тем выше цена. (   Читать дальше...   )Производство: Италия, Medusa Film, Lotus Productions, Leone Film Group, Tornante CompanyЖанр: драмаРежиссер: Паоло ДженовезеАктеры: Валерио Мастандреа, Марко Джаллини, Альба Рорвахер, Виттория Пуччини, Рокко Папалео, Сильвио Муччино, Сильва Д'амико, Виничо Маркиони, Алессандро Борги, Сабрина Ферилли, Джулия ЛадзариниПеревод: Дублированный (iTunes)Субтитры: английскиеПродолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B018182DE32481FA837063DDBE67C1E9810EA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799609   (15915) от 02.06.2025
-
-Минцифры рассматривает возможность отказа от СМС для смены пароля на "Госуслугах"
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поменять пароль можно будет через МФЦ или с подтверждением через банковские и другие доверенные приложения, отметил министр цифрового развития РФ Максут Шадаев
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800128   (15913) от 02.06.2025
-
-«Будем душить»: Минцифры РФ хочет ограничить работу AWS и прочих зарубежных облачных сервисов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минцифры РФ допускает вероятность поэтапного ограничения доступа к зарубежным облачным сервисам, у которых имеются российские аналоги. Об этом в рамках мероприятия Tadviser Summit рассказал министр цифрового развития Максут Шадаев.«Президент сказал — будем душить», — приводит источник слова господина Шадаева. Он также добавил, что блокировка сервисов нужна для поддержки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296989   (15903) от 02.06.2025
-
-Коллекция полнометражных мультфильмов Хаяо Миядзаки (1979-2023) BDRip 624p rus
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через три года после начала Тихоокеанской войны мама мальчика Махито погибла при пожаре в Токио, а ещё через год отец женился на её сестре и отправил сына в фамильное поместье в сельской местности. Глава семьи работает на оборонном заводе и редко бывает дома, поэтому мальчику приходится проводить дни с беременной мачехой и в окружении пожилой прислуги, и, кроме того, (   Читать дальше...   )Жанр: аниме, мультфильм, драмаЯзык озвучки: РусскийСубтитры: Русские (форсированные, полные) Студийная БандаПродолжительность: 02:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99BF17AA5F562016BA6D05989D79C7EF60026D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799706   (15806) от 03.06.2025
-
-Грешники / Sinners (2025) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15806.jpg" />
-</div>
-
-
-###  Подробнее
-
-1932 год. После долгих лет отсутствия близнецы Смок и Стэк возвращаются в родной городок в дельте Миссисипи. Они успели повоевать в траншеях Первой мировой, а потом стали гангстерами в Чикаго. Братья выкупают у белого расиста территорию с хозяйственными постройками, чтобы открыть там музыкальный бар для рабочих с плантации. Гвоздь программы на открытии — сын проповедника, (   Читать дальше...   )Производство: США, Австралия, Канада / Warner Bros., Proximity, Australian GovernmentЖанр: ужасы, боевикРежиссер: Райан КуглерАктеры: Майкл Б. Джордан, Хейли Стайнфелд, Майлз Кэйтон, Джек О’Коннелл, Вунми Мосаку, Джейми Лоусон, Омар Бенсон Миллер, Делрой Линдо, Питер Дрейманис, Лола КёркПеревод: Многоголосый профессиональный (HDrezka Studio, LineFilm 18+)Язык озвучки: Русский, АнглийскийСубтитры: Русские (2x Full), Английские (Full, SDH)Продолжительность: 02:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F6DE37A04125A918E1DA77E85C2CE490CE3C0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

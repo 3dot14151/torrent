@@ -1,3 +1,107 @@
+###  Публикация: 1846409   (1051357) от 07.01.2026
+
+Auto Reply: автоответчик v6.4 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой и удобный автоответчик, поддерживающий работу с Facebook, WhatsApp и Skypе. Позволяет создавать шаблоны ответных сообщений и  отвечать  в групповые чаты. Поддерживает фильтрацию по контактам. Включите автоматический ответ одним касанием, нет необходимости устанавливать сложные требования. Автоответчик отправляет автоматический ответ всем, кто обращается к (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 06.01.2026Разработчик: TechInnate SolutionsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4532F7DAB2870667120D3FB86D3C0FFAE59A3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846408   (1051336) от 07.01.2026
+
+Talksy: Навык общения v0.4.1 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весьма оригинальное приложение, способное помочь вам в совершенствовании навыков общения. Позволяет тренировать как словарный запас разговорной речи, так и чёткость, дикцию, качество общения. В приложении предоставлено множество полезных заданий.Тип издания: PremiumРелиз состоялся: 07.01.2026Разработчик: Korop AppsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99CD951A7FDE9505F9B298A300E5F4FF1A389F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846415   (1051335) от 07.01.2026
+
+Цитаты+ — Вдохновение дня v3.7.7 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quotes+ — Твой карманный источник ежедневного вдохновения. Наслаждайся более чем 2800+ вдохновляющими цитатами, чтобы поднять настроение, замотивироваться или задуматься. Простой, чистый и красивый дизайн — Quotes+ помогает сосредоточиться на главном.Тип издания: ProРелиз состоялся: 06.01.2026Разработчик: Sashkin AppsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70281E9C275DE8C55047FD12862DF7C19BB9BE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846400   (1051328) от 07.01.2026
+
+Night clock / Ночные часы v2.11.21 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простые часы для вашего смартфона. Весьма удобны в тёмное время суток. Присутствует возможность вывода информации о погоде, уведомлениях, заряде. Даже online-радио есть.Тип издания: PremiumРелиз состоялся: 06.01.2026Разработчик: Stefan FruhnerПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8767D17649F042FBBC2C856F1BF66346B3D79646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846398   (1051327) от 07.01.2026
 
 Solid Explorer File Manager v3.2.12 + Plugins Mod by Balatan [Ru/Multi]
@@ -6,7 +110,7 @@ Solid Explorer File Manager v3.2.12 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051327.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051325.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ Vanced Tube v5.5.80.342 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051323.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ Win 11 Launcher v9.32 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051318.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ LazyMedia Deluxe v3.426 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051317.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ AyuGram - неофициальный клиент Telegram 12.2.10 Mod by NURIK 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051252.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ Eatr・Здоровые рецепты v2.11.0 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050942.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Solid Explorer File Manager v3.2.11 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050941.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ Nerd AI - Решатель Математики v4.0.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050937.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.10.5 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050892.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ PixelLab Pro - Text on pictures 2.1.6 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050891.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050823.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ Genius Art: Image AI Generator v1.5.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050775.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ Picsart AI Photo Editor, Video v29.1.4 Gold Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050739.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ IPTV Pro v9.1.14 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050738.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ Exo Player - Видеоплеер и IPTV v2.1.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050693.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ Device Info / Информация об устройстве v3.4.1.3 Mod by Bal
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050692.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ VK Музыка: песни и подкасты v8.7 Mod by VK Equals [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050691.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ Night clock / Ночные часы v2.11.17 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050690.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ Grok - ИИ ассистент v1.0.96-release.02 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050689.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ Seven / 7 Минут Упражнение v9.24.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050683.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ STEEZY Studio - Learn To Dance v5.19.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050682.jpg" />
 </div>
 
 
@@ -571,112 +675,6 @@ STEEZY - танцевальная студия №1 на вашем устрой
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01593C2E66E905C3744A90524E5E8A1613DFEAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845432   (1050676) от 31.12.2025
-
-KineMaster - Video Editor & Maker v8.0.9.35926.GP Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скачайте KineMaster и испытайте лучшие возможности редактирования видео! Это легко благодаря мощным инструментам редактирования, эксклюзивным функциям и библиотеке ресурсов, которые можно использовать, чтобы оживить свои видео!Тип издания: PremiumРелиз состоялся: 30.12.2025Разработчик: KineMaster, Video Editor Experts GroupПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8AAFD31C1E44948E257693A08B025F3B35DC6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845434   (1050675) от 31.12.2025
-
-Relax Rain: sleeping sounds v9.3.1 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая большая коллекция звуков дождя для Android. Более 50 звуков дождя (свободные и HD) смешиваемые с громами и музыкой для того, чтобы достичь состояния полного расслабления. Идеально для сна, медитации, концентрации или если у вас есть проблемы, шум в ушах (звон в ушах). Вы можете регулировать громкость дождя, громов и музыки по отдельности, чтобы найти идеальную (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 30.12.2025Разработчик: mikdroidПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54AA3F320B98926F6D662C29658C3F5A9FE90558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845438   (1050667) от 31.12.2025
-
-Photo Mate R3 v4.1.0 Mod by Balatan [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Организуйте свои изображения!
-Photo Mate предлагает библиотеку фотографий, в которой вы можете фильтровать и сортировать все ваши файлы на основе метаданных, таких как камера, диафрагма или ISO, а также настраиваемых рейтингов, меток и ключевых слов. Библиотека может обрабатывать jpg, а также практически любой формат Camera Raw.
-Вы можете оценивать, помечать и добавлять (   Читать дальше...   )Тип издания: Extra ModРелиз состоялся: 30.12.2025Разработчик: TS SystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B15D02E16C1C7B6DCB39CC5B38DCE07491E2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845441   (1050666) от 31.12.2025
-
-Listen Audiobook Player v5.4.1 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот проигрыватель предназначен для воспроизведения контента, предоставленного пользователем. Вы можете получить книги без DRM с таких сайтов, как https://librivox.org/, Overdrive (через вашу библиотеку), http://www.downpour.com/, http://www.loyalbooks.com/ или любого другого места, где можно найти аудио без DRM.Тип издания: ModРелиз состоялся: 30.12.2025Разработчик: acme-android.comПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396D016254F7FA55291DA8BFB72C050C4D2ED6EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

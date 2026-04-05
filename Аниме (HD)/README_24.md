@@ -6,7 +6,7 @@ Deaimon / Deaimon: Recipe for Happines / Дэаймон [2022, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528435.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gunjou no Fanfare | Fanfare of Adolescence | Фанфары юности [2022, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524135.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cue! / Реплика! [2022, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524100.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Gunjou no Magmell | Магмел синего моря [2019, TV, 13 эп.] HDTV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522724.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kyoukai Senki | Amaim Warrior at the Borderline | Воины пограничь�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522565.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520654.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518557.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Saiki Kusuo no Sainan (2018) | Ох, уж этот экстрасенс Сайк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513689.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, МV] BDri
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512569.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Shadow's House | Дом теней [2021, TV, 13 из 13] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507800.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Kawaii Dake ja Nai Shikimori-san / Shikimori's Not Just a Cutie / Шикимор
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507790.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ One Room: Second Season | Из одной комнаты [ТВ-2] [2018, TV, 13 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505769.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Yuri Seijin Naoko-san (2012) / Lesbian Citizen Naoko-san / Наоко - лесб
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503246.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Coquelicot-zaka kara / From Up on Poppy Hill / Со склонов Кокури�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501951.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Marie and Gali / Мари и Гали (первый сезон) [2009, TV, 40 ep
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499047.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Mazinkaizer SKL / Череп Мазинкайзера [2010, OVA, 3] BDrip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495308.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Warau Salesman New / The Laughing Salesman New / Весёлый коммивоя
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491813.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Kuruneko | Кошачьи истории [ТВ] [2009, TV, 100 эп.] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490012.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487176.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ozmafia!! / Академия Оз [2016, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485667.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Yami Shibai / Театр тьмы [ТВ-6] [2018, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482825.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Chihayafuru 2 | Игра Тихайи 2 | Яркая Тихайя [ТВ-2] [2013
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481365.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Shakunetsu no Takkyuu Musume | Scorching Ping Pong Girls | Знойный пин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481207.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Kono Bijutsubu ni wa Mondai ga Aru! / У этого кружка рисован�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481102.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Yami Shibai / Театр тьмы [ТВ-5] [2017, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481069.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Go-Toubun no Hanayome | The Quintessential Quintuplets | Пять невест [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481052.jpg" />
 </div>
 
 

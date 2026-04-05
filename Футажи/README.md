@@ -1,4 +1,32 @@
 https://t.me/izofen
+###  Публикация: 1862352   (1063190) от 
+
+Футажи - SICKBOAT - Sketch Vol. 1: 2D Hand Drawn Animations [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скачайте набор рисованных от руки анимаций для Premiere Pro, FCPX, DaVinci, After Effects и других программ.
+
+Мгновенно добавляйте в свой видеомонтаж пользовательские 2D-анимации, нарисованные от руки. Каждая нарисованная от руки анимация позволяет полностью настраивать размер, цвет и желаемые эффекты. Благодаря предварительно настроенному альфа-слою, вы можете легко (   Читать дальше...   )Формат: MOV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7613F52753C6942BB1AFFD10FAA65C1A509108E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860136   (1061791) от 
 
 Футажи - SICKBOAT - MANDALA: Sacred Geometry Animations Pack [MOV]
@@ -7,7 +35,7 @@ https://t.me/izofen
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061791.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057601.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056973.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055930.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054404.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051028.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041545.jpg" />
 </div>
 
 
@@ -197,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039422.jpg" />
 </div>
 
 
@@ -226,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038227.jpg" />
 </div>
 
 
@@ -252,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038225.jpg" />
 </div>
 
 
@@ -278,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038223.jpg" />
 </div>
 
 
@@ -304,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038218.jpg" />
 </div>
 
 
@@ -331,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038217.jpg" />
 </div>
 
 
@@ -357,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035087.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026184.jpg" />
 </div>
 
 
@@ -409,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026050.jpg" />
 </div>
 
 
@@ -437,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025888.jpg" />
 </div>
 
 
@@ -466,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025886.jpg" />
 </div>
 
 
@@ -494,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025713.jpg" />
 </div>
 
 
@@ -521,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025544.jpg" />
 </div>
 
 
@@ -548,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025182.jpg" />
 </div>
 
 
@@ -574,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025178.jpg" />
 </div>
 
 
@@ -600,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024824.jpg" />
 </div>
 
 
@@ -626,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024823.jpg" />
 </div>
 
 
@@ -653,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024814.jpg" />
 </div>
 
 
@@ -664,32 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C30BFE326A1FF0E94A40D44F187A001ABD2E14D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457035   (1024672) от 24.03.2021
-
-Футажи - BusyBoxx - V13: Glass Breaks [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выделите время для создания сокрушительный дизайна. Позвольте себе минутку слабости - дайте вашим идеям сбыться! Преобразите ваши движения. Снято с помощью новейшей камеры Phantom 4K Flex. Вам понравится гибкость, которую дает 1000FPS, и ее влияние на ваши видеопроекты.Формат: MP4Разрешение файлов: 4096 x 2304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8860A45AE8422CD726B44F1A61701EC9BB83E4AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

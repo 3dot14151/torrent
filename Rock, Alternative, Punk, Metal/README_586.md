@@ -1,3 +1,32 @@
+###  Публикация: 1404674   (491311) от 26.08.2020
+
+Andy James - C.S.I.L (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Shred Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die a Devil [00:04:04]
+02. Boots on the Ground [00:04:02]
+03. Valley of Shadows [00:03:45]
+04. Satellites [00:03:54](   Читать дальше...   )Жанр: Progressive Metal, Shred Metal, InstrumentalПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0086589210CE2443E32429ECFA3616292745B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404739   (491310) от 26.08.2020
 
 Добрые Поступки - ТвАри Добро (2020) [MP3|320 Kbps] <Punk Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491310.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Linda Ronstadt - Original Album Series 5CD BoxSet (2009) [FLAC|Lossless]<Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491206.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Powerwolf - Best Of The Blessed (2020) 2CD [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491186.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Guided by Voices - Mirrored Aztec (2020) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491179.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ VA - Discover More Classic Rock (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491177.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Perfect Plan - All Rise (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491109.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490895.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490868.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ Queen - A Day At The Races (1976) Japanese Edition, 2018 [FLAC|lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490769.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Queen - News Of The World (1977) Japanese Edition, 2018 [FLAC|lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490759.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Queen - The Game (1980) Japanese Edition, 2018 [FLAC|lossless|image + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490687.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Queen - A Night At The Opera (1975) Japanese Edition, 2018 [FLAC|lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490685.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Uriah Heep - Sweet Freedom (Live) (2019) [MP3|320 Kbps] <Hard Rock, Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490679.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Pikku-Orava - 3 Альбома (2006-2007) [MP3|320 kbps] <Comedy Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490640.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ Phylactery - Aeber (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490510.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ True Lilith - Celestopia (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490443.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ Palisades - Reaching Hypercritical (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490440.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ Joe Macre - The Dream Is Free (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490439.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ Enforcer - Live By Fire II (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490437.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ Shroud of Bereavement - A Beautiful Winter (2022) [MP3|320 Kbps] <Epic Doom, Neo
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490436.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ Playhouse - Dancing At Funerals (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490434.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ Howard Jones (Devil You Know, Light The Torch) - Сollection (2014-2021) 5CD [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490425.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ Baxter Dury - It's a Pleasure (2014) [FLAC|Lossless|tracks + .cue] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490336.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ Kansas - The Prelude Implicit (2016) Deluxe Edition [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490286.jpg" />
 </div>
 
 
@@ -711,7 +740,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490211.jpg" />
 </div>
 
 
@@ -725,35 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FD8A26D54CA53B602C8CB928E30A2C1E01D8944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937286   (490185) от 14.09.2015
-
-Wolfheart - Shadow World (2015) [FLAC|Lossless]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeon of Cold
-02. Zero Gravity
-03. Storm Centre
-04. Last of All Winters(   Читать дальше...   )Тип издания: АльбомЖанр: Melodic Death MetalПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3E2EF69352C873C460483BE8301BF719F4500F
 ```
 
 https://mybot314.ru/tekegram_catalog/

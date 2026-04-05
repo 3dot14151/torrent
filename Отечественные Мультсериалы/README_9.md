@@ -1,3 +1,29 @@
+###  Публикация: 1631031   (236243) от 04.05.2023
+
+Приключения Незнайки и его друзей (1971-1973) DVD5
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236243.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Цветочном городе живут коротышки - маленькие человечки, малыши и малышки: Астроном Стекляшкин, поэт Цветик, ученый Знайка, доктор Пилюлькин, музыкант Гусля, художник Тюбик, механики Винтик и Шпунтик, Пончик, Сиропчик и многие-многие другие. Но самым известным среди коротышек был малыш по имени Незнайка, который прославился тем, что ничего не знал.Производство: СССР, ТО «Экран»Жанр: мультфильм, детскийРежиссер: Леонид Аристов, Юрий Трофимов, Кирилл Малянтович, Александр Боголюбов, Юрий КлепацкийАктеры: Тамара Дмитриева, Александра Бабаева, Рина Зелёная, Мария Виноградова, Зиновий Гердт, Зинаида Нарышкина, Маргарита Корабельникова, Клара Румянова, Агарь Власова, Ольга ГромоваСубтитры: ОтсутствуютПродолжительность: 02:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8CDAD1F837A7ED2FB44F5B76B38BA1B9D4DA0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631388   (236048) от 05.05.2023
 
 Незнайка на Луне (1997-1999) DVDRip (Сезон 1 серии 1-12 из 12)
@@ -6,7 +32,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236048.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234686.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234567.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234337.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231104.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230320.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228024.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226102.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216102.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214948.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212242.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211627.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207916.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207868.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207840.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207755.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207430.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203997.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202687.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201218.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200742.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199497.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198974.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197631.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197386.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB900908EF704FFD5DCFCCB51327270B59EFF45F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638304   (197368) от 08.06.2023
-
-Ева. Связь сквозь время (2023) WEBRip [H.264] (сезон 1, серии 1-3 из 3)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ева — андроид из далёкого будущего — прибывает в наши дни, чтобы встретить своего создателя, молодого ученого Диму, и спасти человечество от техногенной аномалии.Производство: Россия / It's Alive StudioЖанр: фантастикаРежиссер: Антон Уткин, Наталья ПокровскаяАктеры: Елена Ходунова, Евгений МарковСубтитры: Русские (SDH)Продолжительность: ~00:05:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE9EE88BE9A1D2B91EBAF8E0155BFFBD7F6AEB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

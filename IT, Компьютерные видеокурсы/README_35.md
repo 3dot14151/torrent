@@ -1,29 +1,3 @@
-###  Публикация: 1112832   (839143) от 10.03.2017
-
-ITVDN | Angular2 Essential (2017) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс создан для изучения Angular 2, который является переработанной и улучшенной версией популярного фреймворка AngularJS. Среди преимуществ этой технологии можно отметить высокую производительность, удобство работы и использование TypeScript в качестве основного языка для разработки. Курс состоит из 7 уроков, в течении которых Вы изучите такие основные темы, (   Читать дальше...   )Производство: ITVDNЖанр: ПрограммированиеПродолжительность: 09:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6F335197C1BD42FA6BE84106400C59FC0DC06D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309275   (837453) от 18.03.2011
 
 Geekatplay™ Studio | Vue Video Tutorials, Vue FX [2008] WEB-DLRip
@@ -32,7 +6,7 @@ Geekatplay™ Studio | Vue Video Tutorials, Vue FX [2008] WEB-DLRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837453.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ Udemy, Dr. Angela Yu | The Complete 2021 Flutter Development Bootcamp with Dart 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836017.jpg" />
 </div>
 
 
@@ -89,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835521.jpg" />
 </div>
 
 
@@ -117,7 +91,7 @@ Geekbrains | Видеокурс Excel 2.0 (2021) PCRec [AD]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834760.jpg" />
 </div>
 
 
@@ -146,7 +120,7 @@ Webflow | Официальный курс для начинающих по со�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833791.jpg" />
 </div>
 
 
@@ -172,7 +146,7 @@ Udemy, Maximilian Schwarzmüller | Flutter & Dart - The Complete Guide [2021 Edi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829684.jpg" />
 </div>
 
 
@@ -200,7 +174,7 @@ Stepik | Основы программирования на Python (2020) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827353.jpg" />
 </div>
 
 
@@ -226,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825834.jpg" />
 </div>
 
 
@@ -252,7 +226,7 @@ Lectrum | Продвинутый видеокурс по Redux, с фундам�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825828.jpg" />
 </div>
 
 
@@ -278,7 +252,7 @@ Lectrum | Видеокурс по TypeScript (2020) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825723.jpg" />
 </div>
 
 
@@ -304,7 +278,7 @@ Lectrum | Видеокурс по GraphQL (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825721.jpg" />
 </div>
 
 
@@ -330,7 +304,7 @@ Lectrum | Введение в веб-разработку JavaScript, c глуб
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825720.jpg" />
 </div>
 
 
@@ -356,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825718.jpg" />
 </div>
 
 
@@ -382,7 +356,7 @@ Lectrum | Продвинутый курс по Docker, полное погруж
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825633.jpg" />
 </div>
 
 
@@ -408,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825631.jpg" />
 </div>
 
 
@@ -436,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825626.jpg" />
 </div>
 
 
@@ -462,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825623.jpg" />
 </div>
 
 
@@ -488,7 +462,7 @@ Lectrum | Продвинутый курс по Webpack v4, с чистого л�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823985.jpg" />
 </div>
 
 
@@ -514,7 +488,7 @@ Lectrum | Продвинутый курс по Redis (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823983.jpg" />
 </div>
 
 
@@ -540,7 +514,7 @@ Profileschool | Калибровка принтера: от А до Я (2015) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823954.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ Geekbrains | Swift. Уровень 1-2 (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823729.jpg" />
 </div>
 
 
@@ -595,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823726.jpg" />
 </div>
 
 
@@ -621,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823720.jpg" />
 </div>
 
 
@@ -647,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822577.jpg" />
 </div>
 
 
@@ -676,7 +650,7 @@ itProger | Профессия FULL STACK разработчик (2021) WEB-DL [A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822411.jpg" />
 </div>
 
 
@@ -688,6 +662,35 @@ itProger | Профессия FULL STACK разработчик (2021) WEB-DL [A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9141BEB734FDC7E8BB806EEB6880C0C15C1CED63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196518   (821995) от 03.01.2018
+
+Geekbrains | Профессия Разработчик игр (2017) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто такой Разработчик игр? Создатель программного кода, который визуализирует игровой мир и взаимодействия игрока с этим миром.
+
+C# уровень 1
+unity 3d уровень 1(   Читать дальше...   )Производство: GeekbrainsЖанр: Разработка игрПродолжительность: 33:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8505032EE544CA717C6E19D2ACDEBF72ABAB34D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

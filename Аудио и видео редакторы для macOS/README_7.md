@@ -6,7 +6,7 @@ Jaksta Deluxe 2.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525819.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ inMusic Brands BFD3 for Mac 3.4.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523547.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ DM1 - The Drum Machine 2.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523210.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Jaksta 1.4.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523093.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Logic Pro X 10.4.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522054.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Submerge 3 v3.9.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522044.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ GuitarFineTune 9.7.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519835.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Steinberg VST Live Pro 1.10.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519720.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Acon Digital AudioLava for Mac 2.1.2 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518861.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Acon Digital Acoustica Premium Edition 7.4.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518793.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Wondershare Filmora 6.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512665.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Switch Pro 4 v4.5.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500500.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ beQUIETsimple 3.45 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499745.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ PCDJ DEX PRO 3 v3.18.0.0 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498590.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ MP3 Gain - Audio Normalization 5.3.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497721.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Easy Audio Mixer 2.8.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492592.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Tagr 5 v5.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490507.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ NCH Debut Professional 8.42 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490432.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ NCH Express Animate 7.34 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488365.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ iSubtitle 3.1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486169.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Audio Record Studio 2.1.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485597.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Virtual Background Customizer 1.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482333.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ All Remixes 1.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474418.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Triumph 2.5.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450776.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Image-Line FL Studio Producer Edition 20.0.4.57 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448067.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Video Editor Enhancer 1.0.29 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444245.jpg" />
 </div>
 
 

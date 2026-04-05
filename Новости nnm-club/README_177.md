@@ -1,3 +1,57 @@
+###  Публикация: 542413   (430437) от 03.10.2012
+
+Косяки (Дурман) / Weeds (2012) HDTV [1080i] (8 сезон, 1-13 серии из 13)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Речь в сериале идет не о борьбе с наркотиками и не о том, как же вредна наркомания; здесь представлен взгляд совершенно с другой стороны - Нэнси живет в предместье, где у каждого свой "скелет в шкафу". Нэнси – вдова с двумя весьма оригинальными детьми. Старший, Сайлас, мальчик умный и интересный, с постоянными проблемами на любовном фронте, младший, Шейн (   Читать дальше...   )Жанр: Драма, Криминал, Чёрная КомедияРежиссер: Крейг Зиск(Craig Zisk), Скотт Эллис, Пол Фейг, Лев Л. СпироАктеры: Мэри-Луиз Паркер(Нэнси Ботвин), Хантер Пэрриш(Сайлас Ботвин), Александр Гулд(Шейн Ботвин), Кевин Нилон(Даг Вилсон), Джастин Кирк(Энди Ботвин) и др.Перевод: Одноголосный закадровый, (любительский) (2 вида)Озвучка / Автор перевода: Язык субтитров: Русский + АнглийскийПродолжительность: ~27 минут - серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521049   (430430) от 03.10.2012
+
+Dakara Boku wa, H ga Dekinai / Говорю же, у меня не встаёт!  [2012, TV, 12 из 12] HDTV 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая синигами, богиня смерти Лисара Ресталл является в мир людей, чтобы восстановить славу и влияние своего клана. В мире сериала синигами питаются чужой энергией, причем только избранные могут удовлетворить потребности высших существ. Найти такого партнера непросто, ведь душа большинства людей мелковата, в ней нет стержня, источника внутренней силы. Гостья не знала, что судьба, которая выше богов, уже приготовила ей сюрприз в лице простого парня по имени Рёсукэ Кага. А в чем сила простого 17-летнего японского школьника? Конечно же, в… воображении! В этой области Кага непобедимый чемпион, правда, большинство одноклассниц зовут его проще – извращенцем.
+
+Да, Рёсукэ не святой, но его эротические мечты имеют такую силу, что гордая Лисара, скрепя сердце, согласилась на временный контракт, иначе ее миссия провалилась бы. Теперь они партнеры, и каждый получил от союза что-то свое: юная богиня начала лучше понимать окружающих, а земной парень стал меньше фантазировать и получил шанс среди приключений и битв «перейти (   Читать дальше...   )Жанр: комедияРежиссер: Такахаси ТакэоПеревод: Kampfer 1-12 иПродолжительность: (12 эп.), 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E171ABEB1FC6F3CD8BC2D253AA79D82BE406D9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 354479   (430423) от 03.10.2012
 
 Игорь Растеряев - 2 альбома (2010-2011) [MP3|320 kbps]<Авторская песня>
@@ -6,7 +60,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430423.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429937.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Null DC [Sega Dreamcast] [Ru] (2011-2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429884.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ Quantum Break (2016) [Ru/Multi] (1.0.118.7029/u1) SteamRip Let'sPlay
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429678.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429038.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_428807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428807.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ ACDSee Ultimate 9.0 Build 565 RePack by KpoJIuK (11.10.2015) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428461.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ WRC 5 FIA World Rally Championship (2015) [En] (1.0) License RELOADED
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428452.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_427899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_427899.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ Spore Антология [Multi18/Ru/En] (Repack/v.1.0-1.05.0001/Upd1) 2008-2009
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_427824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_427824.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427730.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427387.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427202.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427037.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426928.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ Malwarebytes Anti-Malware Premium 2.2.0.1024 Final Portable by PortableAppZ [Mul
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426478.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ Malwarebytes Anti-Malware Premium 2.2.0.1024 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426474.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_425811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_425811.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425775.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ Just Dance 2 [Wii] [PAL] [ENG] (2010)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_425693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_425693.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ Kirby's Epic Yarn [Wii] [NTSC2PAL] [Eng/Esp] (2010)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_425691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_425691.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ Windows Embedded 8.1 Industry Enterprise x64 Release by StartSoft 52-2017 [Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425622.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_425119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_425119.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425103.jpg" />
 </div>
 
 
@@ -630,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56F256BCBE2D1BEBA6BBCCFEFE8EA472F6C0F63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250478   (424324) от 28.09.2018
-
-Обвиняемый в растрате пресс-секретарь Роскомнадзора Ампелонский вернулся к работе
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_424324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пресс-секретарь Роскомнадзора Вадим Ампелонский, обвиняемый в растрате, вернулся к работе в ведомстве. Об этом Агентству городских новостей «Москва» сообщил его адвокат Сергей Седаков.«Все запреты сняты, он уже на рабочем месте», - рассказал он.Расследование уголовного дела о растрате более 58 млн руб. в Роскомнадзоре завершено, сообщало ранее агентство. Обвиняемые (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642469   (424253) от 14.10.2015
-
-Кто не пускает нас на Марс? (2013) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из главных тайн Марса открыта! На нем когда-то была вода. Это стало известно после обнаружения роботом Курьесити неоспоримых признаков существовавшей когда-то на планете жизни. Аппарат, название которого переводится как "любопытство", помог впервые ответить на один из важных вопросов: есть или была ли когда-то на Марсе жизнь?
- Но не менее удивительно (   Читать дальше...   )Телекомпания: Россия, ВГТРК, телекомпания "Goldmedium"Жанр: Документальный, космос, гипотезы, исследованиеРежиссер: Андрей РозовПеревод: Не требуется (русский язык)Субтитры: ОтсутствуютПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B7FF57653F7121BAAF99EE18D184A175D1F56A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 579291   (348192) от 23.11.2012
+
+Cactus - The New Cactus Band (1970-1973) 5 CD Box Set /Victor,2009/ [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_348192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Getting Better (3:50)
+02. I Can't Wait (3:27)
+03. Hook Line And Sinker (3:56)
+04. It's Just A Feelin' (4:11)
+05. Lady (Spend My Life With You) (4:29)
+06. Ragtime Suzy (2:47)
+07. Blue Gipsy Woman (3:21)
+08. Senseless Rebel (3:28)
+09. Man Is A Boy (3:30)
+10. Hold On To My Love (4:14)(   Читать дальше...   )Жанр: Blues, Classic, Hard RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578178   (348163) от 22.09.2022
+
+Moritz - About Time Too (2017) [FLAC|Lossless|image + .cue] <AOR, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. About Time Too
+02. One More Beautiful Day
+03. To The Moon and Back
+04. Chance Of A Lifetime(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A955551BAAC28E615C258E2AAF0B4B519ABA06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578166   (348159) от 22.09.2022
+
+Prayer - Silent Soldiers (2018) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Treatment
+02. Rock And A Hard Place
+03. Fires Of The Heart
+04. Feel Like A Prisoner(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3BE97C53D8203A81193627A702F48399EFA8A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578200   (348072) от 22.09.2022
+
+Stan Bush - Change The World (2017) [FLAC|Lossless|image + .cue] <AOR, Arena Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change The World 5:00
+02. Warrior 3:23
+03. Born To Win 3:16
+04. Never Surrender 3:27(   Читать дальше...   )Жанр: AOR, Arena Rock, Pop RockПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28077A39FB55168022A8293B3542095C02D7EB87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578121   (348070) от 22.09.2022
 
 King Buffalo - Regenerator (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
@@ -6,7 +128,7 @@ King Buffalo - Regenerator (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348070.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ Nad Sylvan - The Regal Bastard (2019) [FLAC|Lossless|tracks + .cue] <Prog Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348007.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ Magic Pie - Fragments of the 5th Element (2019) [FLAC|Lossless|tracks + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348003.jpg" />
 </div>
 
 
@@ -93,7 +215,7 @@ VA - Rock Sound: Sound Check No. 112 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347937.jpg" />
 </div>
 
 
@@ -122,7 +244,7 @@ VA - Rock Sound: Sound Check No. 115 (2008) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347934.jpg" />
 </div>
 
 
@@ -151,7 +273,7 @@ VA - Rock Sound: Sound Check No. 113 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347932.jpg" />
 </div>
 
 
@@ -180,7 +302,7 @@ Ian Anderson - 6 Альбомов (1983 - 2005) [FLAC|Lossless]<Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347822.jpg" />
 </div>
 
 
@@ -211,7 +333,7 @@ VA - Rock Sound: Sound Check No. 114 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347786.jpg" />
 </div>
 
 
@@ -240,7 +362,7 @@ Millenium - Tales From Imaginary Movies (2022) [FLAC|Lossless|image + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347610.jpg" />
 </div>
 
 
@@ -269,7 +391,7 @@ The Rolling Stones - GRRR! (2012) Super Deluxe Edition, 5CD+7” Vinyl [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347258.jpg" />
 </div>
 
 
@@ -299,7 +421,7 @@ Philhelmon - Enjoy It While It Lasts (2012) [FLAC|Lossless|tracks + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346939.jpg" />
 </div>
 
 
@@ -328,7 +450,7 @@ VA - Rock Sound: Sound Check No. 118 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345929.jpg" />
 </div>
 
 
@@ -357,7 +479,7 @@ VA - Rock Sound: Sound Check No. 121 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345925.jpg" />
 </div>
 
 
@@ -386,7 +508,7 @@ VA - Rock Sound: Sound Check No. 116 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345921.jpg" />
 </div>
 
 
@@ -415,7 +537,7 @@ VA - Rock Sound: Sound Check No. 102 (2007) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345919.jpg" />
 </div>
 
 
@@ -444,7 +566,7 @@ BlackLight - Follow The Future (2020) [FLAC|Lossless|image + .cue] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345855.jpg" />
 </div>
 
 
@@ -473,7 +595,7 @@ Banco Del Mutuo Soccorso - Orlando: Le Forme Dell’Amore (2022) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345844.jpg" />
 </div>
 
 
@@ -502,7 +624,7 @@ Lunatic Soul - Through Shaded Woods (2020) 2xCD [FLAC|Lossless|image + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345840.jpg" />
 </div>
 
 
@@ -531,7 +653,7 @@ VA - Rock Sound: Sound Check No. 101 (2007) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345796.jpg" />
 </div>
 
 
@@ -560,7 +682,7 @@ INXS - Full Moon, Dirty Hearts (1993) Japanese Edition [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345712.jpg" />
 </div>
 
 
@@ -589,7 +711,7 @@ The Alan Parsons Project - The Collection (2010) [FLAC|Lossless]<Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_345159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345159.jpg" />
 </div>
 
 
@@ -624,7 +746,7 @@ Texas Hippie Coalition - High In The Saddle (2019) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344704.jpg" />
 </div>
 
 
@@ -638,122 +760,6 @@ Texas Hippie Coalition - High In The Saddle (2019) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E51F10060E2C7B29EDBD1323E95230F4BA586CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418936   (344433) от 26.10.2020
-
-Kozak System - 2 Альбома (2012 - 2015) [FLAC|Lossless|tracks + .cue]<Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Живи і люби
-02. Не було і от
-03. Криза С.В.
-04. Коли вона(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C667C87C9C4967632E5884F46A4438B583367D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578505   (343652) от 24.09.2022
-
-LaMacchia - Thunderheads (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bled Out [00:03:33]
-02. Put You Down [00:03:30]
-03. A Ghost On Tectonic Plates [00:04:36]
-04. Its All Over Now [00:04:43](   Читать дальше...   )Жанр: RockПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB553F6C356500D34DB12836A6F2154BFA388A0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578502   (343650) от 24.09.2022
-
-Freedom Hawk - Take All You Can (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age of the Idiot
-02. Take All You Can
-03. We All Need Rock n' Roll
-04. Seize the Day(   Читать дальше...   )Жанр: Heavy Rock, Stone, DoomПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22381F71436695991CC09A6D1D9366F131ACFFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578528   (343647) от 24.09.2022
-
-Atme - Mantrakora (2021) EP [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343647.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hybrydy
-2. The River
-3. Iceberg
-4. Mantracore(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D8DB87FA32AAE9D138D4067850779C7B32FA9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

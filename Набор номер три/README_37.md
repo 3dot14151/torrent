@@ -1,3 +1,160 @@
+###  Публикация: 1317558   (1016003) от 14.05.2021
+
+Приключения Пети и Волка (2018-2021) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-21 из 26) [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016003.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о приключениях обычного школьника Пети и его друга Волка, связывающего мир людей с миром сказок. Петя помогает волшебным героям решать их волшебные проблемы, требующие нестандартного подхода. Студия «Союзмульфильм» представляет оригинальный и остроумный мультсериал режиссера и сценариста Алексея Лебедева («Смешарики», «Атомный лес», «Пиратская школа»). На (   Читать дальше...   )Производство: Россия | СоюзмультфильмЖанр: Мультсериал, Приключения, Комедия, ФэнтезиРежиссер: Алексей ЛебедевАктеры: Владимир Маслаков, Иван Чабан, Анна Геллер, Андрей Левин, Михаил ХрусталевПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~00:11:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACA3042E13055F193A976E064EF7D612C9945C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470000   (1015834) от 15.05.2021
+
+В России заблокировали 4PDA
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мосгорсуд вынес решение заблокировать популярный российский техноресурс 4PDA. 14 мая сайт был внесён в базу запрещённых в России — на момент написания новости он не доступен. Согласно делу, причина блокировки — размещение ссылок на IPTV-плейлисты со спортивными трансляциями. Жалобу подал «Матч ТВ»:Запретить КлаудФлэр, Инк создание технических условий, обеспечивающих (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469883   (1015832) от 15.05.2021
+
+Джинн / The Djinn (2021) WEB-DL [H.264/1080p] [AVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015832.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летний немой мальчик Дилан недавно потерял маму. Они с отцом переезжают в новый дом, где мальчик находит книгу с заклинаниями и по неопытности вызывает джинна, который обещал исполнить желание, а на самом деле пришёл за душой ребёнка.Производство: США, Mad Descent, Kinogo PicturesЖанр: УжасыРежиссер: Дэвид Шарбонэр, Джастин ПауэллАктеры: Эзра Дьюи, Роб Браунштейн, Тэви По, Джон Эриксон, Дональд ПиттсПеревод: Авторский (BadBajo)Субтитры: Английские (отключаемые)Продолжительность: 01:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91536853BF2AB526D62A9559EFAF56D1FB177E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469416   (1015824) от 15.05.2021
+
+Кислород / Oxygène / Oxygen (2021) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина просыпается в криогенной камере и понимает, что потеряла память. Запасы кислорода подходят к концу, и, чтобы выжить, ей необходимо вспомнить прошлое.Производство: Франция, США / Echo Lake Entertainment, Getaway Films, Wild Bunch InternationalЖанр: фантастика, фэнтези, триллер, драмаРежиссер: Александр АжаАктеры: Мелани Лоран, Матьё Амальрик, Малик Зиди, Марк Саез, Лаура Бужена, Lyah Valade, Cathy Cerda, Marie Lemiale, Паскаль Жермен, Эрик Эрсон-МакарельПеревод: Дублированный (Пифагор)Язык озвучки: Русский, украинский, французскийСубтитры: Русские (Forced,  Full), украинские (Forced,  Full), французские (SDH), английскиеПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91638C079A5D497CA987971603FA0834A5CE0455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469662   (1015681) от 16.05.2021
+
+Стало известно, сколько денег в месяц нужно россиянам для счастья
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средняя сумма составляет 173 тыс. рублей в месяц, свидетельствуют данные опроса
+Необходимая для счастья россиянам средняя сумма составляет 173 тыс. рублей в месяц. Об этом свидетельствуют данные опроса портала Superjob, опубликованные в среду."Чтобы чувствовать себя счастливыми, россиянам в среднем нужно 173 тыс. руб. в месяц. Это больше, чем в январе (166 тыс. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282816   (1015664) от 16.05.2021
+
+Фиксики / Фиксики. Новенькие (2010-2021) WEB-DL [H.264/720p-LQ] (сезон 1-4, серии 1-184 из 209) + Фиксики. Большой секрет / Фиксики против Кработов / Фиксипелки
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015664.jpg" />
+</div>
+
+
+###  Подробнее
+
+«А кто такие фиксики — большой-большой секрет!» — так поётся в песенке про фиксиков. До недавнего времени люди почти ничего не знали об этих маленьких человечках, которые живут внутри машин и приборов. Фиксики ухаживают за техникой изнутри, чистят её, смазывают, устраняют мелкие поломки. Они — умелые и добросовестные мастера. Фиксики привыкли скрываться от людей, (   Читать дальше...   )Производство: Россия | «Аэроплан»Жанр: Компьютерная анимация, ДетскийРежиссер: Васико Бедошвили, Андрей Колпин, Сергей МериновАктеры: Дмитрий Назаров, Лариса Брохман, Инна Королёва, Иван Добряков, Яков Васильев, Диомид ВиноградовПеревод: Не требуетсяПродолжительность: Фиксики ~00:06:00 / Фиксики. Большой секрет ~01:17:57 / Фиксики против Кработов ~01.25.58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4967A68300F04103BFE7C9357E69D27F97D2263C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470077   (1015538) от 17.05.2021
 
 Понять и простить. Как кошки на самом деле относятся к хозяевам
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015538.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 21.05.12 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015527.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015398.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015381.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ Garmin: Дороги России ТОПО 6.36 (FID 3332 + FID 4594) 6.36 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015365.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.7.16/dlc) Repack W
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015355.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ Days Gone (2021) [Ru/Multi] (1.0) License FAIRLIGHT
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015353.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015351.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015226.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015206.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015037.jpg" />
 </div>
 
 
@@ -295,7 +452,7 @@ Adobe Photoshop 2021 22.4.1.211 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015028.jpg" />
 </div>
 
 
@@ -321,7 +478,7 @@ Windows 10 Pro 21H1 19043.985 x64 ru by SanLex (edition 2021-05-19) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015022.jpg" />
 </div>
 
 
@@ -347,7 +504,7 @@ Windows 10 21H1 (x64) 16in1 +/- Office 2019 by Eagle123 (05.2021) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014874.jpg" />
 </div>
 
 
@@ -373,7 +530,7 @@ Subnautica: Below Zero (2021) [Ru/Multi] (1.0) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014866.jpg" />
 </div>
 
 
@@ -399,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014769.jpg" />
 </div>
 
 
@@ -425,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014768.jpg" />
 </div>
 
 
@@ -453,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014726.jpg" />
 </div>
 
 
@@ -479,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014710.jpg" />
 </div>
 
 
@@ -505,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014705.jpg" />
 </div>
 
 
@@ -516,162 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF4CFB2360A98C0B3CE2AE46A86889B61F46F4BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471861   (1014599) от 23.05.2021
-
-ScienceAlert: Физикам из США удалось превысить скорость света, нарушив теорию Энштейна
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Физики из Соединенных Штатов Америки провели работу, в ходе которой, задействовав световые импульсы, превысили скорость света. Подчеркивается, что ученые использовали горячую плазму для проведения эксперимента. При этом специалисты придерживались того, что скорость света не представляет собой константу. Иными словами, есть возможность преодолеть скорость в 300 000 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471692   (1014573) от 23.05.2021
-
-8 явлений в кино, которые Голливуд показывает неправильно
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014573.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Море лавы относительно безопасная штукаОзёра и реки расплавленной породы, конечно, горячие, но, если не наступать ногой непосредственно в магму, ничего страшного не произойдёт. Поэтому жерло вулкана — отличное место для строительства неприступного замка или злодейской базы. Кроме того, магма течёт примерно так же, как вода, поэтому по ней можно кататься на огнеупорных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471837   (1014567) от 23.05.2021
-
-Windows 10 Enterprise LTSC (x86/x64) 8in1 +/- Office 2019 by Eagle123 (05.2021) [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 Enterprise LTSC v1809 17763.1935, включающая в себя 2 русских и 2 английских редакции x86/x64, с обновлениями по 05.2021, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC30E9B7E6A7ED353A6800403B9878D29B045605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384398   (1014564) от 23.05.2021
-
-Смешарики. Новый сезон (2020-2021) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-49 из 52) [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений любимых круглых героев в формате 2D. Это трогательные ироничные сюжеты о жизни, близкие и понятные детям и взрослым. Любопытные до всего нового Смешарики будут попадать в неожиданные ситуации или создавать их сами, в характерах персонажей зрители традиционно узнают себя.Производство: Россия | Студия компьютерной анимации "Петербург" / «Рики»Жанр: Мультсериал, Анимация, ДетскийРежиссер: Денис Чернов, Алексей Горбунов, Александра АверьяноваАктеры: Вадим Бочанов, Антон Виноградов, Сергей Мардарь, Владимир Постников, Светлана Письмиченко, Михаил Черняк, Владимир Маслаков, Максим Сергеев, Игорь Яковель, Денис ЧерновПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 00:06:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07741B6D0F69500C005C615671ADAD57567C6EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471853   (1014563) от 23.05.2021
-
-Microsoft® Windows® 10 Professional VL x86-x64 21H1 RU by OVGorskiy 05.2021
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cборка на основе оригинальных русских образов новой версии операционной системы Windows 10 Pro VL x86-x64 (21H1) от Microsoft с дополнительным материалом разных разрядностей (архитектуры) в 2-х разных образах (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DADE3BF0A09C5DE65DB396EB6EB6050ACBF6C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472304   (1014266) от 25.05.2021
-
-Роскомнадзор пригрозил замедлить Google в России
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google недостаточно фильтрует запрещенный в РФ контент и не удаляет от 20 до 30% ссылок на него. Роскомнадзор не исключает замедление трафика сервисов компании, сообщили ТАСС в пресс-службе ведомства."Google не в полной мере выполняет обязанность по исключению из поисковой выдачи на территории России ссылок на интернет-ресурсы с запрещенной в нашей стране информацией. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

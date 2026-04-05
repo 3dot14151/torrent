@@ -1,82 +1,3 @@
-###  Публикация: 582336   (317318) от 30.11.2012
-
-Срочная доставка / Premium Rush (2012) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_317318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-йоркский посыльный в один прекрасный день забирает некий конверт в Колумбийском университете. Но оказывается, что содержимое послания очень интересует одного коррумпированного полицейского, который начинает преследование героя.Производство: США / PariahЖанр: Боевик, триллерРежиссер: Дэвид КеппАктеры: Джозеф Гордон-Левитт, Дания Рамирез, Шон Кеннеди, Ким Перфетто, Энтони Чишолм, Эшли Остин Моррис, Уоли Паркс, Кевин Болджер, Аасиф Мандви, Лорен Эшли КартерПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский, Украинский, Арабский, Иврит, Хинди, Болгарский, Хорватский, Чешский, Эстонский, Греческий, Венгерский, Исландский, Литовский, Польский, Португальский, Румынский, Словацкий, Словенский, ТурецкийПродолжительность: 01:27:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725983   (317042) от 29.11.2013
-
-Фантом / Phantom (2013) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан советской подводной лодки держит в своих руках судьбу всего мира. Вынужденному покинуть свою семью, ему приходится возглавить секретную миссию окутанную тайной…Производство: СШАЖанр: ТриллерРежиссер: Тодд РобинсонАктеры: Эд Харрис, Дэвид Духовны, Уильям Фихтнер, Лэнс Хенриксен, Джонатон Шек, Джейсон Бех, Дагмара Доминчук, Дерек Магияр, Шон Патрик, Флэнери Джейсон, Грей-Стенфорд...Перевод: Профессиональный (многоголосый закадровый)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский, Испанский, Нидерландский, Немецкий, Итальянский, Болгарский, Эстонский, Греческий, Латышский, Литовский, Польский, РумынскийПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00B5F7AA62355CDFE67763A21EA5F7F204F4AFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 726992   (316735) от 29.11.2013
-
-Фантом / Phantom (2013) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kапитан советской подводной лодки держит в своих руках судьбу всего мира.
-Вынужденному покинуть свою семью, ему приходится возглавить секретную миссию окутанную тайной…Производство: США / RCR Media Group, Trilogy Entertainment Group, Solar FilmworksЖанр: триллерРежиссер: Тодд РобинсонАктеры: Эд Харрис, Дэвид Духовны, Уильям Фихтнер, Лэнс Хенриксен, Джонатон Шек, Джейсон Бех, Дагмара Доминчук, Дерек Магияр, Шон Патрик, Флэнери Джейсон, Грей-СтенфордПеревод: Профессиональный (многоголосый закадровый) (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Английский, Испанский, Нидерландский, Немецкий, Итальянский, Болгарский, Эстонский, Греческий, Латышский, Литовский, Польский, РумынскийПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E8A26F642DD184BFCABD1543A2419BA9BF3F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 725847   (316539) от 29.11.2013
 
 Росомаха: Бессмертный / The Wolverine (2013) DVD5
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316539.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315837.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315608.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315529.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_312304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_312304.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_311774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_311774.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310602.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310500.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_309407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_309407.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_307215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307215.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306656.jpg" />
 </div>
 
 
@@ -371,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_305590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305590.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_305086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305086.jpg" />
 </div>
 
 
@@ -427,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_305079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305079.jpg" />
 </div>
 
 
@@ -453,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304347.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303852.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303705.jpg" />
 </div>
 
 
@@ -533,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303678.jpg" />
 </div>
 
 
@@ -559,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303672.jpg" />
 </div>
 
 
@@ -585,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_302147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_302147.jpg" />
 </div>
 
 
@@ -611,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301713.jpg" />
 </div>
 
 
@@ -637,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301607.jpg" />
 </div>
 
 
@@ -663,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301059.jpg" />
 </div>
 
 
@@ -674,6 +595,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9163DADDDC888323F2A7810B8683DA62E3D745EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333827   (301041) от 26.10.2019
+
+Две королевы / Mary Queen of Scots (2018) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301041.jpg" />
+</div>
+
+
+###  Подробнее
+
+1561 год, после смерти молодого мужа Франциска 18-летняя Мария Стюарт возвращается в Шотландию. Она католичка и по крови имеет право претендовать на престол Англии, чем изрядно нервирует нынешнюю протестантскую королеву Елизавету I. Прислушавшись к советникам, королева отправляет к Марии делегацию, в состав которой входит фаворит Елизаветы граф Роберт Дадли, по мнению (   Читать дальше...   )Производство: Великобритания, США / Universal Pictures, Focus Features, Perfect World Pictures, Working Title FilmsЖанр: Драма, биография, историяРежиссер: Джози РуркАктеры: Сирша Ронан, Марго Робби, Джек Лауден, Джо Элвин, Дэвид Теннант, Гай Пирс, Анджела Бэйн, Ричард Кэнт, Гай Риз, Том ПеттиПеревод: Дублированный (лицензия)Субтитры: Русские, английские, чешские, венгерские, польские, греческие, болгарские, хорватские, эстонские, латышские, литовские, румынские, словенскиеПродолжительность: 01:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386D3BF5A1BEFCADEBB144A2022EA1EB9B25EB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333835   (300943) от 26.10.2019
+
+Последствия / The Aftermath (2019) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германия после Второй мировой войны. В стране беспорядок, разруха, голод. Главный герой — британский военный Льюис Морган, который назначен временным мэром Гамбурга. Ему предстоит восстанавливать город почти с нуля. Вместе с женой Льюис селится в роскошный особняк, где живет немецкий архитектор с эмоционально нестабильной дочерью. Смогут ли бывшие враги ужиться под (   Читать дальше...   )Производство: Германия, Великобритания, США / Fox Searchlight Pictures, Amusement Park Films, Scott Free ProductionsЖанр: Драма, мелодрама, военныйРежиссер: Джеймс КентАктеры: Кира Найтли, Александр Скарсгард, Джейсон Кларк, Фионн О’Ши, Кейт Филлипс, Мартин Компстон, Александр Шеер, Анна Катарина Шримригк, Нед Виллс, Пандора КолинПеревод: Дублированный (лицензия)Субтитры: Русские, английские, датские, финские, норвежские, шведские, эстонские, хинди, латышские, литовские, украинскиеПродолжительность: 01:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D58CD66593D3B197B6D71D7C82512AE9BA464A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333862   (300811) от 26.10.2019
+
+Дом, который построил Джек / The House That Jack Built (2018) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300811.jpg" />
+</div>
+
+
+###  Подробнее
+
+История серийного убийцы по имени Джек разворачивается в Америке 70-х. За 12 лет блестящей «карьеры» Джеку встретятся назойливая попутчица, наивная подружка и другие очаровательные в своей глупости жертвы. Пять невероятных, до жути изобретательных и порой до смеха абсурдных убийств, к каждому из которых Джек относится как к настоящему произведению искусства.Производство: Дания, Франция, Швеция, Германия, Бельгия / Zentropa Entertainments, Centre National du Cinéma et de l'Image, Copenhagen Film FundЖанр: Ужасы, драма, криминалРежиссер: Ларс фон ТриерАктеры: Мэтт Диллон, Бруно Ганц, Ума Турман, Шиван Фэллон, Софи Гробёль, Райли Кио, Джереми Дэвис, Джек МакКензи, Эдвард Спелирс, Дэвид БэйлиПеревод: Дублированный (лицензия)Субтитры: РусскиеПродолжительность: 02:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0085FFF1DC7F5F123ADCA35B3FC8BD6A3C10C695
 ```
 
 https://mybot314.ru/tekegram_catalog/

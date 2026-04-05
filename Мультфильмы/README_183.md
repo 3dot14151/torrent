@@ -1,3 +1,133 @@
+###  Публикация: 694026   (548056) от 27.08.2013
+
+Атлантида: Затерянный мир / Atlantis: The Lost Empire (2001) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атлантида… Мечтою найти легендарный затонувший в пучинах океана остров грезили многие смельчаки. Но только юному картографу Майло Тэтчу повезло: в 1914 году в его руки попал таинственный дневник, указывающий путь к Затерянной империи. И вот уже самая могучая подводная лодка в мире под командованием неустрашимого капитана Рурка выходит в открытый океан. Майло и его (   Читать дальше...   )Жанр: Рисованная анимация, Детский, ПриключенияРежиссер: Гари Труздейл, Кирк УайзЯзык субтитров: Русский, АнглийскийПродолжительность: 01:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A91ABBCF277C36EC663A6D97DAB0DA87D7268EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310054   (547566) от 23.06.2019
+
+Волшебный парк Джун / Wonder Park (2019) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды фантазерка Джун обнаруживает, что придуманный ею чудесный Парк развлечений реален! Но его существование под угрозой, и Джун нужен план спасения ее Мечты. Помогут девочке ее новые друзья — волшебные звери Парка.Производство: Испания, США / Ilion Animation Studios, Midnight Radio, Nickelodeon MoviesЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дилан БраунАктеры: София Мали, Дженнифер Гарнер, Кен Хадсон Кэмпбелл, Кенан Томпсон, Мила Кунис, Джон Оливер, Кен Жонг, Норберт Лео Батц, Мэттью Бродерик, Брианна ДенскиПеревод: Дублированный (iTunes)Субтитры: Russian (Forced, Full), Ukrainian (Forced), English (Full, SDH)Продолжительность: 01:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDC580A5657845F5F08A2D68274DA8E1C94DF8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309650   (547561) от 23.06.2019
+
+Волшебный парк Джун / Wonder Park (2019) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды фантазерка Джун обнаруживает, что придуманный ею чудесный Парк развлечений реален! Но его существование под угрозой, и Джун нужен план спасения ее Мечты. Помогут девочке ее новые друзья — волшебные звери Парка.Производство: Испания, США / Ilion Animation Studios, Midnight Radio, Nickelodeon MoviesЖанр: Комедия, Фэнтези, ПриключенияРежиссер: Dylan BrownПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full), английскиеПродолжительность: 01:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E62EB437B3787B03D65E6DBAB70F37A8917112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309982   (547558) от 23.06.2019
+
+Волшебный парк Джун / Wonder Park (2019) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды фантазерка Джун обнаруживает, что придуманный ею чудесный Парк развлечений реален! Но его существование под угрозой, и Джун нужен план спасения ее Мечты. Помогут девочке ее новые друзья — волшебные звери Парка.Производство: Испания, США / Ilion Animation Studios, Midnight Radio, Nickelodeon MoviesЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дилан БраунАктеры: София Мали, Дженнифер Гарнер, Кен Хадсон Кэмпбелл, Кенан Томпсон, Мила Кунис, Джон Оливер, Кен Жонг, Норберт Лео Батц, Мэттью Бродерик, Брианна ДенскиПеревод: Дублированный (iTunes)Субтитры: Russian (Forced, Full), Ukrainian (Forced), English (Full, SDH)Продолжительность: 01:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E8E5787E338EF348D3FB9CA5532D2F57AF47B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310080   (547501) от 23.06.2019
+
+Волшебный парк Джун / Wonder Park (2019) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды фантазерка Джун обнаруживает, что придуманный ею чудесный Парк развлечений реален! Но его существование под угрозой, и Джун нужен план спасения ее Мечты. Помогут девочке ее новые друзья — волшебные звери Парка.Производство: Испания, СШАЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дилан БраунПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF05099FC62EA95CA8C555CDB672323B31430FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 816552   (547448) от 28.08.2014
 
 Мой Маленький Пони: Дружба Это Чудо / My Little Pony: Friendship Is Magic (2013-2014) WEB-DL [1080p] (Сезон 4, Серия 01-26 из 26) [EN / RU, EN Sub]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547448.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547447.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547400.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547372.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547271.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547247.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546893.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546578.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546302.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546292.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546286.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546231.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546208.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546170.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546089.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545872.jpg" />
 </div>
 
 
@@ -428,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545812.jpg" />
 </div>
 
 
@@ -457,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545771.jpg" />
 </div>
 
 
@@ -486,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545703.jpg" />
 </div>
 
 
@@ -515,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545531.jpg" />
 </div>
 
 
@@ -541,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545367.jpg" />
 </div>
 
 
@@ -555,138 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F72504FF4ABFA0AC0D3C6C454B2E739172A69947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048792   (545343) от 03.09.2016
-
-Кингсглейв: Последняя фантазия XV / Kingsglaive: Final Fantasy XV (2016) WEB-DLRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебное королевство Люцис является домом для священного Кристалла, но враждебная империя Нифльхейм не остановится ни перед чем, чтобы захватить реликвию. Король Люциса Регис возглавляет элитный отряд солдат, именуемых «Кингсглейв». Вооружившись магией короля, Никс Ульрик и его верные товарищи из Кингсглейв становятся на защиту столицы Инсомния, чтобы остановить (   Читать дальше...   )Производство: Япония, Square Enix Co. Ltd., Square USA, Puppetworks Animation Studio, Monk StudioЖанр: Мультфильм, Фантастика, Фэнтези, Драма, ПриключенияРежиссер: Такэси НодзуэАктеры: Аарон Пол, Лина Хиди, Шон Бин, Нейл Ньюбон, Аманда Пиери, Джон Кэмплинг, Адриан Буше, Liam Mulvey, Андреа Тивадар, Грег Блэкфорд.Перевод: Многоголосый закадровый - iTunesПродолжительность: 01:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC844BCB7C2FAC11254135103C8B480E2D0DA0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310823   (545069) от 26.06.2019
-
-Большое путешествие (2019) WEB-DLRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды, Бестолковый Аист из центра доставки детей перепутал адреса и вместо Семьи Панд принес Малыша Панду медведю по имени Мик-Мик. Мик-Мик во всем любит порядок и решает доставить Малыша Панду его родителям в Южный Китай. В путешествие с ним увязывается непутевый сосед Заяц Оскар. По дороге они встречают хвастливого Пеликана Дюка, трусливого Волка Януса и романтичного (   Читать дальше...   )Производство: Россия, США / Licensing BrandsЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Василий Ровенский, Наталья НиловаАктеры: Дмитрий Назаров, Максим Галкин, Филипп Киркоров, Алексей Воробьев, Татьяна НавкаПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:20:20Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA12DD0314B573DFC949BD6BF02BA528E1A35BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817721   (544843) от 31.08.2014
-
-Рождественская история / A Christmas Carol (2009) BDRip [H.264/720p-LQ] [Hi10P]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это викторианская поучительная история о старом и ожесточившемся скупердяе Эбенезере Скрудже, который в течение одной ночи переживает испытание глубокого очищения. Мистер Скрудж - финансист/денежный меняла, который посвятил всю свою жизнь накоплению богатства. Он презирает всё, кроме денег, включая дружбу, любовь и рождественские праздники.Жанр: Фэнтези, Семейный, МультфильмРежиссер: Роберт ЗемекисАктеры: Джим Керри, Стив Валентайн, Дэрил Сабара, Сэйдж Райан, Эмбер Гейни Миде, Райан Очоа, Бобби Пейдж, Рон Боттитта, Сэмми Ханратти, Джулиан ХоллоуэйПеревод: Профессиональный (дублированный)Язык субтитров: Русский x2, Украинский x2, Английский x2Продолжительность: 01:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB1EF10A9D229D67FE53FB9AA4303E5D9160035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 695494   (544480) от 31.08.2013
-
-Долина папоротников: Последний тропический лес / FernGully: The Last Rainforest (1992) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хексус - это злой дух. Его задача - причинять боль и страдания. Он появился из раскаленного ядра Земли и принялся уничтожать сказочно красивый тропический лес, населенный забавными мистическими существами. Только объединившись и обратив свои мольбы к магическим силам природы, жителям леса удалось заточить Хексуса в одно из деревьев. Но скоро зверушки опять сталкиваются (   Читать дальше...   )Жанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Билл КройерАктеры: Тим Карри (Hexxus, озвучка), Саманта Мэтис (Crysta, озвучка), Кристиан Слэйтер (Pips, озвучка), Джонатан Уорд (Zak Young, озвучка), Робин Уильямс (Batty Koda, озвучка), Грейс Забриски (Magi Lune, озвучка), Джеффри Блейк (Ralph, озвучка), Роберт Пасторелли (Tony, озвучка), Чич Марин (Stump, озвучка), Томми Чонг (Root, озвучка), Тоун Лок (Goanna, озвучка), Таунсенд (   Читать дальше...   )Перевод: Двуголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0414EC92AFB3163A9E22EE1FE50F639297339334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 695685   (544381) от 31.08.2013
-
-Гадкий Я: Мини-фильмы. Миньоны / Despicable Me Presents: Minion Madness (2010) HDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм состоит из трех короткометражных мультфильмов. В «Преображение дома» социальный работник хочет удостовериться, что в доме Грю смогут нормально жить дети. «Ознакомительный день» — миньоны, попавшие в лабораторию Грю, проходят подробный инструктаж по технике безопасности. В заключительной части «Банан» множество проголодавшихся миньонов пытается съесть один (   Читать дальше...   )01. "Банан / Banana" (субтитры)
-02. "Преображение дома / Home Makeover"
-03. "Ознакомительный день / Orientation Day"Жанр: Мультфильм, короткометражный, комедия, приключения, семейныйПеревод: Профессиональный двухголосый (Язык субтитров: Русские, английские, испанские, французские (вшитые, отключаемые)Продолжительность: ~ 00:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386FC1F8549AAC98D11EC8B376BA7F28C17F2F6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1323363   (437525) от 03.09.2019
+
+Баламут (1979) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпускник сельской школы Пётр Горохов из деревни Дядьково приезжает в Москву  поступать в престижный экономический вуз. Поступить ему удаётся буквально чудом, Петю всегда выручали случай и мистика. Парень из провинции резко выделяется на фоне других студентов, в большинстве своём москвичей и жителей других больших городов. К тому же Горохов привык отстаивать свои (   Читать дальше...   )Производство: СССР, Киностудия им. М. ГорькогоЖанр: Комедия, драмаРежиссер: Владимир РоговойАктеры: Вадим Андреев, Наталья Казначеева, Николай Денисов, Евгений Карельских, Евгения Симонова, Лариса Блинова, Роман Филиппов, Вадим Захарченко, Виктор Шульгин, Николай ГорловПродолжительность: 01:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7384314F9600C7088F2F3C892AD1815E63B1195E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 93292   (436761) от 07.10.2014
+
+Кубанские казаки (1949) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436761.jpg" />
+</div>
+
+
+###  Подробнее
+
+На осенней межколхозной ярмарке лихой коневод Николай (Владлен Давыдов) сватается к передовой колхознице Даше Шелест (Клара Лучко). Но влюбленным, работающим в разных хозяйствах, предстоит преодолеть сопротивление своих руководителей, не желающих лишаться отличных работников. Председатель колхоза, где живёт Даша, Гордей Ворон (Сергей Лукьянов) давно любит председателя (   Читать дальше...   )Жанр: Музыкальная комедияРежиссер: Иван ПырьевАктеры: Борис Андреев, Михаил Пуговкин, Марина Ладынина, Клара ЛучкоПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050757   (436604) от 15.10.2016
 
 Завтра была война (1987) DVDRip
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436604.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436398.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435459.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432728.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_432634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_432634.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432046.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432044.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_428724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428724.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427563.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427178.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426411.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426198.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_425928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_425928.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425042.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424025.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423598.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423583.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421558.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421224.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420598.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420393.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420052.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419314.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418792.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78B81DD6F6A11EECAAE8EBAB56F26E2655ECBA46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946412   (417678) от 17.10.2015
-
-Сказ про то, как царь Пётр арапа женил (1976) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды царю Петру I был подарен маленький чернокожий раб, африканский принц Ибрагим - добрый и смышленный мальчуган, который стал для императора не рабом, но другом и крестником, получил отчество Петрович и фамилию Петров, быстро усвоил все науки и, став взрослым, был отправлен во Францию для получения более глубоких знаний и изысканных манер. Вернувшись из Парижа, (   Читать дальше...   )Производство: CCCРЖанр: Комедия, МелодрамаРежиссер: Александр МиттаАктеры: Владимир Высоцкий, Алексей Петренко, Иван Рыжов, Михаил Кокшенов, Ирина Мазуркевич, Женя Митта, Семен Морозов, Валерий Золотухин, Михаил Глузский, Олег Табаков, Александр Барушной, Владимир Кашпур, Василий Корнуков, Юрий Комаров, Валентина Клягина, Юрий Мартынов, Владимир Махов, Владимир Меньшов, Анатолий Обухов, Ирина Печерникова, Александр Пятков, Клара Румянова, (   Читать дальше...   )Продолжительность: 01:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3616CFC2E0F9DFD869B650C62D371158993C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632532   (415671) от 14.10.2013
-
-Трембита (Широкоформатная версия) (1968) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальная комедия по оперетте Юрия Милютина (либретто Владимира Масса и Михаила Червинского).
-Только что отгремела Вторая мировая война. Бывший дворецкий местного графа, что бежал вместе с немцами, тайно вернулся в село, чтобы найти хозяйский клад, присвоить его и зажить припеваючи. Однако из этой затеи ничего не вышло...Жанр: Комедия, МьюзиклРежиссер: Олег Николаевский.Актеры: Евгений Весник, Ольга Аросева, Борис Савченко, Савелий Крамаров, Людмила Купина, Алексей Чернов, Николай Трофимов, Юлия Вуккерт, Александр Галевский, Иван Переверзев, Сергей Блинников, Илья Олейников, Иван Матвеев, Николай Пишванов, Леонид Шехтман, Валентина Пугачева, Лев СтепановПродолжительность: 01:27:24.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D248EF2B766105C0819A23D9C2E6A40FF86AF3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

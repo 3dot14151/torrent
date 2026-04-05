@@ -1,3 +1,58 @@
+###  Публикация: 193624   (835283) от 22.04.2010
+
+Том и Джерри (выпуск 10) / Tom & Jerry (vol 10) (1940-1967) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название серий:
+
+1. Том-культурист
+2. Очень грустная история(   Читать дальше...   )Жанр: Рисованая анимация, ДетскийРежиссер: Уильям Ханна /William Hanna/, Джозеф Барбера, /Joseph Barbera/Персонажи: Том и ДжерриПеревод: Одноголосый закадровыйПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380155   (834990) от 02.05.2020
+
+Гриффины / Family Guy (2009) WEB-DL [H.264/1080p-LQ] (сезон 8, серии 1-19, 21 из 21) 2x2, Filiza Studio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_834990.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФарлейном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящая и терпеливая жена Лоис, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / Twentieth Century Fox Film CorporationЖанр: мультфильм, комедияРежиссер: Сет МакФарлейнАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Майк Генри, Джон Винер, Дэнни Смит, Патрик Варбертон, Ральф Гармен, Алек СалкинПеревод: Многоголосый профессиональный (2x2, Filiza Studio)Субтитры: русские, английскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16A543BCCE283C193E60C4C139DEBA9B4942EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488944   (834780) от 10.10.2021
 
 Что, если...? / What If...? (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-9 из 9) TVShows
@@ -6,7 +61,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834780.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834258.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833024.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832781.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832685.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832542.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_829395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829395.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828530.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827358.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825876.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ LEGO Звездные войны:Приключения изобретателе
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824094.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823288.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823146.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821988.jpg" />
 </div>
 
 
@@ -378,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821082.jpg" />
 </div>
 
 
@@ -404,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820814.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819632.jpg" />
 </div>
 
 
@@ -457,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819118.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818810.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817900.jpg" />
 </div>
 
 
@@ -537,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816769.jpg" />
 </div>
 
 
@@ -563,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816750.jpg" />
 </div>
 
 
@@ -589,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814973.jpg" />
 </div>
 
 
@@ -615,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814572.jpg" />
 </div>
 
 
@@ -626,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D5E9359D5317EC51AEF89B1FB4718EF9A992798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117586   (812894) от 25.03.2017
-
-Мстители: Величайшие герои Земли / The Avengers: Earth's Mightiest Heroes (2010 - 2011) 4 х Blu-Ray Disc [H.264/1080p] (Сезон 1, Серии 01-26 из 26)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестная сила наносит удар по четырем тюрьмам для сверхлюдей, и десятки опаснейших суперзлодеев вырываются на свободу. Самые могучие супергерои объединяются в альянс под названием Мстители, чтобы вернуть вырвавшееся на свободу зло за решетку…Производство: СШАЖанр: Мультфильм, фантастика, боевик, приключения, семейныйРежиссер: Фрэнк Пор, Сайро Нили, Винтон Хёк, Себастьян Монтес, Бойд Керклэнд, Рой Бурдин, Стивен Е. Гордон, Гари ХартлПерсонажи: Человек муравей, оса, халк, железный человек, тор и др.Перевод: Дублированный - Пифагор, любительский (одноголосный закадровый) ZM-SHOWСубтитры: нетПродолжительность: 00:22:00 x 26 серий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72026B239562D10E556D7B7C82BB4D17B81961DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117749   (812702) от 25.03.2017
-
-Мстители: Величайшие герои Земли / The Avengers: Earth's Mightiest Heroes (2012) 3 х Blu-Ray Disc [H.264/1080p] (Сезон 2, Серии 01-26 из 26)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестная сила наносит удар по четырем тюрьмам для сверхлюдей, и десятки опаснейших суперзлодеев вырываются на свободу. Самые могучие супергерои объединяются в альянс под названием Мстители, чтобы вернуть вырвавшееся на свободу зло за решетку…Производство: СШАЖанр: Мультфильм, фантастика, боевик, приключения, семейныйРежиссер: Фрэнк Пор, Сайро Нили, Винтон Хёк, Себастьян Монтес, Бойд Керклэнд, Рой Бурдин, Стивен Е. Гордон, Гари ХартлПерсонажи: Человек муравей, оса, халк, железный человек, тор и др.Перевод: Дублированный - ПифагорСубтитры: нетПродолжительность: 00:22:00 x 26 серий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834EB34567DF464AECD3E0B459238F79FE6301C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

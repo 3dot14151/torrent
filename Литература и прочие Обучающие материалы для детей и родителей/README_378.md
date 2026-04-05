@@ -1,3 +1,57 @@
+###  Публикация: 1589904   (189765) от 11.11.2022
+
+Шарлота Ланнебу | Меня зовут Астрид! (2022) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги известной шведской писательницы Шарлотты Ланнебу хорошо знают во многих странах. Её герои – обычные мальчишки и девчонки, про которых писательнице известно всё. И поэтому придуманные ею истории всегда очень правдоподобны и увлекательны.
+
+В этой книге вы познакомитесь с восьмилетней Астрид – типичной вредной девчонкой. Но вредная она только на первый взгляд, (   Читать дальше...   )Жанр: Детские приключенияПеревод: Ольга МяэотсФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161BFF47B1D4A5D8D58C96F2A265C1E0F0BA3550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589897   (189764) от 11.11.2022
+
+Ян Улоф Экхольм | Фрёкен Сталь – гроза разбойников (2022) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Городок Гдеугодно – обычный шведский провинциальный городок. В этом городке живёт фрёкен Эмма Сталь. Наверняка ничего особенного, обыкновенная фрёкен, каких в Швеции немало, подумаете вы. А вот и нет! Фрёкен Сталь – самая удивительная фрёкен на свете! Она обладает превосходным чувством юмора, незаурядным аналитическим умом и любит разгадывать детективные загадки. (   Читать дальше...   )Жанр: Детские детективы, детские приключенияПеревод: Ольга МяэотсФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B05C5B8382DDB1D4481B61E8A513A685F24A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589892   (189763) от 11.11.2022
 
 Юз Алешковский | Кыш и Двапортфеля (2022) [EPUB]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189763.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189724.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189719.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189704.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189700.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189694.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189690.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189678.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189639.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189583.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189468.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189454.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189440.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189433.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189431.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189366.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189364.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189345.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189306.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189296.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189222.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189209.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189179.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189138.jpg" />
 </div>
 
 
@@ -626,63 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACB778A492D23FED7867E8958277652BB33E2C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590356   (189128) от 13.11.2022
-
-Софья Ремез | Одиннадцатый год Гоши Куницына, ученика 5 «И» класса (2021) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помните книжку «Заметки Гоши Куницына, ученика 4 „А“ класса»? Теперь пятиклассник Гоша хочет быть писателем. Но он уже настоящий писатель! От его живых, по-доброму весёлых заметок не оторваться.
-
-Выдумщик Гоша прекрасно учится, не боится выражать своё мнение и быть не как все. Да он даже слушает Генделя, пока друзья предпочитают рэп! Но Гошу любят все, ведь с ним (   Читать дальше...   )Жанр: Детские приключения, детская прозаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD520E06B9FEF8C0101697648A06784F5A457A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590451   (189067) от 13.11.2022
-
-В.Г. Гусев | Наши питомцы. Альбом (1986) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом содержит сведения о наиболее интересных особенностях питомцев живых уголков, рекомендации по их кормлению, содержанию и разведению в домашних условиях. Автор альбома биолог В.Г. Гусев многие годы отдал изучению животных, которым посвящена эта книга.
-Рассчитан на широкий круг читателей.
-Автор текста В.Г. Гусев.
-Книга выполнена в виде альбома с иллюстрациями (   Читать дальше...   )Жанр: Домашние животныеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ADD03E2BE816F10B47F1CA0B1E816BC9AD6BD71
 ```
 
 https://mybot314.ru/tekegram_catalog/

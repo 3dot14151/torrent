@@ -6,7 +6,7 @@ Mike Oldfield - Incantations​ [1978 (переиздание 2011) г., Progres
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_341028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_341028.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sandra Valterović Siso lažljiva (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340940.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pretty Mesha - World Star Honeys (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340462.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Suzi Quatro (vol.1) (2012) VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340453.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Suzi Quatro (vol.2) (2012) TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340347.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340303.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Leanna Decker - Killer (2011) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340212.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340172.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ The Rolling Stones: Charlie Is My Darling (1965/2012) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_340047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340047.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339895.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_339756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339756.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) BDRip [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_339623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339623.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338417.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Dash Berlin ft. Kate Walsh - When You Were Around (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338054.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337974.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ DJ Sub - Resident Evil VS Silent Hill (Dubstep video Mix) (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337927.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ DVJ Bazuka - Breakin (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337699.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337568.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Eric Clapton: Planes, Trains and Eric (2014) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336903.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Осенний марафон № 203 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336896.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_336838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_336838.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Band Du Lac - A Concert by the Lake (2005) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335632.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Korn - Can You Hear Me, Finally Free (2020) WEBRip [H.264/1080p-LQ] (2 клип�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335342.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335287.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Jeff Lynne's ELO - Live at Glastonbury 2016 (2016) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335245.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Kylie Minogue: Kiss Me Once - Live At The SSE Hydro, Glasgow (2014) UHDTVRip [H.
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335218.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1260263   (312182) от 07.11.2018
+
+Svartby - Elemental Tales (2012) [FLAC|Lossless|image + .cue] <Folk Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Impby (1:28)
+02-Scum From Underwater (2:53)
+03-Boulder Massacration (3:33)
+04-Sleepy Devils (3:59)(   Читать дальше...   )Жанр: Folk Black MetalПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1163D301ABA589BFD522246F597AE0103E64D69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260237   (312180) от 07.11.2018
 
 Plenty - It Could Be Home (2018) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
@@ -6,7 +35,7 @@ Plenty - It Could Be Home (2018) [FLAC|Lossless|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312180.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Hootie & the Blowfish - Cracked Rear View (1994) Europe Reissue [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312179.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312128.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Placebo - MTV Unplugged (2015) [MP3|320 кб/с]<Alt. Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312122.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312117.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Bad Company - Dangerous Age (1988) [FLAC|Lossless|tracks + .cue] <Classic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312060.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Daniel Lanois - For the Beauty of Wynona (1993) American Edition [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312050.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Parasite Inc. - Dead and Alive (2018) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312047.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Romantic Hits. Русские рок баллады 2 (2007) [MP3|256-320 �
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311926.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Skillet - Интервью с Джоном Купером на радио УЛЬ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311894.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Sixx: A.M. - Prayers For The Blessed Vol.2 (2016) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311888.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311811.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Tony Mills - Beyond The Law (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311804.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Zephyr - 4 Albums, 1 Box Set (1969 - 2014) [FLAC|Lossless|image + .cue|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311789.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311751.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Words Of Farewell - A Quiet World (2016) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311730.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Mickey Thomas - Alive Alone (серия "Другие восьмидесятые
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311696.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311663.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Muse - Simulation Theory (2018) Deluxe Edition [MP3|320 Kbps] <Alt.Rock, Progres
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311645.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Muse - Simulation Theory (2018) Deluxe [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311618.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Metallica - Master Of Puppets 1986 (2017) Deluxe Box Set Remastered [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311469.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311439.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ SunSay - Выше головы (2016) [MP3|320 Kbps] <Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311210.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Rob Halford (TWO, Fight, Halford) - 16 albums, 28 CD (1993-2019) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311148.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Taskaha - Taskaha (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310901.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Taskaha - Taskaha (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71DC7E96C7A69EFA24308B480268C5C1FD64E8B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422354   (310820) от 08.11.2020
-
-Iron Angel - Emerald Eyes (2020) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Slaughter
-02. Descend
-03. Sands Of Time
-04. Demons(   Читать дальше...   )Жанр: Power Metal, Speed Metal, Thrash MetalПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF6F29C490D6399BC9E5B37937DE652E187E616
 ```
 
 https://mybot314.ru/tekegram_catalog/

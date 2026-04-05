@@ -1,3 +1,172 @@
+###  Публикация: 996986   (874583) от 16.03.2016
+
+Windows 7 SP1 IE11+ RUS-ENG x86-x64 18in1 Activated v4 (AIO)
+
+>>3
+>>99
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная сборка является правопреемницей сборки Windows 7 SP1 IE11+ RUS-ENG x86-x64 -18in1- Activated v3 (AIO). Ее отличает от своей предшественницы то, что в текущую сборку включены обновления по состоянию на 15 марта 2016 года и свежие пакеты .NET Framework и Visual C++ Redistributable. Также, произведена некоторая оптимизация, благодаря чему даже после всех изменений (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB199C7877B6F4C1646973A7EF7CC49B230545D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 187626   (874543) от 29.03.2010
+
+-=Windows FAN SE7EN X64 RUS 2010=- 7600.16385 х64 RUS [только русский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874543.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+-=Windows FAN SE7EN X64 RUS 2010=-• Год выпуска: 2010
+• Версия:  7600.16385 х64 RUS
+• Разработчик: Microsoft Corporation
+• Платформа:  X64(64bit) 
+• Совместимость с Vista: полная
+• Совместимость с Seven: полная
+• Формат файла: ISO
+• Авторы сборки: SPA(   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 187635   (874541) от 29.03.2010
+
+MICROSOFT WINDOWS 7 ULTIMATE x86 & x64 RETAIL MSDN RUS.DVD   (by xalex & zhuk.m)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ сделан из оригинальных (MSDN) русских версий. При установке имеется выбор редакций.
+При создании ничего не удалялось, исправлены названия на Ultimate, папка winsxs сжата, папка winsxs\Backup очищена.
+Узкое меню "Пуск".
+Исправлены все известные глюки.Разработчик: MICROSOFTЯзык интерфейса: только русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175475   (874540) от 29.03.2010
+
+Neverwinter Nights [Ru] (L) 2002
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874540.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Neverwinter Nights» — это ролевая игра от компании «Bioware» ( создатели «Baldur’s Gate» ), основанная на системе правил «Dungeons & Dragons» ( D&D ). Игра создавалась не только как он-лайн игра, с мультиплеерными окружениями и последними 3D технологиями, но также для того, чтобы вы смогли испытать все прелести настольной игры D&D на своем компьютере. Используя мощный игровой редактор вы можете создавать свои собственные модули и делиться ими со всем миром. Вы можете входить в мультиплеерную игру в качестве Dungeon Master’а, чтобы быть ведущим приключения, управляя действиями NPC и боями, которые проходят в реальном времени.
+
+Действие в «Neverwinter Nights» происходит в северном регионе Sword Coast ( Побережье Мечей ) в мире «Forgotten Realms». Вы начинаете игру в качестве неопытного персонажа, которому необходимо закончить обучение в военной академии города Neverwinter. В городе объявлен карантин, так как люди начали умирать от смертельной болезни. Вы беретесь за расследование причин болезни, а также (   Читать дальше...   )Тип издания: лицензияРазработчик: BioWare CorporationЖанр: RPG (Hack-and-slash) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 636257   (874408) от 13.04.2013
+
+Discovery: Эд Стаффорд: Выживание без купюр (Голое выживание) / Ed Stafford: Naked and Marooned (2013) SATRip (Сезон 1, серий 3 из 4)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эд высадился на берег одинокого острова (архипелаг Фиджи) без средств выживания, кроме одной камеры, которая наблюдает, живой ли он. Стаффорд начнет один из сложнейших экспериментов с выживания, которые сняты на телекамеру. Стоит жара. У него очень мало времени на поиски воды, чтобы не умереть от обезвоживания с самого начала своего эксперимента. Используя камеры, (   Читать дальше...   )Производство: Великобритания, Tigress ProductionsЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D87FD2F4DB11B3026EC113FF249055CD87633D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641926   (874397) от 13.04.2013
+
+OS X Mountain Lion 10.8.3 VMware Image (Soul Dev Team) [AMD&Intel] [Multi]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mountain Lion включает в себя более 200 новых функций, расширяющих возможности вашего Mac. С новым приложением Сообщения вы можете отправлять текст, фотографии, видеофайлы, контакты, ссылки и документы любым пользователям Mac, iPhone, iPad или iPod touch — вы даже можете начать переписку на одном устройстве, а продолжить на другом. Новая кнопка экспорта позволяет (   Читать дальше...   )Тип издания: OS X Mountain Lion 10.8.3 VMware Image (Soul Dev Team)Релиз состоялся: 2013Разработчик: Apple Inc/Soul Dev TeamЯзык интерфейса: Multi
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106088   (874291) от 18.02.2017
 
 Symantec Endpoint Protection 14.0 MP1 Build 2332 (14.0.2332.0100) [Ru]
@@ -6,7 +175,7 @@ Symantec Endpoint Protection 14.0 MP1 Build 2332 (14.0.2332.0100) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874291.jpg" />
 </div>
 
 
@@ -32,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874275.jpg" />
 </div>
 
 
@@ -58,7 +227,7 @@ Paragon NTFS for Mac 15.0.293 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874274.jpg" />
 </div>
 
 
@@ -86,7 +255,7 @@ Unlocker 1.9.2 Final RePack (& Portable) by NEO [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874271.jpg" />
 </div>
 
 
@@ -112,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874269.jpg" />
 </div>
 
 
@@ -138,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874268.jpg" />
 </div>
 
 
@@ -164,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874224.jpg" />
 </div>
 
 
@@ -190,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874209.jpg" />
 </div>
 
 
@@ -217,7 +386,7 @@ Black Mesa: Definitive Edition (2020) [Ru/En] (b7336708) Repack SE7EN
 >>17
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874203.jpg" />
 </div>
 
 
@@ -243,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874140.jpg" />
 </div>
 
 
@@ -269,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874139.jpg" />
 </div>
 
 
@@ -295,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874138.jpg" />
 </div>
 
 
@@ -321,7 +490,7 @@ S.W.A.T.: Огненная буря / S.W.A.T.: Firefight (2011) HDRip
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874046.jpg" />
 </div>
 
 
@@ -347,7 +516,7 @@ Bulletstorm [Ru/En] (Lossless RePack) 2011 | R.G. Catalyst
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874044.jpg" />
 </div>
 
 
@@ -373,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874041.jpg" />
 </div>
 
 
@@ -399,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874025.jpg" />
 </div>
 
 
@@ -425,7 +594,7 @@ Paragon NTFS for Mac 15.5.106 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874014.jpg" />
 </div>
 
 
@@ -453,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_873429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_873429.jpg" />
 </div>
 
 
@@ -479,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873133.jpg" />
 </div>
 
 
@@ -505,7 +674,7 @@ Assassin's Creed: Unity (2014) [Ru/Multi] (1.5.0.0/dlc) Repack R.G. Catalyst
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873132.jpg" />
 </div>
 
 
@@ -516,165 +685,6 @@ Assassin’s Creed® Единство - приключенческий экшн,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D8920F4AFED7E00F582EFD27CC0046F24F3880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997728   (873103) от 17.03.2016
-
-UC Browser 5.6.10764.1009 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873103.jpg" />
-</div>
-
-
-###  Подробнее
-
-UC Browser - мировой лидер среди мобильных браузеров, работающий в 150 странах мира, на всех основных операционных системах на 11 языках. Теперь же он работает и на ПК!
-Браузер использует в работе 2 движка - Chromium и Trident, позволяя при необходимости быстро переключаться между ними.
-UC Browser полностью настраивается на индивидуальные предпочтения пользователя: (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA70FAC828171CD6DD48EB9CCF36ADD695DFF1C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994519   (873096) от 17.03.2016
-
-Создана новая карта Млечного Пути, имеющая беспрецедентно высокий уровень детализации
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_873096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые Европейской Южной обсерватории (European Southern Observatory, ESO) буквально на днях завершили последние наблюдения в рамках обзора ATLASGAL (APEX Telescope Large Area Survey of the Galaxy). И для того, чтобы отметить это событие, в сети были опубликованы первые панорамные снимки, имеющие беспрецедентно высокий уровень детализации. Обзор ATLASGAL охватил всю плоскость нашей галактики с точки в южном полушарии нашей планеты и он впервые демонстрирует Млечный Путь в субмиллиметровом диапазоне волн.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996384   (872956) от 17.03.2016
-
-Cornacchia | Как создавался фотоарт "Сесиль до Воланж" (2015) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872956.jpg" />
-</div>
-
-
-###  Подробнее
-
-В уроке подробно показана техника, с помощью которой я создаю из подручного материала наряд в духе прошлых столетий, прическу, цветочные и драгоценные аксессуары из самых обыкновенных доступных каждому исходников. Вы увидите, как я рисую золотую вышивку и украшения, обрабатываю полупрозрачные ткани и работаю с элементами фона, создающего необходимую атмосферу. Наблюдение (   Читать дальше...   )Жанр: Обучающий видеоурокПродолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED60CF7FCEE28821CC85665769CC7C5471EA0667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187604   (872890) от 30.03.2010
-
-Взрывы в московском метро
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взрывы в московском метро Сегодня, в понедельник, 29 марта, в 7:56 в Московском метрополитене на станции "Лубянка" произошел взрыв. По данным МЧС, в результате инцидента погибли как минимум 25 человек. Позже, в 08:39 на станции метро "Парк культуры"-радиальная сработало еще одно взрывное устройство. Оно находилось в поезде, следующем в сторону станции "Улица Подбельского". Число погибших в результате второго взрыва составило 15 человек.Первый взрыв произошел во втором вагоне поезда, стоявшем на перроне. Пожара не последовало. Поезд следовал со стороны станции "Улица Подбельского". На Лубянской площади частично перекрыто движение транспорта; там находится несколько десятков машин скорой помощи, поисково-спасательные отряды МЧС, а также представители ГУВД и СКП, сообщает "Интерфакс". На месте развернут штаб.Директор ФСБ РФ Александр Бортников доложил президенту РФ Дмитрию Медведеву о серии взрывов в московском метро, сообщает "Интерфакс" со ссылкой на пресс-службу (   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187625   (872887) от 30.03.2010
-
--=Windows FAN SE7EN X86 RUS 2010=- 7600.16385 х86 RUS [только русский]
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчик: Microsoft Corporation
-•Язык интерфейса: 
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997442   (872789) от 17.03.2016
-
-Adobe Photoshop Lightroom CC 2015.5 (6.5) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA61C79BA2913083A9B59604324CF56D9FD51B3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

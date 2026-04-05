@@ -1,3 +1,55 @@
+###  Публикация: 1775299   (29691) от 26.01.2025
+
+И.Г. Семакин, Т.Ю. Шеина, Л.В. Шестакова | Информатика. Учебник для 10 класса. Углублённый уровень (в 2 частях, часть 1) (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник предназначен для изучения информатики на углублённом уровне в 10 классах общеобразовательных организаций. Содержание опирается на изученный в 7–9 классах курс информатики для основной школы. Рассматриваются теоретические основы информатики, аппаратное и программное обеспечение компьютера, современные информационные и коммуникационные технологии.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5558C8CB8AF878CEE4981C7A01E1E12FCE28B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775591   (29598) от 27.01.2025
+
+В.Г. Дмитриева | Большая книга головоломок, логических игр, загадок для самых умных малышей (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29598.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой красочной книге для вашего малыша представлены разнообразные ребусы, лабиринты, логические игры, кроссворды, загадки. 100 часов гарантированной занятости вашего ребенка. В издании полный и доступный сборник развивающих заданий. Вошедшие в нее игры и головоломки помогают развить нестандартность мышления и способность решать самые разнообразные задачи. Книга (   Читать дальше...   )Жанр: книги для детей, головоломкиИздательство: АСТ, АстрельФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F02B16A0C398D978DCCF53519B1EA06B3614DC75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775571   (29596) от 27.01.2025
 
 Е.В. Тимофеева | Информатика: 5-11 класс. Школьный курс в наглядных таблицах (2023) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29596.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29568.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29479.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29478.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29396.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29395.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29186.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29154.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29151.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29115.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29075.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29074.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29071.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29048.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29047.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29046.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29043.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29002.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28895.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28886.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28876.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28778.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28770.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28769.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:287145E1E6AC2718E526CFE769DF416CACDD039E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776861   (28763) от 03.02.2025
-
-М.А. Волчкевич, И.В. Ященко (ред.) | Математика. Геометрия. 7 класс. Базовый уровень. Учебное пособие. В 2 частях. Часть 1 (2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга открывает предметную линию учебных пособий по геометрии для 7—9 классов. Пособие имеет систему вопросов, упражнений и задач. Упражнения подразделяются на индивидуальные, парные и групповые, а также домашние. Задачный материал дифференцирован по уровню сложности, но отдельно выделяются ключевые задачи и задачи для домашнего решения. Имеется рубрика «Для (   Читать дальше...   )Жанр: УчебникИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE669CFD815664A08A410682AC2A4F1B5F0E4364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776109   (28666) от 04.02.2025
-
-Иван Демьянов | Скороговорка (1959) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детские считалки, скороговорки, загадки, дразнилки. На каждой странице иллюстрации Бориса Матвеевича Калаушина.Жанр: СтихиИздательство: ДетгизФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC7D77288BDE84FA70DFE00113CE84EFC4DF8CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

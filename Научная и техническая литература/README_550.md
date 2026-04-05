@@ -1,135 +1,3 @@
-###  Публикация: 1672515   (169022) от 28.10.2023
-
-И.И. Ляшко и др. | Графики функций. Справочник (1979) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит основные сведения о функциях и методах построения графиков функций, в частности сведения о построении графиков функций элементарными способами и с помощью производной. Впервые в литературе систематизированы сведения о построении графиков не только в декартовой, но ив полярной системе координат, рассматриваются основные принципы теории геометрического (   Читать дальше...   )Жанр: МатематикаИздательство: Наукова думкаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C7AB1BFC5828A0871DAB810176E1FAE5C7E13A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596573   (169013) от 11.12.2022
-
-В.И. Верескун, А.С. Сафонов | Электротехника и электрооборудование судов (1987) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169013.jpg" />
-</div>
-
-
-###  Подробнее
-
-В соответствии с программой рассмотрены основы теории электрических к магнитных цепей, электромагнитных устройств и электрических измерений. Приведены схемы судового электрооборудования - автоматизированных электростанций и электроприводов.
-Предназначена для студентов не электротехнических специальностей, а также инженерно-технических работников, занимающихся проектированием (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2A26FF87B46D5ADA815FEB59B25562AAB3D8B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596556   (169005) от 11.12.2022
-
-Г.Б.Редько | Учебное телевидение на уроках физики (1986) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие посвящено различным аспектам теории и практики применения учебного телевидения на уроках физики в средней школе.
-На основе результатов многолетних исследований и практического опыта автор приводит разработки уроков с учетом использования телеинформации и дает методические рекомендации по использованию учебных телепередач для повышения качества обучения физике (   Читать дальше...   )Жанр: физика, пособие для учителейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D82539A576D004E8C4F11CE05C3EF148A4337FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344908   (168883) от 12.12.2019
-
-Александр Архангельский | Путеводитель по классике. Продленка для взрослых (2018) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как жаль, что русскую классику мы проходим слишком рано, в школе. Когда еще нет собственного жизненного опыта и трудно понять психологию героев, их счастье и горе. А повзрослев, редко возвращаемся к школьной программе. «Герои классики: продлёнка для взрослых» – это дополнительные курсы для тех, кто пропустил возможность настоящей встречи с миром русской литературы. (   Читать дальше...   )Жанр: Философские науки, ЛитературоведениеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C3BB502FBA6BB77AF61111CCE64ABB7988A302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596651   (168818) от 11.12.2022
-
-Е.А.Безденежных, И.С.Брикман | Физика в живой природе и медицине (1976) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168818.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге в соответствии с программой по физике средней общеобразовательной школы рассматриваются физические явления, встречающиеся в биологии, биологические явления, объясняемые физическими законами, использование законов физики в медицинской науке и в практике здравоохранения. Книга написана для учащихся старших классов средних общеобразовательных школ, но будет (   Читать дальше...   )Жанр: физика, биология, медицина, научно-популярноеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EBA647462ADD879C4C189A89E413E0A9208A3AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430894   (168782) от 12.12.2020
 
 Стенли Лейн-Пул | Саладин. Всемогущий султан и победитель крестоносцев (2020) [FB2]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168782.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168735.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168593.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168576.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168544.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168494.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168463.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168460.jpg" />
 </div>
 
 
@@ -347,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168383.jpg" />
 </div>
 
 
@@ -374,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168326.jpg" />
 </div>
 
 
@@ -400,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168276.jpg" />
 </div>
 
 
@@ -426,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168232.jpg" />
 </div>
 
 
@@ -452,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168227.jpg" />
 </div>
 
 
@@ -479,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168170.jpg" />
 </div>
 
 
@@ -505,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168127.jpg" />
 </div>
 
 
@@ -531,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168095.jpg" />
 </div>
 
 
@@ -557,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168083.jpg" />
 </div>
 
 
@@ -584,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167986.jpg" />
 </div>
 
 
@@ -610,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167952.jpg" />
 </div>
 
 
@@ -636,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167921.jpg" />
 </div>
 
 
@@ -662,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167900.jpg" />
 </div>
 
 
@@ -674,6 +542,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4314A0A54B4BA395A9F222CE24BD6434D491AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672800   (167847) от 29.10.2023
+
+А.И. Агафонов и др. | Современная релейная защита и автоматика электроэнергетических систем (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены основные принципы построения релейной защиты и автоматики электроэнергетических систем; типовые схемы соединений трансформаторов тока; работа, оценка и область применения базовых схем релейной защиты и автоматики.
+Для студентов электроэнергетических направлений подготовки, а также специалистов в области энергетики и электротехникиЖанр: Электротехника, энергетикаИздательство: Инфра-инженерияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61FD143471707B96DA780F5169E7B5238FDED6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344960   (167838) от 13.12.2019
+
+Сергей Попов | Все формулы мира. Как математика объясняет законы природы (2019) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Традиционное противопоставление двух культур – гуманитарной и естественнонаучной – основано на взаимном непонимании. Чтобы преодолеть его, нужно наладить диалог. Попыткой такого диалога стала книга российского ученого-астрофизика и популяризатора науки Сергея Попова «Все формулы мира». Эта работа адресована в первую очередь тем, кто привык считать себя гуманитарием (   Читать дальше...   )Жанр: Физико-математические наукиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA16EF0A9A7404A08033904E346B55E200505A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345096   (167781) от 13.12.2019
+
+Борис Акунин | Первая сверхдержава. История Российского государства. Александр Благословенный и Николай Незабвенный (2020) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами седьмая книга научно-популярного иллюстрированного цикла «История Российского государства» от известного писателя, литературоведа и общественного деятеля Бориса Акунина.
+В начале XIX века Россия впервые получила статус сверхдержавы и стала претендовать на европейское лидерство. Однако, сумев добиться господствующей позиции ценой огромных жертв, страна (   Читать дальше...   )Жанр: История РоссииФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045A8CAA4F8D751E69A25B669566BE12496E66C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672688   (167761) от 29.10.2023
+
+В.Г. Нечепаев и др.| Детали машин. Прикладная механика. Основы конструирования. Детали машин и основы конструирования (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие разработано в соответствии с требованиями государственного образовательного стандарта высшего профессионального образования и основной образовательной программы для направлений подготовки бакалавриата и специальностей специалитета; предназначено также для преподавателей образовательных организаций высшего профессионального образования.
+Учебное пособие (   Читать дальше...   )Жанр: МашиностроениеИздательство: Инфра-инженерияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30ED24F1E50B4634C647971BD165C626E5EFDD41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431248   (167755) от 13.12.2020
+
+М. Вольф | Международное частное право (1948) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167755.jpg" />
+</div>
+
+
+###  Подробнее
+
+М. Вольф в своей книге большей частью ограничивается лишь юридико-догматическим анализом законодательства и судебной практики и замечаниями de lege ferenda. Как и все без исключения другие буржуазные коллизионисты, Вольф перегружает свой курс мелочным анализом казуистических случаев. Но в тех случаях, когда автор пытается дать социально-политическую оценку тех или (   Читать дальше...   )Жанр: История, политология, социология, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6894094CFE944222577CBC07994A275F7D625EAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

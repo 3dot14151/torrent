@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262150.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262149.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261995.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261991.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261796.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261768.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261410.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261399.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261253.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260763.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ NG: В поисках Да Винчи / Finding the Lost Da Vinci (2012) SATRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260760.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260710.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260707.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260705.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260688.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259885.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259560.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259526.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ BBC: Книга Страшного суда / Domesday (2010) SATRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259377.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259305.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259294.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259265.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259181.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259123.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259061.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259017.jpg" />
 </div>
 
 

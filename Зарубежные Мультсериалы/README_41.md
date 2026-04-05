@@ -1,3 +1,55 @@
+###  Публикация: 1624245   (242681) от 05.04.2023
+
+Гэри и его демоны / Gary and His Demons (2023) WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-10 из 10) HDRezka Studio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гэри — ветеран правительственного департамента по отлову и уничтожению демонов, который был создан после масштабного вторжения сил зла в наш мир. В войне с силами Ада он потерял много друзей и любимую, но приобрёл стальной цинизм, язвительное чувство юмора и желание уйти на пенсию. Но вот беда, ему до сих пор не нашли замену. И снова ему одному приходится тянуть (   Читать дальше...   )Производство: Канада, Mondo MediaЖанр: Для взрослых, ужасы, фэнтези, боевик, драма, комедияРежиссер: Марк Литтл, Лу СолисАктеры: Марк Литтл, Кайл Дули, Кайла Лоретт, Мигель Ривас, Сара Гарсиа, Эмма Хантер, Палома Нунез, Дэвид БерниПеревод: профессиональный многоголосый (HDRezka Studio)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~00:11:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B3BD0F23DA714CFBD9C26D115FD0BDE4570DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538227   (242512) от 11.04.2022
+
+Думлэндс / Doomlands (2022) WEB-DLRip (сезон 1, серия 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о жизни печально известного Дэнни Дума и начинающего бармена Ланди, которые разливают пиво по адской пустоши в своем передвижном пабе «Оазис». Столкнувшись с безжалостными пустынными бандами, уродами, крадущими память, и даже ужасными граффити в ванной, все, что нужно сделать этой команде, чтобы выжить, — это не убивать друг друга.Производство: США, Канада, Look Mom! ProductionsЖанр: Для взрослых, мультфильм, комедия, приключенияРежиссер: Марк Литтл, Кайла Лоретт, Джош О'кифАктеры: Кайла Лоретт, Эшли Поупелка, Марк Литтл, Скотт Фарли, Джош КруддасПеревод: Многоголосый профессиональный (NewStation) Присутствует ненормативная лексика!Субтитры: отсутствуютПродолжительность: ~00:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E052884EC245F4B630706AE2F8BD04BA6DDA9618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568900   (242483) от 10.08.2022
 
 Я есть Грут / I Am Groot (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) [EN / RU, EN Sub]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242483.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242419.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241527.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241146.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240163.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240032.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239664.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238942.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ SMASH! Юные супергерои / S.M.A.S.H! (2022) WEBRip [H.264/1080p] (�
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237651.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236215.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235878.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235683.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234656.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234327.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234103.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233706.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233321.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233162.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ DOTA: Кровь дракона / Dota: Dragon's Blood (2022) WEB-DL [H.264/1080
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233101.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232440.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232420.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232328.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231877.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231857.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FBA48FBD70C84DBC937680D74F72952689AFCF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555390   (231203) от 04.06.2022
-
-Звёздный путь: Нижние палубы / Star Trek: Lower Decks (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) SDI Media
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока команды «Энтерпрайза» и «Дискавери» вершат судьбы вселенной, где-то на нижней палубе ничем не примечательного корабля «Серритос» своим ходом идет жизнь четырех младших офицеров. Энсин Маринер  — крутая девчонка, которая свободно владеет несколькими инопланетными языками, орудует клингонским мечом, разбирается во флоре и фауне многих миров, но нарушение устава (   Читать дальше...   )Производство: США / Paramount Animation, 219 Productions, CBS All Access, Roddenberry EntertainmentЖанр: Фантастика, боевик, приключения, комедияРежиссер: Джуно Джон Ли, Бэрри Дж. Келли и другие.Актеры: Тоуни Ньюсом, Джек Куэйд, Ноэль Кристи Уэллс, Юджин Кордеро, Доун Льюис, Джерри О’Коннелл, Фред Таташиор, Джиллиан Вигмэн, Джессика МакКенна, Пол Шир и другие.Перевод: Дублированный (SDI Media)Субтитры: РусскиеПродолжительность: ~ 00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51DAF12045B0E105548123B5BBA759EC253552E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582145   (230792) от 08.10.2022
-
-Эверест и невидимый город / Abominable and the Invisible City (2022) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) ColdFilm
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повзрослевшая Лу вместе с друзьями и йети по имени Эверест спасает других необычных существ.Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джилл Калтон, Тодд ВилдерманПеревод: многоголосый любительский (ColdFilm)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CEAB130A9AE568E92171326A6F7268E371244B
 ```
 
 https://mybot314.ru/tekegram_catalog/

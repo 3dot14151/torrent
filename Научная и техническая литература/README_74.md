@@ -1,133 +1,3 @@
-###  Публикация: 440721   (970409) от 22.01.2012
-
-Жак Ле Гофф | Герои и чудеса Средних веков [2011] [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга непревзойденного знатока и исследователя культуры Западной Европы продолжает знакомить читателя с интереснейшими деталями средневековой европейской жизни. Жак Ле Гофф исследует само средневековое представление о жизни, ее героях - рыцарях без страха и упрека или благородных разбойниках; о местах, с которыми у нас связано представление о Средневековье, (   Читать дальше...   )Издательство: ТекстФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC2D02E29CADADC0DE6F92B7CFE14EA3200C61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744911   (970118) от 12.01.2014
-
-Абу Али Хусейн ибн Абдаллах ибн Сина (Авиценна) | Избранные философские произведения (1980) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_970118.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящую книгу, посвященную 1000-летию со дня рождения ученого-энциклопедиста Ибн Сины (Авиценны) [980―1037], включены его труды: «Жизнеописание», «Книга знания», «Указания и наставления» и «Книга о душе», являющиеся ценными памятниками философской культуры раннего арабского Средневековья. Последние 3 произведения впервые полностью переведены с арабского (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C9CF5CD8771809B61EBFB1131F73A5AB0399EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975910   (969787) от 17.01.2016
-
-Н. Грацианский | Западная Европа в Средние века. Источники социально-экономической истории (1925) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969787.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном сборнике опубликованы некоторые источники по социально-экономической истории раннего Средневековья.Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0724BDA5C9DA32F270A64123141B4073224E55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975586   (969786) от 17.01.2016
-
-Г. Л. Смирнов (отв. ред.) | Очерк теории социализма (1989) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969786.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге излагаются основные вопросы теории и практики современного социализма. В ней раскрывается социалистический характер советского общества и его ценностей, причины деформаций социализма, историческая необходимость и задачи перестройки. На страницах книги анализируются проблемы развития социализма в современном мире, состояния международного рабочего и коммунистического (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1DFDA984F98A12AA47ECC8640C85277F1B2571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975707   (969779) от 17.01.2016
-
-А. Н. Боголюбов (отв. ред.) | У истоков классической науки. Сборник статей (1968) [DJVU, PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969779.jpg" />
-</div>
-
-
-###  Подробнее
-
-XVII век дал человечеству необычайно много - были заложены основы классической науки. Галилей, Декарт, Ферма, Торричелли, Паскаль, Ньютон, Гейгенс, Лейбниц, Спиноза - вот далеко не полный перечень блистательных умов этого столетия. В статьях сборника рассказывается об исторических условиях, в которых начала развиваться классическая наука, об ее идейных истоках и (   Читать дальше...   )Жанр: История, науковедение, искусствоФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992871BA1229736515A5B3465F66A5A9CC5E30C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976480   (969775) от 17.01.2016
 
 Анатолий Бахтин | Ковчег Завета. От Синая до Пруссии (2016) [FB2]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969775.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969753.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969749.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969718.jpg" />
 </div>
 
 
@@ -241,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969714.jpg" />
 </div>
 
 
@@ -269,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969695.jpg" />
 </div>
 
 
@@ -295,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969660.jpg" />
 </div>
 
 
@@ -321,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969659.jpg" />
 </div>
 
 
@@ -347,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969553.jpg" />
 </div>
 
 
@@ -375,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969350.jpg" />
 </div>
 
 
@@ -401,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968823.jpg" />
 </div>
 
 
@@ -427,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968821.jpg" />
 </div>
 
 
@@ -453,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968816.jpg" />
 </div>
 
 
@@ -481,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968811.jpg" />
 </div>
 
 
@@ -507,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968805.jpg" />
 </div>
 
 
@@ -533,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968773.jpg" />
 </div>
 
 
@@ -559,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968772.jpg" />
 </div>
 
 
@@ -587,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968766.jpg" />
 </div>
 
 
@@ -613,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968747.jpg" />
 </div>
 
 
@@ -639,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968714.jpg" />
 </div>
 
 
@@ -666,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968711.jpg" />
 </div>
 
 
@@ -678,6 +548,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D669DFD6D0388918EF549F79AE44A4EE3834DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358629   (968690) от 08.02.2020
+
+Джошуа Правер | Королевство крестоносцев (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся израильский историк Джошуа Правер на страницах своей книги воссоздает жизнь и уклад средневекового общества на Ближнем Востоке в эпоху Крестовых походов. Профессор Правер описывает историю создания крестоносцами Иерусалимского королевства, рассматривает его устройство, систему управления, политические и общественные институты, привнесенные европейцами (   Читать дальше...   )Жанр: История Древнего мираПеревод: В.С. МухинФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3281526908579C1C58DF46FA477B66F92DD9301A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358627   (968688) от 08.02.2020
+
+Вольфганг Акунов | Сказание о наших готских предках (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй половине IV в. п. Р. Х. Римская «мировая» держава была потрясена вторжением германского племени готов, едва не приведшим ее к гибели. Но со временем именно готам было суждено не только вписаться в античный мир, но и стать решающим фактором его выживания и подготовки к переходу в мир феодализма. О судьбе готов, внесших свой вклад и в создание древнерусской (   Читать дальше...   )Жанр: История Древнего мираФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B46AEC532C4B83E85B823E7BA9F63E1F3D02DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358625   (968678) от 08.02.2020
+
+Ангелос Ханиотис | Эпоха завоеваний. Греческий мир от Александра до Адриана (336 г. до н.э. — 138 г. н.э.) (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968678.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей новой книге видный исследователь Античности Ангелос Ханиотис рассматривает эпоху эллинизма в неожиданном ракурсе. Он не ограничивает период эллинизма традиционными хронологическими рамками – от завоеваний Александра Македонского до падения царства Птолемеев (336–30 гг. до н. э.), но говорит о «долгом эллинизме», то есть предлагает читателям взглянуть, как (   Читать дальше...   )Жанр: История Древнего мираПеревод: Владислав ФедюшинФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1BE565098FD2B1D344E37A261AF16B04A85491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976371   (968656) от 18.01.2016
+
+Альфред Брем | Птицы [в 2 томах] (1999) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухтомник подготовлен по лучшему переводу, который был выпущен в свет в 1893 году в Санкт-Петербурге. Сохранен стиль повествования автора - всемирно признанного классика натуралистической литературы. Впервые в современном отечественном издании в полном объеме воспроизведены иллюстрации, созданные немецкими художниками и граверами в XIX веке специально для книг А.Брема. (   Читать дальше...   )Жанр: Научно-популярная, жизнь животных.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAAD694F39956131146B9B48C085A99AAADCDE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976250   (968653) от 18.01.2016
+
+Кирилл Бабаев, Александра Архангельская | Что такое Африка (2015) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой научно-популярное описание самых увлекательных аспектов изучения Африки: её природы и животного мира, народов и языков, религий и культур, искусства и архитектуры. Простым и доступным языком авторы - известные учёные-африканисты - рассказывают о самых интригующих загадках Чёрного континента, об удивительных обычаях народов Африки и малоизвестных (   Читать дальше...   )Жанр: Образовательная литература, научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3288858E289F00485C5DA3356C77C43B2E67D4EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

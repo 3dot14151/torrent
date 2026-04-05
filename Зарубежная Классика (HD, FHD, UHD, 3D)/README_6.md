@@ -1,3 +1,81 @@
+###  Публикация: 597670   (996639) от 16.01.2013
+
+Полицейская история / Flic Story (1975) [1080p]  BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм рассказывает о реальной истории охоты за опасным преступником Эмилем Бюиссоном, бежавшим из тюрьмы в 1947 году. В течение трех лет Бюиссону удавалось неоднократно ускользать из рук преследовавшего его детектива Боринша, убивая одного за другим его информаторов. Когда Бюиссон был все-таки пойман, ему было предъявлено обвинение в совершении 30 убийств и более 100 ограблений…Жанр: Триллер, Драма, КриминалРежиссер: Жак ДереАктеры: Ален Делон, Жан-Луи Трентиньян, Ренато Сальватори, Клодин Оже, Морис Биро, Андре Пусс, Марио Давид, Поль Кроше, Дени Манюэль, Марко ПерренПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C16DE440F269681EB94F6C42BD2624F3CDD8655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604230   (996414) от 17.01.2013
+
+Путь на Запад / The Way West (1967) [1080p] BDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996414.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману А.Б. Гатри мл.Середина XIX века. Уильям Тэдлок ведет переселенцев на запад Америки, чтобы создать там новое поселение. Тэдлок — строгий предводитель, который одинаково требователен как к себе, так и к остальным участникам похода. По дороге путешественникам приходится пережить множество несчастий, а после убийства индейского мальчика испытать на себе всю силу правосудияЖанр: ВестернРежиссер: Эндрю В. МакЛагленВ ролях: Кирк Дуглас, Роберт Митчэм, Ричард Уидмарк, Лола Олбрайт, Салли Филд, Кэтрин Джастис, Джек Элам, Стабби Кайе, Майкл МакГриви, Харри Кэри, Конни Сойер, Майкл Уитни, Уильям Лэндиган, Элизабет Фрейзер, Джон МитчумПеревод: Многоголосый закадровыйПродолжительность: 02:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC14EDE8F25377C93525B097C07068A097EC356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603306   (996088) от 18.01.2013
+
+Полукровка Виннету / Winnetou und das Halbblut Apanatschi (1966) [1080p] BDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996088.jpg" />
+</div>
+
+
+###  Подробнее
+
+В день своего совершеннолетия дочь женщины-апачи и белого охотника Мэка - красавица Аппаначи - получает родительское благословение на брак с любимым и золотую жилу в приданое. Но ее счастье было недолгим. Старые знакомцы отца, такие же неотягощенные моралью трапперы, требуют у Мэка свою долю золота и в суматохе убивают его. Казалось бы, теперь все золото в их руках, но своей болтливостью они подписывают себе смертный приговор от рук настоящих бандитов из шайки знаменитого Керли Билла. Лишь в последний момент на помощь несчастной девушке и ее жениху приходят, как всегда великолепные, Верная Рука и Виннету.Жанр: Приключения, вестернРежиссер: Харольд ФилиппВ ролях: Лекс Баркер, Пьер Брис, Гёц Георге, Уши Глас, Ральф Вольтер, Уолтер Барнс, Илия Джувалековский, Миха Балох, Маринко Чошич, Петар Добрич, Владимир Лейб, Нада Касапич, Мария Чрнобори, Симе Ягаринец, Звонко Добрин, Иво Кристоф, Бранко Шпольяр, Йохен Брокманн, Майкл Крамер, Матиас Айнерт, Герт Гюнтер Хоффманн, Инге ЛандгутПеревод: Многоголосый закадровыйПродолжительность: 01:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B6608205C4D95F22EE93D264854B2776A83C6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601515   (996043) от 18.01.2013
 
 Злоключения Альфреда / Malheurs d'Alfred, Les (1972) [720p] WEB-DL
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996043.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995849.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995842.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995801.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995711.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995602.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995565.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995551.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995537.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995447.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995441.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994787.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994423.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994421.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993239.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993078.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991722.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991638.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990083.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989189.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988975.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987785.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987394.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF5F581844D7E79BFA3D548622048181405C0707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967355   (987308) от 02.01.2016
-
-Верная Рука – друг индейцев / Old Surehand (1965) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987308.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре внимания Джонни Гарден, так же известный как Шаттерхэнд, или Верная Рука. Шаттерхэнд странствует по Дикому Западу в поисках убийц своей семьи. В этих поисках он натыкается на таинственного Генерала, который стравливает индейцев племени команчи с американской армией с целью завладеть землёй индейцев, богатой золотом. Но Шаттерхэнд и Виннету постараются всеми (   Читать дальше...   )Производство: Германия (ФРГ), Югославия / Jadran Film, Rialto Film Preben-PhilipsenЖанр: Приключения, ВестернРежиссер: Альфред ФорерАктеры: Стюарт Грейнджер, Пьер Брис, Ларри Пеннелл, Летиция Роман, Теренс Хилл, Милан Срдоч, Вольфганг Лукши, Эрик Шуманн, Велимир «Бата» Живоинович, Душан АнтониевичПеревод: Дублированный (Киностудия «Союзмультфильм»)Субтитры: ОтсутствуютПродолжительность: 01:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C31156C27C1D68688CE8066952233A7B880A88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 239635   (986736) от 23.01.2020
-
-Близкие контакты третьей степени / Close Encounters of the Third Kind (1977) BDRip [H.264/720p] [Director's Cut] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сбои в подаче электроэнергии, возвращение из ниоткуда самолетов, исчезнувших в 1945 году, обескураживают ученых. Наименее скептичные люди науки расценивают эти явления, как прямое доказательство существования разумной инопланетной формы жизни. Выехавший на повреждение электрик Рой Нери встретился с настоящим НЛО: автомобиль, в котором ехал Рой, попал под мощный пучок (   Читать дальше...   )Производство: США / Julia Phillips and Michael Phillips Productions, EMI FilmsЖанр: фантастика, приключения, драма, комедияРежиссер: Стивен СпилбергАктеры: Ричард Дрейфусс, Франсуа Трюффо, Тери Гарр, Мелинда Диллон, Боб Бэлабан, Дж. Патрик МакНамара, Уоррен Дж. Кеммерлинг, Робертс Блоссом, Филип Доддс, Кэри Гуффи, Лэнс ХенриксенПеревод: многоголосый закадровыйСубтитры: EnglishПродолжительность: 02:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96B14379C96B89F0A46390700230DD9063449A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968122   (985659) от 24.01.2020
-
-Сияние / The Shining (1980) BDRip [H.264/1080p-LQ] [Unrated US Cut]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек Торренс, приехал в элегантный уединенный отель, чтобы поработать смотрителем во время мертвого сезона вместе со своей женой и сыном. Торренс здесь раньше никогда не бывал. Или это не совсем так? Ответ лежит во мраке, сотканном из преступного кошмара.Производство: США, Великобритания / Warner Bros. PicturesЖанр: Ужасы, Триллер, Драма, ДетективРежиссер: Стэнли КубрикАктеры: Джек Николсон, Шелли Дюволл, Дэнни Ллойд, Скэтман Крозерс, Энн Джексон, Тони Бертон, Барри Нелсон, Филип Стоун, Джо ТеркелПеревод: Многоголосый закадровый (Киномания)Язык субтитров: Русский, АнглийскийПродолжительность: 02:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D1A4CD9336D7BA6A596877DF909CD099C316CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

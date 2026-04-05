@@ -1,3 +1,82 @@
+###  Публикация: 1815683   (4989) от 31.08.2025
+
+Алексей Вязовский, Сергей Линник | Столичный доктор [8 книг] (2024-2025) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4989.jpg" />
+</div>
+
+
+###  Подробнее
+
+История попаданца-хирурга в конце 19-го века...
+Попал из инвалида в... опять инвалида? На дворе царская Россия, впереди бурный 20-й век. Хочешь, не хочешь, а надо выгребать.Жанр: Фантастика, приключения, попаданцыИздательство: АСТ, СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D68E6F6FB1A3472209074E33BDFFDBFC9A3ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815667   (4977) от 31.08.2025
+
+Виталий Хонихоев | Тренировочный день [7 книг] (2025) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перенос сознания в советскую эпоху. Тут не будет изобретения айфона и кражи песен, не будет попыток изменить историю. Эта книга скорее дань ностальгии по временам когда деревья были большие, а люди, казалось, были немного лучше. По временам, когда мужчины были мужчинами, а женщины - женщинами. Когда не боялись отпускать детей гулять на улицу, когда дети росли с мечтой (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A42569566C2810B24A793FA8BB075691D7CD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815676   (4959) от 31.08.2025
+
+Алексей Вязовский, Дмитрий Чайка | Лихие 90-е [4 книги] (2022-2023) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты прожил не слишком длинную, но насыщенную бурными событиями жизнь. И уже перед самой смертью жалеешь, что в тот момент, когда распалась великая страна, не решился сделать нужный выбор. Ведь то, во что ты всегда верил, оказалось миражом, который привел к одиночеству и бессмысленному существованию. Что будет, если в лихие 90-е попадет тот, кто уже один раз их прожил, (   Читать дальше...   )Жанр: Фантастика, попаданцы, криминалИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D084DF4CD83CB8DE06068FE2077D5FD3D7F62E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815677   (4952) от 31.08.2025
 
 Алексей Вязовский | Я Распутин [4 книги] (2022-2023) [FB2]
@@ -6,7 +85,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4952.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4942.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4937.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4827.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4800.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4760.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4716.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4706.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4677.jpg" />
 </div>
 
 
@@ -247,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4671.jpg" />
 </div>
 
 
@@ -273,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4652.jpg" />
 </div>
 
 
@@ -299,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4651.jpg" />
 </div>
 
 
@@ -325,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4573.jpg" />
 </div>
 
 
@@ -353,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4485.jpg" />
 </div>
 
 
@@ -381,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4372.jpg" />
 </div>
 
 
@@ -409,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4361.jpg" />
 </div>
 
 
@@ -436,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4220.jpg" />
 </div>
 
 
@@ -465,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4124.jpg" />
 </div>
 
 
@@ -491,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3971.jpg" />
 </div>
 
 
@@ -519,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3761.jpg" />
 </div>
 
 
@@ -546,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3608.jpg" />
 </div>
 
 
@@ -572,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3599.jpg" />
 </div>
 
 
@@ -598,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3596.jpg" />
 </div>
 
 
@@ -610,85 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9767D7CA2281BC1F7D7275BAC3C00370F8D693E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817197   (3595) от 09.09.2025
-
-Игорь Шенгальц | Черные ножи [4 книги] (2024-2025) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Командир танка гибнет в неравном бою в 2040 году и попадает в тело челябинского подростка... в декабрь 1942 года.
-Димка - рабочий на легендарном Танкограде, где создают Уральский добровольческий танковый корпус, получивший у фашистов прозвище "Черные ножи".Жанр: Фантастика, боевик, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4AF65AE8CB8A42864C81C1B5A2677DC102BB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817135   (3593) от 09.09.2025
-
-Юрий Москаленко (Лайтгер) | Небесный Трон [14 книг] (2019-2025) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он был королем мира подпольных боев у себя на родине. Он был молод, красив и богат. Многие признанные, мировые чемпионы не были ему соперниками. Он любил… Он жил ради неё и сражений… В один момент всё это пропало. Чего захочет человек, получивший шанс на вторую жизнь? Каким путем проследует Кай, очутившись в мире, где правит сила и мастерство? Правят боевые искусства! (   Читать дальше...   )Жанр: Боевое фэнтези, Попаданство, ЛитРПГИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF1EEC28BED00179445626E0AF5BAED93B829E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817172   (3592) от 09.09.2025
-
-Серг Усов | Бастард рода Неллеров [8 книг] (2024-2025) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средневековый магический мир погружен в эпоху войн всех со всеми. Государства делят территории, люди ведут борьбу за власть и деньги, маги мечтают обрести могущество. В тело незаконнорожденного герцогского сына, проживающего на окраине небольшого даже по средневековым меркам города, переносится сознание человека, умершего на Земле. Как попаданец сможет устроиться (   Читать дальше...   )Жанр: Фэнтези, боевик, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8DAC8C6484DAC44FD342329A80B70C1FD7E751
 ```
 
 https://mybot314.ru/tekegram_catalog/

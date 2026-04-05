@@ -1,31 +1,3 @@
-###  Публикация: 757631   (915590) от 17.02.2014
-
-Edubuntu 12.04.4 LTS (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Edubuntu — дистрибутив операционной системы Linux, основанный на дистрибутиве Ubuntu. Ориентирован на использование в образовательных учреждениях. В Edubuntu включён Linux Terminal Server Project и большое количество программ образовательного направления, таких как GCompris; KDE Education Project; SchoolTool Calendar (en — school management information system) и ряд других.
-
-Установив Edubuntu Вы получите все возможности текущей версии Ubuntu 12.04.4 LTS плюс некоторый набор образовательных программ. Поскольку Edubuntu работает с теми же репозиториями, что и Ubuntu, в последней все эти программы также будут доступны, однако придется их устанавливать самостоятельно, на что уйдет дополнительное время.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFEABC5FB529015DC1DF18D471E13BD83475B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989739   (914721) от 23.02.2016
 
 Linux UsefulPack 16.02 (L) [Русский] (2016) [x86 + amd64]
@@ -34,7 +6,7 @@ Linux UsefulPack 16.02 (L) [Русский] (2016) [x86 + amd64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_914721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_914721.jpg" />
 </div>
 
 
@@ -63,7 +35,7 @@ Tor Browser 2.3.25-5 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912648.jpg" />
 </div>
 
 
@@ -89,7 +61,7 @@ Zentyal 3.0.2 [Сервер для дома и малого бизнеса] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912439.jpg" />
 </div>
 
 
@@ -117,7 +89,7 @@ Linux Mint Debian Edition (MATE/Cinnamon) 201303 [x32 + x64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912300.jpg" />
 </div>
 
 
@@ -147,7 +119,7 @@ Ubuntu*Pack Unity 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908708.jpg" />
 </div>
 
 
@@ -174,7 +146,7 @@ Ubuntu*Pack Cinnamon 18.04 (февраль 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908634.jpg" />
 </div>
 
 
@@ -201,7 +173,7 @@ Sabayon 16.03 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905788.jpg" />
 </div>
 
 
@@ -227,7 +199,7 @@ Window Maker Live 0.95.7-3 (Легкий дистрибутив) [i386, amd64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903728.jpg" />
 </div>
 
 
@@ -253,7 +225,7 @@ Parrot Security OS 4.8 + netinstall x64-x32 [Хакинг, аудит, безо�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903032.jpg" />
 </div>
 
 
@@ -279,7 +251,7 @@ BlackArch Linux 2017.01.28 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898799.jpg" />
 </div>
 
 
@@ -305,7 +277,7 @@ Kubuntu 14.04 Beta I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896080.jpg" />
 </div>
 
 
@@ -331,7 +303,7 @@ Lubuntu 14.04 Beta I (легкий дистрибутив) [i386, amd64] 4xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895994.jpg" />
 </div>
 
 
@@ -359,7 +331,7 @@ Ubuntu Gnome 14.04 Trusty Beta I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895661.jpg" />
 </div>
 
 
@@ -387,7 +359,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [x8
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894133.jpg" />
 </div>
 
 
@@ -415,7 +387,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [i6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892823.jpg" />
 </div>
 
 
@@ -443,7 +415,7 @@ Manjaro Linux 0.8.9 Ascella  (Arch + зоопарк рабочих столов)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892190.jpg" />
 </div>
 
 
@@ -471,7 +443,7 @@ Manjaro Linux 0.8.9 Ascella (Arch + зоопарк рабочих столов) 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892067.jpg" />
 </div>
 
 
@@ -499,7 +471,7 @@ Parted Magic 2016-03-02 [x86, x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889086.jpg" />
 </div>
 
 
@@ -526,7 +498,7 @@ Ubuntu 20.04.3 Focal Fossa LTS [amd64] 2xDVD
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888717.jpg" />
 </div>
 
 
@@ -552,7 +524,7 @@ Tor Browser 2.3.25-6 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_884413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_884413.jpg" />
 </div>
 
 
@@ -578,7 +550,7 @@ OS4 13.4 (легкий дистрибутив) [x86, x64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880799.jpg" />
 </div>
 
 
@@ -606,7 +578,7 @@ Slackel KDE-4.10.5 Live [x86, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879650.jpg" />
 </div>
 
 
@@ -634,7 +606,7 @@ Tails 0.23 RC1 [анонимный доступ в сети] [i386] 1xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879367.jpg" />
 </div>
 
 
@@ -662,7 +634,7 @@ Cinnarch 2013.04.05 [i686 + x86-64] (4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877630.jpg" />
 </div>
 
 
@@ -690,7 +662,7 @@ KaOS Linux 2016.03 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876774.jpg" />
 </div>
 
 
@@ -701,6 +673,34 @@ KaOS Linux 2016.03 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B90EF938421CA92606E43DAF41B672AC79E33D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643144   (872755) от 14.04.2013
+
+PCLinuxOS 2013.04 KDE FullMonty [i586] (1xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь представлен релиз PCLinuxOS 2013.04 KDE FullMonty. Основанный 24 октября 2003 года на Mandrake 9.2, PCLinuxOS придерживается собственного пути развития.  Редакция 'KDE Full Monty', где помимо обычной KDE-инсталляции содержится специальная структура рабочего стола, а также многие дополнительные приложения и предустановленные драйверы. В FullMonty разработчиками применена новая концепция: activity-focused формат виртуального рабочего стола, разработанный для обращения к типовым задачам и потребностям пользователя. KDE FullMonty распространяется в виде 32-битного DVD-образа, который может быть установлен на компьютерах с 64-битной архитектурой.
+
+В релизе PCLinuxOS 2013.04:  KDE 4.10.1;   ядро 3.2.18-pclos2.bfs; комплект свежих версий проприетарных графических драйверов NVidia; тема PCLOS410;  уведомляющая о возможности обновления установленных приложений утилита QT-update-notifier.
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

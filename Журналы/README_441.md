@@ -1,3 +1,136 @@
+###  Публикация: 1185849   (288984) от 23.11.2017
+
+Журнал | Идеи вашего дома. Спецвыпуск №4. Кухни и ванные (2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Идеи вашего дома» - ведущее отечественное издание по вопросам ремонта и обустройства интерьера, представляет специальный выпуск «Кухни и ванные».
+В выпуске большое количество планировочных и оформительских решений, обзоры ремонтно-строительных материалов, мебели, техники и оборудования. Читатели журнала - люди, планирующие реконструкцию, ремонт, дизайн интерьера (   Читать дальше...   )Жанр: Дизайн, строительство, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B87FFF4B6CE7F5C2CEE61F828D35F93F631316A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963258   (288848) от 07.12.2015
+
+Журнал | Дом. Спецвыпуск №6. Новогодний дом (2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Дом» - помощник для тех, кого интересуют практические вопросы, связанные со строительством, ремонтом и эксплуатацией индивидуального жилья – коттеджей, дачных и садовых домиков, а также надворных построек.Жанр: Архитектура, строительство, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34BD154AC1D5E58C7F0600E485F7063BDE3948F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963397   (288841) от 07.12.2015
+
+Журнал | Наука и жизнь №12 (декабрь 2015) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288841.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Наука и жизнь" - ежемесячный научно-популярный иллюстрированный журнал широкого профиля. Издание ориентировано на массового читателя. Освещает важнейшие проблемы науки и техники, публикует научно-художественные и научно-фантастические произведения, занимательные задачи, игры. Главная цель: популяризация научных знаний.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34E372F55DB7764C3314679544212A1CEA8876A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 733228   (288829) от 11.12.2013
+
+Журнал | Playboy [USA]. Коллекционное издание "Best of Russia 2013" (ноябрь 2013) [PDF] [En]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288829.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Playboy" — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.
+Спецвыпуск познакомит вас с самыми красивыми девушками из России. Издание представляет из себя фотоальбом (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0776ADE8600DA24F24182A6926BFE9255B197397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 733234   (288826) от 11.12.2013
+
+Журнал | Playboy [USA]. Коллекционное издание "Every Playmate of the Year" (декабрь 2013) [PDF] [En]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288826.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Playboy" — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.
+В этом спецвыпуске "Playboy" напомнит вам о всех своих моделях-playmate (девушка года) за весь (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE608E22C52F80A27730C5E91799177730B7212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963441   (288779) от 07.12.2015
 
 Журнал | Радио №10 (октябрь 2015) [DJVU]
@@ -6,7 +139,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288779.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288722.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288712.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288543.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288476.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288474.jpg" />
 </div>
 
 
@@ -163,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288465.jpg" />
 </div>
 
 
@@ -192,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288464.jpg" />
 </div>
 
 
@@ -218,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288392.jpg" />
 </div>
 
 
@@ -247,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288390.jpg" />
 </div>
 
 
@@ -276,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288389.jpg" />
 </div>
 
 
@@ -305,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288387.jpg" />
 </div>
 
 
@@ -334,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288384.jpg" />
 </div>
 
 
@@ -360,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288380.jpg" />
 </div>
 
 
@@ -386,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288379.jpg" />
 </div>
 
 
@@ -412,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288284.jpg" />
 </div>
 
 
@@ -438,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288274.jpg" />
 </div>
 
 
@@ -464,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288272.jpg" />
 </div>
 
 
@@ -490,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288007.jpg" />
 </div>
 
 
@@ -516,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287980.jpg" />
 </div>
 
 
@@ -542,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287772.jpg" />
 </div>
 
 
@@ -553,136 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76E4A333F86AFF3E507C068133FDCF5E84518399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335385   (287740) от 02.11.2019
-
-Газета | Тайны и загадки №5 (2019) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный журнал для широкого круга читателей.Жанр: популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F216F94ADD326F25D820ACB69E83DC35866E761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963776   (287441) от 08.12.2015
-
-Журнал | Школа кулинара №25 (декабрь 2015) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287441.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Школа кулинара" – сборник рецептов, присланных читателями и проверенных профессионалами. Салаты и закуски, супы, горячие блюда, рыбные блюда, выпечка и десерты, напитки. И всё это вкусно, а главное просто, ведь к каждому рецепту прилагается пошаговая инструкция и фото с конечным результатом.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4D2DCB695DDD6770FD08C90DD5973FF1FA9546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963643   (287428) от 08.12.2015
-
-Журнал | Авиаколлекция №6 (2015) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение к журналу «Моделист-конструктор». Специализированный журнал для любителей истории авиации и авиамоделистов. Каждый выпуск - это мини-монография об отечественной или иностранной конструкции летательных аппаратах. Каждый выпуск содержит информацию об истории создания самолета или вертолета, его серийном производстве, модификациях, эксплуатации, боевом применении (   Читать дальше...   )Жанр: История авиации и мини-монографииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF64DC61DAFF13A8A00D645E34AB9DA296E84411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263191   (287387) от 19.11.2018
-
-Журнал | Радио №11 (ноябрь 2018) [PDF, DJVU]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287387.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале представлены новости науки и техники, устройство и ремонт отдельных образцов видео и аудиотехники, конкретные устройства в технике измерений и источников питания. Показаны разработки радиолюбителей-конструкторов, большой объем устройств из прикладной электроники. В каждом журнале имеется специальный раздел для начинающих радиолюбителей.Жанр: Научно-популярный журналФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2D20638598D1B4A36FEDC8943E4D71D31DF2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963631   (287152) от 08.12.2015
-
-Журнал | PhotoCASA №8 (32) (ноябрь-декабрь 2015) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287152.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoCASA - красочный иллюстрированный журнал о фотографии как для профессионалов, так и для любителей. В каждом номере журнала - новинки фото и видео-техники, интервью с известными фотографами и знакомство с их работами, а также уроки по обработке фотографий, советы по съёмке и ещё много другой полезной информации.Жанр: Фотография, хоббиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D8B7EA8A90483C4E4E549208B8E54802187449
 ```
 
 https://mybot314.ru/tekegram_catalog/

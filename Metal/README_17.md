@@ -6,7 +6,7 @@ Kreator - London Apocalypticon - Live at the Roundhouse (2020) 3CD [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914255.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Betraying the Martyrs - The Resilient (2017) [MP3|320 Kbps] <Symphonic Metalcore
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914120.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Svartálfar (Svartalfar) - Niflheljar Til (2020) [MP3|320 Kbps] <Folk Viking Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914021.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kreator - Gods of Violence (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913808.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Brutality - Sea Of Ignorance (2016) [MP3|320 кб/с] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913779.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Conspiracy - Crippled Invaders (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913710.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sabathory - 2 LP + 1 demo (1998-2008) [MP3|192-320 кб/с]<Brutal Death metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913698.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Protector - Cursed And Coronated (2016) [MP3|320 кб/с] <Thrash Metal, Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912207.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Twins Crew - Veni Vidi Vici (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912198.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Schelmish - Persona non grata (2010) [MP3|320 кб/с] <Medieval Metal, Folk>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912192.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Virocracy - Irradiation (2020) [MP3|320 Kbps] <Progressive, Death, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911085.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Tenside - Convergence (2017) [MP3|320 Kbps] <Thrash, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910907.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Vörtex (Vortex) - Architects of Misfortune (2017) [MP3|320 Kbps] <Alternative M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910777.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Touch Of Eternity - 1 album, 2 singles, 1 EP (2011-2013) [MP3|192-320 Kbps] <Mel
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910755.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Morver - Staying in the Abyss (2017) [MP3|320 Kbps] <Progressive, Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910753.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ We Blame The Empire - These Waves Won't Take Me (2017) [MP3|320 Kbps] <Metalcore
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910631.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Need - Hegaiamas: A Song For Freedom (2017) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910620.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Aversion Crown - Xenocide (2017) [MP3|320 Kbps] <Technical, Brutal Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910616.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Mors Principium Est - Embers Of A Dying World (2017) [MP3|320 Kbps] <Melodic Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910532.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sinbreed - Master Creator (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910012.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Now Or Never - II (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909885.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ The New Black - A Monster's Life (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909854.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Wisdom - Rise of the Wise (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908111.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ The Unguided - Lust And Loathing (2016) Limited Edition [MP3|320 кб/с] <Melod
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907919.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Neorhythm - 3 CDr Альбома (2018-2020) [MP3|320 Kbps] <Groove, Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907511.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Dark Arena - Worlds of Horror (2021) [MP3|320 Kbps] <Progressive, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907385.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 790668   (720600) от 28.05.2014
-
-Мария Лялина | Братишки и сестренки (1892) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы для детей младшего возраста.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA861D032FED2AD5AB138B905219BEC03338876F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024176   (720178) от 07.06.2016
 
 Валерий Горбачев | Собрание сочинений [10 книг] (1986-2016) [FB2, DJVU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720178.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719639.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719430.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718732.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718310.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718044.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716808.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716256.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715352.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714740.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714737.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714031.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714025.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713006.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712501.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712346.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712287.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711978.jpg" />
 </div>
 
 
@@ -511,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711977.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711966.jpg" />
 </div>
 
 
@@ -563,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711224.jpg" />
 </div>
 
 
@@ -591,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710992.jpg" />
 </div>
 
 
@@ -618,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710051.jpg" />
 </div>
 
 
@@ -644,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710042.jpg" />
 </div>
 
 
@@ -671,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709940.jpg" />
 </div>
 
 
@@ -684,6 +658,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71CB432BBC4A498017D629B81E39A04562A959C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401568   (709548) от 10.08.2020
+
+Ким Макаров | Необычайное происшествие в зоопарке (1991) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка для маленьких - о том, как каждый зверь в зоопарке затосковал по своей родине: крокодил плачет о родном Ниле, медведь о тайге, жираф тоскует об Африке… Но вот свершилось чудо, двери клеток открылись, и что из этого вышло.Жанр: Стихи для детей/СказкаФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312D3621BE2590806A38C6DDEA480258BE86D145
 ```
 
 https://mybot314.ru/tekegram_catalog/

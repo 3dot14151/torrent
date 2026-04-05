@@ -6,7 +6,7 @@ Shika no Ou: Yuna to Yakusoku no Tabi | The Deer King | Король-олень 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193247.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Galaxy Angel A / Galaxy Angel AA | Галактические ангелы А [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193245.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Otomege Sekai wa Mob ni Kibishii Sekai Desu | Trapped in a Dating Sim: The World
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193242.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193220.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193180.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Black Rock Shooter: Dawn Fall | Стрелок с Черной скалы [ТВ-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193152.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Sono Bisque Doll wa Koi o Suru | My Dress-Up Darling | Эта фарфорова
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193100.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Akebi-chan no Sailor Fuku | Akebi's Sailor Uniform | Школьная форма
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192552.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191333.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191312.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Bastard!! Ankoku no Hakaishin (2022) | Bastard!! Heavy Metal, Dark Fantasy | У�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191218.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Eiga Yuru Camp | Лагерь на свежем воздухе (фильм) [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190827.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Fumetsu no Anata e | To Your Eternity | Для тебя, Бессмертный 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190820.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190623.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren`ai Zunousen | Kaguya-sama: Love 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190616.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Saint Seiya | Рыцари Зодиака [1986, TV, 114 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190062.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Exception | Ошибка [2022, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189901.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Kimi ni Todoke 2nd Season | Дотянуться до тебя [ТВ-2] [2011, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189755.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Kingdom 4 | Царство [ТВ-4] [2022, TV, 26 из 26] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189564.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187785.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY Ледяное короле�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187707.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Spy x Family | Семья шпиона [2022, TV, 12 из 25] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187697.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187542.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Machikado Mazoku 2-Choume | The Demon Girl Next Door 2 | Городская дь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187498.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187418.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimash
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187401.jpg" />
 </div>
 
 

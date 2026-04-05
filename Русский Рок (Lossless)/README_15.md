@@ -1,61 +1,3 @@
-###  Публикация: 1382486   (813742) от 14.05.2020
-
-Modern Blues Band - Блюз опадающих листьев (2006) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тайна
-02. Преследование
-03. Мамин блюз
-04. Его блюз(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FD2DC846DD8344DD1C9F66D66B0AA66D298E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882916   (812835) от 31.03.2015
-
-Александр Чернецкий (Разные Люди) - Чёрный ворон - я не твой! Том I. Студия (2014) 21 CD box [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная студийная антология творческого пути Александра Чернецкого. 21 CD (включая неизданный материал) в конвертах + 2 буклета: 40 и 44 страницы.01. Становись!
-02. Тревожная
-03. Бесы
-04. Чернец(   Читать дальше...   )Жанр: RockПродолжительность: 20:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF652A6BD8D4DBDB41F6E8E1E0D3C8660A6585BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 197397   (812480) от 05.05.2010
 
 Ночные снайперы - дискография (15 CD, 12 альбомов) 1998-2009 [FLAC|Lossless] <Rock>
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812480.jpg" />
 </div>
 
 
@@ -92,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812282.jpg" />
 </div>
 
 
@@ -121,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811651.jpg" />
 </div>
 
 
@@ -150,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810198.jpg" />
 </div>
 
 
@@ -179,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808207.jpg" />
 </div>
 
 
@@ -208,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807717.jpg" />
 </div>
 
 
@@ -237,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807594.jpg" />
 </div>
 
 
@@ -266,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807464.jpg" />
 </div>
 
 
@@ -295,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807094.jpg" />
 </div>
 
 
@@ -324,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806442.jpg" />
 </div>
 
 
@@ -353,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806439.jpg" />
 </div>
 
 
@@ -385,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806437.jpg" />
 </div>
 
 
@@ -411,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806317.jpg" />
 </div>
 
 
@@ -440,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803081.jpg" />
 </div>
 
 
@@ -469,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802848.jpg" />
 </div>
 
 
@@ -498,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802395.jpg" />
 </div>
 
 
@@ -527,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802124.jpg" />
 </div>
 
 
@@ -556,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800896.jpg" />
 </div>
 
 
@@ -585,7 +527,7 @@ Billy's Band - Песни Дедов Морозов (2016) 2017, Self-released [
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800621.jpg" />
 </div>
 
 
@@ -614,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800549.jpg" />
 </div>
 
 
@@ -643,7 +585,7 @@ Fort Royal - 12 альбомов (1995-2020) [FLAC|Lossless|image + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800194.jpg" />
 </div>
 
 
@@ -672,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799232.jpg" />
 </div>
 
 
@@ -701,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799228.jpg" />
 </div>
 
 
@@ -730,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799216.jpg" />
 </div>
 
 
@@ -744,6 +686,64 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8C34E55C3414112DE854CDF41877D4FA09678BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121852   (799214) от 04.04.2017
+
+Сруб - По грибы (2013) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Малина (02:44)
+02. Хворь (02:29)
+03. В ту ночь звонили колокола (03:55)
+04. Бор (03:55)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:21:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F4CEE1AE328F2CEDD43CDA4535AD48C7261553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121824   (799207) от 04.04.2017
+
+Сруб - Восход (2017) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Восход (03:20)
+02. Подпол (03:40)
+03. Оклики (04:18)
+04. Помни (04:51)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:526CDCB9379A767947593D4DEE020A0245F57F3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

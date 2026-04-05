@@ -1,3 +1,32 @@
+###  Публикация: 1557150   (213369) от 14.06.2022
+
+Lacrimosa - Сollection (1991-2021) 40 CD [FLAC|Lossless|image + .cue] <Gothic Metal, Symphonic Metal, Dark Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lacrimosa - (с лат. «слёзная») — группа из Швейцарии, лидеры которой — основатель, композитор и вокалист Тило Вольфф и клавишница и вокалистка Анне Нурми. Музыка Lacrimosa довольно разнообразна и выходит за рамки одного жанра, группа работала в разных стилях, но чаще всего в жанре готик-метал.Список альбомов:
+1991 - Angst
+1992 - Einsamkeit
+1993 - Satura(   Читать дальше...   )Жанр: Gothic Metal, Symphonic Metal, Dark WaveПродолжительность: 37:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07999261F8543FA17E0921760D9AE0D7CFB12380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 624378   (213362) от 14.06.2022
 
 VA - Mastersland.com - Украдено Из Студии 1 и 2 + 10 лет в сети (2008-2011) [MP3|320 kbps] <Heavy Metal, Power Metal, Death Metal>
@@ -6,7 +35,7 @@ VA - Mastersland.com - Украдено Из Студии 1 и 2 + 10 лет в 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213362.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Marc Bolan & T. Rex, Tyrannosaurus Rex - 38 albums, 8 Box-sets, 134CD (1967-2021
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213359.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Dark Tranquillity - Сollection (1993-2020) 34CD [FLAC|Lossless|image + .cue|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213169.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ Noel Gallagher (ex.Oasis) - 5 альбомов (2011-2021) 8CD [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213156.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213041.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213039.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213038.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Gotthard - 24 albums, 29 CD (1992-2022) [FLAC|Lossless|image + .cue | tracks + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212700.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ cLOUDs - Once Upon A Time... The Collection (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212664.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Alan Parsons - From The New World (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212636.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Alan Parsons - From The New World (2022) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212622.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Remina - The Silver Sea (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212518.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ David Gilmour - The Luck And Strange Concerts (2025) 2XCD, Japanese Edition [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212463.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Civil Daze - Once In A Blue Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL] <Melodic 
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212406.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Aranda - Four0Five Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212401.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Hawklords - Faith (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212389.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Rites to Ruin - Daughter of Hatred (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212384.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Kill Dorothy - Liberate Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212382.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ LikKnight - Beautiful and Bad (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212378.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Middleburn - 121 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212376.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212353.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack [MP3|3
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212327.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Warrant - The Speed Of Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212231.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Molasses Fire - In The Presence Of The Pirate King (2025) [FLAC 24/44.1|Lossless
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212168.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ The Apartments - 4 Albums (1996-2025) [MP3|320 Kbps] <Indie Rock, Folk Rock, Aco
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212140.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ The Apartments (2015) No Song No Spell No Madrigal (Deluxe Edition)(   Чита�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91CF5DCC6B56B4CAF7CB89E33E09E1791FE0DFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376627   (212101) от 24.07.2022
-
-Traveling Wilburys (The Traveling Wilburys) - 3 Albums, 2 Singles, 10CD (1988-2016) [FLAC|Lossless|image + .cue | tracks+.cue] <Classic Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212101.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Traveling Wilburys — супергруппа, участниками которой являлись Джордж Харрисон, Боб Дилан, Том Петти, Рой Орбисон и Джефф Линн, но под вымышленными именами. Название группы произошло от студийного сленга. «Wilburys» был жаргонным словом, выдуманным Харрисоном и Линном во время записи альбома Cloud Nine. Им они характеризовали огрехи записи, которые устранялись (   Читать дальше...   )--------------------------
-
-01. Nobody's Child (3:27)
-02. Luminere (Dave Stewart) (4:23)(   Читать дальше...   )Жанр: Classic Rock, Rock |Продолжительность: 05:30:10 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39BA293C3D5EC1A92F55D7F474203523DAACE3EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

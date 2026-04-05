@@ -1,3 +1,61 @@
+###  Публикация: 1276046   (789074) от 14.01.2019
+
+VA - Restricted Dance Reloaded (2019) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bomb N Amato - Can't Stop Raving (Single Mix)
+02. Rave Vegas - Hardcore Vibes (Calvo Edit)
+03. Stereo Palma feat. Myra - Because The Night (Roberto Rios x Dan Sparks Remix Edit)
+04. Freischwimmer feat. Jason Anousheh - Get it on Tonite(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8065530E86DD75B7E79559B0C17C99E92AF60176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203256   (788669) от 01.02.2018
+
+Lostly - Outburst presents Spotlight (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lostly – Since (Album Mix)
+02. Lostly – The Art of Acid (Album Mix)
+03. Lostly & Emma Gillespie – Nightwalker feat. Emma Gillespie (Album Mix)
+04. Lostly – Rage at the Stars (Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EF9F4766BFDEB6EA8E6012858A61D4D8004437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203279   (788239) от 02.02.2018
 
 VA - Suanda Music Radio Top 25 (January / February) (2018) [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
@@ -6,7 +64,7 @@ VA - Suanda Music Radio Top 25 (January / February) (2018) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788239.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Reanimate Music Volume 1 (Mixed by Somna) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788227.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Best Of Trancer 2018 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788223.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Voskoley - Uninhabited Planet (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787731.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Trance Favorites Episode #011 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787721.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Uplifting Trance Sessions Vol.11 (2018) [MP3|320 Kbps] <Trance,Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787633.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 January (2019) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787247.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ VA - Black Hole Trance Music 01-19 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787238.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ VA - Infrasonic Spring Selection (2017) [MP3|320 Kbps] <Trance, Uplifting Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786220.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ VA - Silk Music Pres. Talamanca 01 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785425.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Aelyn - Voice Of Suanda Vol. 5 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785384.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - Nothing But... The Future Of Trance Vol.11 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785026.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - Abora Recordings Best Of 2018 (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785016.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - afterlights (2017) [MP3|320 Kbps] <Trance,House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784995.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ VA - United Colours Of Trance Vol.10 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784990.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - A State Of Trance 850 (The Official Album) (Mixed by Armin van Buuren) (201
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784860.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Love Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784675.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Neural Attacks Vol.1 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784409.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Eleven (2018) [MP3|320 Kbps] <Trance,Psytrance,Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784398.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Uplifting Only: Orchestral Trance Year Mix 2017 (Mixed by Ory Uplift) (2018
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784097.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - The Sound Of Trance Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783547.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Tech Trance Essentials Vol.11 (2018) [MP3|320 Kbps] <Trance, Tech Trance, U
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783546.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - Nothing But... Total Trance Selections Vol.01 (2018) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783510.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ VA - Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783485.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ VA - Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E079713A4978C3F4FB979147EF5BC31E0003E06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205603   (782955) от 12.02.2018
-
-VA - Vocal Trance 2k18 Vol.2 (2018) [MP3|320 Kbps] <Trance, Hard Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Solosizer  -  Now (Original Mix)  5:04
-02.  Sublimity  -  Angels (Original Mix)  3:18
-03.  Chris Spring  -  Now (Trance Cut)  3:03
-04.  DJ Rosso  -  Make Me Wonder (Trancephonic Radio Edit)  3:32(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 03:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400C5972588F90DFB84B2693942F1DE358CA3100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206252   (782560) от 13.02.2018
-
-VA - Trance In Space 3 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sun Liquide  -  Celebrate The Light (Rene Ablaze Radio Edit)  3:57
-02.  TrancEye  -  Skylight (Radio Edit)  3:21
-03.  Opt-In  -  Zura (Radio Cut)  4:00
-04.  Maximal  -  Subject Lost (Radio Cut)  3:20(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B5EC6C21885EB8F791A354F2C11A4A6D47050E
 ```
 
 https://mybot314.ru/tekegram_catalog/

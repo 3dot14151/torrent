@@ -1,3 +1,32 @@
+###  Публикация: 1609778   (244490) от 05.02.2023
+
+Victor Smolski - 3 Albums (2006-2023) [MP3|320 Kbps] <Neo-Classical, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2006 - Majesty & Passion
+2006 - The Heretic
+2023 - Guitar ForceЖанр: Neo-Classical, Progressive MetalПродолжительность: 3 CD, 02:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCC26930D21F9FFFEB85E6FBB75463FFA8DBD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625430   (244488) от 10.04.2023
 
 Godsleep - Lies to Survive (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Psych, Alt. Rock>
@@ -6,7 +35,7 @@ Godsleep - Lies to Survive (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244488.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ the Poor - High Price Deed (2023) [MP3|320 Kbps] <Hard Rock , AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244474.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Witch Piss - Witch Piss (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Slud
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244468.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Guild Of Ages - One (1998) [FLAC|Lossless|image + .cue] <Progressive & Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244449.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ XIV Dark Centuries - ...Den Ahnen Zum Grusse... (2003) [WavPack|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244446.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Bronx Casket Co. - Hellectric (2005) [FLAC|Lossless|image + .cue] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244437.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Teramaze - I Wonder (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244433.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Bourbon House - The Fourth Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244432.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Insidious One - Н​и​ч​т​о​ж​е​с​т​в​о (2023) [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244429.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Upsidedown Cross - 2 Albums (1991-1993) [FLAC|Lossless|WEB-DL|tracks] <Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244427.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Lethvm - Winterreise (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244426.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Celestial Shadows - The Tragedy of Calufrax (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244420.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Center of the Earth - 4 Albums (2018-2023) [MP3|320 Kbps] <Psych, Stoner, Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244419.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Seven Witches - Rebirth (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244408.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Mind Patrol - Milking The Massess (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244405.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Cadaver Shrine - Benighted Desecration (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244404.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ White Lion - Love Don't Come Easy (1991) CDS, Single [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244403.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Nightrage - Abyss Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244396.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Detestor - In the Circle of Time (1995) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244395.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Guild Of Ages - Vox Dominatas (1999) [FLAC|Lossless|image + .cue] <Progressive &
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244387.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Fox River - 2 Albums (2018-2023) [MP3|320 Kbps] <Progressive Metal, Progressive 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244384.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Drac Attack! - Drac Attack! (2021) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244380.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Solefald - Collection (1997 - 2015) 9 CD [FLAC|Lossless|image + .cue] <Avant-gar
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244374.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Lesson In Violence - The Thrashfall Of Mankind (2022) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244370.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Aura - Roku Ronin (2023) EP [MP3|320 Kbps] <Nu-Metal, Rapcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244367.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Aura - Roku Ronin (2023) EP [MP3|320 Kbps] <Nu-Metal, Rapcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB877D9B0BC06260E58F0553F936637BA982B21E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452666   (244366) от 07.03.2021
-
-Телепорт - Огни маленького человека (2021) [MP3|320 Kbps] <Rock, Funk, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Огни маленького человека [00:00:34]
-02 - Холод [00:03:45]
-03 - Самовлюблённый [00:03:13]
-04 - Фантом [00:03:45](   Читать дальше...   )Жанр: Rock, Funk, SoulПродолжительность: 00:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE92A0284BC88436F0B37208ED1A6796A05E56B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1567751   (470053) от 04.08.2022
+
+Prof Reminder 3.3.5 (Premium) [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напоминание о пропущенных звонках и сообщениях, с поддержкой профилей, гибко настраиваемое.
+Особенно полезна если у вас телефон без светодиодного индикатора.Тип издания: PremiumРелиз состоялся: 10 мар. 2022 г.Разработчик: danila_ruПоддерживаемая ОС: Android 4.3 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731B8FD0CC75AA0725F3CFD302CD2DF51ADD6BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 824261   (468595) от 23.09.2014
+
+Garmin: Карта Башкирии 2014.50 (июль 2014) <Ru>
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карта Башкирии может быть установлена на автомобильные и туристические навигаторы Garmin, морские и авиационные картплоттеры Garmin, автонавигаторы других производителей с функцией выбора альтернативной навигационной программы, смартфоны и коммуникаторы с Windows Mobile/Symbian или на карту памяти SD/microSD.
+На карте есть вся Башкирия, а так же территории соседних областей: часть Татарстана и всё Нижнекамское водохранилище, Челябинская область до Магнитогорска и Златоуста, юг Удмуртии, Пермского края и Свердловской (   Читать дальше...   )Тип издания: пираткаРазработчик: Сергей БогдановПоддерживаемая ОС: GarminЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5657B8C3ADF127B214EB0BC412B62657F8538A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940368   (468194) от 24.09.2015
+
+OziExplorer WinCE v2.41 [Multi\RU] - Навигация по растровым картам
+
+>>Программы, Игры и прочее
+>>Навигация для др. мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468194.jpg" />
+</div>
+
+
+###  Подробнее
+
+OziExplorerCE - навигация по растровым картам (Карты Ген.Штаба , Спутниковые снимки и т.д., отсканированые или приобретеные в цифровом формате.) Она позволяет отслеживать вашу позицию на карте, полученную от GPS приемника. OziExplorerCE не является программным обеспечением автоматически планирующим Ваш маршрут, Вам не может быть предложен лучший способ добраться (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 05.06.2013Разработчик: OziExplorerПоддерживаемая ОС: WinCE 4, 5 - 6Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385FA6042A0D084B43A81A782C8E96AA96F325E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567942   (468009) от 05.08.2022
+
+Omnia Music Player / Музыкальный плеер Omnia 1.5.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный плеер Omnia - ещё один музыкальный плеер, что может стать отличным выбором для любого меломана, что ищет подобную программу для установки на своё мобильное устройство. Стильный дизайн, интуитивное управление и перемещения по трекам, закладкам, плейлистам и папкам, высокий уровень всеядности к форматам, 10-полосный эквалайзер и многое другое делает данный (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 02.09.2021Разработчик: Rhythm SoftwareПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA4321194E14E9F112A2036A3261536B97495E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568193   (466006) от 06.08.2022
 
 Darker (Screen Filter) 4.1.0 Mod by Balatan [Ru/Multi]
@@ -6,7 +112,7 @@ Darker (Screen Filter) 4.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466006.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Mantis Gamepad Pro 1.3.6b Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465913.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ WinZip – Zip UnZip Tool 6.4.0 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465898.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465236.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464959.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464134.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ Twilight Pro - Фильтр синего света 12.17 Mod by Balatan [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464076.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ Advanced Download Manager v14.0.13  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463815.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ Free Ringtone Maker / Создатель Рингтона 1.01.41.0613 Mod by Mi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461812.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461811.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ Wombo: Make your selfies sing 3.1.1 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461804.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ Anews: все новости и блоги 4.3.15 Mod by SurvivalHorro [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461799.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ Cool Q Launcher 8.5.1 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461795.jpg" />
 </div>
 
 
@@ -346,7 +452,7 @@ Magic Book: Match 3 Story v1.1.13 Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460672.jpg" />
 </div>
 
 
@@ -372,7 +478,7 @@ AirScreen - AirPlay & Cast & Miracast & DLNA v2.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459319.jpg" />
 </div>
 
 
@@ -398,7 +504,7 @@ GymUp v10.17 Pro [Ru/En] - дневник тренировок
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458956.jpg" />
 </div>
 
 
@@ -424,7 +530,7 @@ Eternal Calendar (Вечный календарь) 2018.09.10 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458839.jpg" />
 </div>
 
 
@@ -451,7 +557,7 @@ Universal Diary / Универсальный дневник v2.29 Unlocked [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458825.jpg" />
 </div>
 
 
@@ -477,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455556.jpg" />
 </div>
 
 
@@ -503,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453347.jpg" />
 </div>
 
 
@@ -529,7 +635,7 @@ XMusic - Музыкальный плеер 2.8.1.90 Mod by @Mod_AppStore [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453334.jpg" />
 </div>
 
 
@@ -555,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452842.jpg" />
 </div>
 
 
@@ -566,113 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13F0CA216AE49D549D79F8540DF630CB01831C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013267   (452356) от 08.10.2016
-
-Total Media Player v1.7.7 Pro [Ru/Multi] - многофункциональный медиа проигрыватель под Android
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проигрывание в любом формате медиа-файлов: MP4, MKV, M4V, MOV, FLV, AVI, RMVB, RM, TS, TP, торрент, Web, m3u8, M3U, MP2, WAV, MP3, AAC, VOB и многие другие.Тип издания: ПираткаРелиз состоялся: 08.10.2016Разработчик: ClumixПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE569977A22D204B0F667CB4911B2FDA36EEEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321988   (452205) от 27.08.2019
-
-Simpler Premium v2.18.210 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой помощник в изучении английского языка.
-
-…Правила английского языка в доступной и простой форме
-…Запоминание новых слов(   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 2017Разработчик: ZengaltПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FE0FC7704E768805B754CB5CC52C71EE86BB62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322129   (452203) от 27.08.2019
-
-Drift Max Pro v2.1.01 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452203.jpg" />
-</div>
-
-
-###  Подробнее
-
-От создателей легендарной гоночной игры Drift Max - совершенно новая гоночная игра Drift Max Pro!Тип издания: Пиратка (Разблокирована)Релиз состоялся: 06.08.2019Разработчик: TiramisuПоддерживаемая ОС: Android 4.1+Жанр: ГонкиЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6A24BC06A1EFDA60754AEE86F9898E21747A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247173   (450065) от 16.09.2018
-
-Garmin: City Navigator Europe NTU 2019.20 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорожная карта Европы для навигаторов Гармин.Тип издания: лицензияРелиз состоялся: август 2018Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AFC079A338353232A54AF2CE51460E97A12AB6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,84 +1,3 @@
-###  Публикация: 1199782   (800133) от 17.01.2018
-
-Л.Б. Селезнева | Русское правописание [2-е издание] (2002) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга для школьника, студента, преподавателя, для всех изучающих русский язык. Педагог найдет в ней достаточно полное и во многом нетрадиционное описание орфографических задач, учащийся, абитуриент сосредоточится преимущественно на правилах орфографии и способе их употребления.
-Разработанная автором теория орфограммы позволяет на новых, более эффективных принципах (   Читать дальше...   )Жанр: ЛингвистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483ED3C3066A6F20C5701F60D535C5B5389CC871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122283   (798858) от 05.04.2017
-
-В. В. Иванов | Методология исторической науки: Учеб. пособие для студ. вузов, обучающихся по специальности «История» (1985) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798858.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге освещены теоретико-методологические и методические вопросы изучения истории. Автор раскрывает предмет истории как науки, ее социальные функции, понятийный аппарат, рассматривает особенности исторического познания, методы, соотношение методологии и методики в научном исследовании. Особое внимание уделяется раскрытию роли исторических знаний в коммунистическом (   Читать дальше...   )Жанр: История, методология, политология, педагогикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6090E039F54B0CCF2B74CB9DE0C4C3BD9DE6758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122295   (798850) от 05.04.2017
-
-Н. В. Хессин | В. И. Ленин о сущности и основных признаках товарного производства (1968) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография Николая Владимировича Хессина написана по материалам докторской диссертации, защищенной на экономическом факультете МГУ в июне 1967 года. В ней дается развернутый анализ взглядов В. И. Ленина на сущность и основные признаки товарного производства, а также политико-экономическое содержание товара и закона стоимости.
-
-Автор исследует ленинскую методологию (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB2948E2B91965BB901EEA2BC66C106D2642F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122582   (798797) от 05.04.2017
 
 Антон Первушин | Первые в космосе. Шаг в неизвестность (2017) [FB2]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798797.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797787.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797784.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797754.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797489.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797422.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797164.jpg" />
 </div>
 
 
@@ -272,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797033.jpg" />
 </div>
 
 
@@ -298,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797015.jpg" />
 </div>
 
 
@@ -326,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797011.jpg" />
 </div>
 
 
@@ -352,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797006.jpg" />
 </div>
 
 
@@ -378,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796890.jpg" />
 </div>
 
 
@@ -406,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796882.jpg" />
 </div>
 
 
@@ -432,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796827.jpg" />
 </div>
 
 
@@ -460,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796595.jpg" />
 </div>
 
 
@@ -486,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795044.jpg" />
 </div>
 
 
@@ -512,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794963.jpg" />
 </div>
 
 
@@ -538,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794633.jpg" />
 </div>
 
 
@@ -564,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794159.jpg" />
 </div>
 
 
@@ -592,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793912.jpg" />
 </div>
 
 
@@ -619,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793681.jpg" />
 </div>
 
 
@@ -645,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793288.jpg" />
 </div>
 
 
@@ -671,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793232.jpg" />
 </div>
 
 
@@ -683,6 +602,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91F16277ACFED56DD2E7E06F6CE939D0C1BF48E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274651   (793055) от 07.01.2019
+
+А. Принс | Преступность и репрессия: уголовно-юридический очерк (1898) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предисловие автора:
+
+Труд этот, как о том свидетельствует его заглавие, представляет собой научное исследование. Я не претендую на то, чтоб написать книгу, основанную на практике и опыте. Моя цель более скромная; я просто желаю привлечь внимание законодателя к великим вопросам, которые некогда стояли на первом плане общественных забот и ныне находятся, к несчастью, (   Читать дальше...   )Жанр: История, политология, криминология, криминалистика, социология, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5B2B980EE0E64CA8D6236391BE7BCBB2728133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509954   (792747) от 14.11.2021
+
+Дина Хапаева | Занимательная смерть. Развлечения эпохи постгуманизма (2021) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена танатопатии – завороженности нашего общества смертью. Тридцать лет назад Хэллоуин не соперничал с Рождеством, «черный туризм» не был стремительно развива­ющейся индустрией, «шикарный труп» не диктовал стиль дешевой моды, «зеленые похороны» казались эксцентричным выбором одиночек, а вампиры, зомби, каннибалы и серийные убийцы не являлись любимыми (   Читать дальше...   )Жанр: Культурология, ИскусствоведениеПеревод: Дмитрий Усков, Лариса ЖитковаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F76B78911267C9DD636CEB8150BC1EF9BAF615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387065   (792388) от 31.05.2020
+
+Книжная серия | Librarium [13 книг] (2017-2019) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «Librarium» - объединение целого ряда изданий под эгидой единого тематического направления. Золотой фонд мировой философской мысли. Литературная философия, основанная на житейском, социальном, политическом, бытовом опыте. Философия для жизни.Жанр: Античная литература, Философия, Классика, Политология, СоциологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86965B4B61BD13F19E1D043473B95866432CB353
 ```
 
 https://mybot314.ru/tekegram_catalog/

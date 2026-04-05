@@ -1,3 +1,31 @@
+###  Публикация: 1486664   (1004464) от 01.08.2021
+
+Udemy, Kati Frantz | Advanced React For Enterprise: React for senior engineers (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс React для опытных разработчиков !! Для этого курса требуется 100% знание React. Я работаю с React.js более 5 лет и очень рад поделиться с вами навыками, необходимыми для преуспевания в качестве старшего разработчика React.
+Мы создадим нашу собственную дизайн-систему с нуля. Это даст нам возможность затронуть такие важные темы, как:
+    Архитектура (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 06:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419F64AD784728A8A9D0A4AADA0AF4D8453F6EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486412   (1004349) от 02.08.2021
 
 MP4FM, Garrett Fry | Camera Projection Boot Camp Part 1 (2016) PCRec
@@ -6,7 +34,7 @@ MP4FM, Garrett Fry | Camera Projection Boot Camp Part 1 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004349.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ CGMA, Erik D. Martin | Digital Painting Workshop (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004291.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ CGMA, Nate Wragg | Character Design for Production (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004282.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ CGMA, Nate Wragg | Art Direction for Character Designers (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004280.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ live | classes, Артур Орлов | Практика работы со зв�
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004008.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004004.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ ezracohen.tv, Ezra Cohen | Residual income for creatives (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003794.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ Udemy, Jason Cannon | Linux Shell Scripting: A Project-Based Approach to Learnin
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003745.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ Udemy, Zachary Reece | A Complete Guide to the JAMstack and React E-Commerce (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003550.jpg" />
 </div>
 
 
@@ -247,7 +275,7 @@ Udemy, Jonas Schmedtmann | Node.js, Express, MongoDB & More: The Complete Bootca
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003477.jpg" />
 </div>
 
 
@@ -275,7 +303,7 @@ Udemy, Dennis Ivy | Python Django 2021 - Complete Course  (2021) PCRec [En / En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003471.jpg" />
 </div>
 
 
@@ -304,7 +332,7 @@ Udemy, Coding Revolution | The complete React Fullstack course (2021 edition) (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003468.jpg" />
 </div>
 
 
@@ -332,7 +360,7 @@ Udemy, Trevoir Williams | Entity Framework Core - A Full Tour (.NET 5 and up) (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003262.jpg" />
 </div>
 
 
@@ -360,7 +388,7 @@ Cybrary | CompTIA Security+ (SY0-601) (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003249.jpg" />
 </div>
 
 
@@ -388,7 +416,7 @@ Udemy, Adnan Waheed | PostgreSQL Bootcamp : Go From Beginner to Advanced, 60+hou
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003214.jpg" />
 </div>
 
 
@@ -416,7 +444,7 @@ Zero To Mastery Academy (ZTM), Andrei Dumitrescu | DevOps Bootcamp: Learn Linux 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003171.jpg" />
 </div>
 
 
@@ -443,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003112.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ Zero To Mastery Academy (ZTM), Andrei Neagoie, Aleksa Tamburkovski | Web Securit
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003014.jpg" />
 </div>
 
 
@@ -496,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003007.jpg" />
 </div>
 
 
@@ -524,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002993.jpg" />
 </div>
 
 
@@ -551,7 +579,7 @@ Udemy, Исмаил Усеинов | Unity Bolt - визуальное прог�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002981.jpg" />
 </div>
 
 
@@ -577,7 +605,7 @@ Rebrain, Fevlake | ClickHouse онлайн-практикум (2021) PCRec [AD]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002963.jpg" />
 </div>
 
 
@@ -605,7 +633,7 @@ Udemy, Елизавета Кряжкова | Git и GitHub с нуля до пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002959.jpg" />
 </div>
 
 
@@ -632,7 +660,7 @@ Zero To Mastery Academy (ZTM), Paul Mendes | The Complete Guide to Freelancing i
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002776.jpg" />
 </div>
 
 
@@ -659,7 +687,7 @@ unrealskills.ru, Лихоманов Даниил | Unreal Basics (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002750.jpg" />
 </div>
 
 
@@ -672,33 +700,6 @@ unrealskills.ru, Лихоманов Даниил | Unreal Basics (2018) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48BA9925B0B57D8B1FFAE88C272CEFE9A55D4E94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451650   (1002710) от 08.08.2021
-
-Podlodka Crew | Podlodka iOS Crew [Сезон 1-5] (2020-2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002710.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Podlodka iOS Crew. Сезон 1. "Архитектура" и "Инженерные практики"
-32 часа сессий на темы "Архитектура" и "Инженерные практики". Двухнедельное мероприятие от команды Podlodka: ежедневные интерактивные сессии в Zoom по актуальным вопросам QA-индустрии, нон-стоп общение с экспертами и звёздами индустрии.Производство: Podlodka iOS CrewЖанр: ПрограммированиеПродолжительность: 146:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104071A751B0542B36FAADAA5D636C6B37D0EBFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

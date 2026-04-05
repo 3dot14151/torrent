@@ -1,3 +1,119 @@
+###  Публикация: 1327251   (376709) от 24.09.2019
+
+Christine - Echoes from Dawn (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave, Future Beat>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallen Hopes (3:12)
+ 02. Lust Generation (4:53)
+ 03. Echoes from Dawn (3:33)
+ 04. Electric Sheep (6:31)(   Читать дальше...   )Жанр: Electronic, Synthwave, Darkwave, Future BeatПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F8B4ADAD41B9CF6308527C117006E652BD575D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327308   (376707) от 24.09.2019
+
+Lydia - Timeless (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lydia - Into the Blue (Intro) (3:40)
+02. Lydia & Arteon - Eons of Time (5:25)
+03. Lydia - Foreign Memories (6:58)
+04. Lydia - Beyond the Clouds (6:07)(   Читать дальше...   )Жанр: Psychill, Psybient, Downtempo, AmbientПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E133F09B5AE643705B75C8D1662CFD679596ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175631   (376639) от 19.10.2017
+
+VA - Luxury Brazilian Cafe: Cream of Latino Lounge (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vinicious - Ipanema 03:16
+02. Sofia - Alegria 02:53
+03. Gilberto Santos - Que Tal 03:09
+04. Jolly Paco - Copacabana 02:53(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A90045375BF83D8F9EF303CF39F0FBAE4B1D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327291   (376611) от 24.09.2019
+
+V.A. - Cafe Del Mar ChillHouse Mix 10 (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazarusman & Kaldera - Oceans Of My Mind (Urmet K Remix Mixed)
+02. Peter Matson - Roma Norte (Jimpster Remix Mixed)
+03. Vhyce & Yves Paquet - Duran Duran (Luvless Remix Mixed)
+04. Lovebirds & Syncopix - Soul Conversation (Main Mix Mixed)(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 02:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250183182FF87748E5743E8742FB946914EC938D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069036   (376443) от 03.11.2016
 
 VA - Workout Traxx - Best of 2016 Vol 1 (2016) [MP3|320 Kbps] <Minimal, Tech House>
@@ -6,7 +122,7 @@ VA - Workout Traxx - Best of 2016 Vol 1 (2016) [MP3|320 Kbps] <Minimal, Tech Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376443.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Magnetism of Chilling Time (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376441.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ DeepSide DeeJays - 3 Релиза (2009-2012) [MP3|320 кб/с]<House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376417.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ Infected Mushroom - Friends On Mushrooms (Deluxe Edition) (2015) [FLAC|tracks+.c
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376390.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Infected Mushroom - Converting Vegetarians II (2015) [FLAC|tracks+.cue]<Dubstep>
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376386.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ Aleja Sanchez - Discography 30 Releases (2010-2020) Northallsen Records [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376330.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ VA - Armin van Buuren Live At Ultra Mexico 2017 (Highlights) (2017) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376270.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ VA - Top 10 Secret Radio Weapons Vol.5 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376267.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Roald Velden - Nowhere (2016) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376250.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ VA - Funky Disco House Essentials Vol. 15 (2016) [MP3|320 Kbps] <Jackin House, F
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376105.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ VA - Renaissance The Mix Collection: Art Department (2016) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376102.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ Recue - Discography 10 Releases (2008-2020) Audiobaum [FLAC|Lossless|WEB-DL]<IDM
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376025.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Paul Van Dyk - From Then On (2017) [FLAC|Lossless|WEB-DL] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375987.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ VA - Porno Traxx - Amsterdam ADE (2017) [MP3|320 Kbps] <House, Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375854.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Star Inc. - Earthborn: Modern Synthesizer Hits (2018) [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374619.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ VA - Vocal Anthems Amsterdam (2017) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374566.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ VA - Black Hole House Music 10-17 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374565.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ VA - Paul Oakenfold - DJ Box October (2017) [MP3|320 Kbps] <Trance,Progressive H
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374557.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Brothomstates - Discography 7 Releases (2000-2017) Warp Records [FLAC|Lossless|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374504.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ ATB - neXt (2017) 2CD [FLAC|Lossless|tracks + .cue] <Progressive House, Trance, 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374500.jpg" />
 </div>
 
 
@@ -581,7 +697,7 @@ VA - Ibiza Summer Calling – The Closing 2017 [MP3|320 Kbps] <Funky, Club House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374443.jpg" />
 </div>
 
 
@@ -610,7 +726,7 @@ Dawn Chorus and the Infallible Sea - Liberamente (2020) Azure Vista Records [FLA
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374307.jpg" />
 </div>
 
 
@@ -624,119 +740,6 @@ Dawn Chorus and the Infallible Sea - Liberamente (2020) Azure Vista Records [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9CC8E971E4E1560B657BEC31C57AA22B36016A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415669   (374301) от 13.10.2020
-
-Zake - Geneva (2020) Past Inside the Present [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. IlluminationЖанр: Ambient, Drone, Dub TechnoПродолжительность: 01:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEC25303AB7C3BB2AE1B392E23DE4783E101741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415805   (374292) от 13.10.2020
-
-Asa Tone - Temporary Music (2020) Japan Edition [FLAC|Lossless|tracks + .cue] <Electronic, Minimal, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Tell A Picture (2:02)
-02. Perpetual Motion Via Jungle Transport (3:44)
-03. Visit From Tokay (2:48)
-04. Inexplicable Notion (Location Specific) (4:01)(   Читать дальше...   )Жанр: Electronic, Minimal, ExperimentalПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A001C8C53058FDB70ED88558010909CC22902F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415747   (374177) от 13.10.2020
-
-Fatih Tuter - Beehive (2020) Shimmering Moods Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Field Recording, Techno Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birds And Sunrise On Langeoogerstr. (08:22)
- 02. Appreciation (07:32)
- 03. Winterwald (07:44)
- 04. In Your Hometown, Before You Were Born (feat. Ryckyboy) (07:14)(   Читать дальше...   )Жанр: Ambient, Field Recording, Techno AmbientПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DA6AF69B18A454561CCCEB18BFB80BDB5CBDDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069652   (374164) от 04.11.2016
-
-VA - Best Autumn Chillout Hits (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonnight - I Need a New Love (Bryan Milton Remix) (6:25)
-02. Seven24 - The Mirage (6:31)
-03. Seven24 - Performance (Tom Strobe Remix) (4:45)
-04. Seven24 - The Meaning (Tom Strobe Remix) (6:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3016A286A5B72107A5703E552F358CBD7D245C
 ```
 
 https://mybot314.ru/tekegram_catalog/

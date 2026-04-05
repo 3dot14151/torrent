@@ -6,7 +6,7 @@ Microsoft Office Standard 2016 Volume License Edition v15.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_880286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880286.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mountain Duck 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880284.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ SSH Copy 17.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880252.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Mirror for LG TV 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880212.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ KCNcrew Pack 02-15-17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880189.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ TinkerTool System 5.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880177.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ ExactScan Pro 17.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880175.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Redacted 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880110.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880041.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ InstaBro | Browser for Instagram 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879954.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Jump Desktop (Remote Desktop) - RDP/VNC 7.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879928.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ DxO OpticsPro Elite 11.4 (63) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879646.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Outline 3.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879509.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ ON1 Photo RAW 2017 v11.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879263.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ BetterZip 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879202.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VueScan Pro 9.5.41 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879172.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ SQLPro Studio 2020.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878550.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Butler 4.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878548.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ TurboCollage 7 v7.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878545.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Image Enhance Pro 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878544.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ DxO Photo Software Suite 3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878506.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Native Instruments Maschine 2 v2.10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878449.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Mosaic Pro - Professional-level window management 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878295.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ QuickRes 4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878287.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Movavi Video Editor Plus 2020 v20.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878253.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Mountain Duck 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878213.jpg" />
 </div>
 
 

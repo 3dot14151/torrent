@@ -6,7 +6,7 @@ Tanita Tikaram - The Best Of Tanita Tikaram (1996) [FLAC|tracks+.cue]<Pop Rock, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292841.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Julio Iglesias - Fidele & 1100 Bel Air Place (1995) 1981 и 1984, Star Ltd. [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291513.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Hooverphonic - Looking For Stars (2018) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291398.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Celine Dion - D’elles (2007) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289740.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dalida - Music Box (2004) [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289670.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kim Wilde - Wilde Winter Songbook (2015) Deluxe Edition [FLAC|tracks] <Pop, Holi
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288949.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - BRAVO The Hits 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287807.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Lana Del Rey - Norman Fucking Rockwell! - 2019 (Japan) (2019) [FLAC|Lossless|ima
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287544.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Five - Invincible (2000) Special Edition [FLAC|tracks+.cue]<Pop Rap, Ballad, Eur
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287443.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ace Of Base - Gold (2019) 3CD [FLAC|Lossless|image + .cue] <Synth-Pop, Euro Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287358.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ SX - Eros (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286303.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Die Priester - Das Beste (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop Crossover, Gr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286296.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bjork (Björk) - Utopia (2017) [FLAC|Lossless|tracks + .cue] <Pop, Experimental>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286017.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Demis Roussos - Attitudes + Bonus tracks from Reflection (1995) [FLAC|image+.cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285786.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Demis Roussos - The Singles+ (2003) 2CD [FLAC|image+.cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285504.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Gloria Estefan - Unwrapped (2003) [FLAC|tracks+.cue]<Latin, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285493.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Enrique Iglesias - Sex and Love (2014) Deluxe Edition [FLAC|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285321.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Celine Dion - Courage (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284548.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Platinum Blonde - Now & Never (2012) [FLAC|Lossless|tracks + .cue] <Electronic P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284505.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Love Songs (1999) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284498.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Celine Dion - Courage (Deluxe Edition) (2019) Scene [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284391.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Romantic Easy Listening (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal Ja
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284359.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Platinum Blonde - Standing in the Dark (1983) Remastered, 2014, Columbia [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284334.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Charlotte Gainsbourg - Rest (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Fre
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284239.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Sarah Brightman - The Trees They Grow So High (1998) [FLAC|image + .cue]<Vocal>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283784.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Acoustic Winter (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk, Acoustic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282876.jpg" />
 </div>
 
 

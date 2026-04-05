@@ -1,138 +1,3 @@
-###  Публикация: 954340   (341675) от 07.11.2015
-
-И.П. Конакова, Э.Э. Истомина | Основы работы в "КОМПАС-График V 14" (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практикум содержит сведения, необходимые для выполнения лабораторных работ и практических заданий по курсу «Инженерная и компьютерная графика» средствами компьютерной графики, и позволяет освоить приемы создания двумерных чертежей в программе «КОМПАС-График». Большое количество подробно рассмотренных заданий позволяют увеличить долю самостоятельности в изучении графического (   Читать дальше...   )Жанр: Инженерная и компьютерная графикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CEF7760FBFC58FBDF9A83C1DAAA2C8265274F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180115   (341612) от 03.11.2017
-
-Дмитрий Петров, Алексей Кржижевский | Серия: Полиглот. Выучим иностранный язык за 16 часов [5 книг] (2014-2015) [PDF, DJVU]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341612.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью шестнадцати уроков по методике Дмитрия Петрова  вы сможете освоить базовые алгоритмы языка, применить их на практике и довести до автоматизма. В помощь тем, кто занимается самостоятельно, предлагается полный сборник ключей, т.е. выполненных упражнений.
-Теперь читатели смогут проверить, правильно ли они усвоили грамматические правила, и внести необходимые (   Читать дальше...   )Жанр: Иностранные языкиФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291C213B41DF7C0C3856760DEF78400926CD83D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257965   (341346) от 28.10.2018
-
-В. И. Лан | США: от испано-американской до первой мировой войны (1975) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, представляющая собой первую часть комплексного исследования на тему «США в период империализма», посвящена рассмотрению основных проблем экономической и социально-политической жизни США за указанный исторический отрезок времени.
-
-На обширном материале показано, как своеобразно протекал в этой стране процесс первоначального накопления и как затем на основе (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC32180024C70DEA23334EAA4BA8EA72576F7147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257861   (341343) от 28.10.2018
-
-Б. В. Ананьич | Россия и международный капитал [1897-1914] (1970) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая книга — очерки истории финансовых отношений России со странами Запада в период золотого денежного обращения, установленного в результате реформы 1895—1897 гг. и просуществовавшего вплоть до первой мировой войны, когда в связи с началом военных действий царское правительство вынуждено было приостановить свободный размен кредитных билетов па золото.
-
-Переход (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90678B7D0303D393FA6698F8A3027DB10BEF272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257960   (341334) от 28.10.2018
-
-А. Г. Бокщанин | Социальный кризис Римской империи в I веке н. э. (1954) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Избирая предметом настоящей монографии социальную историю Римской империи в первый век ее существования, концентрируя свое внимание на причинах, сущности и следствиях политического кризиса, пережитого римской рабовладельческой державой в середине I в. н. э., автор не претендует на исчерпывающее разрешение всех проблем экономической и социальной истории древнего Рима (   Читать дальше...   )Жанр: История, политология, экономика, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECEC8B25FE67F0FD8272876CB322867F5118592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257956   (341071) от 28.10.2018
 
 А. Л. Мортон | История Англии (1950) [DJVU]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341071.jpg" />
 </div>
 
 
@@ -169,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340796.jpg" />
 </div>
 
 
@@ -197,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340550.jpg" />
 </div>
 
 
@@ -223,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340446.jpg" />
 </div>
 
 
@@ -249,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340139.jpg" />
 </div>
 
 
@@ -275,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340093.jpg" />
 </div>
 
 
@@ -301,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340014.jpg" />
 </div>
 
 
@@ -328,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339903.jpg" />
 </div>
 
 
@@ -354,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339880.jpg" />
 </div>
 
 
@@ -380,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339876.jpg" />
 </div>
 
 
@@ -407,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339821.jpg" />
 </div>
 
 
@@ -433,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339820.jpg" />
 </div>
 
 
@@ -459,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339804.jpg" />
 </div>
 
 
@@ -485,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339743.jpg" />
 </div>
 
 
@@ -511,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339738.jpg" />
 </div>
 
 
@@ -537,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339737.jpg" />
 </div>
 
 
@@ -565,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339735.jpg" />
 </div>
 
 
@@ -593,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339733.jpg" />
 </div>
 
 
@@ -619,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339726.jpg" />
 </div>
 
 
@@ -645,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339717.jpg" />
 </div>
 
 
@@ -672,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339517.jpg" />
 </div>
 
 
@@ -683,6 +548,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E10EC89A37B9A3729C6AFA5B4B9D49392557C0F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180460   (339515) от 04.11.2017
+
+Элла Берту, Сьюзен Элдеркин | Книга как лекарство. Скорая литературная помощь от А до Я (2016) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давно известно, что в трудные минуты жизни люди тянутся к книге – чтобы отвлечься от тягостных мыслей или получить разумный совет. Британские «библиотерапевты» Э. Берту и С. Элдеркин пошли еще дальше, предположив, что чтением можно лечить не только душу, но и тело. Они составили своеобразный «литературный лечебник», из которого читатель узнает, какие именно книги (   Читать дальше...   )Жанр: Образовательная литература, ЯзыкознаниеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7729BF38578FFCC81E27306C8478CA8EAFB4FFE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180451   (339510) от 04.11.2017
+
+Александр Молчанов | Сценарий телесериала. Книга-тренинг (2017) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами трехмесячный курс по написанию сценария сериала. Если вы еженедельно будете выполнять задания, которые найдете в конце каждой главы, через три месяца пилотный сценарий вашего телесериала будет готов. Единственное условие – серьезно относиться к тому, что будете узнавать на каждом уроке, и сразу использовать полученные знания в своей работе. Цель книги (   Читать дальше...   )Жанр: КинематографФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B121E7E0BF3AD4FB66F613A03DB018D94FDADA14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180454   (339506) от 04.11.2017
+
+Лоран Тирар | Профессия режиссер. Мастер-классы (2017) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все великие режиссеры обладают своими секретами, и каждый из них – уникален. Сценарист и режиссер Лоран Тирар собрал в своей книге уникальные интервью самых известных режиссеров: Вуди Аллена, Дэвида Кроненберга, братьев Коэн, Тима Бертона и многих других. Выдающиеся мастера рассуждают о практических аспектах фильмопроизводства и делятся с читателями тайнами закулисья.Жанр: КинематографФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7C460B273AF776BE88504D0BE93527E2F6C982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180505   (339504) от 04.11.2017
+
+Подборка | Схемы и сервис-мануалы популярных автомагнитол (2006) [PDF] [En]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Схемы и сервис-мануалы автомагнитол таких фирм как: ACURA, AUDI, HINO, HONDAGM, FIAT, FORD, LEXUS, MAZDA, MITSUBISHI, NISSAN, PORSCHE ,RENAULT, SAAB, SEAT, SUBARU, TOYOTA, OPEL, BMW, CITROEN, DAIHATSU, VW.Жанр: АудиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750EA337B22F8BDD6FE4A0B7857ACDDEC3780393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180456   (339403) от 04.11.2017
+
+Сид Филд | Киносценарий: основы написания (2017) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сид Филд – всемирно известный сценарист, продюсер, педагог, преподаватель и автор нескольких бестселлеров, переведенных на многие языки мира. Его книги используются в качестве учебного материала в более чем 400 колледжах и университетах США. Филд стал первым представителем Ассоциации американских сценаристов, имя которого упоминается в Зале славы сценарного искусства. (   Читать дальше...   )Жанр: КинематографФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3898B0C658AE38957140B82886BE70B9881B881D
 ```
 
 https://mybot314.ru/tekegram_catalog/

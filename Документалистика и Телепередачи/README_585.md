@@ -1,3 +1,159 @@
+###  Публикация: 1267921   (264803) от 08.12.2018
+
+Битва экстрасенсов (2018.12.08) SATRip (сезон 19, выпуск 12)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый долгожданный сезон. Люди, которые называют себя ясновидящими, вновь будут доказывать зрителям ТНТ наличие у себя необычных способностей. Кто из них станет сильнейшим, покажет время.Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: 01:09:28Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAF18CA4ACA0D45001A895C64E9A6BE1CB1F7C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339891   (264637) от 21.11.2019
+
+Кочевник (1984) VHSRip
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о чабане колхоза им. В.И. Ленина Таласского района Киргизской ССР  А. НазаралиевеТелекомпания: СССР, КиргизтелефильмЖанр: Документальный, ТелепередачаСубтитры: отсутствуютПродолжительность: 00:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D56E59585332828EF981CD0E0744AEDB8B8102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339872   (264507) от 21.11.2019
+
+Альпухары. Наследие мавров в Испании / Alpuxarras (2015) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земли Иберийского полуострова, просторные, плодородные, желанные земли. Многие стремились завладеть ими, не один воин погиб в битвах за них. С древних времен народы приходили и сражались за эту территорию. Древние иберы, финикийцы и греки, вестготы и римляне, мавры и французы – кто только не желал обладать этой землей, кто только не мечтал стать ее правителем навсегда! (   Читать дальше...   )Производство: Испания / Cooperativa de Cine y Documental S. Coop. GalegaЖанр: Документальный, ИсторияРежиссер: Rafael TobaПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0EEC1D04B68A012086102446D215A40C17883A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191406   (264468) от 13.12.2017
+
+Вечерний Ургант (2017.12.12) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый канал (РФ)Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:14Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA1588D016F3F24868032190D02167909C7D063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191308   (264425) от 13.12.2017
+
+Вечер с Владимиром Соловьевым (2017.12.12) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264425.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Украине прошла череда громких судебных заседаний. Саакашвили, которых теперь выступает в новом жанре "неуловимого Джо", потому что его с таким трудом сначала задерживают, а потом суд берет и освобождает, что не ясно почему с таким трудом ловили. Почему понять не возможно, но дело о подготовки госпереворота, похоже, разваливается. И уж точно не клеится (   Читать дальше...   )Телекомпания: Россия (РФ)Жанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 02:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A2C573C7033AD1C0989EDB6B2BAD140954B49E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969585   (264411) от 27.12.2015
+
+С миру по нитке. Уругвай (2015) HDTVRip [720p-LQ] [Серии: 1-2 из 2]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редко встретишь человека, который бы не хотел посмотреть мир. Но чаще встречают те, у кого есть огромное желание попутешествовать, но не хватает финансов на дорогостоящие туры, а обычные отели не по карману. Проект «С миру по нитке» поможет нам. Авторы и ведущие программы для путешественников расскажут и покажут, как отдохнуть в разных уголках планеты без больших (   Читать дальше...   )Телекомпания: МИР ТВЖанр: ТелепередачаПродолжительность: каждая серия ~ 00:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FBD40623B712FD141A7FA92610D7285E9166EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969502   (264401) от 27.12.2015
 
 НашПотребНадзор. Не дай себя обмануть! (2015.12.27) SATRip
@@ -6,7 +162,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264401.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264398.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264248.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264244.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264228.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ National Geographic. Нераскрытые тайны Второй мирово
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264195.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ NG: Нераскрытые тайны Второй мировой войны / B
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264167.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264139.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264097.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263983.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263981.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263976.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263975.jpg" />
 </div>
 
 
@@ -345,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263925.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263879.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263851.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263848.jpg" />
 </div>
 
 
@@ -450,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263774.jpg" />
 </div>
 
 
@@ -476,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263771.jpg" />
 </div>
 
 
@@ -502,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263721.jpg" />
 </div>
 
 
@@ -513,164 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0BD455AC97A99D15A21ECDF5E0C45C942FF9AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340580   (263596) от 24.11.2019
-
-Первая передача на НТВ. Автомобильная передача (24.11.2019) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как получить перелом за мелкое нарушение и почему можно лишиться прав из-за новой прописки?
-«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2C6A3A40F064776EB2112C5E1A0B489DB41A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340578   (263595) от 24.11.2019
-
-Чудо техники с Сергеем Малозёмовым (24.11.2019) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умельцем этой недели стал предприниматель Николай Потапов из Якутска — он создал отечественного робота-уборщика для аэропортов, вокзалов и торговых центров. В новом выпуске программы телезрители узнают, столько стоит работа таких роботов, какова цена им самим, и действительно ли за роботами — будущее? Также в новом выпуске: вся правда о вшах — маленьких насекомых, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C14584116B59162BBA382DAB918F02E8734A7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340661   (263581) от 24.11.2019
-
-Табунщики (1984) VHSRip
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о жизни табунщиков на летних и зимних отгонных пастбищах – джайлоо. О людях трудной профессии, что придаёт картине особый национальный колорит.Телекомпания: СССР, КиргизтелефильмЖанр: Документальный, ТелепередачаСубтитры: отсутствуютПродолжительность: 00:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B78CA242F8AE703B0D346EB5533C2B3052197EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340601   (263571) от 24.11.2019
-
-Тайная жизнь собак / The secret life of the dog (2013) HDTVRip [H.264/720p-LQ] [VO]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркий и зрелищный документальный фильм английских кинематографистов позволяет нам по-новому взглянуть на собак - наших четвероногих питомцев, которых мы привыкли считать своими преданными друзьями. Взаимоотношения человека с собакой воистину уникальны. Ни с одним животным на планете нам не удаётся контактировать более тесно. За последние несколько лет учёные погрузились (   Читать дальше...   )Производство: Великобритания, Oxford scientific films prodction, BBC WorldwideЖанр: Документальный, кинологияРежиссер: Барни РевиллПеревод: Одноголосый закадровый, любительскийСубтитры: Русские, английскиеПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D624FB25B66D1230E5C96ADF2AC6678663DD79A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340664   (263565) от 24.11.2019
-
-Битва экстрасенсов (2019.11.23) WEBRip [H.264/720p-LQ] (сезон 20, выпуск 9)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Паранормальное шоу канала ТНТ об экстрасенсах, магах, ясновидящих, гадалках и колдунах. «Битва экстрасенсов 20 сезон» – продолжение рейтингового российского шоу «Битва экстрасенсов», которое выходит с 2007 года на канале ТНТ. Создатели проекта в 20-м сезоне вновь подготовили для телезрителей встречи с удивительными людьми, обладающими уникальными способностями.Телекомпания: ТНТЖанр: ТВ-шоуРежиссер: Олег ЧаурсСубтитры: отсутствуютПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C2B7480C2967E6582FB1EC036D81CA5E176C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192095   (263456) от 16.12.2017
-
-НашПотребНадзор. Не дай себя обмануть! (2017.12.16) SATRip
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели нового потребительского проекта «НашПотребНадзор» проведут журналистские расследования на волнующие каждого зрителя темы, в деталях расскажут, как не попасться на уловки мошенников, обличат виновных и на ярких примерах объяснят, как отличить качественное от низкосортного.
-Для того чтобы максимально полно и объективно раскрыть тему каждого выпуска и защитить (   Читать дальше...   )Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE35F4EB6007DDBAF31271985E7AED4352AC59D
 ```
 
 https://mybot314.ru/tekegram_catalog/

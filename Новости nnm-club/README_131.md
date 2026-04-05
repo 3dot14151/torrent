@@ -1,3 +1,55 @@
+###  Публикация: 1296701   (608057) от 19.04.2019
+
+РКС представляет перспективные разработки и технологии в области микроэлектроники
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_608057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Холдинг «Российские космические системы» (РКС, входит в Госкорпорацию «РОСКОСМОС») провел в ходе 22-й Международной выставки электронных компонентов ExpoElectronica презентацию новых разработок и технологий производства в области микроэлектроники. Выставка прошла 15–17 апреля в Москве в Международном выставочном центра «Крокус Экспо».РКС представил гостям и участникам (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278278   (607890) от 19.04.2019
+
+Звёздный путь: Дискавери / Star Trek: Discovery (2019) WEBRip [H.265/1080p-LQ] (сезон 2, серии 1-14 из 14) SDI Media
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие второй главы развернется за десять лет до событий оригинального «Звездного пути» и заполнит пробелы между знаменитой пилотной серией под названием "Клетка", которая стилистически отличается от шоу, и всеми любимым сериалом. Возможно, аудитория увидит, как Спок трансформируется из более человечного и расслабленного персонажа в рассудительного и (   Читать дальше...   )Производство: США / CBS Television Studios, Living Dead Guy Productions, Roddenberry EntertainmentЖанр: фантастика, боевик, драма, приключенияРежиссер: Олатунде Осунсанми, Дуглас Арниокоски, Джонатан ФрейксАктеры: Сонекуа Мартин-Грин, Даг Джонс, Энтони Рэпп, Мэри Вайсман, Шазад Латиф, Эмили Куттс, Джейсон Айзекс, Энсон Маунт, Джулианна Гроссман и др.Перевод: Многоголосый закадровый, профессиональный - SDI MediaСубтитры: русские, английскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAD1ADE26FC5675D8E1DC99E0F720FA6C063DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098178   (607887) от 19.04.2019
 
 Heroes of Might and Magic V: Bundle (2006) [Ru/Multi] (2.1v2/3.1v2) License GOG
@@ -6,7 +58,7 @@ Heroes of Might and Magic V: Bundle (2006) [Ru/Multi] (2.1v2/3.1v2) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607887.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607776.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Kaspersky Anti-Virus 2017 17.0.0.611 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607772.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ InSSIDer 4.0.0.20 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607630.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_607315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607315.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Outline Client VPN 1.7.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607302.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607178.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Windows 10 Enterprise LTSB (x86/x64) Elgujakviso Edition (v.16.06.18) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606518.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ Adobe Bridge CC (v6.1.1) x86-x64 Multilingual Update 3
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606302.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606290.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_606072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_606072.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ Styx: Shards of Darkness (2017) [Ru/En] (1.05/dlc) Repack Mizantrop1337
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605988.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605904.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [1080p
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605757.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ CorelDRAW Graphics Suite X7 17.1.0.572 Retail [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605752.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ Opera 46.0.2597.39 Stable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605503.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605412.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ Sniper Elite IV / Sniper Elite 4 (2017) [Ru/En] (1.4.1/dlc) Repack R.G. Меха
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605397.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ Smart Driver Updater v 3.0.0.0 Portable [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_605033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_605033.jpg" />
 </div>
 
 
@@ -519,7 +571,7 @@ Grand Theft Auto: San Andreas Premium Edition [Ru/En] (RePack/1.01) 2005 l VANSI
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605028.jpg" />
 </div>
 
 
@@ -545,7 +597,7 @@ FreeTV v1.1.4 [Ru] - просмотр Online TV без внутренней ре
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604592.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ Agony Unrated (2018) [Ru/Multi] (1.0/u4) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604515.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_604465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_604465.jpg" />
 </div>
 
 
@@ -623,7 +675,7 @@ The Room Two (2016) [Ru/Multi] (1.0.4) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604371.jpg" />
 </div>
 
 
@@ -634,58 +686,6 @@ The Room Two — игра, ставшая шедевром в мире трех�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0934070B5A12CC9674F800991A43F17E7C49A1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148015   (604211) от 05.07.2017
-
-Внедрение «пакета Яровой» могут отложить на пять лет
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_604211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вступление в силу пакета антитеррористических поправок Ирины Яровой и Виктора Озерова может быть перенесено на пять лет – с 2018 на 2023 г. Правительственная комиссия по законопроектной деятельности рассматривает положительный отзыв на соответствующий законопроект сенатора Антона Белякова и депутата Олега Шеина.О том, что комиссия вчера рассмотрела проект положительного (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218526   (604075) от 19.06.2018
-
-Властелин колец: Трилогия / The Lord of the Rings: Trilogy (2001-2003) Blu-Ray [H.264/1080p] [Limited Extended Edition] [Custom]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тихая деревня, где живут хоббиты. Волшебник Гэндальф, придя на 111-й день рождения к своему старому другу Бильбо Бэггинсу, начинает вести разговор о кольце, которое Бильбо нашел много лет назад. Это кольцо принадлежало когда-то темному властителю Средиземья Саурону, и оно дает большую власть своему обладателю. Теперь Саурон хочет вернуть себе власть над Средиземьем. (   Читать дальше...   )Производство: США, Новая Зеландия, New Line Cinema, The Saul Zaentz Company, WingNut FilmsЖанр: Фэнтези, приключения, экранизацияРежиссер: Питер ДжексонАктеры: Мартин Фриман, Иэн МакКеллен, Ричард Армитедж, Джеймс Несбитт, Кен Стотт, Грэм МакТавиш, Дин О’Горман, Эйдан ТернерПеревод: Дублированный, Многоголосый х2Субтитры: Русские, английские, китайские, корейские, чешские, польские, ивритПродолжительность: 02:07:40 + 02:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35728E9F240A561B6AA4A33B3495469E118C3356
 ```
 
 https://mybot314.ru/tekegram_catalog/

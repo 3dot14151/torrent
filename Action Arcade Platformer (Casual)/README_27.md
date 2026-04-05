@@ -1,3 +1,55 @@
+###  Публикация: 1775448   (29700) от 26.01.2025
+
+Teslagrad Remastered (2023) [Ru/Multi] (Build 11359912) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевство Электропия захвачено королём-тираном, держащим народ в железном кулаке. Юноша, на которого начинают охотиться по всему городу, укрывается в башне Теслы. Когда-то здесь жила секта технологических волшебников, известных как тесламанты, а теперь лишь хранятся древние технологии да позабытая история. Вы предоставлены сами себе, и для выживания у вас только (   Читать дальше...   )Тип издания: RepackРазработчик: Rain GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DD894CF8CBBB7B3AC5789A78409326ABA59685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775471   (29625) от 27.01.2025
+
+Teslagrad 2 (2023) [Ru/Multi] (Build 12140719) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29625.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Теслаград 2» является продолжением популярной основанной на физике игры, в которой выживание зависит от использования электромагнитных сил. Головоломка-платформер «Теслаград 2» предлагает новый захватывающий опыт благодаря улучшенным визуальным эффектам, расширенному игровому миру и новым инструментам для решения головоломок! Молодая тесламантка Люмина оказалась (   Читать дальше...   )Тип издания: RepackРазработчик: Rain GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8ADB4C0BC5A557ACE9A0719FF698B35BFE23DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775719   (29508) от 28.01.2025
 
 Somber Echoes (2025) [Multi] (21558) Repack FitGirl
@@ -6,7 +58,7 @@ Somber Echoes (2025) [Multi] (21558) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29508.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Jet Kave Adventure (2021) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28070.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Jet Kave Adventure (2021) [Multi] (1.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28048.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Symphonia (2024) [Ru/Multi] (1.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27578.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Symphonia (2024) [Ru/Multi] (1.1.3) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27572.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.3.105740/dlc) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27516.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Dr Livesey Rom And Death Edition (2023) [Ru/Multi] (Build 15093803) Repack Let's
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27262.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Bloomtown: A Different Story (2024) [Ru/Multi] (1.0.28.2) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27217.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Castle Crashers (2012) [Ru/Multi] (2.9/dlc) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27206.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Soulbind: Tales Of The Underworld (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27026.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Dead of Darkness (2025) [Ru/Multi] (1.0 Update 4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26785.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26721.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Aground (2020) [Ru/Multi] (2.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26693.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Brutal Orchestra (2021) [Multi] (1.4.1f1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26445.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26393.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ The Little Brave (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26378.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Ninja Five-O (2025) [Multi] (1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26311.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ World to the West (2017) [Multi] (1.6.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26224.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26171.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Subverse (2024) [Ru/En] (1.0.2/dlc) Repack Let'sРlay [18+]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25810.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Everhood (2021) [Multi] (1.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25186.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ The Eternal Cylinder (2022) [Ru/Multi] (1.0.3.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25135.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25055.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Nightmare: The Lunatic (2024) [Ru/Multi] (1.2.1d) Repack Let'sРlay [Soundtrack 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24940.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Nightmare: The Lunatic — это платформер rogue-lite с элеме�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:909E261C4CF17B567D2B36E35C5EF9A9FD7ED4F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772476   (24523) от 16.03.2025
-
-Montezuma's Revenge (2025) [Multi] (1.15.0) License GOG [Director's Cut]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданное переиздание классической игры 80-х "Месть Монтесумы" от оригинального разработчика. Прошло 40 лет с момента выхода оригинальной классической игры. Избегайте пауков, черепов, змей и летучих мышей, когда вы будете сопровождать нашего героя Педро в исследовании пирамиды Монтесумы, чтобы забрать ее сокровища! Это классический 2D-платформер с открытым (   Читать дальше...   )Тип издания: LicenseРазработчик: Normal Distribution LLCЖанр: Экшны, Приключение, ПлатформерЯзык интерфейса: Английский, Немецкий, Испанский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666AB2D303CB518FCC145C727C028BA1585906AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785611   (24426) от 17.03.2025
-
-Contra: Operation Galuga (2024) [Ru/Multi] (1.3) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую главу в легендарной серии Contra! Contra: Operation Galuga — это доскональное переосмысление классического run-'n'-gun экшна из 80-х с современными графикой и звуком, новыми этапами, врагами и боссами, новыми игровыми механиками, обновлённой оружейной системой и взрывными совместными сражениями для 1-2 игроков в сюжетном режиме и 1-4 — в аркадном!Тип издания: RepackРазработчик: WayForwardЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A683090BE86972F232D9C4CE6A1EDD1933FCCBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

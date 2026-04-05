@@ -1,3 +1,56 @@
+###  Публикация: 1440527   (1038752) от 17.01.2021
+
+CG Cookie, Kent Trammell | Шейдинг кожи в Cycles в Blender 2.69 / Skin Shading with Cycles in Blender 2.69 (2014) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ключом к шейдингу кожи в Cycles является относительно новый нод "Subsurface Scattering". Этот "BSSRDF" тип поверхности по сути представляет собой полнофункциональный полупрозрачный материал, позволяющий свету частично проходить через ваш объект. Важнейшая характеристика человеческой кожи.
+В первом уроке я расскажу вам о более упрощенном подходе (   Читать дальше...   )Производство: CG CookieЖанр: 3D моделирование, ШейдингЯзык озвучки: АнглийскийПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3DFE6F3AECFFDAB6034A39F5D7381B16C4E0E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440606   (1038749) от 17.01.2021
+
+Пакин Липтават | Intro to Background Design and Perspective (2011) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте себе красивый замок с огромными шпилями, подземное логово супер-злодея, или темный и грязный завод, наполненный нелепыми машинами. Как вы берёте идею для окружающей среды и превращаете её в рисунок? Этот урок даст начинающим дизайнерам основу, необходимую для проектирования сред и фона. Кроме того, этот урок будет введением в техники дизайна фона, которые (   Читать дальше...   )Производство: CGMAЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 02:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBB041AD4DC744501BF3A069F9D9F1F9B5F3C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440611   (1038739) от 17.01.2021
 
 James Paick | Vehicle/Mech Design Workshops (2011) PCRec [En, Ru]
@@ -6,7 +59,7 @@ James Paick | Vehicle/Mech Design Workshops (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038739.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Carlo Arellano | Character Design for Games Workshops (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038736.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Ryan Lang | The Art of Color And Light (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038735.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Jason Scheier | Fundamentals for Creative Environment Design (2015) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038734.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Darren Kwach | Environment Design: Sci-Fi World Workshops (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038733.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Ash Thorp | UI and Data Design for Film (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038729.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038716.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ CGCookie | Concept Art Fundamentals (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038677.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ CG Cookie, Kenan Proffitt | Создание VFX видеоролика в Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038675.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ Jama Jurabaev | Narrative Concept Art Part 1,2 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038672.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ David Connely | Texturing a Game Character in Substance Painter and Designer (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038671.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ Udemy, Sixon C Sunny | Архитектурный дизайн в Blender 2.82 �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038664.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Marco Bucci | The Art Of Color And Light with (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038656.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038627.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ CG Cookie, Jonathan Lampel | Основы создания материалов 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038442.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038151.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037882.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ highlights | Цифровой рисунок в Photoshop (2018)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037880.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ Kolt Wilson | Exploring Houdini's SOP Solver (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037712.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ David Kahl | Houdini: VEX Fundamentals (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037661.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ XYZ School, Сергей Мингулин | Руки всему голова (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037020.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ David Andrade | Blender 2.8 Essential Training (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036519.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ Udemy, Alex Cordebard | Ультимативный курс по скульпт�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036471.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ John Moncrief | Introduction to Particles in Houdini (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036284.jpg" />
 </div>
 
 
@@ -629,60 +682,6 @@ John Moncrief | Introduction to Particles in Houdini (2015) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467541E852577E65E5AC0CE16DEFF3E1E6391CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442691   (1036241) от 26.01.2021
-
-Jonathan Lampel | Normal Map Modeling for Games (2017) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стоит моделировать для качества или производительности? Ответ - нужно балансировать между тем и тем. Создание карт нормалей это техника текстурирования, которая позволяет нам имитировать детали высокого разрешения на лоу-поли сетках. В данном курсе мы узнаем техники моделирования, которые необходимы при запекании высококачественных нормалей.Производство: CGCookieЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A443CAF2C42015E42221767A04708C065D9B4D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442918   (1036228) от 26.01.2021
-
-Alex Jerjomin | Sculpting a Stylized Axe in ZBrush (2015) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036228.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом обучающем видеокурсе, мы узнаем как слепить стилизованный топор.
-Мы подготовим наш топор к скульптурированию при помощи блокаута в 3ds Max. Затем мы проведем глубокий скульптинг различных материалов, таких как ткань, дерево и металл.
-К концу этого видеокурса по ZBrush, у вас будут не только ассеты вашего собственного топора, но и возможности для создания его (   Читать дальше...   )Производство: Digital TutorsЖанр: СкульптингПродолжительность: 02:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C23BB38534B5841E55F0C3B250DE5C51D698AC93
 ```
 
 https://mybot314.ru/tekegram_catalog/

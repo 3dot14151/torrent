@@ -6,7 +6,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay Unchar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228958.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Последствия: Преданные Солнцем / Aftermath: Betra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228950.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228935.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228597.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228583.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW. Дикая Африка: династии / Africa's Wild Side. Dynasties (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228471.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228370.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery. Смертельный улов / Deadliest Catch (2015) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227160.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226964.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226088.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226054.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NG: Злоключения за границей / Banged up Abroad (2020) IPTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224964.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224939.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NGW: Медвежья школа / Bearhood (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224819.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NGW: Самые странные в мире: ползучие целители 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224750.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NGW: Дикие места Африки. Рожденные выживать / A
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224721.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BBC: Тигры в доме / Tigers About the House (2014) HDTVRip (Сезон�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224683.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223524.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223506.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ BBC: Горизонт. Как построить машину времени / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223497.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223452.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223097.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222409.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ BBC: Биологические часы - как они работают? / Bod
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222343.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ BBC. Панорама. Amazon: Что они знают о нас / Amazon: What
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222022.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221992.jpg" />
 </div>
 
 

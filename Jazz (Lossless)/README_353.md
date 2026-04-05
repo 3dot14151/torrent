@@ -6,7 +6,7 @@ VA - Smooth Jazz Sounds 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67461.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Terry Smith - Fall Out (1968) 2006, Sunbeam Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67449.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jeff Linsky - California (1996) Concord [FLAC|Lossless|tracks + .cue] <Latin Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67435.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Michel Legrand - Happy Radio Days (2004) Erato [FLAC|Lossless|tracks + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67377.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Larry Vuckovich - City Sounds, Village Voices (1981) 2003, Quicksilver Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67287.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ellen Lebowitz - Invitation to Yesterdays (1998) Rockmoss Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67254.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sarah Jane Cion - Summer Night (2001) Naxos [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67235.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Saori Yano - 02 (2004) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67215.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Saori Yano - Saori Yano (2003) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67214.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bettye Lavette - Interpretations: The British Rock Songbook (2010) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67213.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Saori Yano - Groovin' High (2006) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67212.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Saori Yano - Sakura Stamp (2005) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67211.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Saori Yano - Little Tiny (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67198.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mal Waldron - Four Classic Albums (1956 - 1959) 2CD, 2024, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67190.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Compact Jazz - Best of the Jazz Vocalists (1992) CD, Compilation [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67187.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Ambient Relaxation (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electronic, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67166.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Nu Funk Vol 10 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67165.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Funky Groove Relax (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67162.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - JAZZ IN THE BACKGROUND (For All Moments Of The Day) (2025) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67159.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Espresso Pronto Roma! (Bella Musica Lounge Italiana) (2025) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67134.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ John Dankworth - What the Dickens! (1963) 1994, Sepia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67113.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ McCoy Tyner & Joe Henderson - Forces Of Nature: Live at Slugs' (1966) 2CD, 2024,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67111.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Kurt Rosenwinkel & Jean-Paul Brodbeck - The Brahms Project (2025) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67088.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Mark Murphy - Jazz Standards (1972 - 1991) 2CD, 1998, 32 Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67084.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sarah Jane Cion - Moon Song (2000) Naxos Jazz [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67042.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Billy Strayhorn's Septet - Cue For Saxophone (1959) 1988, London [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67031.jpg" />
 </div>
 
 

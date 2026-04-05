@@ -1,3 +1,57 @@
+###  Публикация: 1706161   (113720) от 11.03.2024
+
+QuickLinks 3.3 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113720.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuickLinks - это приложение для создания пользовательских сочетаний клавиш. Можно создать ярлык для любого любимого или регулярно используемого файла, папки, документа, приложения и т. д. Сначала выберите файл, чтобы создать ярлык для легкого доступа. Значок в строке состояния обеспечивает быстрый доступ к списку созданных ярлыков.Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2017-2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB17D797A15C9448651F8E128A1593AF542FF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706169   (113717) от 11.03.2024
+
+DB-Text 1.12.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение DB-Text может открывать файлы CSV и TSV и управлять ими, как никогда раньше. Для
+импорта любого файла CSV или TSV достаточно перетащить (или выбрать в стандартном диалоговом окне открытия) файл для импорта.
+ПО имеет множество утилит и функций, чтобы сделать вашу работу быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2012-2024 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6381E19E4E180A8639D7DB3B42CBC417D4ABA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706107   (113715) от 11.03.2024
 
 Soulver 3 v.3.10.2 [Multi/Ru]
@@ -6,7 +60,7 @@ Soulver 3 v.3.10.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113715.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ OmniFocus Pro 3.15.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113710.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Folder-Factory 7.8.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113709.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ PDF Squeezer 4 v.4.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113708.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ Cocktail Sonoma Edition  17.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113706.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ NoteList 4 v.4.3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113693.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ FSNotes 6.7.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113691.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ EditReady 24.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113686.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ KeyCue 10.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113682.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ Invoices for Mac 3.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113680.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ Boxy SVG 4.26.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113665.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ Vinegar 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113654.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Stash for Mac 2.5.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113646.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ iShot-ScreenShot Recording OCR for Mac 2.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113638.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ Navicat for Redis on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113635.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ Navicat for Oracle on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113621.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ Navicat for MongoDB on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113617.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ Data Merge for Mac 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113615.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ BBEdit 15.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113609.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ PanoramaStudio 4 Pro for Mac v.4.0.0 iNTEL [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113586.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ Lifespan 2.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113577.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ Navicat for PostgreSQL on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113563.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ Deckset 2.0.28 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113555.jpg" />
 </div>
 
 
@@ -622,7 +676,7 @@ iBarcoder 3.14.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113552.jpg" />
 </div>
 
 
@@ -633,59 +687,6 @@ Cristallight iBarcoder - профессиональный генератор ш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F319A922D5A04F6D8AC4E0ADD252716FA69FACED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706644   (113550) от 13.03.2024
-
-Ink2Go 1.9.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ink2Go - интересное приложение, которое позволяет создавать аннотации и выделять текст различными способами на любом приложении, работающем в данный момент времени: Web-страницы, окна других приложений, документы и даже на видео.
-Все ваши действия вы можете сохранить в виде графического файла или сохранить весь сеанс работы как видео, для совместного просмотра с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.03.2024Разработчик: © 2011-2018 EyePower Games Private Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE99E8C862B803AED108A96A8F525B9DA4F2AC64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706446   (113548) от 13.03.2024
-
-Navicat for SQLite on Mac 16.3.7 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клиент Navicat для SQLite от PremiumSoft — это интегрированный инструмент с графическим пользовательским интерфейсом, позволяющий упростить администрирование SQLite и разработку баз данных. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать запросы и управлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A77EF7A488DFE5774F00B8B1C85E616CBF0AC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

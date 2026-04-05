@@ -1,3 +1,56 @@
+###  Публикация: 1296876   (608401) от 19.04.2019
+
+Е.В. Лукашева, Н.И. Чистякова | ЕГЭ 2019 Физика. Типовые тестовые задания. 32 варианта (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский коллектив - члены федеральной предметной комиссии ЕГЭ по физике.
+Типовые тестовые задания по физике содержат 32 варианта комплектов заданий, составленных с учетом всех особенностей и требований Единого государственного экзамена в 2019 году. Назначение пособия - предоставить читателям информацию о структуре и содержании контрольных измерительных материалов (   Читать дальше...   )Жанр: Учебно-методические пособия, ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9A385629209669DB2D99985D57DEBB691A5F127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354551   (608251) от 24.06.2011
+
+Джозеф Редьярд Киплинг | Собрание сочинений [1998, 2005-2009] [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джозеф Редьярд Киплинг (1865 — 1936) - английский писатель, поэт и новеллист, подаривший детям всего мира истории о Маугли и Рики-Тики-Тави. Джозеф Редьярд Киплинг - первый англичанин, удостоенный Нобелевской премии в области литературы (1907 год). В том же году его заслуги отметили наградами университеты Парижа, Страсбурга, Афин и Торонто, а Оксфордский, Кембриджский, (   Читать дальше...   )Жанр: Проза, природа и животные, сказкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA8C5F449AE569B619433E3B93A07627C8F75B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 805248   (608216) от 16.07.2014
 
 Глория Му | Детская книга для девочек (2014) [FB2]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608216.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608143.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608005.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607991.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607836.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607713.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607689.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607674.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607564.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607221.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607142.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607125.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607092.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607010.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607006.jpg" />
 </div>
 
 
@@ -410,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607005.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607002.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606957.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606931.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606929.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606925.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606896.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606841.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606830.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9E5AB96B0249229CCA28166AA3C09E7EA9D6EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038561   (606595) от 28.07.2016
-
-Ф. Готтенрот | Царство людей. Одежда, утварь, обычаи (1994) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный ученый Ф. Готтенрот собрал в ХIХ веке уникальные сведения о культуре народов древних и новых времен, живших в Европе и Азии, о том, как менялся их быт, одежда, утварь, оружие, мебель, украшения, инструменты, нравы и обычаи. Книга содержит огромное количество иллюстраций - рисунков автора. Содержание книги энциклопедично. "Царство людей" - это (   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6B97517C8297C8B7F3F20BE9DCDF4F226DD023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038392   (606593) от 28.07.2016
-
-Т. Арзуманова | Самое интересное о тайнах мифологии в вопросах и ответах (2008) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга приглашает вас совершить увлекательное путешествие в страну мифов и легенд народов мира. На протяжении столетий люди из разных уголков Земли передавали из уст в уста рассказы о жизни богов и героев, о происхождении мира и человека, о добре и зле. Теперь у вас есть уникальная возможность познакомиться с этим бесценным даром. Читая эту книгу, вы с первых (   Читать дальше...   )Жанр: МифыФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668F24C60AB3FE2DA807AC0247AD7A1E1BCAADCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

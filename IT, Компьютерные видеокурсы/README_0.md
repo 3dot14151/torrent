@@ -1,3 +1,135 @@
+###  Публикация: 1854948   (1057894) от 20.02.2026
+
+Kobezzza, Андрей Кобец | Rust во Frontend (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический курс о том, как использовать Rust во фронтенде через WebAssembly. Вы научитесь писать программы и библиотеки на Rust, интегрировать их с JavaScript и Node.js, ускорять реальные фронтенд-проекты и раскрывать весь потенциал WebAssembly.Производство: KobezzzaЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 52:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6CE664AA5DF2CAC8D0DBA8588E66A44DB49436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854655   (1057740) от 19.02.2026
+
+Purpleschool, Антон Ларичев | Продвинутый Python (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начнем с изучения объектно-ориентированного программирования на Python: исследуем такие темы, как классы, экземпляры, атрибуты и методы, а также важные концепции self и init, статические и классовые методы, property и dataclass. Одновременно вы освоите декораторы – от простейших декораторов-функций до декораторов с параметрами, углубитесь в декораторы методов и классов, (   Читать дальше...   )Производство: PurpleschoolЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 13:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705891976C36089CF1F44B8FD7B0F4B33887DD28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854550   (1057565) от 18.02.2026
+
+Kobezzza, Дмитрий Холстинин | Инфраструктура Frontend (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы уже уверенно пишете на JavaScript и хотите понимать, что происходит с вашим кодом после коммита, этот курс — именно то, что нужно.
+
+Вы научитесь выстраивать инфраструктуру фронтенда: от статических проверок и автоматизации тестов до развёртывания приложения в Docker и Kubernetes.Производство: KobezzzaЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 34:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D539C41A540063C9F51FC544B0E9DA986E16ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853000   (1056499) от 13.02.2026
+
+Специалист, Владимир Щелов | Программирование на Visual С++. Многопоточность (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основная задача данного курса — снабдить участников знаниями о многопоточности и нюансах её применения в C++, а также помочь развить навыки владения современными инструментами.Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D34936487436B05D126E21BBE4972D0A8EDEA9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852997   (1056494) от 13.02.2026
+
+Специалист, Алексей Давышин | KL 002.12.1 Kaspersky Endpoint Security and Management (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс предназначен для подготовки специалистов, которые будут заниматься проектированием, внедрением и поддержкой систем защиты сетей на базе Kaspersky Endpoint Security, управляемых через Kaspersky Security Center. Он охватывает продукты, позволяющие обеспечить защиту сетевой инфраструктуры до 1000 узлов, расположенных в одном месте. Под узлами подразумеваются (   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 12:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EFA8C0EE9A01F949EAA6BFABD41D9A48A45428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851894   (1055717) от 05.02.2026
 
 OTUS, Владимир Денисов, Николай Медведев, Григорий Гартинский | Функциональный архитектор 1С (2025) PCRec [AD] [RU]
@@ -6,7 +138,7 @@ OTUS, Владимир Денисов, Николай Медведев, Григ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055717.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055213.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055090.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055074.jpg" />
 </div>
 
 
@@ -114,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054874.jpg" />
 </div>
 
 
@@ -140,7 +272,7 @@ Udemy, Андрей Кудлай | Laravel 11. Теория и практика 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054784.jpg" />
 </div>
 
 
@@ -166,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053886.jpg" />
 </div>
 
 
@@ -194,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053885.jpg" />
 </div>
 
 
@@ -212,32 +344,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849597   (1053884) от 25.01.2026
-
-Web Dev Simplified | tRPC (2024) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053884.jpg" />
-</div>
-
-
-###  Подробнее
-
-tRPC - это потрясающая библиотека, которая значительно упрощает взаимодействие между вашим клиентом и сервером. Лучшая часть tRPC - это то, как она обеспечивает безопасность типов для вашего API и взаимодействия с клиентом, чего я никогда раньше не видел (особенно так хорошо). В этом видео я рассказываю обо всем, что вам нужно знать о tRPC.Производство: Web Dev SimplifiedЖанр: ВидеокурсЯзык озвучки: Английский, РусскийПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D5F2DE8A96D996139A05E7837249F2DD4C3C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849541   (1053882) от 25.01.2026
 
 karpov.courses, Евгений Ермаков и др. | Инженер данных с нуля (2025) WEB-DL [Базы данных и СУБД, SQL, PostgreSQL, ClickHouse, AirFlow, DWH, Python, PySpark, Git и GitHub, Bash] [RU]
@@ -246,7 +352,7 @@ karpov.courses, Евгений Ермаков и др. | Инженер данн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053882.jpg" />
 </div>
 
 
@@ -275,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053790.jpg" />
 </div>
 
 
@@ -301,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053556.jpg" />
 </div>
 
 
@@ -329,7 +435,7 @@ Golang School, Михаил Непряхин | Обучение языку Go и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053547.jpg" />
 </div>
 
 
@@ -357,7 +463,7 @@ R&D-лаборатория Devhands, Алексей Рыбак | Системн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053546.jpg" />
 </div>
 
 
@@ -385,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053539.jpg" />
 </div>
 
 
@@ -411,7 +517,7 @@ OTUS, Кирилл Федченко, Павел Ершов, Сергей Пот�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053429.jpg" />
 </div>
 
 
@@ -439,7 +545,7 @@ Udemy, Stephen Grider | Redis: полное руководство разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052824.jpg" />
 </div>
 
 
@@ -468,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052014.jpg" />
 </div>
 
 
@@ -497,7 +603,7 @@ ProFinansy, Наталья Котовская | Искусственный ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052013.jpg" />
 </div>
 
 
@@ -523,7 +629,7 @@ Skillbox, Ренат Шагабутдинов, Евгений Намоконов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052010.jpg" />
 </div>
 
 
@@ -549,7 +655,7 @@ Cпециалист | Kaspersky Security Center. Управление систе
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051951.jpg" />
 </div>
 
 
@@ -575,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051705.jpg" />
 </div>
 
 
@@ -587,115 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7555F5FD5E0E61B32E8598C3B6535AE8AD66F15A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846328   (1051479) от 08.01.2026
-
-Евгений Паромов | Продвинутая типизация TypeScript (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хочешь сделать переиспользуемый компонент, но кроме any в голову ничего не приходит? Снова ошибка в TypeScript, и непонятно, как её исправить? Боишься открывать типы популярных библиотек, потому что там сплошная «чёрная магия»? Ты не один такой.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 25:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FEE4CCF9B3D59D03C4A55B475E81D42A842CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846507   (1051470) от 08.01.2026
-
-Udemy | Full Kaspersky Training [Endpoint SEC, Hybrid Cloud, EDR] (2022) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь работали в виртуальной лаборатории, которая полностью имитирует ИТ-инфраструктуру реальной корпорации? Это не просто сухая теория, а глубокое погружение в администрирование систем защиты Kaspersky в условиях, максимально приближенных к «боевым».Производство: UdemyЖанр: видеокурс, обучающий курсЯзык озвучки: английскийПродолжительность: 10:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38DF3F4A5E755B00F3192BC5AEDBFCC9D133DB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845967   (1051023) от 04.01.2026
-
-Udemy, Dmitrii Fokeev | Полный курс по JavaScript - С нуля до результата! (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет!) Меня зовут Дима.
-
-И я рад вам представить самый полный и самый современный курс по самому востребованному языку программирования, JavaScript.
-(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 29:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE5431C5240130228C4D673CAA2D64B84EA8440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845192   (1050639) от 01.01.2026
-
-Self Made Engineer, Tiago Taquelim | Complete Microservices with Go (2025) PCRec [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050639.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе, основанном на практическом проекте, вы с нуля создадите систему микросервисов для сервиса поездок в стиле Uber - используя Go, Docker и Kubernetes.
-Курс включает мини-курс по продвинутому Go, поэтому вы получите полный набор знаний, даже если только начинаете знакомство с языком.
-К концу обучения у вас будет полностью развернутая, горизонтально масштабируемая (   Читать дальше...   )Производство: Self Made EngineerЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 18:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD49C60BBB59CE6AEACDE94AD9AB807D0D4DDBF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1428424   (180142) от 02.12.2020
+
+Hardy - Личности (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Горячее сердце (05:03)
+ 02. Торговец смертью (05:27)
+ 03. Святая ведьма (06:31)
+ 04. Огненный смерч (05:21)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A549DE7406985ED95F0D3A14BC70A7B9AFF8720E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428327   (180104) от 02.12.2020
 
 Dygitals - God Save The King (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
@@ -6,7 +35,7 @@ Dygitals - God Save The King (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180104.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Rock: The Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180099.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Viktor (UA) - My Guitar (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180083.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Big Big Train - Empire (2020) Live [MP3|320 Kbps] <Progressive Rock, Crossover P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180079.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Lordi - Killection: A Fictional Compilation Album (2020) [WavPack|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180068.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Iron Savior - Skycrest (2020) Japanese Edition [MP3|320 Kbps] <Heavy Metal, Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180060.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Afghan Haze - 2 Albums, 1 EP (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180055.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Trillion Ton Beryllium Ships - TTBS (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180051.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Paterikon - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180048.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Manthus - Sentenced to Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180045.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Rocket Boy - Resolute (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180038.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Erik's Iridescent Tent - Peter Piper Pepperidge Farm at the Gates of Dawn Deterg
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180032.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Molllust - Mother Universe (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Classical, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180030.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Oceans Turn Red - MOIRAE (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore / Death
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180026.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Cowboys & Aliens - Burn! (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180011.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - The Best Rock Album In The World...Ever! (2023) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180010.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180007.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Pursuit - Loose Lips (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180005.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Bad Baron - Ace Of Hearts (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180003.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Steve Holliday - Stark Raving Mad (1997) Japanese Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179997.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Wildness - Wildness (2017) Reissue, 2022, ERFX Productions [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179991.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Black Paisley - Human Nature (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179983.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Steelwings - Still Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179982.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ League Of Distortion - League of Distortion (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179977.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Once Human - Scar Weaver (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179962.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Once Human - Scar Weaver (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Gr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B45FB1572CB6060B9BDED2462F592DC67CEF0332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593751   (179954) от 28.11.2022
-
-Dark Matter - The Rectory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Children of Tomorrow (6:02)
-02. The Healer (11:56)
-03. The Great Divide (6:22)
-04. The Rectory (12:46)(   Читать дальше...   )Жанр: Heavy Doom MetalПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB38A54172519A26B2CE04B01050A9367AAAC1A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

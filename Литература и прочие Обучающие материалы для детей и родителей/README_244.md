@@ -1,3 +1,56 @@
+###  Публикация: 1052900   (527124) от 15.09.2016
+
+О. Захарова | Решаем и оформляем логические задачи. Классические прописи (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пропись предназначена для формирования у ребёнка логического мышления. В прописи содержатся не только увлекательные задачи с подсказками и ответами, но и образцы письменного оформления логических задач, как это требуется в школе.Жанр: Рабочая тетрадьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DE9661EC38B1A48FF798177DDA3B7B54185B16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052981   (526694) от 16.09.2016
+
+Леонид Савельев | Комната № 13 (1931) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический рассказ о событиях, происходивших в Петрограде в феврале 1917 года.
+Издание 1931 г.Жанр: Детская проза, Историческая прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F230A8D71E33C1A4306902CC2FAC90FE433967BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053219   (526582) от 16.09.2016
 
 Лев Гумилевский | Крылья Родины (1954) [DJVU]
@@ -6,7 +59,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526582.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526571.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526537.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526525.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526511.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526045.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525916.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524894.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524763.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524590.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524583.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524573.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524570.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524543.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524436.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524432.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524125.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523938.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523871.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523837.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523683.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523428.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523293.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523276.jpg" />
 </div>
 
 
@@ -631,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F963D1CD6562E58DDC39D500A1A81EAE83493BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928139   (523238) от 15.08.2015
-
-Подшивка журналов | Пионер [12 номеров] (1961) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523238.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Пионер» - ежемесячный литературно-художественный и общественно-политический журнал ЦК ВЛКСМ и Центрального совета Всесоюзной пионерской организации имени В. И. Ленина для пионеров и школьников.
-
-«Пионер» имел постоянные разделы школьной и пионерской жизни, публицистики, науки и техники, искусства, спорта, детского художественного творчества. Журнал организовывал (   Читать дальше...   )Жанр: Журналы для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C215D55D2083EB25B1D35B0EA7DD2676DDDD31A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918974   (523049) от 15.08.2015
-
-В.В. Казаков | Наглядная геометрия. 8 класс (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга является активным приложением к действующим учебным пособиям для 8 класса. Она позволяет быстро обобщить, систематизировать учебный материал и при желании изучить его с опережением программы. Материал глав сопровождается опорным конспектом с контрольными вопросами, ответами на них и набором задач на готовых чертежах, имеющих параллельную двухвариантную (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A49475A9B933911FD9D556F4E6144D19305E8976
 ```
 
 https://mybot314.ru/tekegram_catalog/

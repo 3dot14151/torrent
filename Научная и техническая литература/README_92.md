@@ -1,134 +1,3 @@
-###  Публикация: 1092728   (937230) от 13.01.2017
-
-Э.А. Гладков и др. | Автоматизация сварочных процессов (2014) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведено описание основных элементов автоматики сварочных установок. Даны принципы построения и примеры реализации современных систем управления оборудованием и процессами дуговой, контактной и электронно-лучевой сварки. Рассмотрены системы управления пространственным положением источника нагрева относительно линии стыка, автоматизированные комплексы с микроконтроллерами (   Читать дальше...   )Жанр: Машиностроение, автоматизацияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FFE8C390B4C2055A95E1BF77556FDDFCC7D3A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092747   (937229) от 13.01.2017
-
-А.В. Темеров (ред.) | Проектирование радиоприемных устройств радиолокационных станций (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные радиоприемные устройства радиолокационных станций (РПрУ РЛС) представляют собой сложную систему, состоящую из большого числа взаимосвязанных узлов.
-Помимо традиционных задач усиления, фильтрации, преобразования и детектирования сигнала в РПрУ производится обработка, поиск и обнаружение сигнала, синхронизация по несущей, адаптация и т. д. Наряду с аналоговыми (   Читать дальше...   )Жанр: РадиолокацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1EE376BA5379558DDC52E0E3273573AB5FB1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628816   (937199) от 10.03.2013
-
-А.Г.Ефимов | Ижевцы и Воткинцы. Борьба с большевиками 1918-1920 [2008] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга повествует об одном из самых малоизвестных эпизодов Гражданской войны в России - восстании рабочих Ижевского и Воткинского заводов против советской власти в августе-ноябре 1918 г. Сформированные восставшими воинские части продолжали активную борьбу за Родину и Свободу на территории Сибири в составе Армии адмирала Колчака, а затем в Забайкалье и Приморье в 1921-1922 (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245654095EFD42F3235649AE5D6F35962C5365AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092774   (937144) от 13.01.2017
-
-Г.А. Локалов, В.М. Марковский | Осевые и центробежные насосы тепловых электрических станций (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937144.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассматриваются принципы действия, энергетические характеристики и конструкции осевых и центробежных насосов, а также их элементов. Представлена классификация насосов и особенности их работы в составе насосных установок и сети.    Рассмотрены характерные повреждения элементов насосов, возникающие в процессе эксплуатации. Приведены методики определения гидравлических (   Читать дальше...   )Жанр: ЭнергетикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CC242170712BDCFE1CF6704F3BFD9AF66E39C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093021   (937060) от 13.01.2017
-
-М. Барятинский | Штурмовые орудия Гитлера. «Артштурмы» в бою (2014) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фельдмаршал фон Манштейн отзывался об этой самоходке как о "лучшем средстве поддержки пехоты". В Красной Армии ее называли "артштурмом" и ненавидели не меньше "тигров" - эта приземистая малозаметная машина с мощным орудием и хорошей бронезащитой была крайне опасным противником. "Артштурм", или правильнее "Штурмгешютц" (   Читать дальше...   )Жанр: Военная история, бронетехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953AFEE084FF964AB2CF147A3E6D5BE95377811E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984907   (937018) от 10.02.2016
 
 Анатолий Терещенко | Колокола тревог (2015) [FB2]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937018.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936940.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936917.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936909.jpg" />
 </div>
 
 
@@ -243,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936586.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ G. Trombley / Дж. Тромбли и др. | Korean from zero! 1 / Корейс
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936366.jpg" />
 </div>
 
 
@@ -295,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936325.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936262.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936142.jpg" />
 </div>
 
 
@@ -375,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935561.jpg" />
 </div>
 
 
@@ -401,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935554.jpg" />
 </div>
 
 
@@ -429,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935553.jpg" />
 </div>
 
 
@@ -455,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935544.jpg" />
 </div>
 
 
@@ -483,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935524.jpg" />
 </div>
 
 
@@ -509,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935386.jpg" />
 </div>
 
 
@@ -535,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935209.jpg" />
 </div>
 
 
@@ -561,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935180.jpg" />
 </div>
 
 
@@ -587,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935019.jpg" />
 </div>
 
 
@@ -613,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934878.jpg" />
 </div>
 
 
@@ -640,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934870.jpg" />
 </div>
 
 
@@ -666,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934711.jpg" />
 </div>
 
 
@@ -677,6 +546,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530396A3D3CA6CDAD68BD1515DD15D0456D03F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364737   (934656) от 04.03.2020
+
+Т.А. Белякова | Сборник тестов по грамматике английского языка (2007) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый сборник содержит тесты по основным темам грамматики английского языка. Предназначен для курсантов 1 и II курсов в качестве дополнительного тренировочного материала при совершенствовании грамматических навыков и умений.Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7691EB85C59ACA7ACABFC7584C5F510F27DAC47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364789   (934643) от 04.03.2020
+
+Валерия Черепенчук | Средневековое искусство. Для тех, кто хочет всё успеть (2019) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средние века… Период, окутанный для современного человека романтическим флером. Время отважных рыцарей, прекрасных дам, турниров, песен менестрелей… и, конечно, удивительных шедевров — величественных зданий, ярких витражей и гобеленов, живописных полотен, созданных мастерами, прославившими свои имена в веках. Да, мы понимаем, что не все так однозначно, Средневековье (   Читать дальше...   )Жанр: ИскусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799B620F4178BEA7812CE94C4490A1C5FACC69A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790575   (934416) от 04.03.2020
+
+Николай Якубович | Все самолеты Ильюшина (2013) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая полная энциклопедия самолетов С.В.Ильюшина. Исчерпывающая информация обо всех проектах гения авиации и его прославленного КБ, – как военных, так и гражданских, от первых опытных моделей 1930-х гг. до современных авиалайнеров.Жанр: военная история, авиацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995B746F8F3D18A68A61140374FA50D269BDC830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364802   (934414) от 04.03.2020
+
+И.И. Бурова | Две тысячи лет истории Англии (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934414.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Англии тесно связана с судьбой всего мира. Так уж получилось, что происходившее в островном государстве касалось жизни людей на разных континентах. Рассказывая о главных событиях в британской истории, о монархах, прославившихся далеко за пределами своей страны, о полководцах и деятелях культуры, автор книги стремится раскрыть феномен становления и расцвета (   Читать дальше...   )Жанр: История, КультурологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C2B329035DE54BD70D2A8D9674451E1A9E35B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093482   (933952) от 15.01.2017
+
+И. Дворкин и др. (ред.) | Против фашистского мракобесия и демагогии (1936) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник «Против фашистского мракобесия и демагогии» посвящен разоблачению идеологии германского фашизма.
+
+Идеологическая борьба с фашизмом — настоятельнейшая задача. Сборник имеет своей задачей разоблачить и вскрыть реакционную, демагогическую и крупнокапиталистическую суть наиболее реакционной, германской, разновидности фашизма.
+(   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB23CC765499E2FD368AC5C992A735FABD681774
 ```
 
 https://mybot314.ru/tekegram_catalog/

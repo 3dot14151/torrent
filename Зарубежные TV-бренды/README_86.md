@@ -6,7 +6,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_417292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_417292.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Animal Planet. Проект Гризли / Project Grizzly (2016) HDTVRip (Се�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416653.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. Дороги России: Уфа - Магнитогорск (2016) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416165.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery: Разрушители легенд. Взрыв на воде / MythB
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415612.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Разрушители легенд. Полёт фантазии / My
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415491.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Запо
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415421.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ History Channel. Военное противостояние / Clash of Warriors
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413913.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NGW: Пустынное море / The Desert Sea (2016) HDTV [H.264/1080i-LQ] (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413190.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW: Зеленый ковбой из Австралии / Monster Croc Wrangler
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413188.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG. Миссия Сатурн / Mission Saturn (2017) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412300.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2015-2017)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412294.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery: Оглушающий океан / Sonic Sea (2016) SATRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411919.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG:ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411684.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Discovery. Взрывное шоу / The Explosion Show (2020) WEB-DL [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411319.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411315.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Discovery: Охотники за реликвиями / Auction Hunters (2015) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410816.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Discovery: Как это сделано ? Как делают спортинве
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409871.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ History Channel. Кровь и слава. Гражданская война в 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409000.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ History Channel. Кровь и слава. Гражданская война в 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408996.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ History Channel. Кровь и слава. Гражданская война в 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408994.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408530.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NG. Суперсооружения: Аэробус BelugaXL / Megastructures. Be
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408524.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery: Оглушающий океан / Sonic Sea (2016) HDTV 1080i
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408033.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ BBC: Джек Потрошитель: следствие возобновляе�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407891.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Discovery: Смертельный улов / Deadliest Catch (2018) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407801.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ DV: Волшебные числа: таинственный мир матема�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407757.jpg" />
 </div>
 
 

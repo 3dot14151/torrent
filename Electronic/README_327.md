@@ -1,3 +1,116 @@
+###  Публикация: 1326625   (383510) от 21.09.2019
+
+Second Tension - Assembly Point (2017) Monolith Rec [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ally (07:26)
+ 02. Assembly Point (06:56)
+ 03. Esoteric Flame (07:22)
+ 04. Kinetic (09:01)Жанр: Techno, IndustrialПродолжительность: 00:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECCB22CC72A9F441B76623AF981E2FEED4872A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413743   (383420) от 09.10.2020
+
+Christian Kleine - Touch & Fuse (2020) A Strangely Isolated Place [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Return Of The Underground	4:35
+02	Helios Flood	5:01
+03	Touch & Fuse	4:38
+04	Velvet Impulse	4:25(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 01:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B99F0B029B6CB073003218CD3CC53CFB538F525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414717   (383413) от 09.10.2020
+
+Mat Zo - Illusion of Depth (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Media Res (4:12)
+ 02. Love Songs (5:02)
+ 03. The Next Chapter (5:15)
+ 04. Problems (5:49)(   Читать дальше...   )Жанр: Electronic, Progressive House, TranceПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D223FA2ECAE8BC38229F52224DED037297518142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174723   (383401) от 16.10.2017
+
+Amorph - Discography 5 Releases (2006-2012) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Downtempo, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live At Lab.30 (53:21)Тип издания: CD, WebЖанр: IDM, Ambient, Downtempo, Glitch •Продолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409F5C172505B5E47488A3AB52DE9B505D397443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174880   (383400) от 16.10.2017
 
 VA - Autumn 2017 Collection [MP3|320 Kbps] <Balearic, Downtempo>
@@ -6,7 +119,7 @@ VA - Autumn 2017 Collection [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383400.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Autechre - SIGN (2020) Warp Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Experiment
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383304.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ A Strangely Isolated Place - The Places | Label Series 35 Releases (2012-2020) [
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383295.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Chill Out Under The Stars - Private Night Lounge Vibes (2017) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383275.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ Pianochocolate - Oak (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383120.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ The Midnight - Collection (2014-2017) [MP3|320 Kbps] <Synthwave, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382844.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ VA - Tech House Patrol [40 Dirty Beats] Vol.3 (2018) [MP3|320 Kbps] <House, Tech
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381775.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ VA - Black Sunset Music: The Classics Collected (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381766.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ VA - ADE 2018 [Bonzai Progressive] (2018) [MP3|320 Kbps] <House, Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381763.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ VA - King Size Deep House Vol.1 (2018) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381759.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ Maribou State - Kingdoms In Colour (2018) Japan Edition [FLAC|Lossless|tracks + 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381700.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ Daniel Deluxe - Corruptor • Instruments of Retribution (2016-2017) [FLAC|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381619.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ VA - Putting The Morr Back In Morrissey (2000) Morr Music [FLAC|Lossless|tracks+
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381596.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ Hypnotix - Star Gates (2006) [OGG Vorbis|485 Kbps] <Synthpop, Experimental>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381559.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ Purple Fog Side & Elsehow - How To Disappear (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381558.jpg" />
 </div>
 
 
@@ -441,7 +554,7 @@ VA - The Sound Of Progressive Trance Vol.15 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381545.jpg" />
 </div>
 
 
@@ -470,7 +583,7 @@ George Fitzgerald - Stellar Drifting (2022) [FLAC|Lossless|WEB-DL|tracks] <Downt
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381540.jpg" />
 </div>
 
 
@@ -499,7 +612,7 @@ Emika - Falling In Love With Sadness (2018) [MP3|320 Kbps] <Dubstep, Trip-Hop, E
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381495.jpg" />
 </div>
 
 
@@ -528,7 +641,7 @@ Josh Alexander - Bright Morning Jetlag Blues (2020) Moderna Records [FLAC|Lossle
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381449.jpg" />
 </div>
 
 
@@ -557,7 +670,7 @@ N-So - Out of the Valley (2020) Moderna Records [FLAC|Lossless|WEB-DL|tracks] <M
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381440.jpg" />
 </div>
 
 
@@ -586,7 +699,7 @@ Christian Kleine | Herrmann & Kleine - Discography 17 Releases (1999-2020) City 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381438.jpg" />
 </div>
 
 
@@ -615,7 +728,7 @@ Koan - Don Quixote's Passion (Side A.B) (2022) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381410.jpg" />
 </div>
 
 
@@ -629,122 +742,6 @@ Koan - Don Quixote's Passion (Side A.B) (2022) [FLAC|Lossless|WEB-DL|tracks] <El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CC2B81305D5BF9B02EC4D63180A2B57560F60AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253518   (381383) от 10.10.2018
-
-VA - All Twerk Music, Vol. 3 (2018) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Trendsetter - Daydreaming
-02. LMAO - Keep Calm and Twerk
-03. Ghost In The Shell & Magnus Deus & Summer Son - Blade Runner 2049 (Summer Son Future Bass remix)
-04. DJ Trendsetter - Dubai Bass(   Читать дальше...   )Жанр: Dirty Dubstep, Trap, GrimeПродолжительность: 01:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFBBBA536A167AFA9E57AC74E381B3E1FFD274A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174712   (381260) от 17.10.2017
-
-VA - Suanda Classics, Vol. 2 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christina Novelli & Roman Messer – Frozen (Alex M.O.R.P.H. Remix) (06:57)
-02. Aurosonic & Nicol Cache – Tell Me Why (Mhammed El Alami Radio Edit) (06:05)
-03. Tiff Lacey & Nomosk – The Promise (06:45)
-04. Luke Terry – Magellan (06:46)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9514A9E79564F7C836632C5F5BBD6727D72DEE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175023   (381254) от 17.10.2017
-
-VA - Crossover Lounge 2017 (Blended Uptempo, Downtempo Collection) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York, Wadadli Acoustics - Nothing Is Over 04:48
-02. Anthya - Sea and Moon 04:54
-03. 351 Lake Shore Drive - Fuji-San 04:53
-04. Velvet Dreamer - Frozen (feat Aries Aquarius) 05:31(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8BCD4A19EC3F0D46EAD73C219D046F046B7DDC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175076   (381183) от 17.10.2017
-
-VA - Strongman Training 2017 [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niki Taylor - Coach
-02. Nadeem Ruil - Mylan
-03. Naci Brix - Enliva
-04. Mike Goldberg - Support(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD04A321504CDA106ED1B0690593D31628D3E168
 ```
 
 https://mybot314.ru/tekegram_catalog/

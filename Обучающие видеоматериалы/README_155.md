@@ -1,3 +1,29 @@
+###  Публикация: 1066765   (408019) от 28.10.2016
+
+Tony Horton | THF (2014) WEBRip [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Домашние тренировки Tony Horton Fitness на канале YouTube.Производство: США / BeachbodyЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 10:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3182716CCC34950FADC50C487B610DF06F2C5AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413629   (407985) от 04.10.2020
 
 [Udemy] Konstantin Kokorin | Swift 4 и SpriteKit: Создаем клон игры Bottle Flip (2018) PCRec
@@ -6,7 +32,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407985.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Pluralsight | Моделирование штурмовой винтовки в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407959.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Jillian Michaels | Shred-It With Weights (2010) DVDRip [RU, EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407945.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407892.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407882.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ Infostart | Онлайн-митап "Web-клиенты для 1С" (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407879.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407856.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407841.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407840.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407740.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ Pluralsight.com | Advanced Python (2017) PCRec [H.264/720p-LQ] [RU/EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407578.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407577.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ Udemy, Nexttut, Nikolay Naydenov | Female Character Creation in Zbrush (2019) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407227.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ Rebecca Yale | Более чем красивые тона. Руководств
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407094.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ Philip Bloom | Кинопроизводство для фотографов / Fi
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407087.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ Peter Hurley | Совершенствование портретов / Perfectin
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407066.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ ZTM | SQL + Базы данных Bootcamp: Zero to Mastery / Complete SQL + Dat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407054.jpg" />
 </div>
 
 
@@ -470,7 +496,7 @@ Brian Yu, David J. Malan | CS50. Веб-программирование с Pyth
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407018.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ ZTM | Веб и мобильный дизайн в 2020 году: UI / UX, Figma
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406979.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ Skillbox | Тайм-менеджмент (2020) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406973.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Skillbox | Основы математики для Data Science (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406970.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406768.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Shane Hurlbut | Как освещать рекламные ролики в вы�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406741.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Shane Hurlbut | Продвинутая коммерческая режиссур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406733.jpg" />
 </div>
 
 
@@ -665,7 +691,7 @@ Ray Roman | Как ухватить момент - курс по свадебн�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406702.jpg" />
 </div>
 
 
@@ -676,34 +702,6 @@ Ray Roman | Как ухватить момент - курс по свадебн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:821BB22BA4140FB2DBED90504410B744874E1559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413993   (406695) от 06.10.2020
-
-Parker Walbeck | Создание коммерческого видео / Commercial Video Pro (2019) HDTV [En]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, что вам нужно знать о создании кинематографических коммерческих видеороликов
-
-Независимо от того, являетесь ли вы новичком или хорошо разбираетесь в основах, этот курс проведет вас через каждый шаг на пути создания профессиональных и эффективных рекламных роликов для ваших клиентов.Производство: FulltimeFilmmakerЖанр: ВидеграфияЯзык озвучки: АнглийскийПродолжительность: 04:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5590403C7C03E0D2F4F59BE03D966FFD0025CBAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

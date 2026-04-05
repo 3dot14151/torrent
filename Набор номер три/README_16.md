@@ -1,3 +1,160 @@
+###  Публикация: 1442702   (1035600) от 28.01.2021
+
+Жители Гонконга начали переходить на ICQ. Скачивания взлетели в 35 раз
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярность мессенджера, принадлежащего Mail.ru Group, выросла на фоне предстоящего изменения политики в отношении конфиденциальности данных WhatsApp.В Гонконге пользователи WhatsApp начали переходить на мессенджер ICQ, принадлежащий Mail.ru Group, пишет The Wall Street Journal. За неделю, закончившуюся 12 января, количество загрузок приложения для смартфонов пользователями (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443011   (1035596) от 28.01.2021
+
+Adobe Flash Player скончался, хлопнув дверью. Чем грозит отключение
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035596.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине января плагин Adobe Flash Player стал принудительно отключаться на всех установленных устройствах. Это привело к масштабным сбоям в работе железнодорожной сети в Китае. Починить систему удалось только при помощи архивной пиратской копии программы. О том, почему это произошло, и чем может грозить смерть Flash Player, — в материале «360».Что такое Adobe (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443238   (1035587) от 28.01.2021
+
+Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.13628.20274 (2021.01) (W10) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0184D8B16C751CB252EAB616AD633CCF2DED6EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310493   (1035585) от 28.01.2021
+
+The Sims 4 (2014) [Ru/Multi] (1.70.84.1020/1.70.84.1520/dlc) Repack xatab [Deluxe Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение популярной серии симуляторов бога, в котором игрок управляет жизнью героев, удовлетворяя их потребности и обустраивая жилье. В The Sims 4 игроки еще теснее связаны с виртуальными человечками, а последние ведут себя еще реалистичнее. При этом в The Sims 4 игроки смогут свободно изменять мир с помощью удобных инструментов и делиться собственными творениями (   Читать дальше...   )Тип издания: RepackРазработчик: The Sims StudioЖанр: Strategy (God Sim, Manage, Busin, Real-time), 3DЯзык озвучки: СимлишЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114E2E42061D30D5F4A59C6161F1011900E0ECFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616607   (1035505) от 05.03.2023
+
+Windows 10 Pro 22H2 19045.2604 x64 by SanLex [Superextreme] [Ru-En] (2023.03.03)
+
+>>3
+>>23
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинальном образе Windows_10_Pro_edition_22h2_x64 для оптимального и комфортного пользования. Цель данной сборки лёгкость в использовании для повседневного домашнего пользования, бизнес сферы и игроманов. Удалены, отключены или заблокированы нежелательные приложения / службы / процессы сбора телеметрических данных, рекламные модули, (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA111779FDF9A04FBA4A68B8E8E4296C781B5EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442929   (1035356) от 29.01.2021
+
+Назад в будущее. Для чего в России сделали летающее такси
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Технологию ещё будут дорабатывать, однако потенциал беспилотного такси в гражданской и военной авиации огромен.Корбен Даллас против программы
+В основе идеи летающего такси, испытания которого прошли на днях в России, лежит тот же принцип, что и в обычных квадрокоптерах. Несколько больших винтов создают подъёмную силу и уносят вдаль какой-либо груз или пассажиров. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443615   (1035295) от 29.01.2021
 
 StarCraft II / StarCraft 2  (2015) [Ru/En] (3.1.4.41219/dlc) Repack West4it
@@ -6,7 +163,7 @@ StarCraft II / StarCraft 2  (2015) [Ru/En] (3.1.4.41219/dlc) Repack West4it
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035295.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035237.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035236.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035235.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035234.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>17
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035019.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ Grim Dawn (2016) [Ru/En] (1.1.9.0/dlc) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035014.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/En] (1.0.9.9
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035013.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034992.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ AMD подтвердила, что её видеодрайвер способе�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034988.jpg" />
 </div>
 
 
@@ -266,7 +423,7 @@ F-Secure Freedome VPN 2.64.767.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034981.jpg" />
 </div>
 
 
@@ -292,7 +449,7 @@ Scars Above (2023) [Ru/Multi] (1.0.1.129298) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034979.jpg" />
 </div>
 
 
@@ -318,7 +475,7 @@ Opera 73.0.3856.344 Portable by JolyAnderson [Multi/Ru] (авторская ра
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034815.jpg" />
 </div>
 
 
@@ -345,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034779.jpg" />
 </div>
 
 
@@ -372,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034767.jpg" />
 </div>
 
 
@@ -398,7 +555,7 @@ Xenonauts: Xenophobia (X-Files) (2014) [Ru] (1.09/2.3.0/1.5) Repack/Mod firstlas
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034748.jpg" />
 </div>
 
 
@@ -424,7 +581,7 @@ HITMAN 3 / HITMAN III (2021) [Multi] (3.10.0upd2) Repack xatab [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034747.jpg" />
 </div>
 
 
@@ -450,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034724.jpg" />
 </div>
 
 
@@ -476,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034712.jpg" />
 </div>
 
 
@@ -502,174 +659,13 @@ Xiaomi показала революционную беспроводную за
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034511.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Компания Xiaomi представила новую систему беспроводной зарядки устройств под названием Air Charge. Новая технология позволит заряжать несколько гаджетов одновременно, на расстоянии в 2 – 4 метра. Об этом компания сообщила на своём официальном сайте.Запатентованная технология Mi Air Charge представляет собой 5 антенн, которые могут определить местоположение гаджета (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444254   (1034501) от 01.02.2021
-
-Палмер / Palmer (2021) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выйдя из тюрьмы, бывшая звезда школьного американского футбола Эдди Палмер возвращается в родной городок. Парень надеется наладить свою жизнь, но сталкивается с проблемами прошлого и неожиданно становится наставником мальчика, которого оставила мать.Производство: США / Sidney Kimmel Entertainment, Hercules Film Fund, Rhea Films (II)Жанр: ДрамаРежиссер: Фишер СтивенсАктеры: Джастин Тимберлейк, Джуно Темпл, Джун Скуиб, Дин Уинтерс, Алиша Вейнрайт, Винн Эверетт, Райдер Аллен, Дж.Д. Эвермор, Джейк Бреннан, Джесси БойдПеревод: Дублированный (Apple TV+)Субтитры: Русские, украинские, английские (SDH)Продолжительность: 01:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1967AA28D0482E3EE91E87350F6E19C3BB978D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 448656   (1034482) от 09.03.2023
-
-Груз 200 (2007) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034482.jpg" />
-</div>
-
-
-###  Подробнее
-
-СССР, 1984 год. Провинция. После дискотеки пропадает дочь секретаря райкома партии. Свидетелей нет, виновные не обнаружены. В этот же вечер в доме на окраине города происходит жестокое убийство. Обвиняемый — хозяин дома. Расследования обоих преступлений поручены капитану милиции Журову.Производство: Россия, Кинокомпания CTB / СТВЖанр: триллер, драмаРежиссер: Алексей БалабановАктеры: Агния Кузнецова, Алексей Полуян, Леонид Громов, Алексей Серебряков, Леонид Бичевин, Наталья Акимова, Юрий Степанов, Михаил Скрябин, Сергей Александров, Валентина АндрюковаСубтитры: русские, английскиеПродолжительность: 01:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9607DB02810125D6CA9392715C32356FE0BBFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617996   (1034481) от 09.03.2023
-
-Udemy, Dmitrii Fokeev | Полный курс по JavaScript - С нуля до результата! (2023) WEB-DL [RU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это ранняя версия курса. Курс готов на 70% и охватывает все основные темы JS.
-Существующего материала хватит минимум на 3 месяца активной учебы. До 31 марта 2023 года, курс будет дополнен еще 3-мя темами. Студенты приобретающие курс получат доступ ко всем дополнениям бесплатно и автоматически.
-
-Привет!) Меня зовут Дима.(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 17:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B419E3B8AACC0323EC8C7B50097DBBD95DD48A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224323   (1034480) от 09.03.2023
-
-Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Multi] (5.0.0.0040/dlc) License GOG [Obsidian Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преследуйте беглого бога на земле и по морю в сиквеле Pillars of Eternity — ролевой игры, заслужившей высокую оценку критиков. Отправьте свой корабль в опасную экспедицию через огромный неизученный архипелаг Дэдфайр. Подчините мир своей воле — исследуйте массу безграничных возможностей, включая детальную персонализацию героя, полную свободу в исследовании мира и (   Читать дальше...   )Тип издания: LicenseРазработчик: Obsidian EntertainmentЖанр: Ролевая игра, Приключение, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD419DE6A25C813499D84B99026F0E5C904E6F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444354   (1034327) от 02.02.2021
-
-Очередное достижение: 7000 релизов от Весельчак У !!!
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 7000 релизов от Весельчак У !!!Уважаемые одноклубники!
-Разрешите от всех нас поздравить с очередным рекордом - 7 тыс. релизов -
-в этой цифре кроется неимоверный труд нашего модератора Apple, всеми уважаемого Весельчак У !(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443738   (1034318) от 02.02.2021
-
-Гиперхаос поможет физикам создать квантовые компьютеры
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хаотичное поведение квантовых битов – кубитов может позволить физикам моделировать сложные квантовые системы без необходимости использовать огромные вычислительные мощности.Парадоксально, но развитие квантового компьютера следующего поколения ограничивается скоростью работы обычных процессоров. Даже самые быстрые в мире суперкомпьютеры не обладают достаточной мощностью (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

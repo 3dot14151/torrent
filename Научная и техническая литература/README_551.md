@@ -1,136 +1,3 @@
-###  Публикация: 1672800   (167847) от 29.10.2023
-
-А.И. Агафонов и др. | Современная релейная защита и автоматика электроэнергетических систем (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные принципы построения релейной защиты и автоматики электроэнергетических систем; типовые схемы соединений трансформаторов тока; работа, оценка и область применения базовых схем релейной защиты и автоматики.
-Для студентов электроэнергетических направлений подготовки, а также специалистов в области энергетики и электротехникиЖанр: Электротехника, энергетикаИздательство: Инфра-инженерияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61FD143471707B96DA780F5169E7B5238FDED6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344960   (167838) от 13.12.2019
-
-Сергей Попов | Все формулы мира. Как математика объясняет законы природы (2019) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционное противопоставление двух культур – гуманитарной и естественнонаучной – основано на взаимном непонимании. Чтобы преодолеть его, нужно наладить диалог. Попыткой такого диалога стала книга российского ученого-астрофизика и популяризатора науки Сергея Попова «Все формулы мира». Эта работа адресована в первую очередь тем, кто привык считать себя гуманитарием (   Читать дальше...   )Жанр: Физико-математические наукиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA16EF0A9A7404A08033904E346B55E200505A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345096   (167781) от 13.12.2019
-
-Борис Акунин | Первая сверхдержава. История Российского государства. Александр Благословенный и Николай Незабвенный (2020) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами седьмая книга научно-популярного иллюстрированного цикла «История Российского государства» от известного писателя, литературоведа и общественного деятеля Бориса Акунина.
-В начале XIX века Россия впервые получила статус сверхдержавы и стала претендовать на европейское лидерство. Однако, сумев добиться господствующей позиции ценой огромных жертв, страна (   Читать дальше...   )Жанр: История РоссииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:045A8CAA4F8D751E69A25B669566BE12496E66C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672688   (167761) от 29.10.2023
-
-В.Г. Нечепаев и др.| Детали машин. Прикладная механика. Основы конструирования. Детали машин и основы конструирования (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие разработано в соответствии с требованиями государственного образовательного стандарта высшего профессионального образования и основной образовательной программы для направлений подготовки бакалавриата и специальностей специалитета; предназначено также для преподавателей образовательных организаций высшего профессионального образования.
-Учебное пособие (   Читать дальше...   )Жанр: МашиностроениеИздательство: Инфра-инженерияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30ED24F1E50B4634C647971BD165C626E5EFDD41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431248   (167755) от 13.12.2020
-
-М. Вольф | Международное частное право (1948) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167755.jpg" />
-</div>
-
-
-###  Подробнее
-
-М. Вольф в своей книге большей частью ограничивается лишь юридико-догматическим анализом законодательства и судебной практики и замечаниями de lege ferenda. Как и все без исключения другие буржуазные коллизионисты, Вольф перегружает свой курс мелочным анализом казуистических случаев. Но в тех случаях, когда автор пытается дать социально-политическую оценку тех или (   Читать дальше...   )Жанр: История, политология, социология, правоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6894094CFE944222577CBC07994A275F7D625EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431494   (167751) от 13.12.2020
 
 Стенли Лейн-Пул | Берберские пираты. История жестоких повелителей Средиземного моря ХV-ХIХ вв. (2020) [FB2]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167751.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167714.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167638.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167620.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167529.jpg" />
 </div>
 
 
@@ -269,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167459.jpg" />
 </div>
 
 
@@ -295,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167392.jpg" />
 </div>
 
 
@@ -321,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167358.jpg" />
 </div>
 
 
@@ -347,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167342.jpg" />
 </div>
 
 
@@ -373,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167337.jpg" />
 </div>
 
 
@@ -399,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167303.jpg" />
 </div>
 
 
@@ -426,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167284.jpg" />
 </div>
 
 
@@ -453,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167273.jpg" />
 </div>
 
 
@@ -480,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167246.jpg" />
 </div>
 
 
@@ -507,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167238.jpg" />
 </div>
 
 
@@ -533,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167233.jpg" />
 </div>
 
 
@@ -559,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167228.jpg" />
 </div>
 
 
@@ -585,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167220.jpg" />
 </div>
 
 
@@ -611,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167180.jpg" />
 </div>
 
 
@@ -640,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167135.jpg" />
 </div>
 
 
@@ -668,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167108.jpg" />
 </div>
 
 
@@ -681,6 +548,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB729D190AE98EA2F5241846EE0DEE8A0A1C24DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345349   (167087) от 14.12.2019
+
+Франс де Вааль | Последнее объятие Мамы. Чему нас учат эмоции животных (2020) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испытывают ли животные гордость, стыд, вину или отвращение, как и мы, люди? Есть ли у них чувство справедливости и благодарности? Могут ли собаки смеяться и скорбеть, способны ли слоны утешать друг друга, а обезьяны завидовать, плести интриги и выстраивать планы мести? Чувствуют ли боль рыбы и умеют ли любить птицы? Что общего в поведении альфа-самцов шимпанзе и (   Читать дальше...   )Жанр: БиологияФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97912A9553D2E6D4CE7BA8A6CB6B44DAE2A946A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672854   (167018) от 30.10.2023
+
+Р. Айзеншиц | Статистическая теория необратимых процессов (1963) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167018.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии даётся сжатое, но физически ясное изложение вопросов статистической теории необратимых процессов с точки зрения как классической, так и квантовой статистик. Книга предполагает знакомство читателя с основами статистической механики, квантовой теории и элементами тензорного и матричного исчисления. Она рассчитана на научных работников – физиков и химиков, (   Читать дальше...   )Жанр: ФизикаИздательство: Издательство иностранной литературыФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C2FB962C4E6C2606069145A10862F65DFF8EE3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672972   (166995) от 30.10.2023
+
+С.В. Терехов | Механика для теоретиков (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166995.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике изложены фундаментальные принципы классической механики, её основные уравнения и законы. Основное внимание уделено не только изложению теоретических приёмов, решению практических задач и разъяснению сложных вопросов, но и поиску новых возможностей расширения устоявшихся границ теоретического описания механических явлений и процессов.
+Для студентов физических, (   Читать дальше...   )Жанр: МеханикаИздательство: Донецкий физико-технический институт им. А.А. ГалкинаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD13013FD8F1185DA8B8BBCFD3C6C50C46C64D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672852   (166919) от 30.10.2023
+
+Р.Б. Райхмист | Графики функций (1991) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166919.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассматриваются различные классы функций и методы построения их графиков. Особое внимание уделено графикам функций, заданных неэлементарно (например, с помощью пределов); заданных параметрически и т. п. В основном приводятся графики функций, широко используемых в различных областях инженерных знаний.
+Для студентов ВУЗов и специалистов, интересующихся вопросами (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE7819335563CA1B0F1456EDFE5DEB11873ED5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672907   (166890) от 30.10.2023
+
+А.А. Преображенский, Е.Г. Бишард | Магнитные материалы и элементы (1986) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166890.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены основные положения физики магнитных явлений, описаны магнитные материалы, требования к ним, методы их получения и области применения; приведены сведения об испытаниях этих материалов, рассмотрены принципы работы магнитных элементов и др. В 3-м издании (2-е —1976 г.) большое внимание уделено магнитной микроэлектронике, рассмотрены физические свойства (   Читать дальше...   )Жанр: ФизикаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CC67CBD5ADE60EDD316685BE9166C91AB5F99E
 ```
 
 https://mybot314.ru/tekegram_catalog/

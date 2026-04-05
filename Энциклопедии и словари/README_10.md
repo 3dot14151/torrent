@@ -1,31 +1,3 @@
-###  Публикация: 1836829   (255656) от 13.11.2025
-
-В.Н. Ярцева (гл. ред.) | Лингвистический энциклопедический словарь (1990) [DJVU, PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лингвистический энциклопедический словарь представляет сведения о человеческом языке, языкознании как науке.
-В его статьях раскрываются особенности звукового, грамматического, лексического строя языков, говорится о теориях происхождения языка, законах его развития.
-Дается информация о языках мира, о семьях и группах языков, о письменностях и истории письма. Представлены (   Читать дальше...   )Жанр: энциклопедический словарьИздательство: Советская ЭнциклопедияФормат: DJVU, PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E88A39570BED4C608471BB0847803ED9049817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832991   (246200) от 31.10.2025
 
 Николай Михайлович Тупиков | Словарь древнерусских личных собственных имён (2005, 1903) [PDF]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246200.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241820.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240171.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237235.jpg" />
 </div>
 
 
@@ -139,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231966.jpg" />
 </div>
 
 
@@ -168,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231175.jpg" />
 </div>
 
 
@@ -194,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222740.jpg" />
 </div>
 
 
@@ -221,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213192.jpg" />
 </div>
 
 
@@ -247,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212124.jpg" />
 </div>
 
 
@@ -274,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211023.jpg" />
 </div>
 
 
@@ -300,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209618.jpg" />
 </div>
 
 
@@ -326,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209391.jpg" />
 </div>
 
 
@@ -352,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207386.jpg" />
 </div>
 
 
@@ -378,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207360.jpg" />
 </div>
 
 
@@ -406,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205251.jpg" />
 </div>
 
 
@@ -432,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203741.jpg" />
 </div>
 
 
@@ -458,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202997.jpg" />
 </div>
 
 
@@ -486,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200327.jpg" />
 </div>
 
 
@@ -512,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199615.jpg" />
 </div>
 
 
@@ -538,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197167.jpg" />
 </div>
 
 
@@ -564,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197150.jpg" />
 </div>
 
 
@@ -593,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197146.jpg" />
 </div>
 
 
@@ -619,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197144.jpg" />
 </div>
 
 
@@ -645,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196903.jpg" />
 </div>
 
 
@@ -673,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196899.jpg" />
 </div>
 
 
@@ -684,6 +656,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9337C6F4B8F12E54056B1DE6FC13C7BBCBC12809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640731   (196891) от 19.06.2023
+
+Г.И. Воробьев (гл. ред.) | Лесная энциклопедия [2 тома] (1985-1986) [DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухтомная «Лесная энциклопедия» включает разносторонние сведения по лесоведению, лесоводству, лесоустройству и таксации леса, защитному лесоразведению, селекции и семеноводству основных лесообразующих пород, дендрологии, экономике и организации лесного хозяйства, его механизации и электрификации. В Энциклопедии приведены характеристики лесов и лесного хозяйства (   Читать дальше...   )Жанр: энциклопедияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E006333E581AEC78C9FDF9ABF9CD58C66D6DA383
 ```
 
 https://mybot314.ru/tekegram_catalog/

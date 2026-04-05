@@ -1,3 +1,61 @@
+###  Публикация: 1501389   (836548) от 09.10.2021
+
+Korolova - Live @ Guaba Beach Bar Limassol, Cyprus (2021-09-10) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fugees - Ready Or Not (Franky Wah Edit)
+02. Two Are - Rover
+03. Farruko ft. Victor Cardenas - Pepas (GORDO & Shaun Frank Remix)
+04. Maceo Plex & Faithless - Insomnia 2021 (Epic Mix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFEB8CE8F6BA6A58EE0800DE39CDF5E4C32DA01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113579   (836470) от 12.03.2017
+
+VA - Sexy Sax and Chill: Sensual Smooth Jazz Bar Lounge for Intimate Romantic Erotic Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delectable – Woman in Love – Extended Mix
+02. Guru Sax – People Can’t Stop Chillin – Relax Mix
+03. Dial J for Jazz – The Smooth Soul of Life – Guitar del Mar Mix
+04. Sax Lounger – Mousetrap – Sax My Brass Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51EECB4D43A1167C507BAC07B6B63DC5FD334A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501401   (836414) от 09.10.2021
 
 Korolova & Two Are - Live @ Kachanivka Palace, Ukraine (2021-10-08) [MP3|320 Kbps] <Progressive House>
@@ -6,7 +64,7 @@ Korolova & Two Are - Live @ Kachanivka Palace, Ukraine (2021-10-08) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836414.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Spacedance, Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spaces
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836411.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Stephan Bodzin - Boavista (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836410.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Korolova - Live @ New York, United States (2021-08-27) [MP3|320 Kbps] <Progressi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836408.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Interactive Noise - The Unreleased Live Mix (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836387.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Southbeat Music Pres: Gym Music Motivation (2020) [MP3|320 Kbps] <Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836378.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Positive Vibrations, Vol.1 (Compiled By Vicky Merlino) (2020) [FLAC|Lossles
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836265.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Sexy and Beautiful (Chillout Edition) (2020) [MP3|320 Kbps] <Balearic, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836108.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Aly & Fila - The Chill Out (2015) [MP3|320 кб/с]<Chillout, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835665.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Artist Choice 049. Seven24 (Chillout Selection) (2017) [MP3|320 Kbps] <Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835339.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Buntaro Toriyama - Drop Of Sleeping (2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835297.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ NTO - Apnea (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minima
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835126.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ daveepa x Fuerte x Rencontre Nocturne - Festival Anthem Music Mix 2020-04-10 [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835065.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ CJ Burnett - Heartracer (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835060.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Inferno (2020) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835059.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Deep Ibiza Opening Party 2020 (2020) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835056.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Nothing But... Drum & Bass Anthems, Vol. 08 (2020) [MP3|320 Kbps] <Drum & B
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834892.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Padla (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834793.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Progressive Hits Vol 1 (2017) [MP3|320 Kbps] <Progressive House,House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833804.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Chill out Collection to Lift Your Soul Vol.5 (2017) [MP3|320 Kbps] <Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833802.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Artefact - Agit' Pop (1981) LP [MP3|320 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833751.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Deliberate Mistakes (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833734.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Deliberate Mistakes 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833728.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Steyoyoke Black Onyx Vol.2 (2017) [FLAC|Lossless||tracks] <Techno, Tech Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833612.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Steyoyoke Black Onyx Vol.2 (2017) [FLAC|Lossless||tracks] <Techno, Tech Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C25347AF12FEF2B1770B44CBB5F6CC15098B5ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114279   (833608) от 14.03.2017
-
-Koan - Serenity: Side A. (2017) [MP3|320 Kbps] <Psychill, Downtempo, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before Fullmoon (Serenity Mix) (2:26)
-02. Ferryman (Serenity Mix) (7:05)
-03. Arousal (Serenity Mix) (6:09)
-04. Appearance (Serenity Mix) (5:35)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4E16061C77473CCC8F5FC25AC7364B16EDFD6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114267   (833604) от 14.03.2017
-
-VA - Myths & Legends (Mixed By SoundLift) (2012) [FLAC|Lossless|WEB|tracks|image] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SoundLift - Myths & Legends (Disc 1) (Continuous DJ Mix) (61:14)
-02. Sergio Pereira - Phoenix (Original Mix) (9:24)
-03. D&Z - Lovely (Original Mix) (6:48)
-04. Monkey Top Saloon - 5th Avenue (Original Mix) (7:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8D3304A7FC3662ACB797B023330F04FA619FC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

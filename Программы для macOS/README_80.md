@@ -1,3 +1,57 @@
+###  Публикация: 1151625   (571830) от 19.07.2017
+
+Logic Pro X 10.3.2 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logic Pro X — самая совершенная версия Logic. Новые мощные инструменты для профессионального создания музыки, обработки и микширования звука встроены в современный интерфейс для быстрого получения качественных результатов и удобной работы, где бы вы ни находились. Logic Pro X включает огромную коллекцию музыкальных инструментов, эффектов и циклов — всё, что нужно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 июля 2017Разработчик: iTunes S.a.r.l. Apple Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Испанский, Китайский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DAAAC9503F322B0F5E0F1D4170B5FEC5779816C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909730   (571679) от 27.07.2015
+
+TextExpander 5.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571679.jpg" />
+</div>
+
+
+###  Подробнее
+
+TextExpander – боец невидимого фронта …. Функция TextExpander – автоматически заменять вводимый с клавиатуры текст другим. Но, в отличие от стандартной автозамены OSX, эта программа для Mac имеет массу интересных возможностей.
+
+С помощью этой утилиты удобно вставлять стандартные заготовки текста, HTML-код, части markdown-разметки, чтобы каждый раз не набирать их (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 июля 2015Разработчик: SmileOnMyMac, LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Испанский, Итальянский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BF0326437C873DC650DACCFBE7344DF627FC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 892100   (571330) от 27.07.2015
 
 Sketch 3.3.3 AppStore [En]
@@ -6,7 +60,7 @@ Sketch 3.3.3 AppStore [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571330.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Mac Media Player 2.16.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571231.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ FileSumo 1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570932.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Together 3.5.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570929.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ Clearview 1.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570811.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Things 3 v3.9.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568636.jpg" />
 </div>
 
 
@@ -171,7 +225,7 @@ Tor Browser Bundle 8.5 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568549.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ Movavi Photo Focus 1.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568538.jpg" />
 </div>
 
 
@@ -227,7 +281,7 @@ Toast Titanium Pro 16 (4745) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568331.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ Picture Collage Maker 3.6.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567133.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ Redacted 1.2.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567094.jpg" />
 </div>
 
 
@@ -308,7 +362,7 @@ CalendarPro for Google and Yahoo! 2.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565674.jpg" />
 </div>
 
 
@@ -337,7 +391,7 @@ Coinverter – The Currency Converter 1.0.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565475.jpg" />
 </div>
 
 
@@ -366,7 +420,7 @@ FileMaker Pro 17 Advanced 17.0.7.700 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565262.jpg" />
 </div>
 
 
@@ -394,7 +448,7 @@ Photo Theater Pro - Slideshow Movie Maker 4.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565191.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ Roadmap Planner - Strategic Planner, Product Ideas Accounting 1.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565053.jpg" />
 </div>
 
 
@@ -450,7 +504,7 @@ Adobe Edge Animate CC 2015 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564164.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ Pochade 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563561.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ Browser Care 3.1.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561681.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ IINA 1.0.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559501.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ QLVideo 1.8.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558873.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ Movavi Photo DeNoise 1.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557576.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ Red Giant Magic Bullet Suite 12.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557431.jpg" />
 </div>
 
 
@@ -639,7 +693,7 @@ OmniPlan Pro 3 v3.12.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556890.jpg" />
 </div>
 
 
@@ -650,63 +704,6 @@ Omni Group славится своими качественными програ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B47AE422581421F03D4A07ADC4E693EBBB3A7F3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150072   (556796) от 28.07.2017
-
-Fantastical 2 - Calendar and Reminders 2.4.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fantastical 2 — продвинутый календарь-органайзер для Mac OS X
-Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы. 
-
-Основным отличием от аналогичных программ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23 июля 2017Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11.5 +Язык интерфейса: Английский, Испанский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31B1BF1DA9C7E846F7E5AA70CCDA140127E1FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153799   (556790) от 28.07.2017
-
-LRTimelapse Pro 4.7.7 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556790.jpg" />
-</div>
-
-
-###  Подробнее
-
-LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
-
-Интервальная съемка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 июля 2017Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0DD698A8510661822CF63B787AE3142B7D7A71D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1505479   (804350) от 27.10.2021
+
+Purple Disco Machine - Exotica (2021) [MP3|320 Kbps] <Electronic, House, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Enough (Feat. Sahara Beck) (4:21)
+02. At The Disko (With Lorenz Rhode) (4:32)
+03. Fireworks (Feat. Moss Kena & The Knocks) (3:20)
+04. Don't Stop (4:09)(   Читать дальше...   )Жанр: Electronic, House, Nu DiscoПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BF5C8298C9C489CA23BE753CEA995AA96BCF59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009807   (804293) от 24.04.2016
+
+VA - Big City Beats Vol. 24 (World Club Dome 2016 Edition) (2016) [MP3|256 кб/с] <House, Progressive, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big City Beats - Take off Vol. 24 (Intro) 02:15
+02. Dimitri Vegas & Like Mike & W&W - Arcade 05:17
+03. Hardwell - Run Wild (feat. Jake Reese) (Extended Mix) 05:09
+04. David Guetta - Bang My Head (feat. Sia) (Glowinthedark Remix) 03:49(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 08:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB28E4A6561607DF17CA423AF971304C6E20ED67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010540   (803955) от 24.04.2016
 
 VA - Super Eurobeat Vol. 237 (2016) Extended Version [FLAC|Lossless|tracks + .cue] <Electronic, Disco, Eurobeat>
@@ -6,7 +64,7 @@ VA - Super Eurobeat Vol. 237 (2016) Extended Version [FLAC|Lossless|tracks + .cu
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803955.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Golden Voyage of Disco, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803562.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Latin House Music Summer 2017 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803460.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ DJ Nike Twist - TranceWave 138 @ GTI Radio (21.04.2016) [MP3|320 кб/с] <Tranc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803212.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Black Hole House Music 01-18 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802961.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Best Of LW Tech House II (2018) [MP3|320 Kbps] <Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802959.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Chilling Me Softly (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802957.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Best Of LW House II (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802955.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Lemongrass Garden Vol.8 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802951.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Black Hole Trance Music 01-18 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802949.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ York - Peace (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802947.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Future Electronic Chillout - Top Downbeat Lounge Grooves (2018) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802945.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Brandy Kills - The Silent And The Blocked (2018) [FLAC|Lossless|image + .cue] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802940.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - I Love Chill Vol 3 (Finest Ambient Lounge And Chillout Music) (2018) [MP3|3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802858.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ York - Peace (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Ambient>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802854.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - EDM Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802830.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Top 35 Deep Summer '20 (2020) [MP3|320 Kbps] <House, Deep House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802744.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ All India Radio - CD4: The Slow Light (2016) Bandcamp Edition [MP3|320 кб/с] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802430.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Dark Soul - Take Control (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802322.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Erotica Vol 2 (Most Erotic and Chillout Tunes) (2016) [MP3|320 кб/с] <Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802319.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Armin van Buuren - A State Of Trance 2020 (2020) 2CD, DJ Mix [FLAC|Lossless|trac
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802313.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Moonbeam - Eclipse (2016) [MP3|320 кб/с] <Progressive House, Techno>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802151.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Redux Miami Selection (Mixed By Guy Alexander) (2017) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802122.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - A Perfect Italian Lounge Experience: Lounge Music Playlist (2017) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802087.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - A Perfect Italian Lounge Experience: Lounge Music Playlist (2017) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A675E71E1E0F9CA3165BD2A52515BBE8A603BCF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119981   (802053) от 31.03.2017
-
-Dash Berlin - We Are Part 2 (2017) Extended Versions [MP3|320 Kbps] <House, Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dash Berlin & Matt Simons - With You (Extended Mix)  5:21
-02.  Dash Berlin & DBSTF vs. Jake Reese & Waka Flocka ft. DJ Whoo Kid - Gold (Extended Club Mix)  3:34
-03.  Dash Berlin & Do - Heaven (Club Mix)  5:22
-04.  Dash Berlin & Luca Perra - Without The Sun (Extended Club  4:53(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65AF395A2AD306EA9F54815DC5C0FCA10AAB6732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120569   (802050) от 31.03.2017
-
-VA - Erotic Chilled Beats (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sombra Modos – Botavara 05:34
- 02. The Sura Quintet – Keep Me Company 06:05
- 03. Lamar Ensemble – Stay Sharp 05:36
- 04. Aqua Mundi – Night Flavour 06:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8044399FB9DEAB437BFE8C2949DF1225BBBE7B10
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1230108   (619070) от 10.06.2018
+
+Paul Sills - Aniem (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Forever (6:45)
+02. Sea of Mountains (8:10)
+03. Aniem (8:25)
+04. Forever Together (6:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F661F0F326440AD8A83B0718A253AFE53EEBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230092   (619064) от 10.06.2018
+
+Paul Sills - Universe Within (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Emptiness
+02 – The First Heartbeat
+03 – Twin Worlds
+04 – Endless(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08406FDA36671600D17A0E1117A887882752166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036606   (618992) от 21.07.2016
 
 Saint-Preux - Odyssee (1986) [FLAC|Lossless|image + .cue] <Instrumental, Neoclassical>
@@ -6,7 +64,7 @@ Saint-Preux - Odyssee (1986) [FLAC|Lossless|image + .cue] <Instrumental, Neoclas
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618992.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossl
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618799.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Fo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618797.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Le Winston Band - Zig Zag Zydeco Zoo (2019) [FLAC|Lossless|tracks + .cue] <Zydec
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618606.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Samuel Kjell Smith - Vision Quest (2011) [MP3|320 Kbps] <Psychedelic, Meditative
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618093.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Bill Justis - More Instrumental Hits By Bill Justis (1965) [MP3|320 кб/с]<Ins
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618037.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Steve Jablonsky - Transformers: The Last Knight / Трансформеры: По
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617747.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - The 50 Best Instrumental Rock Songs Ever (2014) 2CD [MP3|192 кб/с]<Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617680.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Leo Rojas - Das Beste - My Serenade To Mother Earth (2015) [FLAC|Lossless]<Panfl
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617516.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Chris Remo - Firewatch Original Score (2016) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617387.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Unknown Artist - Stand By Me (1994) Unofficial Release [APE|Lossless|image + .cu
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617269.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA-Higher Plain Drifting - The Enchanting Sound of North America (2000) [MP3|320
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617210.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ BrunuhVille - Timeless (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617195.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ VA - Ethnic Voices - Navahos Dreams (2005) [MP3|320 кб/с]<Native American, Et
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617109.jpg" />
 </div>
 
 
@@ -424,7 +482,7 @@ Kevin Kern - More Than Words: The Best of Kevin Kern (2014) Real Music [FLAC|Los
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617005.jpg" />
 </div>
 
 
@@ -453,7 +511,7 @@ VA - Best Of Indian's songs - The sound of indians spirit,nature and dreams (200
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616990.jpg" />
 </div>
 
 
@@ -488,7 +546,7 @@ Amadeus - Discography 6CD(2002-2009) [MP3|128-192 кб/с]<Instrumental, Classic
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616644.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ VA - Chill Out Music 2017: 16 Ambient Downtempo And Mellow Tracks For Chilling A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616336.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ Opii - Secrets (2015) [FLAC|Lossless|WEB-DL]<New Age, Enigmatic, Chillout>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616058.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ VA - Buddha Meditation (2015) [MP3|320 кб/с]<Lounge, ChillOut, New Age, Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614401.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflut
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614083.jpg" />
 </div>
 
 
@@ -639,7 +697,7 @@ Jonathan Goldman – Ambient Realms (2018) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614052.jpg" />
 </div>
 
 
@@ -668,7 +726,7 @@ Jamie Llewellyn - Muzyka do spania: Marzy delfinow (To Dream of Dolphins) (2014)
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613965.jpg" />
 </div>
 
 
@@ -697,7 +755,7 @@ Andreas Vollenweider - ...Behind The Gardens - Behind The Wall - Under The Tree.
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613855.jpg" />
 </div>
 
 
@@ -711,64 +769,6 @@ Andreas Vollenweider - ...Behind The Gardens - Behind The Wall - Under The Tree.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3630D6E463701AD000B55EAD80AE40FAF2D94DA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037277   (613768) от 24.07.2016
-
-VA - Putumayo Kids Presents - Hawaiian Playground (2008) [FLAC|Lossless|tracks + .cue] <World>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Moonlighters / Right On [0:02:09.49]
-02. Willie K / Holoholo Ka'a [0:02:14.32]
-03. Ehukai / Moloka'i Slide [0:03:54.11]
-04. Teresa Bright / The Cockeyed Mayor of Kaunakakai [0:02:06.66](   Читать дальше...   )Жанр: WorldПродолжительность: 00:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3B0839711DDE30FBEEEDF81C5E8AB955FD8134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804149   (613686) от 13.07.2014
-
-Blood And Sun – White Storms Fall (2014) [FLAC|Lossless|tracks + .cue]<Neofolk, Dark Ambient, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hewn   (0:42)
-02.  Merciless Master   (3:19)
-03.  Fell   (0:18)
-04.  Veiled Lady   (3:13)(   Читать дальше...   )Жанр: Neofolk, Dark Ambient, FolkПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C169EF48B23BF91693773EDD801852BCE9237EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

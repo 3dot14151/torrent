@@ -1,3 +1,61 @@
+###  Публикация: 1015857   (773161) от 12.05.2016
+
+VA - Wоrld Withоut Wаrs (2CD) (2016) [MP3|192-320 кб/с] <Spасеsуnth & Spасеdisсо>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 TDHDriver - Let s Go! (Поехали!) (04:14)
+02 Szmc - Dance Of The Galaxies (04:09)
+03 Digimax Ft. Lilac Sheer - Let It Be Forever (06:56)
+04 Everdune - Flying Chariots (AtmanActive remix) (05:30)(   Читать дальше...   )Жанр: Spасеsуnth & SpасеdisсоПродолжительность: 03:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3FDCB34581BCE7F2A42240C0132705A2EFD616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015968   (773157) от 12.05.2016
+
+VA - Hotel Breez: Night Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773157.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cafe du Soleil - Sunset Lounge (Sensuality) 04:14
+002. Lamar Ensemble - About Yesterday 05:47
+003. LastEDEN - Foundation (Original Mix) 03:33
+004. Lazy Hammock - Lost In Dreams (Original Mix) 05:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE424AF5BF1FFB4F18039F2499754A9F9A2FB01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391603   (773128) от 21.06.2020
 
 VA - Record Super Chart 641 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +64,7 @@ VA - Record Super Chart 641 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773128.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - CLUBная Жара vol.6 (2011) [MP3|256-320 kbps]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772590.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ VA - Record Super Chart № 184 (2011) [MP3|320 kbps]<House, Electro, Trance, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772582.jpg" />
 </div>
 
 
@@ -105,7 +163,7 @@ VA - The Quest For Beauty Progressive Party House (2017) [MP3|320 Kbps] <Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772101.jpg" />
 </div>
 
 
@@ -134,7 +192,7 @@ VA - Neotrance Selected Works [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Neotra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772006.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ VA - Urban Drum And Bass Arena (2019) [MP3|320 Kbps] <Drum and Bass, Electro Bas
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771915.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ VA - Electro Dance Music: Winter Party (2019) [MP3|320 Kbps] <Club, Dance, House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771832.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ VA - Lounge At The Seashore 10 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771771.jpg" />
 </div>
 
 
@@ -250,7 +308,7 @@ VA - Emotional Flashback Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771732.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ VA - Wine Lounge Vol.1: 25 Bar Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771726.jpg" />
 </div>
 
 
@@ -308,7 +366,7 @@ VA - Time To Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771724.jpg" />
 </div>
 
 
@@ -337,7 +395,7 @@ VA - Wine Lounge Vol.2: 25 Bar Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771614.jpg" />
 </div>
 
 
@@ -366,7 +424,7 @@ VA - Deep House Remix Compilation (2016) [MP3|320 кб/с] <Deep House, Electro,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771588.jpg" />
 </div>
 
 
@@ -395,7 +453,7 @@ VA - Out Of Trance Airspace (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770542.jpg" />
 </div>
 
 
@@ -424,7 +482,7 @@ VA - House Music All Night Long (2016) [MP3|320 кб/с] <Dance, Electro House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770538.jpg" />
 </div>
 
 
@@ -453,7 +511,7 @@ VA - Beatport Bassline: Electro Sound Pack #112 (2020) [MP3|320 Kbps] <D&B, Bass
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769888.jpg" />
 </div>
 
 
@@ -482,7 +540,7 @@ VA - Beatport Chillout: Electro Sound Pack #111 (2020) [MP3|320 Kbps] <Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769885.jpg" />
 </div>
 
 
@@ -511,7 +569,7 @@ VA - EDM Foam Party (2020) [MP3|320 Kbps] <EDM, Dance, Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769796.jpg" />
 </div>
 
 
@@ -540,7 +598,7 @@ VA - Summer of Lounge: Best of Relaxed Cafe and Chillout Music (2016) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769695.jpg" />
 </div>
 
 
@@ -569,7 +627,7 @@ VA - Red Tune: Trance Party (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769694.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ VA - EDM Party Summer (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769684.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ VA - Cajmere - Wheels Of Steel Vol.1 (1998) авторская раздача [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769396.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ VA - Ibiza Warm Time Trance (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769222.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ VA - Trance Mission: Fantasy (2020) [MP3|320 Kbps] <Trance, UpliftingTrance, Pro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769186.jpg" />
 </div>
 
 
@@ -699,64 +757,6 @@ VA - Trance Mission: Fantasy (2020) [MP3|320 Kbps] <Trance, UpliftingTrance, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25B81239E80A7D249C0B73D4C9778009BC16AE9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392774   (768963) от 28.06.2020
-
-VA - Beatport Funky House: Electro Sound Pack #109 (2020) [MP3|320 Kbps] <Funky, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myno My - Break Law
-02. The Familys Jam - Alone
-03. Grooveandyes - Lesyx
-04. Silvano Del Gado - El Flamenco(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 08:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6979A312481755C4E92E65DD5954045313F3648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392776   (768957) от 28.06.2020
-
-VA - Beatport Techno: Electro Sound Pack #114 (2020) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768957.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ddeck - Trapped
-002. Mamin - Lost In The Wood
-003. Yan Oxygen - Gold Cobra
-004. Blue Collar - Corktown(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC9DDD859EECF2CACD5A16EB018F444D21EF40B
 ```
 
 https://mybot314.ru/tekegram_catalog/

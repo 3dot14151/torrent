@@ -1,3 +1,55 @@
+###  Публикация: 1154161   (542212) от 29.07.2017
+
+М.Г. Рязанов | 1001 секрет телемастера [3 книги] (2007) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Написанию данной книги предшествовал большой поток электронных писем на сайт автора книги от радиолюбителей и профессионалов со всего мира с просьбой помочь решить проблемы с ремонтом. На сайте была открыта рубрика "Секреты ремонта" с постоянным обновлением материалов, а также форум, где можно задать вопрос или обменятся мнением с коллегами. Основная особенность (   Читать дальше...   )Жанр: ТелевидениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B005FB62D9D3459162AC2A84CB782954F5544C90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049741   (541816) от 06.09.2016
+
+Додэка | 350 микросхем для бытовой радиоаппаратуры. Справочник (2010) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой справочник по микросхемам для современной бытовой радиоаппаратуры и содержит структурные схемы, назначения выводов и цоколевки более трехсот пятидесяти популярных микросхем, нашедших применение в радиоаппаратуре производства стран Европы и Азии. Приведены микросхемы таких фирм, как Atmel, Cypress, Elantec, Fairchild, Fujitsu, General Instruments, (   Читать дальше...   )Жанр: Электронные компонентыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC99433D11F218974414A79325892FDB971571B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154626   (538829) от 31.07.2017
 
 А.А. Коннов, А.Е. Пескин (сост.) | Микросхемы для современных импортных телевизоров — 3 (2010) [PDF]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538829.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538707.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536261.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534972.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534756.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533341.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533034.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532317.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530453.jpg" />
 </div>
 
 
@@ -254,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524490.jpg" />
 </div>
 
 
@@ -280,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523522.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523465.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523404.jpg" />
 </div>
 
 
@@ -361,7 +413,7 @@ Tyler Bain, Peter Kent | Cryptocurrency Mining For Dummies 2nd Edition (2022) [P
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521840.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ Moeller GmbH | Справочник по схемам электрических
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521539.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520609.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520589.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519556.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518963.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518878.jpg" />
 </div>
 
 
@@ -544,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518744.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516781.jpg" />
 </div>
 
 
@@ -597,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516775.jpg" />
 </div>
 
 
@@ -623,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516309.jpg" />
 </div>
 
 
@@ -634,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47D9556A0E76F9921B691A7D43AD0EED6590E6BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929875   (516302) от 22.08.2015
-
-Ф.И. Тарасов | Триоды (1965) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брошюра содержит справочные сведения (параметры, режимы, характеристики) о наиболее распространенных  отечественных ламповых триодах различного назначения.Жанр: Электроника, радиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA44644692815B67498B4D5CE92385BF2B6152E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929672   (516298) от 22.08.2015
-
-М.Д. Гуревич, М.Д. Гуревич | Электро - вакуумные приборы (1955) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516298.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены работа и устройство большинства электровакуумных приборов, применяемых в радиотехнических устройствах. Особое внимание уделено электровакуумным приборам ультракоротковолнового диапазона, а также импульсным приборам, работа которых недостаточно освещена в учебной литературе.Жанр: Электроника, радиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96ED263A4EAEE6EBA5219A581F5A8C9D765D09DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

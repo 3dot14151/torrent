@@ -1,3 +1,55 @@
+###  Публикация: 1409371   (357374) от 20.10.2020
+
+Страна Лавкрафта / Lovecraft Country (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран корейской войны Аттикус Фримен возвращается домой, чтобы разыскать пропавшего отца. Призрачная подсказка о том, где он может находиться, - единственное за много лет письмо, полное туманных намёков на загадочное наследие матери Аттикуса, в котором упоминается город Ардхем. Вместе с Аттикусом на поиски мистера Фримена отправляются его дядя Джозеф, любитель (   Читать дальше...   )Производство: США / Bad Robot, Monkeypaw Productions, Warner Bros. TelevisionЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Дэниэл Сакхайм, Ян Деманж, Шерил ДьюнайАктеры: Джонатан Мэйджерс, Джерни Смоллетт, Кортни Б. Вэнс, Майкл Кеннет Уильямс, Чейз Браун, Онжаню Эллис, Маркус А. Гриффин мл., Эбби Ли, Вунми Моссаку, Джада Харрис и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~01:10:00 серияРеклама: присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F1D831409CDAFEE7DBB0DF7FF9589BE6F675FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403275   (357325) от 20.10.2020
+
+Страна Лавкрафта / Lovecraft Country (2020) WEB-DLRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран корейской войны Аттикус Фримен возвращается домой, чтобы разыскать пропавшего отца. Призрачная подсказка о том, где он может находиться, - единственное за много лет письмо, полное туманных намёков на загадочное наследие матери Аттикуса, в котором упоминается город Ардхем. Вместе с Аттикусом на поиски мистера Фримена отправляются его дядя Джозеф, любитель (   Читать дальше...   )Производство: СШАЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Дэниэл Сакхайм, Ян Деманж, Шерил ДьюнайАктеры: Джонатан Мэйджерс, Джерни Смоллетт, Кортни Б. Вэнс, Майкл Кеннет Уильямс, Чейз Браун, Онжаню Эллис, Маркус А. Гриффин мл.,Эбби Ли, Вунми Моссаку, Джада Харрис и др.Перевод: Двуголосый профессиональный (ViruseProject)Субтитры: русские (отдельно)Продолжительность: ~01:10:00 серияРеклама: присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBEC8B80B3796793686681C5DC09D6D5CE164FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404376   (357324) от 20.10.2020
 
 Страна Лавкрафта / Lovecraft Country (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) Gears Media [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357324.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357322.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355476.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355469.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355217.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355134.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355011.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352831.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352827.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350922.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350519.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350518.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350509.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350498.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350495.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348662.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348661.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348540.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347303.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344309.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344209.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341915.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341857.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339155.jpg" />
 </div>
 
 
@@ -617,59 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40856F4F1891C4DDCE401EE42BD022D926D27529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419751   (337410) от 29.10.2020
-
-Майбергер. В голове преступника / Meiberger - Im Kopf des Taters (2018) HDTV [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томас Майбергер работает судебным психологом в Зальцбурге. Его работа заключается в раскрытии преступлений, которые невозможно понять с помощью простых улик и недостаточных доказательств. Если правоохранительная система, как правило в лице прокурора Барбары Симмы и комиссара Непомука «Непо» Вальнера, не знает, что делать, она обращается к Майбергеру. В работе ему (   Читать дальше...   )Производство: Австрия / Mona Film Produktion, Servus TVЖанр: криминал, детективРежиссер: Маркус Ульбрихт, Солин Юсеф, Питер БауманнАктеры: Фриц Карл, Корнелиус Обонья, Ульрике С. Чарре, Jaschka Lämmert, Franz Josef Danner, Lino Gaier, Райнер Эггер, Хильде Далик, Отто Шенк ,Таня Рауниг и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35463A805DB0485331FE69EE9D8B87DAF716279A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419620   (337238) от 29.10.2020
-
-Алекс Уго / Alex Hugo (2014-2017) WEB-DLRip [H.264/1080p-LQ] (сезон 1-3, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адаптация единственного романа американского поэта Ричарда Хьюго / Richard Hugo "Смерть и прекрасная жизнь / Death and the Good Life" (1981).
-Алекс Юго, бывший марсельский полицейский, решил покинуть город насилия, которому устал противостоять, и, движимый жаждой свободы, поселился в горной деревне, где устроился в местной жандармерии и наслаждался покоем, (   Читать дальше...   )Производство: Франция / France 2 (FR2)Жанр: драма, криминал, детектив, приключенияРежиссер: Пьер Изуар, Оливье Ланглуа, Muriel AubinАктеры: Самюэль Ле Бьян, Лионель Астье, Майкл Фетусси, Фабьен Баиарди, Мэрилин Канто, Каролин Баер, Gilles Spadari, Луиза Шпиндель, Франк Адриен, Фридерик Ашар и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~01:30:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E05F5C3EAB630930447E5A7AA0B5C348CD9D2DA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

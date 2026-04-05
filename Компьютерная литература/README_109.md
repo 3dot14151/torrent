@@ -1,159 +1,3 @@
-###  Публикация: 1670069   (172187) от 19.10.2023
-
-Pascal Thormeier | Mastering CSS Grid (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172187.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вы найдете исчерпывающее описание CSS Grid, изучите как фундаментальные, так и продвинутые концепции с практическими упражнениями. Вы узнаете, как создавать отзывчивые макеты и откроете для себя лучшие практики по внедрению сеток в любой дизайн. По мере продвижения вы будете изучать динамическое взаимодействие между CSS Grid и flexbox, кульминацией которого (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E18E96A1AA2A801190BAED3300746822E0AFDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670395   (172063) от 20.10.2023
-
-Stefan Baumgartner | TypeScript Cookbook (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы знакомы с TypeScript и основами JavaScript, то в этой книге вы найдете практические рецепты, которые помогут вам решить широкий круг проблем. Каждый рецепт - от создания сложных структур проектов до разработки продвинутых вспомогательных типов - поможет вам разобраться с проблемой и объяснить, почему и как работает то или иное решение.Жанр: ПрограммированиеЯзык: АнглийскийИздательство: O'ReillyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA596FA006C184DDC6904545868E51150DB6E3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670424   (172060) от 20.10.2023
-
-Sufyan bin Uzayr | CSS Frameworks: The Ultimate Guide (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172060.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматривается фундаментальные концепции CSS, которые помогут разработчикам и кодерам добиться большего с помощью CSS Frameworks. Эта книга предназначена для всех, кто хочет создать сайт и писать оптимизированный и хорошо структурированный код на CSS. Она основана на практическом подходе и предлагает практические уроки и руководства.Жанр: ПрограммированиеЯзык: АнглийскийИздательство: CRC PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4018E30E50912CAACC96A32638D7DFED3EEF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670366   (172048) от 20.10.2023
-
-Павел Браздил и др. | Метаобучение. Применение в AutoML и науке о данных (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Метаобучение – одна из самых быстрорастущих областей исследований в области машинного обучения (МО) – изучает методы получения эффективных моделей и решений путем адаптации процессов МО и интеллектуального анализа данных. Для адаптации обычно применяют информацию из опыта решения других задач, а адаптивные процессы могут использовать подходы МО. AutoML занимается (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: В.С. ЯценковИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D72F946225B4CE13060F4BB12CF13C90D8E7EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670728   (171891) от 21.10.2023
-
-Камерон Хьюз, Трейси Хьюз | Параллельное и распределенное программирование на С++ (2004) [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171891.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлен архитектурный подход к распределенному и параллельному программированию с использованием языка С++. Здесь описаны простые методы программирования параллельных виртуальных машин и основы разработки кластерных приложений. Эта книга не только научит писать программные компоненты, предназначенные для совместной работы в сетевой среде, но и послужит (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Н.М. РучкоИздательство: ВильямсФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D39A519A8BA0B58A94D472137E1C42A8A4F5A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670559   (171793) от 21.10.2023
-
-Ти Джей Краудер | Новые возможности JavaScript. Как написать чистый код по всем правилам современного языка (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами сборник правил написания кода на современном языке JavaScript. На наглядных примерах автор объясняет, как работают последние версии JS, какие приемы в нем можно использовать, чтобы сделать код коротким и чистым, а каких ошибок лучше избегать, чтобы не было багов.Жанр: ПрограммированиеПеревод: Михаил РайтманИздательство: БомбораФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17C40EAEEED6BDB418E6F3210D694B08161F514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669817   (171790) от 21.10.2023
 
 К. Уилсон | Программирование на Python для абсолютных новичков [luminet Press] (2023) [PDF]
@@ -162,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171790.jpg" />
 </div>
 
 
@@ -189,7 +33,7 @@ Andres Ibanez Kautsch | Modern Concurrency on Apple Platforms (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171737.jpg" />
 </div>
 
 
@@ -215,7 +59,7 @@ Frank Zammetti | Modern Full-Stack Development, 2nd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171708.jpg" />
 </div>
 
 
@@ -243,7 +87,7 @@ Alexander Shuiskov | Microservices with Go (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171645.jpg" />
 </div>
 
 
@@ -269,7 +113,7 @@ Jonathan Bartlett | Programming for Absolute Beginners (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171642.jpg" />
 </div>
 
 
@@ -297,7 +141,7 @@ Chi Wang, Donald Szeto | Designing Deep Learning Systems (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171517.jpg" />
 </div>
 
 
@@ -323,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171491.jpg" />
 </div>
 
 
@@ -350,7 +194,7 @@ Kendra M. L. Cooper, Antonio Bucchiarone | Software Engineering for Games in Ser
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171372.jpg" />
 </div>
 
 
@@ -376,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171295.jpg" />
 </div>
 
 
@@ -402,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171285.jpg" />
 </div>
 
 
@@ -428,7 +272,7 @@ Moataz Nabil | Mobile DevOps Playbook (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171172.jpg" />
 </div>
 
 
@@ -454,7 +298,7 @@ Ali Madani | Debugging Machine Learning Models with Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171158.jpg" />
 </div>
 
 
@@ -480,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171141.jpg" />
 </div>
 
 
@@ -507,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171109.jpg" />
 </div>
 
 
@@ -533,7 +377,7 @@ Pradeepta Mishra | PyTorch Recipes, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170976.jpg" />
 </div>
 
 
@@ -559,7 +403,7 @@ Gary Bradley | Mastering Adobe Photoshop 2026 (2025) [PDF] [EN]
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170959.jpg" />
 </div>
 
 
@@ -585,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170941.jpg" />
 </div>
 
 
@@ -613,7 +457,7 @@ Paul Richard | Введение в AutoCAD 2020 / Introduction to AutoCAD 2020: 
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170887.jpg" />
 </div>
 
 
@@ -639,7 +483,7 @@ Anthony Onyekachukwu Okonta | React.js Design Patterns (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170881.jpg" />
 </div>
 
 
@@ -665,7 +509,7 @@ Yong Cui | Python How-To (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170815.jpg" />
 </div>
 
 
@@ -676,6 +520,163 @@ Yong Cui | Python How-To (2023) [PDF][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D05DD748DEA76D03FF036340F54DBEBDFB31E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671862   (170793) от 26.10.2023
+
+Mustafif Khan | Rust for C++ Programmers (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это идеальное руководство, которое поможет вам освоить язык программирования Rust. Начиная с его эволюции и сравнения с C/C++, книга поможет вам узнать, как установить и использовать мощный менеджер пакетов Cargo. Затем в книге рассматриваются такие ключевые темы, как связывание и изменяемость, владение, условия, циклы, функции, структуры и перечисления и многое (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: BPB OnlineФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D31BD1354CA9BCAE97DA238E9F60C343BF98B80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430551   (170352) от 10.12.2020
+
+А.О. Матюшин | Программирование микроконтроллеров: стратегия и тактика (2017) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена программированию встраиваемых систем с применением микроконтроллеров. Материал книги сгруппирован в соответствии со стандартными этапами разработки любого программного обеспечения: анализом требований, проектированием, кодированием, отладкой и тестированием.
+Издание проиллюстрировано примерами на С и анализом получаемого в результате компиляции машинного (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5E6346BD02C3098DBF8B5B782A53F6919D0248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344368   (170178) от 10.12.2019
+
+Todd Lammle | Understanding Cisco Networking Technologies: Volume 1 Exam 200-301 / Сетевые технологии Cisco, том 1. Экзамен 200-301 (2020) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Охватывает основные элементы сертификации CCNA: понимание основополагающих принципов компьютерных сетей. Узнайте о сетевых компонентах, услугах и инфраструктуре. Подготовьтесь к следующим шагам к сертификации Cisco. Сетевые технологии Cisco, том 1 - это ваш первый шаг на пути к подготовке к экзамену Cisco EXAM 200-301. Сертификация Cisco - это идеальный способ войти (   Читать дальше...   )Жанр: Компьютерная литература, Сетевые технологииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FC65795F7478D66971FD0874EFB2D71D3C8689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344366   (169901) от 10.12.2019
+
+Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 2 / Официальное руководство по сертификации CCNA 200-301, Том 2 (2019) [EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доверьтесь самой продаваемой серии официальных сертификатов Cisco Press, которая поможет вам учиться, готовиться и практиковаться для успешной сдачи экзаменов. Он составлен с целью предоставления оценки, обзора и практики, чтобы помочь вам полностью подготовиться к сертификационному экзамену. Эта книга в сочетании с Томом 1 Официального руководства по сертификации (   Читать дальше...   )Жанр: Компьютерная литература, Сетевые технологииФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C06914AEA589D912F34DA2C367415FB1950FF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344276   (169896) от 10.12.2019
+
+Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 1 / Официальное руководство по сертификации CCNA 200-301, Том 1 (2019) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доверьтесь самой продаваемой серии официальных сертификатов Cisco Press, которая поможет вам учиться, готовиться и практиковаться для успешной сдачи экзаменов. Они составлены с целью предоставления оценки, обзора и практики, чтобы помочь вам полностью подготовиться к сертификационному экзамену. Официальное руководство по сертификации CCNA 200-301, том 1, представляет (   Читать дальше...   )Жанр: Компьютерная литература, Сетевые технологииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E8E6F5BE6ECF3C2A63FEFDC647B970B6083E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509589   (169631) от 27.10.2023
+
+Серия | Мировой компьютерный бестселлер часть 1 [11 книг +11CD,DVD,code] (2010-2021) [PDF][Обновляемая]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название серии "Мировой компьютерный бестселлер" говорит само за себя — в нее входят издания, посвященные компьютерной тематике, ставшие бестселлерами за рубежом. Программирование, веб- и мобильная разработка, веб-дизайн, продвижение и управление сайтами — в этой серии вы найдете только лучшие книги по теме от самых уважаемых авторовЖанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3535270A014222F90D9109223347358EFBC9A7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

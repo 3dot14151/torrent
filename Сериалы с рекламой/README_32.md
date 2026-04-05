@@ -1,3 +1,55 @@
+###  Публикация: 1604462   (210049) от 14.01.2023
+
+Охотники / Hunters (2023) WEBRip [H.264/1080p] (сезон 2, серии 1-8 из 8) LakeFilms [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа американских граждан в 1970-е занялась выслеживанием нацистов, проживающих на территории США. Им удалось найти и уничтожить несколько сотен человек, стараниями американского правительства избежавших наказания после Второй мировой войны.Производство: США / Big Indie Pictures, Monkeypaw Prodctions, Sonar EntertainmentЖанр: драма, криминал, детективРежиссер: Фил Абрахам, Нельсон МакКормик, Майкл АппендальАктеры: Аль Пачино, Логан Лерман, Джеррика Хинтон, Лена Олин, Сол Рубинек, Кэрол Кейн, Джош Рэднор, Грег Остин, Тиффани Бун, Луис Одзава Чжанцзянь и др.Перевод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~00:55:00 серияРеклама: присутствуют аудио и текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C32FAD40CB6CEC309BA186F8CBF5A8458D410FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445135   (210035) от 01.07.2023
+
+Расследования на Майорке / Дела Мальорки / The Mallorca Files (2021) WEBRip (сезон 2, серии 1-6 из 6) Ultradox [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сериала переносит зрителей на остров Майорка. Здесь происходят главные события этого проекта. В центре внимания сюжета оказывается героиня, которая пытается поймать преступников. Ко всему прочему, главная героиня собирается к долгожданному переезду. Криминальный мир испанского острова цветет, однако главная героиня, натренированная британскими расследованиями, (   Читать дальше...   )Производство: Великобритания, Франция, Германия, Испания / Cosmopolitan Pictures, Clerkenwell Films, British Broadcasting Corporation (BBC)Жанр: драма, криминалРежиссер: Брин Хиггинс, Гордон Андерсон, Роб ЭвансАктеры: Элен Риз, Джулиан Лооман, María Fernández Ache, Tábata Cerezo, Алекс Хафнер, Нанси Нсуе, Начо Альдегуэр, Дэнис Шмидт, Карлос Олалья, Таня МудиПеревод: Многоголосый любительский (Ultradox)Язык озвучки: РусскийПродолжительность: ~00:45:00 серияРеклама: присутствуют вставки рекламы (аудио / видео / баннер)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED7BD1EA36A0D6717E6CA33D65EABDE513BE2FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452311   (209991) от 01.07.2023
 
 Заглушение / Утонувший / The Drowning (2021) WEBRip (сезон 1, серии 1-4 из 4) WestFilm [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209991.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208390.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208025.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207159.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207067.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206887.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206846.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206775.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206770.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205953.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204289.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204064.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203211.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203149.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201924.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200989.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200982.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200111.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198964.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198958.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198763.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198707.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198633.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198445.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1F715158447381886C6BDC66D7DDE24C7C2AEA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632750   (198403) от 16.05.2023
-
-Враг общества / Ennemi public / Public Enemy (2023) WEBRip (сезон 3, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока Клоэ продолжает отчаянно искать свою младшую сестру Джессику, полиция обнаруживает след Поля Ван Акера в хорошо знакомом Беранжэ районе. Попав в Вильсар, он изображает идеального монаха. Но, движимый инстинктами, он использует любую минуту, чтобы отправиться в деревню и решить, кто станет его следующей жертвой. Кажется, только Люка может остановить его, пока (   Читать дальше...   )Производство: Бельгия / Entre Chien et Loup, Playtime Films, ProximusЖанр: драма, криминал, детектив, триллерРежиссер: Маттье ФрэнсисАктеры: Росен Жан-Жак, Клеман Мануэль, Анджело Бисон, Филипп Жозетт, Дэниэл Ханссенс, Франсуа Нейкен, Саймон Андре и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, французскийСубтитры: Русские, французские (отдельно)Продолжительность: ~01:00:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B95CDF255BCDAA3CD74904C4162ACDEA2A530B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633741   (198390) от 17.05.2023
-
-Враг общества / Ennemi public / Public Enemy (2016-2023) BDRip / WEBRip (сезон 1-3, серии 1-26 из 26) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ги Беранже досрочно выходит из тюрьмы, где он отбывал срок по обвинению в убийстве детей. Его на поруки принимает монастырь, расположенный в тихой и спокойной деревушке Арденны. Местные жители настроены весьма враждебно по отношению к бывшему заключённому, полагая, что он — настоящий монстр, который непременно возьмётся за старое. Вскоре происходит таинственное исчезновение (   Читать дальше...   )Производство: Бельгия / Entre Chien et Loup, Playtime Films, ProximusЖанр: драма, криминал, детектив, триллерРежиссер: Маттье Фрэнсис, Gary Seghers, Gilles de VoghelАктеры: Stéphanie Blanchoud, Росен Жан-Жак, Клеман Мануэль, Анджело Бисон, Jean-Claude Dubiez, Филипп Жозетт, Дэниэл Ханссенс, Франсуа Нейкен, Ange Dialot Nawasadio, Саймон Андре и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, французскийСубтитры: Русские (отдельно, сезон 1, 3), французские (отдельно, сезон 3), Английские (hardsub, сезон 2)Продолжительность: ~00:55:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97F84964C94154F18A083C437F10C22E44C4998
 ```
 
 https://mybot314.ru/tekegram_catalog/

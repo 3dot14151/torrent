@@ -1,3 +1,161 @@
+###  Публикация: 1359370   (962803) от 13.02.2020
+
+"КамАЗ" запатентовал электрогрузовик без кабины
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акционерное общество "КамАЗ" оформило патент на грузовой электрический автомобиль, не предполагающий наличие кабины. Детали проекта опубликованы на портале Федерального института промышленной собственности.Концепт электрического беспилотного грузовика "КамАЗ"Судя по снимкам, машина представляет собой прямоугольный кузов на двухосном шасси. Электромобиль (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359970   (962795) от 13.02.2020
+
+Wolcen: Lords of Mayhem (2019) [Ru/Multi] (1.0) License CODEX
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы – один из трех выживших в резне при Кастагате. Вас спас Великий инквизитор Хэймлок, и вы с самых ранних лет связали свою жизнь с республиканской армией Искоренителей, поступив в военную академию, чтобы стать идеальным борцом со сверхъестественным. Хэймлок не оставался в стороне от вашего обучения, и благодаря его вниманию, тренировкам и советам вас и ваших друзей (   Читать дальше...   )Тип издания: LicenseРазработчик: WOLCEN StudioЖанр: Hack-and-Slash, RPG, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738152B8F1EE06686C7CCFE0962FA5AC52C21A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280117   (962786) от 13.02.2020
+
+Resident Evil 2 Remake / Biohazard RE:2 (2019) [Ru/Multi] (1.04/dlc) License CODEX [Deluxe Edition]
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выход Resident Evil 2 состоялся в 1998 году, и теперь одна из самых знаменитых игр всех времен возвращается на современные консоли в совершенно новом облике. Пройдите отдельные кампании за Leon Kennedy и Claire Redfield в новом режиме от третьего лица.Тип издания: LicenseРазработчик: CAPCOMЖанр: Action (Shooter), Survival Horror, 3 rd Person, 3D, PuzzleЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2888895DDCD73B5EBB8EE10368CE0E3A82959239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 170127   (962252) от 28.01.2010
+
+Paragon Partition Manager Server Edition 10.0 [ENG/RUS] x86-x64 bit
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon Partition Manager Server - это интегрированный набор мощных инструментов, которые специально предназначены для решения большинства проблем, c которыми пользователь может столкнуться при использовании компьютера. А очень умный движок программы вместе со встроенными передовыми технологиями восстановления объектов, позволяет безопасно выполнять операции разметки (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592929   (962241) от 20.02.2013
+
+Just Dance 4 DLC Хак [Wii] [PAL/NTSC] (2012)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это DLC Хак для игры Just Dance 4 . В него входят большинство треков из магазина (в том числе и Gangnam Style).
+Just Dance 4Разработчик: UbisoftЖанр: ТанцыЯзык интерфейса: У DLC интерфейса нету. Поэтому язык равен языку игры.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A635FC80194C4BFEEE1AB70D9EF05A1F9EBFC273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621432   (962240) от 20.02.2013
+
+Euro Truck Simulator 2 / С грузом по Европе 3 [Ru/En/Multi34] (L/1.3.1.43709) 2012 | COGENT
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962240.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Euro Truck Simulator 2 дарит вам опыт управления самыми мощными машинами, когда-либо появлявшимися на шоссейных магистралях и автобанах Европы. Вы сможете пройти весь путь - от энтузиаста-дальнобойщика, до обладателя собственной транспортной империи.
+Настраивайте грузовики с нуля, максимально расширяйте свой автопарк, наймите водителей, купите гараж в каждом городе и исследуйте каждую дорогу - и это только часть доступных возможностей. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Racing / Simulator / 3DЯзык озвучки: -/-Язык субтитров: Русский / Английский / Multi34Язык интерфейса: Русский / Английский / Multi34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73DDDAFDF1BCB729EB3EE33E1AFB1EEBFE64EFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563818   (962235) от 20.02.2013
 
 Naruto: Shippuuden / Наруто: Ураганные хроники (2007, 001-300 из xxx) TVrip + HDTVrip+Web-DLrip raw + rus
@@ -6,7 +164,7 @@ Naruto: Shippuuden / Наруто: Ураганные хроники (2007, 001-
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962235.jpg" />
 </div>
 
 
@@ -34,7 +192,7 @@ Windows XP Pro SP3 VLK Rus simplix edition (x86) 20.02.2013
 >>68
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962233.jpg" />
 </div>
 
 
@@ -62,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962169.jpg" />
 </div>
 
 
@@ -90,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962028.jpg" />
 </div>
 
 
@@ -116,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962015.jpg" />
 </div>
 
 
@@ -142,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962004.jpg" />
 </div>
 
 
@@ -169,7 +327,7 @@ FX Club | Биржевая торговля от А до Я [2008] DVD9
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961964.jpg" />
 </div>
 
 
@@ -198,7 +356,7 @@ Nero 2016 Platinum 17.0.02300 Full RePack by Vahe-91 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961824.jpg" />
 </div>
 
 
@@ -224,7 +382,7 @@ Kaspersky Reset Trial 5.1.0.7 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961823.jpg" />
 </div>
 
 
@@ -250,7 +408,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4312.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961818.jpg" />
 </div>
 
 
@@ -276,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961817.jpg" />
 </div>
 
 
@@ -302,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961815.jpg" />
 </div>
 
 
@@ -328,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961722.jpg" />
 </div>
 
 
@@ -356,7 +514,7 @@ Telegram запустит собственный подпольный интер
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961717.jpg" />
 </div>
 
 
@@ -382,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961715.jpg" />
 </div>
 
 
@@ -408,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961645.jpg" />
 </div>
 
 
@@ -434,7 +592,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961635.jpg" />
 </div>
 
 
@@ -460,7 +618,7 @@ CamStudio v.2.5 Beta Portable / Rus
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961135.jpg" />
 </div>
 
 
@@ -486,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961116.jpg" />
 </div>
 
 
@@ -512,7 +670,7 @@ Tom Clancy's H.A.W.X. 2 [Ru] (L) 2010 | МалышШок
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961065.jpg" />
 </div>
 
 
@@ -524,165 +682,6 @@ Tom Clancy's H.A.W.X. 2 дает возможность поучаствоват
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:787A3C2DB55DF5FFB8AE76E5667585E6839BC68D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606551   (961064) от 21.02.2013
-
-Восьмидесятые (2013) SATRip (сезон 2, 1-20 серия из 20)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал «Восьмидесятые» - это история про один из самых интересных периодов в жизни нашей страны. Мы как-то обходились без интернета и мобильного телефона. А чтобы передать ключ от квартиры, просто оставляли его под ковриком. Это было странное время, когда нельзя было ничего купить, но достать можно было все. В каждой квартире обязательно стояли югославский гарнитур (   Читать дальше...   )Жанр: КомедияРежиссер: Федор СтуковАктеры: Александр Якин, Наталья Земцова, Александр Половцев, Мария Аронова, Леонид Громов, Дмитрий Белоцерковский, Юлия Сулес, Александр Новицкий, Роман Фомин, Ирина Чипиженко, Александр Мальков, Никита Ефремов, Анастасия Балякина, Артур Ваха, Юрий Королев, Николай Надежкин, Дмитрий Шевченко, Зоя Давыдова, Олег Балашов, Анна Цуканова-Котт, Наталья Карпунина, Игорь Лагутин, (   Читать дальше...   )Перевод: Не требуется (Русский)Продолжительность: 20 х ~ 00:23:57 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276314   (961007) от 02.01.2011
-
-Gothic 3 + Questpaket 4 + Content Mod + Consequences [Ru/Ge] (P/Update2/2.2/1.2) 2006
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последняя война закончилась для человечества плачевно: цивилизация людей фактически разрушена, и теперь всем заправляют... нет, не привычные нам зеленокожие примитивные существа, а весьма развитые и даже, не побоюсь этого слова, величественные особи с прекрасной осанкой и умными глазами. Впрочем, факт остается фактом — при всех своих очевидных и не очень достоинствах цивилизация орков практически поработила людей, и нам с вами непременно предстоит ринуться в неравный бой, дабы восстановить историческую справедливость и вернуть родной расе утраченное первенство. Вас не устраивает такой вариант? Нет проблем! Можете примкнуть к оркам или вообще отсидеться в сторонке — этот мир вполне обойдется и без мессии.Тип издания: ПираткаЖанр: RPGЯзык озвучки: Русский+НемецкийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2208DF60659733BADEF1ADD7B38377EF35E68D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 277876   (960999) от 02.01.2011
-
-Windows 7 Ultimate RU BEST 7 Edition Release 10.12.5 (x86-x64)[русский]
-
->>3
->>18
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 7 (ранее известная под кодовыми названиями Blackcomb и Vienna) — версия компьютерной операционной системы семейства Windows NT, следующая за Windows Vista. В линейке Windows NT система носит номер версии 6.1. Microsoft сделала заявление о том, что операционная система поступила в продажу 22 октября 2009 года, меньше, чем через три года после выпуска предыдущей (   Читать дальше...   )Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855469   (960836) от 02.01.2015
-
-Дурак (2014) WEB-DLRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизни 800 человек общежития висят буквально на волоске из-за безразличия местных властей. В любую секунду здание может рухнуть. И кто бы мог подумать, что судьбы людей окажутся в руках простого сантехника. Но удастся ли ему что-то изменить и предотвратить катастрофу?Производство: Россия, Rock Film StudioЖанр: ДрамаРежиссер: Юрий БыковАктеры: Артем Быстров, Наталья Суркова, Юрий Цурило, Борис Невзоров, Кирилл Полухин, Роман Майоров, Иван Брэд, Александр Коршунов, Ольга Самошина, Дарья МорозПеревод: не требуется | iTunes |Субтитры: ОтсутствуютПродолжительность: 01:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4130AE64BF78E72E0B17871FAD0F8EB7AEF6200B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833734   (960823) от 02.01.2015
-
-Jagged Alliance: Flashback (2014) [Ru/Multi] (1.1.2) Repack R.G. Механики
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jagged Alliance: Flashback - это игра с классическим тактическим пошаговым режимом боя с переходом в режим реального времени по его окончании.
-Действие игры происходит на группе островов Сан-Кристобаль, что в Карибском море. По сюжету, вследствие государственного переворота на острове был основан социалистический режим – изменение, ставящее на нет американское присутствие (   Читать дальше...   )Тип издания: RepackРазработчик: Full ControlЖанр: Indie / RPG / StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E483A4911E043267EDA428B39A7AFAF463151820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855425   (960821) от 02.01.2015
-
-Adobe Premiere Pro CC 2014 (v8.2.0) RUS/ENG Update 2
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro 2014 - это мощный, настраиваемый редактор для нелинейного монтажа, с помощью которого можно монтировать видео именно так, как вам этого хочется. Импорт и свободное объединение любых видеозаписей, от клипа, снятого на телефон, до необработанного 5K, с последующим монтажом, для которого не требуется выполнять перекодирование.
-
-Выполняйте монтаж видео (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708289F2FA6C1F5F52AFC91BBEE9BFDA4A35DE4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

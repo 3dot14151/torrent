@@ -1,3 +1,55 @@
+###  Публикация: 490707   (102536) от 01.05.2012
+
+Stronghold Crusader (Rip) [Ru] 2003 | maestro1997
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданное продолжение знаменитого бестселлера STRONGHOLD. Это игра, которая сочетает преимущества стратегии в реальном времени и градостроительного симулятора. Вас ждут раскаленные пески Палестины и неприступные арабские крепости. Вперед, крестовый поход не ждет! Если вас притягивает таинственная и загадочная атмосфера Востока, встаньте под знамена ислама и защитите родные земли от европейских захватчиков!Внимание: я пропустил один баг: для того чтоб можно было сохранятся создайте в папке с игрой папку "saves" без кавычек.Тип издания: RipЖанр: СтратегияЯзык озвучки: АнглийскийЯзык интерфейса: Только русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EE0A8E10D25152D6D2E1C60BC9C6176218ACA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490322   (102380) от 01.05.2012
+
+Battle Master [En] (RePack) 1991 | Pilotus
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательная фэнтезийная стратегия с ролевыми элементами в реальном времени. Главное, что здесь радует, - мы наконец-то можем выбрать себе расу по душе.Мы предстаём в игре в виде полководца, которому необходимо выбрать определённый класс (воин, лучник, маг и так далее). У него есть собственный перечень характеристик, растущих со временем (их значение во многом будет влиять на исход битв), и инвентарь, так как помимо сражений в игре можно будет иногда находить артефакты, которые повысят те или иные способности нашего героя.Тип издания: RePackЖанр: СтратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489931   (102193) от 30.04.2012
 
 A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 1991-1992 | Pilotus
@@ -6,7 +58,7 @@ A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 199
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_102193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102193.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Desert Strike: Return to the Gulf и Jungle Strike (RePack) [En] 1994-1995 | Pil
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_102075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102075.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_101961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101961.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Rings of Medusa и Return of Medusa [En] (RePack) 1990-1991 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_101959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101959.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Laser Squad [En] (RePack) 1992 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_101791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101791.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101688.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Shortline [En] (RePack) 1992 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91075.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ SimLife (RePack) [En] 1992 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91062.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90898.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90716.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Prince Of Qin [Ru/En] (P) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90531.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ Nightlong: Union City Conspiracy [Ru] (RePack) 1998 | Kirill Games
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90518.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ SCAR: Squadra Corse Alfa Romeo / SCAR: Спортивная команда Ал�
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90305.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89925.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ Ballerburg / Баллербург [Ru] (RePack) 2002 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89272.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89138.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88904.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (Re
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88902.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88714.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ American McGee's Alice / Америкэн Макги: Алиса [Ru] (RePack) 2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88507.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ Robocop / Робокоп [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87911.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ Full Spectrum Warrior [Ru] (RePack) 2004 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87617.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ Crime Life: Gang Wars / Crime Life: Уличные войны [Ru/En] (Lossless 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87472.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ Angels vs Devils [Ru] (L) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87244.jpg" />
 </div>
 
 
@@ -636,58 +688,6 @@ Angels vs Devils [Ru] (L) 2004
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4430AE5B40B10ED5B54FA3445D80FF32C01D20BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479493   (87094) от 07.04.2012
-
-Marc Ecko's Getting Up: Contents Under Pressure [Ru/En] (Lossless RePack) 2006 | R.G. Origami
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой – талантливый граффити-художник Трейн, который отличается от сотен других граффитистов прекрасным знанием улочек города New Radius, задатками отличного спортсмена и невероятной страстью к любимому делу. Каждый день он рискует жизнью, чтобы попасть в труднодоступные места и украсить их ярким граффити. По мере «карьерного роста» Трейн превратится из новичка с горстью разноцветных маркеров в непревзойденного мастера, чьими руками (а также баллончиками и прочими граффити-инструментами) будут созданы шедевры во всех районах огромного города. Разумеется, о такой роскоши, как спокойное творчество придется забыть сразу и навсегда. На пути к вершинам мастерства стоят не только надоедливые городские власти, но и конкуренты – такие же нелегальные художники. И с теми, и с другими можно при встрече ввязаться в драку или незаметно пробраться мимо... чтобы, подкравшись со спины, оглушать врага ударом по голове. Наконец, помимо уличных потасовок и рисования граффити Трейну придется совершать маленькие акробатические (   Читать дальше...   )Тип издания: RePackРазработчик: The CollectiveЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E46C6FDBD124AB4E98C1046BEFDBF15BDD55F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479857   (87054) от 07.04.2012
-
-Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переиздание Civilization 2. Test of Time включает оригинальную кампанию, присутствовавшую в Civilization II, с рядом небольших изменений. Особенно сильны внешние различия — в игре почти полностью переделана графика и появилась анимация юнитов. Появилась также расширенная оригинальная кампания, в которой «розовый» слот занимает цивилизация центавриан с которыми вступает в войну игрок, пославший к Альфе Центавра космический корабль. Игрок также может играть за инопланетян, но тогда придётся долго ждать прибытия землян.Тип издания: RipЖанр: Глобальная пошаговая стратегияЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

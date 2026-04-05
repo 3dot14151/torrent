@@ -1,3 +1,159 @@
+###  Публикация: 1436043   (139189) от 30.12.2020
+
+Алтай. Лес и море (2020) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Горный Алтай. Палаточный лагерь "Лес и Море".Производство: РоссияЖанр: Документальный, видовойРежиссер: Евгений КожинПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B743063C7B4474E370E3BF0EF59635391B7D90E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088462   (139187) от 31.12.2016
+
+Вести в 20-00. Большие Вести. Россия 1 (30.12.2016) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вечерний выпуск «Вестей» посвящен главным событиям дня. «Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире (   Читать дальше...   )В этом выпуске: Такого от Путина Обама опять не ожидал. В ответ на высылку наших дипломатов из США президент России поздравил американцев с Новым годом. Белый дом в замешательстве. Кто из наших политиков под Новый Год идет в баню, кто готовит гуся в яблоках, и какие планы на праздники у Владимира Путина. Подозреваемые в убийстве сотрудника Росгвардии в Новой Москве признали вину. (   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: ТелепередачаПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7196156F245EA057F8B8879418ECF304CFEDFC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436041   (139179) от 30.12.2020
+
+Сахалин - мой остров (2019) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшое обзорное видео об острове Сахалин, о его основных и далеко не всех природных достопримечательностях. В этом ролике вы увидите красоты и уникальность природы Сахалина. И, возможно, поймёте, что такой регион в России один и его стоит посетить хотя бы раз жизни. Такого вы точно нигде не увидите.Производство: РоссияЖанр: Документальный, видовойРежиссер: Константин ЕфимовПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE4CD55E104CA48A03CC15FD43BD4E9C93800C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273031   (139167) от 30.12.2018
+
+Главная дорога (30.12.2018) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139167.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом выпуске ведущие Андрей Федорцов и Денис Юченков расскажут, как правильно выбрать новогоднее дерево, какое простоит дольше - ёлка или сосна, а также как бережно перевезти хвойное растение, не растеряв пушистые иголки. Кроме того, зрители увидят, чем запомнился российским автомобилистам уходящий год, что ждать в следующем и как отпраздновать, не потеряв права.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86FF6E200197D3C3D69309B517D6AC8084029D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273153   (139125) от 30.12.2018
+
+Собаки / Dogs (2018) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из шести эпизодов сериала расскажет зрителю историю глубокой эмоциональной привязанности людей и их четвероногих питомцев. Например, главные герои первого эпизода — 11-летняя девочка, страдающая из-за серьезного заболевания, и ее сертифицированная собака-сиделка. Герой второго эпизода, Айхам, отправляется в охваченную войной Сирию, чтобы спасти своего пса (   Читать дальше...   )Производство: США, Disarming Films, Zipper Bros Films, NetflixЖанр: Документальный, кинологияРежиссер: Эми Берг, Хайди Юинг, Ричард ХанкинПеревод: Одноголосый закадровый, профессиональный (Relax)Субтитры: отсутствуютПродолжительность: 6 x ~ 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFE5AB46540B45426F28B8EA26B2E96E029B054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520915   (139114) от 30.12.2021
+
+Свадьба века / The Wedding of the Century (2021) Hybrid [H.265/2160p] [4K, HDR+, 10-bit, Dolby Vision]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм переосмысливает один из самых культовых дней в истории, как никогда прежде, с отреставрированным подлинными кадрами со свадьбы принца Чарльза и леди Дианы Спенсер.Производство: Великобритания, Touchdown FilmsЖанр: документальный, политика, биография, историяРежиссер: Джон ОсборнПеревод: многоголосый любительский (Синема УС)Субтитры: английские (Full, SDH)Продолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14DF57D7EADB4194185DB2CE359E7D4A8B3ED9FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273165   (139086) от 30.12.2018
 
 Болгария / Bulgaria (2018) WEBRip [VP9/2160p] [4K, HDR]
@@ -6,7 +162,7 @@
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139086.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139071.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139056.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138969.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138910.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138879.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138842.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138822.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138820.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138749.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138734.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138687.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138678.jpg" />
 </div>
 
 
@@ -345,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138667.jpg" />
 </div>
 
 
@@ -371,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138622.jpg" />
 </div>
 
 
@@ -399,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138577.jpg" />
 </div>
 
 
@@ -425,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138523.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138519.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138489.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138481.jpg" />
 </div>
 
 
@@ -514,166 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:102CAFAA016BD80F5EDBF0FCEF73DEEE401EF550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088530   (138468) от 31.12.2016
-
-Голос (2016.12.30) HDTV [H.264/1080i] (сезон 5, выпуск 18 - финал)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138468.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99F0B04CBA78B1B0D24DDCE8547FF911C3F4043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679414   (138451) от 25.11.2023
-
-Минтранс (25.11.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138451.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Код региона не совпадает с пропиской. Как поставить автомобиль на учет по временной регистрации, чтобы получить номера другого региона?
-🔸 Тест-драйв JAC JS6 2023. Что придется всегда возить собой, купив эту машину?
-🔸 Автомобиль и наследство. Кто должен платить налог?
-🔸 Без колес. Что будет, если не менять тормозную жидкость?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C828D50C8C73FC314D0E37D26EDFCCF24C1CC577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196062   (138407) от 31.12.2017
-
-Орел и решка. Звёзды (2017.12.31) WEB-DL [H.264/1080p-LQ] (Люксембург)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орёл и Решка. Звёзды – это спецпроект от всеми вами любимого тревел-шоу Орёл и Решка. Катерина Варнава, Михаил Башкатов, Анфиса Чехова, Виктор Васильев, Светлана Лобода и Александр Ревва – именно эти звезды звёды шоу-бизнеса будут отчаянно бороться за золотую карту с нашими опытными ведущими Колей Сергой, Машей Иваковой, Жанной Бадоевой и Аланом Бадоевым! Всего вас (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65686B2E953540D69B2D286F982E9224E456343B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088680   (138389) от 31.12.2016
-
-Новогодний парад звезд (2016.12.31) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год - время дарить подарки. Сегодня подарки телезрителям приготовили все звезды!
-Ближе к полуночи, предваряя бой курантов, когда страна провожает Старый год, телеканал "Россия" соберет всех поющих, танцующих и пародирующих артистов в "Новогоднем параде звезд", чтобы вспомнить все лучшее, что было на нашей эстраде и телевидении в уходящем (   Читать дальше...   )Телекомпания: РоссияЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FD53647F4F14929B1B1704FACAC6705FD7D45A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195957   (138378) от 31.12.2017
-
-Танцы (2017.12.30) WEB-DL [H.264/720p-LQ] (сезон 4, выпуск 22)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1028F1492B638FB53D77B799371F4E2FBB10AA29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196039   (138363) от 31.12.2017
-
-Где логика? Новогодний (2017.12.31) SATRip (сезон 5, выпуск 21)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:47:43Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF48D2260FEEA708B8DA575540C4EEF9F8CD688D
 ```
 
 https://mybot314.ru/tekegram_catalog/

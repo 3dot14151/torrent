@@ -1,32 +1,3 @@
-###  Публикация: 1602256   (1046012) от 06.01.2023
-
-L'One (Леван Горозия) - Концерт с симфоническим оркестром (Live 8_X 2022) (2023) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро (Live 8_X 2022) [00:02:33]
-02 - Ракета, Твой день настал (Live 8_X 2022) [00:02:54]
-03 - Сон (Live 8_X 2022) [00:04:07]
-04 - Дорога (Live 8_X 2022) [00:03:24](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DC7AFE57BAF55F482EA643CD72D92355C320DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581379   (1045802) от 08.01.2023
 
 Вася Васин - 4 Albums (2009-2023) [MP3|320 Kbps] <Rap, Hip-Hop, Spoken Word>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045802.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - The Many Faces of Stevie Wonder (2021) 3xCD [FLAC|Lossless|image + .cue] <R
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044218.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Twiztid - Glyph (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Rap, Horrorcore R
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043944.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Murovei - WINSK I-II (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043837.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Sam Smith - Gloria (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043815.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043789.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Marlowe (L'Orange & Solemn Brigham) - Marlowe 3 (2022) [FLAC|Lossless|Web-DL|tra
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043735.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Marty McKay - Plandemic (2023) [MP3|320 Kbps] <Rap Rock, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043546.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Rap Workout (2021) Explicit [MP3|320 Kbps] <Rap, Pop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043028.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039834.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037837.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Toni Braxton - Toni Braxton (1993) [FLAC|Lossless|image + .cue] <R&B, Funk, Soul
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035433.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ The Cancel - Jungle (2016) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035222.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ The Cancel - No Way To Stay (2015) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instr
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035221.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ The Cancel - Daybreak (2013) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumenta
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035220.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ The Cancel - Criminal (2014) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumenta
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035218.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ The Cancel & Dj Shon - Movement (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, I
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035216.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ The Cancel - Autumn (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035211.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ The Cancel & Dj Shon - The All Boom (2016) [FLAC|Lossless|WEB-DL|tracks] <Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035210.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ The Cancel Band - Case (2017) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrument
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035209.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Ours Samplus - One Day One Beat (2014) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, I
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035192.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ The Cancel - Night Light (2013) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrume
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034957.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ The Cancel - Coffee Cafe EP (2012) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, In
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034679.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ Onyx - Lost Treasures (2020) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034675.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ The Cancel - Diversity (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrum
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034671.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ The Cancel - Diversity (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F711C1DC28A76BE3724BAF79EBCB643AE9D9CA5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443821   (1034664) от 01.02.2021
+
+The Cancel - Reply from Space (2011) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro from space (01:46)
+02. Ghost (01:42)
+03. NY in night (02:49)
+04. Lullaby from the moon (03:11)(   Читать дальше...   )Жанр: Hip-Hop, InstrumentalПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A78E16D9D4F6560794FFF40755174A90C7B68B
 ```
 
 https://mybot314.ru/tekegram_catalog/

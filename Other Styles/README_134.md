@@ -1,3 +1,61 @@
+###  Публикация: 1078011   (302640) от 30.11.2016
+
+Баттувшин (Battuvshin) - Душа кочевника - Nomad's Soul (2010) [FLAC|Lossless|image + .cue] <Ethnic, Instrumental>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Мориной соло  (03:41) 
+02|  Намар  (04:31) 
+03|  Арбан таванай hар  (04:27) 
+04|  Аха эгч хоерни  (03:56) (   Читать дальше...   )Жанр: Ethnic, InstrumentalПродолжительность: 01:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5F0DBC05FC5E53E495719C988BCE03D6883D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078123   (302173) от 30.11.2016
+
+Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Television Soundtrack) (2015-2016) [FLAC|Lossless|CD|tracks+.cue]<Soundtrack, Folk>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outlander - The Skye Boat Song (French Version) (feat. Raya Yarbrough) (01:36)
+02. Leave the Past Behind (05:15)
+03. Wrath of the Comte (02:27)
+04. Versailles (02:54)(   Читать дальше...   )Жанр: Soundtrack, Score, Folk •Продолжительность: 03:13:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FDF88CB5AF4687759C2A065AB0C9B368970E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 846600   (301941) от 02.12.2014
 
 Иван Купала - Звездная Серия (2001) [MP3|320 кб/с]<Folk, Electronic, Country>
@@ -6,7 +64,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301941.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301447.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Mystical Travel (2007) [MP3|320 Kbps] <Native american, Ethnic, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301377.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Monica Pereira - Mulher Do Sol (2017) [MP3|320 Kbps] <World, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301369.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301350.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-пау
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301349.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Daniel Pemberton, VA - Spider-Man: Into the Spider-Verse / Человек-пау
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301341.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ David Ison - Ison sleep system (2009) [MP3|320 Kbps] <relax, meditative>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301256.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ Michael Logozar - Passage (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301199.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ Various artists - Chip & Crack - best of (1995-2019) [OGG|128-350 Kbps] <Demosce
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301154.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Mark Dwane - Astrology (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301079.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 3 (1990) [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300995.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Riccardo Cocciante - Notre Dame De Paris  (2000) English Version [FLAC|Lossless|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299651.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Astrocolor - Lit Up - Music for Christmas (2015) [MP3|320 кб/с]<New Age, Easy
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299087.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hug
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299056.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Tron Syversen - Sacred Dreams (2005) [FLAC|Lossless|WEB-DL|tracks] <New Age, Rel
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298941.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Llewellyn - Ancient Lands (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298919.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Sleep & Massage Music (2019) [MP3|320 Kbps] <New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298743.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Ultimate Pop Hits and Piano Tribute Players - New Pop Covers on Piano (2019) [MP
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298732.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - New Instrumental Ballads vol.2 (2002) [FLAC|Lossless|tracks + .cue]<Instrum
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298731.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Silent nook - С.О.М.А (2018) [MP3|320 Kbps] <Trip-Hop, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298681.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA – Super Instrumental Vol.3 (2002) Величайшие хиты XX века
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298578.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Gregorian - Masters of Chant X: The Final Chapter (2015) [FLAC| (tracks + .cue)]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298553.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Catherine MacLellan - Silhouette (2011) [FLAC|Lossless]<Acoustic/Indie/Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298177.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Catherine MacLellan - Silhouette (2011) [FLAC|Lossless]<Acoustic/Indie/Folk>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078736   (298142) от 02.12.2016
-
-Sverre Knut Johansen - Antarctica (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Antarctica Theme [00:04:22]
-02 -  United [00:05:35]
-03 -  Ice Ballet [00:04:25]
-04 -  Whales in Paradise [00:06:38](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAA9ABF77AC30AF596BF9F10412A39E691D3E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078827   (298137) от 02.12.2016
-
-65daysofstatic - No Man's Sky: Music for an Infinite Universe (2016) [MP3|320 кб/с]<Soundtrack, Post-rock, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NMS_exteriorAtmos1 / False Suns (09:29)
-02. Tomorrow / Lull / Celestial Feedback (10:54)
-03. Departure / Shortwave / Noisetest (11:50)
-04. temporalDissent / ascension_test1 / koaecax (10:07)(   Читать дальше...   )Жанр: Soundtrack, Score, Post-rock, ElectronicПродолжительность: 01:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4798C3C5A44BA72ACBFCCE076CEF439E0E6598A
 ```
 
 https://mybot314.ru/tekegram_catalog/

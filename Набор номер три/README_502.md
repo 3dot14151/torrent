@@ -1,3 +1,215 @@
+###  Публикация: 620794   (304424) от 10.11.2018
+
+Pink Floyd - Pink Floyd Collection (1980) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86507939CCFE2CC437E7CAB79C1CE31739D76BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260645   (304416) от 10.11.2018
+
+Пользователи Windows 10 пожаловались на хаотичную ошибку
+
+>>3
+>>15
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_304416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 не разрешает задавать ассоциации программ для определенных типов файлов.Уже некоторое время пользователи ОС Windows 10 сообщают о довольно странной ошибке, не позволяющей установить ассоциацию файлов (заданное соответствие между типом файла и тем, какой программой или образом он открывается). Система просто не разрешает выбирать определенные приложения (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261059   (304413) от 10.11.2018
+
+Король вне закона / Outlaw King (2018) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304413.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Роберта Брюса, одного из величайших шотландских монархов, организатора обороны страны в начальный период войны за независимость против Англии.Производство: Великобритания, США / Sigma Films, Anonymous Content, Clockwork SessionsЖанр: боевик, драма, биография, историяРежиссер: Дэвид МаккензиАктеры: Крис Пайн, Стивен Диллэйн, Ребекка Робин, Билли Хоул, Пол Блэр, Сэм Спруэлл, Джонатан Филлипс, Бен Клиффорд, Джэми МакЛахлан, Данкан ЛакруаПеревод: Дублированный (Невафильм)Субтитры: Русские, английскиеПродолжительность: 02:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A0444AF349E948CF606D37D873F2F1985C60E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260440   (304412) от 10.11.2018
+
+Миссия невыполнима: Последствия / Mission: Impossible - Fallout (2018) WEB-DL [H.264/1080p-LQ] [IMAX, MVO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итан Хант и его команда, а также недавно примкнувшие к ним союзники, вынуждены действовать наперегонки со временем, когда новая миссия идет не по плану.Производство: США, Bad Robot, Paramount Pictures, Skydance Productions, TC ProductionsЖанр: Боевик, Триллер, ПриключенияРежиссер: Кристофер МакКуорриАктеры: Том Круз, Ребекка Фергюсон, Генри Кавилл, Мишель Монахэн, Ванесса Кирби, Уэс Бентли, Саймон Пегг, Анджела Бассетт, Алек Болдуин, Винг РеймзПеревод: Многоголосый закадровый, любительскийСубтитры: АнглийскиеПродолжительность: 02:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C12384F8621B2A914F6C80456D848D07ECF871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046559   (304411) от 10.11.2018
+
+Книжные серии | «Шедевры фантастики» и «Шедевры фантастики (Продолжатели)» [373 тома. Обновляемая] (2001-2018) [FB2]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «Шедевры фантастики» была основана в 2001 году и до настоящего времени оставалась одной из ведущих серий издательства «Эксмо». В ней выходили лучшие произведения в основном зарубежной фантастики и фэнтези (исключение составляет трилогия «Кольцо тьмы» Ника Перумова). Печатались произведения разного формата — сериалы, отдельные романы, сборники рассказов. Максимальный (   Читать дальше...   )Жанр: Научная фантастика, Космическая фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9AA448B88F193A403B613228D6A338F289CD28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166107   (304410) от 10.11.2018
+
+Три кота (2017 - 2018) WEB-DLRip [H.264/720p-LQ] (сезон 2, серии 53-104 из 104)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение историй о повседневной жизни, отношениях, приключениях трех маленьких любознательных котят: Коржика, Компота, Карамельки и других котиков.Производство: РоссияЖанр: Детский, ОбучающийРежиссер: Дмитрий ВысоцкийПерсонажи: Папа-кот, Мама-кошка, Компот (7 лет), Коржик (6 лет), Карамелька (4 года) и другие котята.Субтитры: отсутствуютПродолжительность: ~ 00:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4374918594576A3B2C0C3192795BC5BBD1118A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582471   (304364) от 05.12.2012
+
+PUH Edition v2(конструктор USB v2) Beta
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_304364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка для USB накопителя от  512 mb и больше.Сборка сделана как продолжение "Конструктор USB 1" .
+Собрано для тех ,кто по каким либо причинам не хочет или не может перечитывать кучи форумов ,что бы найти нужную информацию.
+
+Как работает:
+При форматировании носителя утилитой "Grub4DosUSB(SE)", носитель форматируется и на него копируются все нужные файлы требующиеся для работы сборки. После того как носитель подготовлен, вы просто извлекаете в корень носителя нужные вам программы, все или одну, в любом сочетании.Больше не каких действий предпринимать не нужно! Все само пропишется и появиться.Название программы: PUH Edition v2(конструктор USB v2) BetaЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584354   (304358) от 05.12.2012
+
+S.T.A.L.K.E.R. Shadow of Chernobyl / Народная солянка / DMX MOD / ООП / Collector / Master Addon [Ru] (RePack) 2012 | R.G. Virtus
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_304358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Народная Солянка - это не игра, это - виртуальная реальность. Это Сталкер в новом обличье. Здесь Вам гарантирована невозможность одинакового прохождения квестов, да и просто жизни в Зоне. Здесь каждый найдёт то, что ему по нраву.Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570646   (304356) от 05.12.2012
 
 Windows 8 Pro with WMC RUS-ENG x86-x64 -4in1- (IL)LEGAL
@@ -6,7 +218,7 @@ Windows 8 Pro with WMC RUS-ENG x86-x64 -4in1- (IL)LEGAL
 >>50
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304356.jpg" />
 </div>
 
 
@@ -38,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304082.jpg" />
 </div>
 
 
@@ -65,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304065.jpg" />
 </div>
 
 
@@ -92,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>16
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304057.jpg" />
 </div>
 
 
@@ -118,7 +330,7 @@ Daum PotPlayer 1.6.63856 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303930.jpg" />
 </div>
 
 
@@ -144,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303906.jpg" />
 </div>
 
 
@@ -170,7 +382,7 @@ Bandicam 3.3.0.1174 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303809.jpg" />
 </div>
 
 
@@ -196,7 +408,7 @@ CyberGhost VPN 6.0.4.2205 RePack by BOPOH [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303807.jpg" />
 </div>
 
 
@@ -222,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_303805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_303805.jpg" />
 </div>
 
 
@@ -249,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303799.jpg" />
 </div>
 
 
@@ -277,7 +489,7 @@ Assault Squad 2: Men of War Origins (2016) [Ru] (3.260.0/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303798.jpg" />
 </div>
 
 
@@ -303,7 +515,7 @@ ABBYY FineReader 12.0.101.496 Professional RePack (& Portable) by TryRooM (29.11
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303795.jpg" />
 </div>
 
 
@@ -329,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303712.jpg" />
 </div>
 
 
@@ -355,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303711.jpg" />
 </div>
 
 
@@ -381,7 +593,7 @@ Röyksopp (Royksopp) - Discography 78 Releases (1999-2020) Wall Of Sound, Virgin
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303710.jpg" />
 </div>
 
 
@@ -407,7 +619,7 @@ Samurai Warriors 3 [Wii] [PAL] [Multi 5] (2010)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303691.jpg" />
 </div>
 
 
@@ -433,7 +645,7 @@ Kerio Connect 7.1.2 build 2260 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303687.jpg" />
 </div>
 
 
@@ -461,7 +673,7 @@ Linux Mint 17.1 Rebecca (Mate, Cinnamon) [32bit] 2xDVD
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303668.jpg" />
 </div>
 
 
@@ -474,218 +686,6 @@ Linux Mint — дистрибутив операционной системы Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B20CCB7D31975D74ECC9F55A6998DAC92D9F9D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740628   (303660) от 01.12.2014
-
-VA - Hard Pro v.1-60 (2012-2014) [MP3|320 кб/с]<Hardstyle, Hardcore, Hands Up>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wavetraxx feat. Elaine Winter - Dark Angel (Dizmaster Remix)
-02. Discotronic - Trickidisco (Paragod Mondo Mix)
-03. Housegeist feat. Safrina - In Your Eyes (Neyther Remix)
-04. Dark Sector - I Came For Destruction(   Читать дальше...   )Жанр: Hardstyle, Hardcore, Hands UpПродолжительность: 274:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0075B2EE5D3DD89D05B68E35D91E29A076CF3CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961036   (302929) от 30.11.2015
-
-Обнаружена карликовая галактика, имеющая рекордно высокую концентрацию темной материи в ее объеме
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_302929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Темную материю называют темной по нескольким причинам. Количество частиц темной материи превосходит количество частиц обычной материи во Вселенной приблизительно в десять раз. Частицы темной материи пока неуловимы, их не получается обнаружить даже самыми высокочувствительными инструментами. Факт существования темной материи определен лишь косвенным путем по ее гравитационному (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332954   (302808) от 25.10.2019
-
-Первую возвращаемую как у SpaceX ракету-носитель планируют запустить в России в 2020 году
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_302808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первую возвращаемую как у компании SpaceX Илона Маска российскую многоразовую ракету-носитель планируют запустить в 2020 году. Об этом сообщил ТАСС владелец частной компании Laros, которая занимается разработкой ракеты, Олег Ларионов.По его словам, Laros разрабатывает линейку многоразовых ракет-носителей (РН) легкого класса, которые будут работать на смеси перекиси (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961018   (302746) от 30.11.2015
-
-qBittorrent 3.3.0 Stable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302746.jpg" />
-</div>
-
-
-###  Подробнее
-
-qBittorrent - бесплатный, мощный и удобный в работе кроссплатформенный клиент файлообменной сети BitTorrent. Несмотря на кажущуюся простоту, программа обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, встроенный менеджер ограничения скорости, фильтрация (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59790FB3447D975440096013565B5A5FDBB4A4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183833   (302717) от 16.11.2017
-
-Windows 10 назвали худшей операционной системой
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_302717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксперты назвали Windows 10 худшей из операционных систем из-за ее нестабильности
-По мнению специалистов, Windows 10 от компании Microsoft является одной из самых нестабильных ОС на рынке программного обеспечения. Система периодически выходит из строя, зависает и перестает работать, сообщает интернет-издание AKKet.Нестабильность Windows 10 делает ее худшей из всех (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184146   (302708) от 16.11.2017
-
-Adobe Illustrator CC 2018 22.0.1.253  RePack by KpoJIuK  [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Adobe Illustrator CC 2018 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD7E5B3AA844B5B7597F71B0CE20EE858451715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184132   (302702) от 16.11.2017
-
-Adobe Photoshop CC 2018. 19.0.1.190 RePack by KpoJIuK  [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAAC858AFA4B2542BEFA4E9F569E496C79C8A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184130   (302700) от 16.11.2017
-
-Adobe Acrobat Pro DC 18.009.20044.55097 Portable by XpucT [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Acrobat Pro DC — это полностью обновлённая настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов вы сможете создавать, экспортировать, редактировать и отслеживать файлы PDF, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54EA048E6D3D40787DBDEAE65DA1CD6D3A0CC9CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

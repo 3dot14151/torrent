@@ -1,3 +1,29 @@
+###  Публикация: 1190619   (267044) от 10.12.2017
+
+Первая передача на НТВ. Автомобильная передача (2017.12.10) SATRip (выпуск 313)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267044.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B07D85B2EAF6A524E85DFF5CC2150550D11DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267790   (264890) от 08.12.2018
 
 Главная дорога (08.12.2018) SATRip
@@ -6,7 +32,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264890.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263981.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263596.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263453.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263208.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263203.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263201.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263176.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263175.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262500.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262483.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261753.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261224.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260761.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260079.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260074.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256736.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256601.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256590.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255131.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252462.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ NG: Авто S.O.S. / Car S.O.S. (2013-) [H.264/1080p-LQ] (сезон 1-11) [AD]
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251887.jpg" />
 </div>
 
 
@@ -599,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251751.jpg" />
 </div>
 
 
@@ -627,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251747.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250007.jpg" />
 </div>
 
 
@@ -668,34 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5B47D665FE500B5886D0DA588D1E66241E44F2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833827   (247795) от 02.11.2025
-
-Первая передача на НТВ. Автомобильная передача (02.11.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Покупка с нюансами: как перестраховаться и разглядеть изменения в конструкцию автомобиля б/у до того, как деньги окажутся у продавца?
- Миг между «желтым» и «красным»: спорное ДТП во время маневра на перекрестке. Почему виновным оказался водитель, поворачивавший налево?
- В «шишиге» как в квартире: как живется в машине с печкой, санузлом и полным приводом.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF74CE74280F117EC2E47BA491FC98EB63F118F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

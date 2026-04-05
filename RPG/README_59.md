@@ -1,3 +1,55 @@
+###  Публикация: 1745190   (45695) от 25.08.2024
+
+Cavalry Girls (2023) [Multi] (1.1.1715/dlc) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cavalry Girls - захватывающий шутер с видом сверху вниз, который погружает в футуристический мир, где отважные и бесстрашные девушки-солдаты сражаются с неумолимыми врагами. В этой увлекательной игре органично сочетаются экшен, стратегия и кастомизация, что обещает захватывающий игровой процесс. В мире, где универсальный минерал "нефрит" способствует революции (   Читать дальше...   )Тип издания: SceneРазработчик: 中子星游戏研究所Жанр: Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, Китайский, ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный, традиционный), Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0188C966C560D93BB691A96CCB35C6A0143DB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745169   (45656) от 25.08.2024
+
+Heroes of Eternal Quest (2024) [Multi] (1.1.2) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heroes of Eternal Quest – окунитесь с головой в настоящее бесконечное приключение, приправленное множеством испытаний. Собирайте полезные ресурсы, займитесь строительством зданий, откройте немало таинственных карт и встаньте во главе группы героев. Отправьтесь в неизведанное и покорите Башню Осколков, чтобы освободиться от своей незавидной судьбы. Никто и не ожидал (   Читать дальше...   )Тип издания: SceneРазработчик: Drakkar Game StudioЖанр: Ролевые игры, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Французский, Немецкий, Китайский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082EA33DCC5C57E6D100065FFA8082FA9102442F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725758   (45644) от 26.08.2024
 
 Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.1.1) License GOG
@@ -6,7 +58,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45644.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Landlord's Super (2023) [Multi] (1.0.09) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45530.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Chromosome Evil 2 (2024) [Ru/En] (1.77) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45423.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ ELDEN RING (2022) [Ru/Multi] (1.13.2/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45421.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Raiders! Forsaken Earth (2020) [En] (1.4.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45061.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44978.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44879.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44694.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (Build 15521170/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44478.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (Build 15521170/dlc) Repack D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44377.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Selfloss (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44344.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53803) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44339.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44326.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Fallout: London (2024) [En] (2.31r2) Repack/Mod FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44263.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Wartales (2021) [Ru/Multi] (1.0.36897/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44223.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Marenian Tavern Story: Patty and the Hungry God (2019) [Multi] (1.0.2) License G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43998.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Lice
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43858.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Cat Quest III (3) (2024) [Ru/Multi] (1.1.8) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43847.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ USC: Counterforce (2023) [Multi] (1.01.0a1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43702.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Selfloss (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43629.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Yarimono (2024) [Multi] (1.16) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43579.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Mount and Blade: Warband (2010) [Multi] (2.069/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43541.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.4(1)) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43524.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ EVOTINCTION (2024) [Multi] (build 15675746/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43523.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ EVOTINCTION - это футуристическая хакерская и сте
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FEF9E49CC1E2E14E10EAA6D3FEACE3AF7A8BE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749659   (43510) от 15.09.2024
-
-Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vampire: The Masquerade - Reckoning of New York приглашает геймеров в густую паутину вампирской политики, разворачивающуюся в Нью-Йорке. Город, который никогда не спит, является идеальным фоном для противостояния Камарильи и Анархов, двух враждующих фракций в мире вампиров. Игроки перемещаются по этому миру в качестве родственных существ, которым предстоит принимать (   Читать дальше...   )Тип издания: RepackРазработчик: Draw DistanceЖанр: Инди, Ролевые игрыЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E0C2B3234FD812946ABDE45B6C1E6056C14D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749608   (43480) от 15.09.2024
-
-Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Scene SKIDROW
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vampire: The Masquerade - Reckoning of New York приглашает геймеров в густую паутину вампирской политики, разворачивающуюся в Нью-Йорке. Город, который никогда не спит, является идеальным фоном для противостояния Камарильи и Анархов, двух враждующих фракций в мире вампиров. Игроки перемещаются по этому миру в качестве родственных существ, которым предстоит принимать (   Читать дальше...   )Тип издания: SceneРазработчик: Draw DistanceЖанр: Инди, Ролевые игрыЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71FDB8FB3EBAAF248F7A10797311D78683E2F04
 ```
 
 https://mybot314.ru/tekegram_catalog/

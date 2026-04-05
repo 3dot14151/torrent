@@ -6,7 +6,7 @@ To Aru Majutsu no Index / A Certain Magical Index / Индекс Волшебс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312503.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Versailles no Bara | The Rose of Versailles | Lady Oscar | Роза Версал
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311666.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Soukyuu no Fafner: Dead Aggressor - Heaven and Earth / Fafner: Heaven and Earth 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310710.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Haruchika: Haruta to Chika wa Seishun Suru | Haruchika: Haruta & Chika | Хар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310078.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Kyou kara Ore wa!! | Today, It's My Turn!! | Сегодня и начну! [1993
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308437.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Kidou Senshi Gundam: SEED | Mobile Suit Gundam: SEED | Мобильный дос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308031.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mei Ou Project Zeorymer / Hades Project Zeorymer / Дьявольский Про
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307836.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ ISUCA | Иска [2015, TV, 10 эп. + 1 OAD] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307053.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Stella no Mahou | Magic of Stella | Магия Стеллы [2016, TV + OVA, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305419.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Mikagura Gakuen Kumikyoku | Mikagura School Suite | Сюита школы Мик
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305300.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Hoshi o Ou Kodomo | Hoshi wo Ou Kodomo | Children Who Chase Lost Voices | Лов
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304218.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Clione no Akari | Lights of the Clione | Свет морского ангела 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303276.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Love Live! The School Idol Movie | Живая любовь! (фильм) [2015, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303207.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303104.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Eiga Chuunibyou demo Koi ga Shitai! Take on Me | Чудачество любви
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303099.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ THE iDOLM@STER SHINY FESTA | The Idolmaster: Shiny Festa [2012, OVA, 3 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299586.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Yoake Tsugeru Lu no Uta | Lu Over The Wall | Песня Лу на рассвет
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299039.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Frame Arms Girl | Боевые куколки | Вооружённая малы�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298776.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Ranma 1/2: Akumu! Shunmin Kou | Ranma 1/2: Nightmare! The Incense of Spring Slee
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298733.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1991-2008
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296649.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Красочный м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295581.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295573.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пёт�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295437.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Kono Subarashii Sekai ni Shukufuku o! | Konosuba: God's Blessing on This Wonderf
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295167.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Taboo-Tattoo | Запретная татуировка [2016, TV, 12 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294919.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ GATE | Gate: Jieitai Kanochi nite, Kaku Tatakaeri | ВРАТА: искусств
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293106.jpg" />
 </div>
 
 

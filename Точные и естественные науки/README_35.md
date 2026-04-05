@@ -1,3 +1,86 @@
+###  Публикация: 967049   (158644) от 20.12.2015
+
+Т. А. Пляцедевская (ред.) | Багамские Острова. Справочная карта (1985) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158644.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Багамских Островов (масштаб 1:1 500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B30FE6331F18C1371011FD93D21AFFD05F0A6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967468   (158602) от 20.12.2015
+
+Сэм Кин | Исчезающая ложка, или Удивительные истории из жизни периодической таблицы Менделеева (2015) [FB2, RTF, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158602.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Исчезающая ложка, или Удивительные истории из жизни периодической таблицы Менделеева» посвящена одному из величайших достижений науки – Периодической системе химических элементов, удивительно сложному человеческому изобретению. Вы познакомитесь с историей элементов, окунетесь в мир химии и удивительных превращений, узнаете тайны науки, которые тщательно скрывались (   Читать дальше...   )Жанр: Химия, Прочая образовательная литература, Зарубежная образовательная литератураФормат: FB2, RTF, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEEE848DD23518F733C18858650C2D465E380C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518151   (157580) от 18.12.2021
+
+Борис Е. Штерн, Валерий Рубаков | Астрофизика. Троицкий вариант (2020) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темная энергия, космологическая инфляция, черные дыры, экзопланеты, бозон Хиггса, реликтовое излучение, большой взрыв, барионная асимметрия – всё самое интересное о космосе и микромире частиц. Никаких домыслов, только достоверная информация от двух ученых – Валерия Рубакова и Бориса Штерна.
+
+Валерий Рубаков – физик-теоретик, специалист в области квантовой теории (   Читать дальше...   )Жанр: Научно-популярная литература, ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1EDC08BBC4E7F0ACCFDAA7BA2BCCFB9328D911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518153   (157408) от 18.12.2021
 
 Фрэнк Вильчек | Основы реальности. 10 Фундаментальных принципов устройства вселенной (2021) [FB2]
@@ -6,7 +89,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157408.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154600.jpg" />
 </div>
 
 
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154516.jpg" />
 </div>
 
 
@@ -87,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154502.jpg" />
 </div>
 
 
@@ -116,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154273.jpg" />
 </div>
 
 
@@ -142,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154272.jpg" />
 </div>
 
 
@@ -168,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153272.jpg" />
 </div>
 
 
@@ -194,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153183.jpg" />
 </div>
 
 
@@ -220,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153169.jpg" />
 </div>
 
 
@@ -246,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153048.jpg" />
 </div>
 
 
@@ -272,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152979.jpg" />
 </div>
 
 
@@ -298,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152928.jpg" />
 </div>
 
 
@@ -324,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152583.jpg" />
 </div>
 
 
@@ -351,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152555.jpg" />
 </div>
 
 
@@ -380,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152104.jpg" />
 </div>
 
 
@@ -407,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149712.jpg" />
 </div>
 
 
@@ -436,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149144.jpg" />
 </div>
 
 
@@ -462,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148938.jpg" />
 </div>
 
 
@@ -490,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148170.jpg" />
 </div>
 
 
@@ -517,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147672.jpg" />
 </div>
 
 
@@ -544,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146881.jpg" />
 </div>
 
 
@@ -570,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146528.jpg" />
 </div>
 
 
@@ -596,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145562.jpg" />
 </div>
 
 
@@ -607,89 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2908195B35D72B609C60D603E205BD0E79FC8EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520246   (143285) от 27.12.2021
-
-Ко Майкл | Разгадка кода майя. Как ученые расшифровали письменность древней цивилизации (2021) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надписи на языке майя были открыты еще несколько сотен лет назад, но прочитать их удалось совсем недавно. И если бы не исследовательский талант нескольких ученых, среди которых и наш соотечественник Юрий Кнорозов, - язык майя, вероятно, оставался бы загадкой и по сей день. Историю этой удивительной расшифровки рассказывает археолог-майянист Майкл Ко, профессор Гарвардского (   Читать дальше...   )Жанр: Антропология. ЭтнографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E69125FBD78287E8A14F6C0F8DA331CD0F50ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087517   (142569) от 29.12.2016
-
-Э. Геккель | Мировые загадки (1937) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142569.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мировые загадки» Геккеля принадлежат к числу популярных естественнонаучных произведений мировой известности. Книга эта является блестящей попыткой подвести итог и дать материалистический синтез всех естественнонаучных знаний XIX в. и по всем вопросам естествознания противопоставить позиции поповщины научное решение.
-
-Борьба вокруг «Мировых загадок» нашла широкий (   Читать дальше...   )Жанр: История, философия, науковедение, естествознание, медицина, анатомия, физиология, психология, религиоведение, этика, искусство, политология, астрономия, геология, физика, химия, биология, антропологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D2DAC894EFCC109E215ED6ABED5E4FF2262415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348811   (140920) от 29.12.2019
-
-Брайан Кокс, Джефф Форшоу | Почему Е=mc2? И почему это должно нас волновать (2016) [PDF, FB2, EPUB]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательное и доступное объяснение самого известного в мире уравнения через повседневную жизнь.
-Уравнение E=mc2 визуально знакомо многим. Но далеко не все понимают его физический смысл.
-В этой книге два профессора раскрывают реальный смысл, стоящий за каждым символом в легендарном уравнении Эйнштейна - и делают это с позиций современной науки.
-Попутно они отвечают (   Читать дальше...   )Жанр: Физика, МатематикаФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11377FC17CDE2E2B3A4666E9380483F7FC8596C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

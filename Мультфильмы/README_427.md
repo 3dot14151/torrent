@@ -1,3 +1,135 @@
+###  Публикация: 1810240   (9471) от 03.08.2025
+
+Человек-бензопила / Chensooman / Chainsaw Man (2022) BDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-12 из 12) Flarrow Films [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подросток Дэндзи всего лишь хотел жить обычной жизнью и есть досыта, но оставшиеся после смерти отца долги вынуждают парня влачить полуголодное существование и жить в халупе. Чтобы расплатиться с якудза, он уже продал некоторые свои органы и даже промышляет нелегальной охотой на демонов, в чём ему помогает необычный питомец Потита, демоническое существо с бензопилой. (   Читать дальше...   )Производство: Япония / MAPPAЖанр: аниме, мультфильм, боевик, фэнтези, ужасыРежиссер: Рю Накаяма, Масато Накадзоно, Тацуя ЁсихараАктеры: Кикуносукэ Тоя, Томори Кусуноки, Аи Файруз, Сёго Саката, Таку Ясиро, Карин Такахаси, Мария Исэ, Кэндзиро Цуда, Сиори Идзава, Нацуки ХанаэПеревод: Дублированный (Flarrow Films)Язык озвучки: Русский, ЯпонскийСубтитры: русские (forced, full)Продолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318915C6A9170194E36718C718F30B1D7B180B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810659   (9260) от 05.08.2025
+
+Аладдин / Aladdin (1992) UHD WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9260.jpg" />
+</div>
+
+
+###  Подробнее
+
+В славном граде Аграба живёт Аладдин, веселый воришка с золотым сердцем. Живёт и не знает, что вскоре его ждёт величайшее приключение в жизни. Ведь только с его помощью чёрный маг Джафар может овладеть невероятным сокровищем — лампой, в которой заключён исполняющий желания могущественный Джинн. И только хитроумие, смекалка и доброта Аладдина и его друзей — обезьянки (   Читать дальше...   )Производство: США / Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон МаскерПеревод: дублированный, двухголосый профессиональный, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские (forced, full), украинские (forced, full), английские (full, SDH)Продолжительность: 01:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CEA6E923DA971B255729D773BA5661DA3F3937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810653   (9237) от 05.08.2025
+
+Несокрушимые мстители / Совершенные Мстители 2 / Ultimate Avengers II (2006) WEB-DLRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда супергероев «Капитана Америка» отправляется в Африку, где был вероломно убит король одного из древних племен. Теперь смертельная опасность угрожает его сыну - Черной Пантере. Именно ему предстоит унаследовать трон и сверхъестественные способности отца.
+
+Генерал Кляйзер, желая обрести мировое господство, стремится завладеть могучим артефактом, который мужественно (   Читать дальше...   )Производство: США / Lionsgate, MLG Productions 2, Marvel StudiosЖанр: мультфильм, фантастика, боевик, приключенияРежиссер: Уилл Меньот, Дик Сэбаст, Боб РичардсонПеревод: дублированный (Flarrow Films)Язык озвучки: русскийСубтитры: русскиеПродолжительность: 01:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA095D1643A7A8A875DB97D53DEBF1D3A5E52859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810611   (9236) от 05.08.2025
+
+32-е декабря (1988) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасный сказочный мюзикл на новогоднюю тематику создаст вам поистине праздничное настроение. О том, что произошло с Дедом Морозом на его пути к Новому году. Дед Мороз ведёт к Новому году «поезд жизни», но путь поезду преграждает понурая лошадь. Выясняется, что после ссоры с приревновавшим её мужем, в лошадь превратилась красивая женщина, родившаяся по китайскому (   Читать дальше...   )Производство: СССР / ТО «Экран»Жанр: мультфильм, короткометражка, мюзиклРежиссер: Владимир СамсоновАктеры: Павел Смеян, Любовь ПривинаСубтитры: отсутствуютПродолжительность: 00:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4959307036FCF261BE8D2504B93BF678449C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810826   (9129) от 06.08.2025
+
+Золотой ключик (1939) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, в котором вместе с живыми актерами играют и куклы, поставлен знаменитым режиссером, признанным мастером "сказочного" жанра Александром Птушко по одноименной сказке Алексея Толстого. Именам главных героев: папы Карло, Буратино, Дуремара, черепахи Тортиллы и других персонажей этого произведения суждено было стать нарицательными - столь велика оказалась (   Читать дальше...   )Производство: СССР / МосфильмЖанр: кукольный, сказка, экранизацияРежиссер: Александр ПтушкоАктеры: Ольга Шаганова-Образцова, Александр Щагин, Сергей Мартинсон, Георгий Уваров, Р. Хаирова, С. Зонненбург, К. Никифоров, В. Покорская, Ф. Тихонова, Михаил Дагмаров и др.Субтитры: отсутствуютПродолжительность: 01:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE1157DAF972B51872C7A7077DE07F0D480E29B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810842   (9128) от 06.08.2025
 
 Большой Ух (1989) DVDRip [H.264/1080p-LQ] [Handmade Upscale AI]
@@ -6,7 +138,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9128.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8918.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8906.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8903.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8891.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8889.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8883.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8862.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8701.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8695.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8596.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8595.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8594.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8556.jpg" />
 </div>
 
 
@@ -370,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8540.jpg" />
 </div>
 
 
@@ -396,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8438.jpg" />
 </div>
 
 
@@ -422,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8347.jpg" />
 </div>
 
 
@@ -448,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8299.jpg" />
 </div>
 
 
@@ -474,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8273.jpg" />
 </div>
 
 
@@ -500,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8139.jpg" />
 </div>
 
 
@@ -526,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8124.jpg" />
 </div>
 
 
@@ -537,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2FA70F1D3160FE7F3D92C0FBEDDF87A0792037C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812213   (8121) от 13.08.2025
-
-Бэтмен-ниндзя против лиги якудза / Batman Ninja vs. Yakuza League (2025) BDRip [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бэтмен и Робин совершают путешествие через время и пространство, отправляясь в Японию эпохи Эдо. Темный Рыцарь и его верный напарник вынуждены сражаться с альтернативной версией Лиги Справедливости: Джокер и его приспешники теперь средневековые феодалы и зовут себя Лигой якудза.Производство: Япония, США/ Kamikaze DougaЖанр: аниме, мультфильм, боевик, фантастикаРежиссер: Дзюнпэй Мидзусаки, Синдзи ТакагиАктеры: Акио Оцука, Юки Кадзи, Аянэ Сакура, Роми Пак, Коити Ямадэра, Даисукэ Оно, Риэ Кугимия, Хотю Оцука, Ватару Такаги, Акира ИсидаПеревод: Многоголосый (Red Head Sound, HDRezka Studio, 1win Studio, заКАДРЫ)Язык озвучки: Русский, Английский, ЯпонскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB865344D0087B4987195150C8D602DAF2CA23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812228   (8099) от 13.08.2025
-
-Железный человек и его невероятные друзья / Iron Man and His Awesome Friends (2025) WEB-DL (сезон 1, серии 1-10 из 10) заКАДРЫ
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный гений и по совместительству тусовщик Тони Старк (Мэйсон Бломберг) решает, что спасать мир в одиночку — моветон. Он собирает команду вундеркиндов, чтобы с высокотехнологичным размахом решать городские проблемы. Первая на очереди — остановить наглого робота-клептомана по имени Альтрон.Производство: США / Atomic Cartoons, Disney Jr., Marvel Animation, Marvel Entertainment, 	Marvel Studios Inc.Жанр: мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Майкл ДоудингАктеры: Тэлон Варбертон, Лорен Том, Стивен Тоболовски, Джон Стамос, Фред Таташиор, Гари Энтони Уильямс, Мо Коллинз, Джеки Гарри, Дэвид Кэй, Мэйсон Бломберг и другиеПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: русскийСубтитры: русские (на песни)Продолжительность: ~ 00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC55EFB52EAA7DAAF2AE63A1B99553246372437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812355   (7939) от 14.08.2025
-
-Стерилизован / Fixed (2025) WEB-DLRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7939.jpg" />
-</div>
-
-
-###  Подробнее
-
-История самого обычного и во всех отношениях хорошего пса Булла, влюбленного в соседскую собачку Хани. Однажды он узнает, что его собираются кастрировать, и произойдет это уже на следующее утро. Сообразительный бладхаунд решается на авантюру. Вместе с четвероногими соратниками — амбициозным боксером Рокко, таксой Фетчем, биглем Лаки и избалованной вниманием Хани (   Читать дальше...   )Производство: США, Бразилия / Lightstar Studios, Netflix, Renegade Animation, Sony Pictures Animation,Sony Pictures ReleasingЖанр: мультфильм, комедия, приключенияРежиссер: Генндий ТартаковскийАктеры: Идрис Эльба, Кэтрин Хан, Бек Беннетт, Адам Дивайн, Кари Уолгрен, Фред Армисен, Эрик Бауза, Бобби Мойнахан, Даран Норрис Шон Чиплок и другиеПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DD4174C4089E51D6D7A0748D441B3D4E2F72CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812428   (7889) от 14.08.2025
-
-Яблонька (1973) WEBRip [H.264/1080p-LQ] [Handmade AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочка в деревне ухаживает за яблонькой, а когда переезжает в городской дом, то яблоньку тоже перевозят на новое место.Производство: СССР / Рижская киностудияЖанр: мультфильм, короткометражка, кукольныйРежиссер: Арнольд БуровсСубтитры: ОтсутствуютПродолжительность: 00:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CD4C6CFDA3DD6441EABA6A9D15C3ED7FCDDC76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812652   (7714) от 15.08.2025
-
-Маленькая колдунья (1991) TCRip [H.264/1080p-LQ] [Handmade AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7714.jpg" />
-</div>
-
-
-###  Подробнее
-
-В праздник на волшебной горе Блоксберг собираются все ведьмы и колдуют. И Маленькой колдунье тоже хочется на бал, но ее не пускает туда старая тетка Румпумпель — она хочет сделать ее такой же злой и завистливой, как все ведьмы. Но Маленькая колдунья дружит с вороном Абраксасом, который учит ее делать добро. И вот вместо того, чтобы вредить людям, она начинает помогать (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Геннадий СокольскийАктеры: Армен Джигарханян, Сергей Цейц, Ирина Карташёва, Юрий Волынцев, Анатолий Баранцев, Мария Виноградова, Борис Новиков, Всеволод Ларионов, Ефим Кациров, Вячеслав БогачёвСубтитры: ОтсутствуютПродолжительность: 00:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6979AE90023A72173D72D49D22EF33844D05AF33
 ```
 
 https://mybot314.ru/tekegram_catalog/

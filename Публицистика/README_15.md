@@ -1,3 +1,31 @@
+###  Публикация: 1371745   (888677) от 01.04.2020
+
+Фронт великих держав против Гитлера (1941) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конференция представителей трех великих держав — СССР, Великобритании и Соединенных Штатов Америки, открывшаяся в Москве 29 сентября, закончила свои работы 1 октября.
+
+Конференция состоялась на основании совместного послания президента США Рузвельта и премьер-министра Великобритании Черчилля на имя Председателя Совета Народных Комиссаров СССР Сталина и в соответствии (   Читать дальше...   )Жанр: История, политология, экономика, публицистика, документалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C23C5826CC8556B7E4C9400F98C3F9B58931A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371737   (888590) от 01.04.2020
 
 В. И. Лебедев-Кумач и др. | Мы не простим [Слово ненависти к гитлеровским убийцам] (1941) [PDF]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888590.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888585.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888578.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888475.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886986.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886842.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886516.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886181.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885907.jpg" />
 </div>
 
 
@@ -245,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885795.jpg" />
 </div>
 
 
@@ -273,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884737.jpg" />
 </div>
 
 
@@ -299,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884653.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883176.jpg" />
 </div>
 
 
@@ -351,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882482.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882466.jpg" />
 </div>
 
 
@@ -405,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882297.jpg" />
 </div>
 
 
@@ -431,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881985.jpg" />
 </div>
 
 
@@ -458,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881212.jpg" />
 </div>
 
 
@@ -484,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880643.jpg" />
 </div>
 
 
@@ -510,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879287.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877320.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876831.jpg" />
 </div>
 
 
@@ -589,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876817.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876723.jpg" />
 </div>
 
 
@@ -641,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876586.jpg" />
 </div>
 
 
@@ -652,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A51FCBDA41DB42FA942A163CCDEBF23A0902AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373907   (876420) от 08.04.2020
-
-Уильям Бёрнс | Невидимая сила. Как работает американская дипломатия (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уильям Бёрнс, названный журналом The Atlantic «секретным дипломатическим оружием» США, состоял на службе Госдепартамента США при пяти президентах и десяти госсекретарях. За свою долгую карьеру Бёрнс имел отношение ко множеству значимых событий последних лет: операции «Буря в пустыне» в 1991 г., вторжению в Югославию в 1999 г., обсуждению расширения НАТО, ядерной (   Читать дальше...   )Жанр: История, Политология, ПублицистикаПеревод: Валерия БашкироваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D01B600386C8F4048AADA51DD83EFF6B209435
 ```
 
 https://mybot314.ru/tekegram_catalog/

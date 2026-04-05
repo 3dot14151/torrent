@@ -1,3 +1,138 @@
+###  Публикация: 288633   (922015) от 29.01.2011
+
+Ордер на смерть / Death Warrant (1990) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ван Дамм в роли офицера Луиса Берка, полицейского детектива, отправляется под видом осужденного в тюрьму "Харрисон", чтобы раскрыть серию убийств заключенных. В стенах тюрьмы он сталкивается с жестокостью сокамерников, с коррумпированными охранниками, со смертью и предательством всех мастей.
+Когда Берк узнает шокирующую тайну тюрьмы, он должен совершить дерзкий побег - его последний шанс вырваться из лап сотен осужденных головорезов, возглавляемых его кровным врагом.Жанр: БоевикРежиссер: Деран Сарафьян / Deran SarafianАктеры: Жан-Клод Ван Дамм /Jean-Claude Van Damme/, Роберт Гийом /Robert Guillaume/, Синтия Гибб /Cynthia Gibb/, Джордж Дикерсон /George Dickerson/, Патрик Килпатрик /Patrick KilpatrickПеревод: Двухголосный (закадровый) - канал НТВ
+Одноголосный (Андрей Гаврилов)
+Оригинал (ENG)Продолжительность: 01:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD07E8B35ED2E3604AC12BA15552639CA6B28875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 22593   (921790) от 22.01.2017
+
+Чужие / Aliens (1986) DVDRip [Special Edition]
+
+>>След.
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чужой - совершенный организм, идеальная машина для убийства, чье физическое превосходство над человеком сочетается с феноменальной жаждой уничтожения.
+Лейтенант Эллен Рипли и экипаж космического корабля `Ностромо` уже встречались однажды с такой тварью. В живых осталась только Эллен. Спасательную капсулу с Рипли, находящейся в анабиозе, после многих лет блуждания (   Читать дальше...   )Производство: США, ВеликобританияЖанр: ФантастикаРежиссер: Джеймс КэмеронАктеры: Билл Пэкстон, Сигурни Уивер, Лэнс Хенриксен.Перевод: Русский закадровыйПродолжительность: 02:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B8F92D64ADCD03F7624F76C314E06E04E3290A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988357   (920948) от 20.02.2016
+
+Подозревается доктор Рот / Verdacht auf einen Toten (1968) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_920948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Ганс Рот, ветеринар и директор конного завода 25 лет не видел своего друга детства Генриха Яна, живущего в Ганновере. После того, как он подал объявление о продаже свой машины, к нему на следующий день приходит неизвестный покупатель, который приносит ему весточку- фотографию, которую он подарил когда-то Генриху.
+После разговора с неизвестным доктор Рот звонит (   Читать дальше...   )Производство: ГДР,  Deutsche Film (DEFA)Жанр: Детектив, ШпионскийРежиссер: Райнер БэрАктеры: Каспар Эйхель, Бригитте Краузе, Альфред Рюкер, Ута Шорн, Леон Немчик, Гюнтер Зимон, Дитер Вин, Олег ГолубицкийПеревод: ДублированныйПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19203DD06D120A3DAA301502E9A1F19A552B4085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988362   (920897) от 20.02.2016
+
+Совершенно секретно / For eyes only (1963) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внешнеторговая компания «Конкордия» из западногерманского города Вюрцбург служит прикрытием для резидентуры американской разведки. Ее глава, майор Коллинз, получает секретный приказ приступить к реализации плана по дестабилизации обстановки в Восточном Берлине, чтобы вооруженные силы НАТО получили повод для вмешательства. Контрразведка ГДР знает об этом плане лишь (   Читать дальше...   )Производство: ГДР,  Deutsche Film (DEFA)Жанр: Детектив, ШпионскийРежиссер: Янош ВейчиАктеры: Джерри Вольф, Альфред Мюллер, Хельмут Шрайбер, Иван Палек, Ганс Люк, Вернер Лирк, Мартин Флёрхингер, Питер Маркс, Ева-Мария Хаген, Рольф ХеррихтПеревод: одноголосый профессиональныйПродолжительность: 01:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA7AAB2C9CC15CFBC8A9E4EDE473E11D94A7A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490240   (920686) от 19.08.2021
+
+Мэри Пикфорд. Скрипичный мастер из Кремоны / The Violin Maker of Cremona (1909) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920686.jpg" />
+</div>
+
+
+###  Подробнее
+
+В маленьком итальянском городке Кремона жил Таддео Феррари, скрипичный мастер и ученик Андреа Амати, самого известного мастера своего дела. Симпатичную дочь Феррари, Джаннину (Мэри Пикфорд), любил один из его учеников Сандро. Филиппо, юноша-калека и лучший ученик, также любил девушку чистой, святой любовью, но, осознавая свою непривлекательность, не рассчитывает (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Херберт Прайор, Мэри Пикфорд, Оуэн Мур, Дэвид Майлз, Гарри Солтер, Мэрион Леонард, Чарльз Эйвери, Клара Т. Брэйси, Джон Р. Кампсон, Артур В. ДжонсонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3487CB02A9FD6B83946F070F04E909DE69B5205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531975   (920115) от 23.01.2017
 
 Чужие (Режиссёрская версия) / Aliens (Director's Cut) (1986) HDRip
@@ -6,7 +141,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920115.jpg" />
 </div>
 
 
@@ -33,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919434.jpg" />
 </div>
 
 
@@ -60,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919231.jpg" />
 </div>
 
 
@@ -86,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919165.jpg" />
 </div>
 
 
@@ -112,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919014.jpg" />
 </div>
 
 
@@ -138,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918283.jpg" />
 </div>
 
 
@@ -164,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918245.jpg" />
 </div>
 
 
@@ -190,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918232.jpg" />
 </div>
 
 
@@ -216,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918227.jpg" />
 </div>
 
 
@@ -242,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917553.jpg" />
 </div>
 
 
@@ -268,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917155.jpg" />
 </div>
 
 
@@ -295,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917122.jpg" />
 </div>
 
 
@@ -321,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916723.jpg" />
 </div>
 
 
@@ -347,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916698.jpg" />
 </div>
 
 
@@ -373,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915585.jpg" />
 </div>
 
 
@@ -399,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915578.jpg" />
 </div>
 
 
@@ -426,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915527.jpg" />
 </div>
 
 
@@ -452,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914848.jpg" />
 </div>
 
 
@@ -478,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914047.jpg" />
 </div>
 
 
@@ -505,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913966.jpg" />
 </div>
 
 
@@ -531,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912493.jpg" />
 </div>
 
 
@@ -542,137 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C283E25E7E171F3AD85E8107761E82112D0C4E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097703   (912481) от 28.01.2017
-
-Бюро пропавших без вести / Bureau of Missing Persons (1933) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бутч Сондерс, дерзкий и бескомпромиссный детектив, был переведён из полиции в Отдел пропавших без вести. Когда молодая женщина просит его помочь найти ее мужа, он выясняет, что на самом деле она — некая Норма Филлипс, разыскиваемая полицией Чикаго за убийство своего мужа. Норма инсценирует самоубийство путём утопления и исчезает, и Сондерс заимствует труп из морга (   Читать дальше...   )Производство: США, First National Pictures Inc., Warner Bros. PicturesЖанр: Драма, Комедия, КриминалРежиссер: Рой Дель РутАктеры: Бетт Дэвис, Льюис Стоун, Пэт О’Брайен, Гленда Фаррелл, Аллен Дженкинс, Рут Доннелли, Хью Херберт, Алан Дайнхарт, Мерджори Гатесон, Тад АлександрПеревод: Одноголосый закадровыйПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E47A8EDBC55B2F7B3EF342312386C2FE27473B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491377   (912376) от 24.08.2021
-
-Мэри Пикфорд. Путь человека (Судьба) / The Way of Man (1909) WEBRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красотка Мэйбл счастлива в доме своих родителей, скоро должен вернуться из поездки любимый, жених. Она коротает время со своей подругой и кузиной - крошкой Винни (Мэри Пикфорд). Но пришла беда откуда не ждали. Вечером Мэйбл зажигала лампу и вдруг лампа взорвалась и обожгла девушку. Доселе милое лицо было обезображено шрамом. Девушка потрясена. Близкие утешают и подбадривают (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Артур В. Джонсон, Флоренс Лоуренс, Мэри Пикфорд, Флора Финч, Джеймс Кирквуд, Глэдис Иган, Кейт Брюс, Мэрион Леонард, Виолет Мерсеро, Дэвид МайлзПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:005CF4E760B869A640F07E2363FC6C1C162FA318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097844   (912236) от 28.01.2017
-
-Дикая Бара / Diva Bara (1949) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Бара с рождения осталась без матери, обстоятельства ее появления на свет люди связывали с колдовством, потому и слава о красавице Баре шла как о колдунье, приворожившей всех местных парней, сглазившей скотину и хулиганке. Бара от зари и до зари вкалывала по чужим хозяйствам, помогая людям и своему отцу-пастуху, бегала бесстрашно по полям-лесам, собирала ягоды (   Читать дальше...   )Производство: Чехословакия, Ceskoslovenský Státní FilmЖанр: ДрамаРежиссер: Владимир ЧехАктеры: Власта Фиалова, Яна Дитетова, Мария Брозова, Роберт Врхота, Ярослав Войта, Густав Хильмар, Ян Пивец, Йозеф КемрПеревод: ДублированныйПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142E2FDD4EFCE69E9DBCE09B60393BA867B55579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491291   (911909) от 24.08.2021
-
-Чикаго блюз / The Big Town (1987) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911909.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленьком городишке на Среднем Западе живет парень по имени Калли. Ему очень везет в игре в кости, и он мечтает попытать счастья в Чикаго, столице рок-н-ролла и блюза, где играют лучшие из лучших. Мечта Калли сбывается.
-За короткое время он обретает славу самого удачливого игрока большого города и знакомится с супружеской четой, владеющей стрип-клубом. Коул ведет (   Читать дальше...   )Производство: США / Albacore Productions Inc., Columbia Pictures CorporationЖанр: Триллер, Драма, МелодрамаРежиссер: Бен Болт, Харольд БеккерАктеры: Мэтт Диллон, Дайан Лэйн, Томми Ли Джонс, Брюс Дерн, Ли Грант, Том Скеррит, Сьюзи Эймис, Дэвид Маршалл Грант, Дон Фрэнкс, Дель КлоузПеревод: Многоголосый профессиональный, Екатеринбург АртСубтитры: АнглийскиеПродолжительность: 01:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33ED0C9DC3035CDDEFB3E75E7A0A6EA75CD966B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491617   (910696) от 25.08.2021
-
-Мэри Пикфорд. Ожерелье / The Necklace (1909) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это по существу экранизация новеллы Мопассана. Напомню, кто подзабыл. Луиза красивая, образованная и тщеславная девушка. Ей бы блистать в высшем свете, но родилась она в скромной чиновничьей семье и замужем за обычным клерком. Любящий муж делает все, что можно чтобы сделать ее счастливой, но что он может... И тут удача - он раздобыл приглашение на великосветский (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Роуз Кинг, Херберт Прайор, Кэролайн Харрис, Мэри Пикфорд, Чарльз Эйвери, Чарльз Инсли, Артур В. Джонсон, Джеймс Кирквуд, Флоренс Лоуренс, Стефани Лонгфеллоу и др.Перевод: НемойСубтитры: ОтсутствуютПродолжительность: 00:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE8D744278A11C5976D6B9648930E8B8DD53E5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

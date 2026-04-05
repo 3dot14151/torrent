@@ -6,7 +6,7 @@ Diane Schuur - Love Songs (1993) [FLAC|Lossless|image + .cue] <Smooth Jazz, Cool
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561825.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Charnett Moffett - New Love (2021) Motema Music [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561770.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Horace Parlan - Seven Classic Albums (1960, 1961) 4CD, 2012, Real Gone Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561761.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Paolo Fresu & Omar Sosa - Alma (2011) Bonsai Music [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561755.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lee Konitz - The Verve Albums Collection (1955 - 1961) 4CD, 2019, Enlightenment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561677.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Pat Metheny - Secret Story (1992) [FLAC|Lossless|image + .cue] <Post Bop, Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561676.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Susie Webb - Bossa Loves Abba (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561527.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Earth, Wind & Fire - The Real... Earth, Wind & Fire (The Ultimate Collection) (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561315.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ OU - Scrambled! (2015) [FLAC|tracks+.cue]<Contemporary Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561045.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sam Most - The Amazing Mr. Sam Most (1957) /2014, Solid Records/[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561044.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Cedar Walton - Eastern Rebellion (1975) /2015, Solid Records/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561043.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ketil Bjornstad - 21 albums (1990-2011) [FLAC/APE|Lossless] <Contemporary Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560958.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Hadley Caliman - Hadley Caliman (1971) 2014, Boplicity Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560517.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Keith Jarrett, Gary Peacock, Jack DeJohnette - After The Fall (1998) 2CD, 2018, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560456.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Vladimir Tolkachev (Владимир Толкачев) Big Band & John Downes (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560207.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Barney Wilen - French Ballads (1987) Ida [WavPack|Lossless|image + .cue] <Mainst
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560205.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Artie Shaw - Irresistible Swing (1945, 1946) 1994, Drive Archive [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560204.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Maurice El Medioni meets Roberto Rodriguez - Descarga Oriental: The New York Ses
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560202.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Christian McBride Band - Sci-Fi (2000) Grammy [FLAC|Lossless|image + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560075.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Buck Clayton - How Hi The Fi & Jumpin' At The Woodside (1953 - 1955) 2CD, 2008, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559969.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ernie Wilkins - The Everest Years (1959, 1960) 2005, Universal[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559961.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Johnny McLaughlin - Electric Guitarist (1978) Remaster, 1990, CBS [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559958.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ V.A. - Jazz Sexiest Ladies (2017) 3CD [FLAC|Lossless|image + .cue] <Vocal Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559840.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Mahavishnu Orchestra - Birds Of Fire (1973) Columbia, Late 1980s [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559829.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Mahavishnu Orchestra With The London Symphony Orchestra, Michael Tilson Thomas -
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559682.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Marion Brown - Vista (1975) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Avant-Gard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559285.jpg" />
 </div>
 
 

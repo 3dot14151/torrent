@@ -1,3 +1,160 @@
+###  Публикация: 1805622   (11356) от 16.07.2025
+
+Соловей против Муромца (2025) WEBRip [H.264/1080p]
+
+>>След.
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно Соловью-Разбойнику удалось хитростью победить Илью Муромца. Он переписал историю, присвоив себе все подвиги и славу богатыря. Благодаря эликсиру бессмертия Соловей дожил до наших дней. И теперь он хочет оживить темного бога Велеса, которому тогда продал душу. Сегодня лишь семья наших героев знает эту тайну. Отцу героев, профессору Киселеву, удается найти (   Читать дальше...   )Производство: Россия / Карго ФильмЖанр: фантастика, приключения, фэнтези, семейныйРежиссер: Карен ОганесянАктеры: Владимир Любимцев, Никита Ефремов, Антон Васильев, Елена Валюшкина, Тимофей Кочнев, Марк-Малик Мурашкин, Александра Тихонова, Юрий Нифонтов, Вероника Журавлева, Илья ЛукашенкоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1291E4C09EE428448FDD0803B87C18E8E8880204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808368   (10442) от 25.07.2025
+
+Диодорова. Против течения (2024) WEBRip [H.264/1080p]
+
+>>Горячие новинки
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10442.jpg" />
+</div>
+
+
+###  Подробнее
+
+История жизни и карьеры российской спортсменки Анастасии Диодоровой.
+Настя Диодорова, 13-летняя девочка из Якутии, после несчастного случая потеряла обе руки. Пройдя через множество болезненных операций и научившись заново выполнять самые простые действия, она находит опору в плавании. Ее мама испытывает чувство вины и пытается уберечь дочь от жестокости внешнего (   Читать дальше...   )Производство: Россия | Сахафильм, Al-LuukЖанр: Драма, спорт, биографияРежиссер: Сандал БаишевАктеры: Мария Иванова, Ирина Никифорова, Федот Львов, Татьяна Арнтгольц, Александра СофронееваСубтитры: ОтсутствуютПродолжительность: 01:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F062D57A558EF843DFE212393807F5E846454F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808737   (10232) от 27.07.2025
+
+Больше чем футбол (2025) WEBRip [H.264/1080p]
+
+>>След.
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10232.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Кубок Европы по футболу вместо дисквалифицированной из-за очередной выходки фанатов сборной Англии едет ранее вылетевшая и расформированная сборная России. У Федерации футбола России есть всего две недели, чтобы собрать команду. К этой задаче привлекают самую скандальную фигуру отечественного футбола — тренера Сорокина, который приглашает в сборную футболистов, (   Читать дальше...   )Производство: Россия / ДрайвЖанр: комедия, спорт, драмаРежиссер: Виктор ДементАктеры: Алексей Воробьёв, Иван Охлобыстин, Александр Самойленко, Роман Мадянов, Алексей Гуськов, Люся Чеботина, Марина Ворожищева, Дмитрий Павленко, Валерия Федорович, Иван АлексеевПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F50BDC1E0ADBC87900D6B7BBB5CAACAEAD0DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809569   (9815) от 31.07.2025
+
+Кукушка (2024) WEBRip [H.264/1080p]
+
+>>Горячие новинки
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9815.jpg" />
+</div>
+
+
+###  Подробнее
+
+После долгого отсутствия Аркадий возвращается в родительский дом и восстанавливает надгробия предков. Он окунается в воспоминания об ужасных событиях детства и вскоре обращает внимание на странного соседа, который, как выяснится, скрывает страшную тайну.Производство: Россия / Amma Production, КинологистикаЖанр: ужасыРежиссер: Евгений НиколаевАктеры: Иван Шамаев, Николай Солдатов, Саяна БанзаракцаеваПеревод: Не требуется (русский)Язык озвучки: русский, якутскийСубтитры: русскиеПродолжительность: 01:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A10C67F1A7017DF4BBDC384A6E88CC939C3A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809642   (9603) от 02.08.2025
+
+Прошлого не забыть (2024) WEBRip [H.264/1080p]
+
+>>Горячие новинки
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет картины разворачивается в Калининграде и рассказывает историю подростка Максима, который неожиданно оказывается втянутым в опасные бандитские игры.Производство: Россия / Легион-ЗападЖанр: драма, криминалРежиссер: Евгений ЛисеенкоАктеры: Пётр Занин, Юлия Дегтяренко, Владислав Игумнов, Василий Боярский, Рамазан Абдулманапов, Лев Протопопов, Екатерина Якина, Игорь Солдатенко, Сергей Павлов, Андрей РуденкоПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBFAF90FE6A04D6F6CCC4B4227C02F8990B5F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810956   (8983) от 08.08.2025
+
+Маленький шеф (2025) WEBRip [H.264/1080p]
+
+>>Горячие новинки
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Илья живет с родителями и мечтает стать известным шеф-поваром, когда вырастет. Однажды его мама с папой сильно ссорятся и начинают думать о расставании. Мальчик пускается в гастрономическую авантюру вместе со своей подругой, чтобы спасти находящуюся на грани развода семью. Илья с помощью своих кулинарных навыков попытается найти рецепт семейного счастья.Производство: Россия / КиноФирмаЖанр: комедияРежиссер: Илья Чижиков, Антон ЧижиковАктеры: Роман Курцын, Ольга Лерман, Мирон Проворов, Роман Мадянов, Елена Валюшкина, Полина Бах, Ирина Чериченко, Лянка Грыу, Анатолий Ронжин, Платон ВоиновПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A080AC000B81D397B701EB816307F080A202012F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810943   (8981) от 08.08.2025
 
 Кукольный дом (2024) WEBRip [H.264/1080p]
@@ -6,7 +163,7 @@
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8981.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6713.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6705.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6353.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6222.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5442.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5424.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5104.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4899.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4766.jpg" />
 </div>
 
 
@@ -266,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4756.jpg" />
 </div>
 
 
@@ -292,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4247.jpg" />
 </div>
 
 
@@ -318,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4210.jpg" />
 </div>
 
 
@@ -344,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3988.jpg" />
 </div>
 
 
@@ -370,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2886.jpg" />
 </div>
 
 
@@ -396,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2867.jpg" />
 </div>
 
 
@@ -422,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1749.jpg" />
 </div>
 
 
@@ -448,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_918.jpg" />
 </div>
 
 
@@ -474,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_451.jpg" />
 </div>
 
 
@@ -500,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_433.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1805540   (12332) от 06.07.2025
+
+Екатерина Мурашова, Наталья Майорова | Когда бабушка и дедушка были маленькими (2017, 2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга предназначена не просто для семейного чтения, но для совместного времяпрепровождения — бабушек и дедушек, прабабушек и прадедушек с их внуками и правнуками. Она поможет вернуться в прошлое, многое вспомнить и пережить вновь. Поделиться с маленькими родными людьми радостным и печальным, серьёзным и смешным, важным и мимолётным. Рассказать историю человека, (   Читать дальше...   )Жанр: детскаая литератураИздательство: ПоляндрияФормат: PDFКачество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD44161A2DABB5300C91841F59F139E27E124CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806362   (11704) от 12.07.2025
 
 А. Розумчук | Мумии и пирамиды. Энциклопедия (2020) [PDF]
@@ -6,7 +32,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11704.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5496.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5348.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4950.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4316.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4279.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3587.jpg" />
 </div>
 
 

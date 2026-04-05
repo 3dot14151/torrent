@@ -6,7 +6,7 @@ Sarah Vaughan - Sassy Swings Again (1967) Mercury [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39502.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ann Hampton Callaway - From Sassy to Divine: The Sarah Vaughan Project (2014) Sh
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39501.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sarah Vaughan - Compact Jazz: Sarah Vaughan Live! (1987) Mercury[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39500.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Steps Ahead - Magnetic (1986) 2013, Elektra [FLAC|Lossless|tracks + .cue] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39498.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sarah Vaughan & Friends - A Night Of Sass & Brass (1986) 2006, Immortal [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39496.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sarah Vaughan - Complete Musicraft Master Takes (2000) 2CD, Jazz Factory [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39495.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sarah Vaughan - A Time In My Life (1971) 1987, Mobile Fidelity Sound Lab [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39492.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Papik & Stefy Gamboni - Vita (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39484.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jazzamor - Reworks (20 Years of Jazzamor) (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39482.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sarah Vaughan - The Jazz Collector Edition (1940-e) 1991, LaserLight [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39475.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sarah Vaughan - The Essential Sarah Vaughan 1958 - 1964 (1992) Verve Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39467.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Gene Ludwig - Pat Martino Trio - Young Guns (1968, 1969) 2014, HighNote [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39461.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Boney James - Slow Burn (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39453.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Sarah Vaughan - The Divine One (1961) 2017, Hallmark [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39391.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sarah Vaughan & Quincy Jones - You're Mine You (1962) 2016, Jazz Images [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39390.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sarah Vaughan & Clifford Brown - Sarah Vaughan With Clifford Brown (1954) 2003, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39388.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Balduin - Electro Swing Instrumentals 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39372.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Joseph Capalbo, Vincent Nicotina, Kristin Chambers - Electro Swing 2 (2024) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39369.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Hey Alan! - Electro Swing Sugar (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39363.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mad Alice Productions - Latin Electro Swing (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39361.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sarah Vaughan - The Many Moods Of Sarah Vaughan (1961) 1998, Ember Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39359.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sarah Vaughan - The Singles Sessions (1990) Capitol [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39356.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sarah Vaughan - In The Land Of Hi-Fi (1955) 2001, Universal [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39355.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sarah Vaughan - Live in Berlin (1969) 2016, Jazzline [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39354.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sarah Vaughan - The Definitive Sarah Vaughan (1954 - 1967) 2002, Verve Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39352.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Lee Konitz - In Paris And London (1995) Hobby & Work [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39285.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1051902   (530502) от 12.09.2016
+
+Уведомление о преступлении / Yokokuhan / Prophecy (2015) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отдел по расследованию киберпреступлений токийской полиции находит в Интернете ролик, в котором некто в бумажном пакете, сделанном из газеты, сообщает о будущем пожаре на фабрике. Вскоре обнаруживаются новые сообщения о готовящихся преступлениях. Видео разместил Гецу — глава группы Синбунси. Он работал в IT-компании и был несправедливо уволен. Дело поручают вести (   Читать дальше...   )Производство: ЯпонияЖанр: Детектив, ТриллерРежиссер: Накамура ЁсихироАктеры: Икута Тома, Тода Эрика, Судзуки Рёхей, Аракава Ёсиёси, Хамада Гаку, Кубота МасатакаПеревод: Многоголосый закадровый, любительский (STEPonee)Язык субтитров: Русский (на надписи), английский (внешние)Продолжительность: 01:59:06Реклама: Отсутствует.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661BAED24484BD9DB3ECFFF8005F0573AA0CD09B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 242591   (530353) от 05.07.2019
+
+Ручной замок Шаолинь / Shaolin Handlock / Shi zi mo hou shou (1978) DVDRip [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил на свете простой китайский парень Ли Шиньенг, вроде и не было в нём ничего примечательного, если бы не его папа: известный мастер Ли Бэй, создавший стиль «Шаолиньских рук-замков». Но однажды мастер Бэй был убит. Проведя расследование, Шиньенг узнал, что убийца отправился в Бангкок и бросился за ним в погоню. Прибыв на место, мститель узнаёт улицу и номер борделя, (   Читать дальше...   )Производство: Гонконг / Shaw BrothersЖанр: Боевик, Кунг-ФуРежиссер: Менг Хуа ХоАктеры: Дэвид Чианг, Пинг Чен, Лье Ло, Уай-Ман Чан, Lak Apichat, Шен Чан, Хсю Хсиа, Кара Хуи, Куанг Ло, Вэй ЛоПеревод: Авторский одноголосый (Сергей Кузнецов)Продолжительность: 01:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:522DD444766B62801F8027EE8C9783E85483EE56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533894   (530130) от 11.08.2012
 
 Рейд / Serbuan maut / The Raid: Redemption (2011) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530130.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530034.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529104.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529100.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529093.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529092.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528892.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527206.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525888.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524777.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524774.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524451.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524428.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524337.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523573.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522916.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522913.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522648.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520857.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520791.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519167.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519160.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517883.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515970.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88E461E6FA93F9110484B2A6D6AA116FCFAAA2C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242201   (515946) от 21.08.2018
-
-Зимний цветок / Fuyu no hana / Winter's Flower (1978) HDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кано — якудза. Он должен убить Мацуоку, который предал их босса. Кано знал, что у Мацуоки была трёхлетняя дочь, поэтому прежде, чем сдаться полиции, он попросил, чтобы его человек, которому он доверял, заботился о ней. В тюрьме Кано продолжал посылать письма девочке, маскируясь под дядю из Бразилии. 15 лет спустя Кано выходит из тюрьмы. Бывший якузда настроен жить, (   Читать дальше...   )Производство: Япония / Toei TokyoЖанр: Драма, КриминалРежиссер: Ясуо ФурухатаАктеры: Кэн Такакура, Кимико Икегами, Киня Китаодзи, Мицуко Байсё, Сусуму Фудзита, Нэндзи Кобаяси, Йоичи Миура, Исао Нацуяги, Масуми Окада, Сёити Одзава, Куниэ Танака, Минори Тэрада, Хидэдзи ОтакиПеревод: Одноголосый закадровый, авторский (Андрей Дольский)Субтитры: АнглийскиеПродолжительность: 02:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210C62F1B80B66938A1C4B581FC4374D71BAB5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315068   (515887) от 17.07.2019
-
-Боец с шестом / Wu Lang ba gua gun / The Eight Diagram Pole Fighter (1984) HDRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестеро братьев Янг и их отец — уважаемые генералы, но их подставляет мстительный генерал Пан Мей и в суровой битве погибают все мужчины семьи, кроме двоих. Один из них возвращается домой и сходит с ума, второй обривается в монахи, однако не оставляет надежды когда-нибудь отомстить за погибших братьев и отца.Производство: Гонконг /  Shaw BrothersЖанр: боевик, драмаРежиссер: Лю Чя-ЛянАктеры: Гордон Лю, Шенг Фу, Лили Лай, Кара Хуэй, Юн Чин-Чин, Джонни Ван, Квок Кеунг Чан, Chan-Peng Chang, Lien-Ping Chang, Ming-Wei ChenПеревод: Авторский (Сергей Кузнецов)Субтитры: ОтсутствуютПродолжительность: 01:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C412A6AF8E56EF36B65C2331856CB0052C5AAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

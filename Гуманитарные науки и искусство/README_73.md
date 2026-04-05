@@ -1,85 +1,3 @@
-###  Публикация: 1242773   (496199) от 25.08.2018
-
-А.А. Максимов | Очерки по истории борьбы за материализм в русском естествознании (1947) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая работа ставит себе задачей в доступной форме проследить историю борьбы за передовое, материалистическое мировоззрение в дореволюционной России в области естествознания.
-
-Исходным теоретическим положениям, на которых построена книга, посвящены «Введение» и раздел пятый «Ленин и борьба русских естествоиспытателей за научное мировоззрение».Жанр: История, науковедение, естествознание, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F6EB59E4D4101B4E664836C5CB0CE50B0D9DA19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242720   (496009) от 25.08.2018
-
-Н.Я. Борисов (ред.) | Разум против религии. Блокнот агитатора. Специальный выпуск, посвященный атеистической пропаганде (1965) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник небольших статей различного содержания, посвященных атеистической пропаганде в СССР 60-х годов.
-
-Необходимо систематически вести широкую научно-атеистическую пропаганду, терпеливо разъяснять несостоятельность религиозных верований, возникших в прошлом на почве придавленности людей стихийными силами природы и социальным гнетом, из-за незнания истинных причин (   Читать дальше...   )Жанр: История, политология, науковедение, религиоведение, искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81144AC34BF3C451198A29FCDD8BC7A9BD5CE55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543032   (495797) от 05.09.2012
-
-Ю.Т. Ивлев | Государственный Русский музей.  Живопись. 1-я половина XIX века. [1980] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несброшюрованный альбом с репродукциями 20 картин из собрания Государственного Русского музея. Данный альбом состоит из цветных репродукций с произведений, созданных русскими художниками в 1-ой половине XIX века.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B836206881AD5B1E0AD872996A6288804A9EA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053643   (495661) от 18.09.2016
 
 Юваль Ной Харари | Sapiens. Краткая история человечества (2016) [FB2]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495661.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495169.jpg" />
 </div>
 
 
@@ -142,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495052.jpg" />
 </div>
 
 
@@ -168,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494888.jpg" />
 </div>
 
 
@@ -194,7 +112,7 @@ Claudius Ptolemaeus и др. | Geographia Universalis, Vetus Et Nova, Complecten
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493118.jpg" />
 </div>
 
 
@@ -220,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492988.jpg" />
 </div>
 
 
@@ -247,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492385.jpg" />
 </div>
 
 
@@ -273,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492142.jpg" />
 </div>
 
 
@@ -299,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492014.jpg" />
 </div>
 
 
@@ -325,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492010.jpg" />
 </div>
 
 
@@ -351,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491690.jpg" />
 </div>
 
 
@@ -377,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491106.jpg" />
 </div>
 
 
@@ -403,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490213.jpg" />
 </div>
 
 
@@ -429,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490097.jpg" />
 </div>
 
 
@@ -455,7 +373,7 @@ Traditional henna designs (Традиционные рисунки хной) [20
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489303.jpg" />
 </div>
 
 
@@ -481,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488732.jpg" />
 </div>
 
 
@@ -507,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488641.jpg" />
 </div>
 
 
@@ -533,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488194.jpg" />
 </div>
 
 
@@ -559,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487031.jpg" />
 </div>
 
 
@@ -585,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486316.jpg" />
 </div>
 
 
@@ -611,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486254.jpg" />
 </div>
 
 
@@ -637,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486239.jpg" />
 </div>
 
 
@@ -665,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486162.jpg" />
 </div>
 
 
@@ -676,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:534C62A5F0CB4D60FD1A560928BBF637405B0F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936369   (486158) от 16.09.2015
+
+И. И. Анисимов и др. (ред.) | Современные буржуазные концепции истории всемирной литературы (1967) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486158.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике впервые критически рассматриваются с позиции марксистского литературоведения  концепции, сложившиеся за последние годы буржуазной науке. Авторы не только критикуют концепции буржуазных ученых, но и позитивно трактуют многие важнейшие вопросы, необходимые для  понимания общих закономерностей развития мировой литературы (границы понятия «современность»,  (   Читать дальше...   )Жанр: История, политология, литературоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97263607749825887FEFA5C989E346214B6BD7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937248   (486155) от 16.09.2015
+
+И. М. Нахов | Киническая литература (1981) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486155.jpg" />
+</div>
+
+
+###  Подробнее
+
+В работе впервые в нашей науке вводится понятие кинической литературы, отразившей мироощущение демократических слоев общества, и прослеживается история ее развития от истоков (конец V-IV в. до н.э.) до заката античности. Читатель познакомится с творчеством таких замечательных кинических поэтов и писателей, как Сотад, Кратет, Керкид, с сочинениями Антисфена, характером (   Читать дальше...   )Жанр: История, философия, литературоведение, прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D08EFABBB0855BC7A343B4E439792AC65C7B692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937515   (486151) от 16.09.2015
+
+М. П. Евсеев | В. И. Ленин - критик псевдосоциализма (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486151.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге систематизированы и рассмотрены в плане истории экономической мысли основные критические выступления В. И. Ленина против буржуазных и мелкобуржуазных теорий социализма, а также против зарождавшейся «советологии». Книга представляет интерес для изучающих и пропагандирующих ленинское теоретическое наследие, политэкономию социализма и историю экономических (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A6AB318136C6961C89B09EF605CD1B60AC00615
 ```
 
 https://mybot314.ru/tekegram_catalog/

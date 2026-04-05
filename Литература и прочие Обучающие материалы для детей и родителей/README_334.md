@@ -1,3 +1,57 @@
+###  Публикация: 1079530   (294199) от 04.12.2016
+
+Ф. Жанузакова (сост.) | Казахские народные сказки (1982) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки - замечательный образец устного поэтического творчества казахского народа, страницы его истории, отражающие быт, обычаи, нравы и традиции степного кочевника, заключающие в себе драгоценные жемчужины народной мудрости, остроумия, находчивости, душевной щедрости.
+Мы узнаем из них о тяжелом и непосильном труде народа, о его вековой ненависти к своим угнетателям, (   Читать дальше...   )Жанр: Детская проза, СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58496872AFA7865455177835E2DFD66B91DCFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 421669   (294035) от 11.12.2011
+
+А.Р. Куаншкалиева | Физкультурные праздники для дошкольников (2008) [JPEG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Подвижные Игры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294035.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособие вошли сценарии физкультурных праздников с использованием акробатических упражнений, пластических композиций, ритмической гимнастики, созданных на основе программы "Старт" Л.В.Яковлевой и Р.А.Юдиной.
+Пособие адресовано воспитателям, руководителям физического воспитания в дошкольных учреждениях, педагогам дополнительного образования, работающим (   Читать дальше...   )Жанр: Пособие для педагоговФормат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D789B0D78D055A44B98655B5E7DDF21F35C7CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 847601   (293799) от 06.12.2014
 
 Виталий Бианки | Мурзук (1930) [PDF]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293799.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293734.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293595.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293242.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293169.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292964.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292865.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292851.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292209.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292046.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291966.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291963.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291887.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291807.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291737.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291719.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291451.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291349.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291339.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291321.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291279.jpg" />
 </div>
 
 
@@ -570,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290989.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290882.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290872.jpg" />
 </div>
 
 
@@ -634,60 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3175500E8DCF1C8F3AD2E26692291E625F9429C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963127   (290750) от 06.12.2015
-
-Коллектив | Юный техник №7 (2015) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290750.jpg" />
-</div>
-
-
-###  Подробнее
-
-В МГТУ имени Н. Э. Баумана прошел очередной, 24-й по счету смотр работ участников Всероссийского форума «Шаг в будущее». На выставке вместе с другими посетителями побывал и наш специальный корреспондент Станислав Зигуненко. И вот что там увидел.
-«Настоятельно просим вас покинуть мост!» — снова и снова раздается по радиотрансляции жестяной голос диктора. И как-то (   Читать дальше...   )Жанр: Научно-познавательный журналФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71F7FB77E7AB192FB62622E72310050B1FD7422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 732579   (290689) от 10.12.2013
-
-Подшивка журналов | Мамино солнышко [5 номеров] (2010...2013) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красочный журнал для малышей от 2 до 5! Рубрики по развитию внимания, логики, игры с родителями, мелкая моторика, изучение букв, раскраски с заданием, сказкотерапия, аппликации... представлены в игровой форме и разработаны по научным методикам.
-Журнал "Мамино Солнышко" награжден дипломом VII Национального конкурса печатных средств массовой информации "Золотая Литера" в номинации "Лучшее детско-юношеское издание".Формат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2CDF9D5539A2CCC68B373BEADF5C6CF9B97A16
 ```
 
 https://mybot314.ru/tekegram_catalog/

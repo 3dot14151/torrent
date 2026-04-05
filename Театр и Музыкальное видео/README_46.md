@@ -6,7 +6,7 @@ Al Bano & Romina Power - Liberta! (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771275.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771075.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771069.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771053.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Adriano Celentano - Greatest Video. Vol.2 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771006.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ VA - Золотая коллекция Ретро (2006) 4xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770885.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Весенний марафон № 163 / Видеоклипы (Заруб�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770671.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770425.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769165.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769079.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769049.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769048.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768944.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768650.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Paul Rodgers - Free Spirit (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768470.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768350.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768325.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768323.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768286.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Depeche Mode - Live Spirits / Spirits in the Forest (2020) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768252.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767613.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ King Diamond - Songs for the Dead Live (2019) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767563.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767559.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767327.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767256.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Eurythmics - Peacetour (1999) DVD9 <Pop Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767212.jpg" />
 </div>
 
 

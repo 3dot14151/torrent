@@ -1,3 +1,119 @@
+###  Публикация: 113254   (247694) от 02.11.2025
+
+Deadушки - ИСКУССТВО КАМЕННЫХ СТАТУЙ (1996) [FLAC|Lossless|tracks] <drum'n'bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Искусство каменных статуй	5:26
+02.	Парашютист	4:27
+03.	Солги мне	5:42
+04.	Шумела - гремела	4:33(   Читать дальше...   )Жанр: drum'n'bass
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB221B7A1DE04868311B936C52A8DC9FAA08AC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 110916   (247548) от 16.06.2023
+
+DJ Грув - Ты не со мной (2008) [MP3|320 kbps]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты Не Со Мной (при уч. Иракли,Гарик DMC B,Батишта)
+02. Счастье Есть 2008
+03. Forever Dancing (при уч. А. Чумакова)
+04. I Want You (при уч. Audio DJs(Android,M.Pravda)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7CCBA4EFCA0DF0000AE44AC12BFA272330167F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 16500   (247534) от 17.06.2023
+
+DJ Грув - Последние Киноремиксы (2007)
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Вокзал прощания из к/ф "17 мгновений весны"
+02 - Камыш 2007
+03 - Прелюдия из к/ф "9 рота"
+04 - Вальс из к/ф "Мой ласковый и нежный зверь"(   Читать дальше...   )Жанр: electronic
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A99B58489A1BEE274BFC71173C6EE5AC85ED57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 424923   (247304) от 28.06.2023
+
+Scooter - Greatest Hits (2011) [MP3|320 kbps] <Progressive, Techno>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247304.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 :Жанр: Progressive/TechnoПродолжительность: 01:18:50
+
+ 01. Weekend! [03:37]
+ 02. The Night [03:26](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C81FB568080DF2E87A71DD05F5442D369820A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833253   (246228) от 01.11.2025
 
 VA - Club Paradise (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -6,7 +122,7 @@ VA - Club Paradise (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246228.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Hot Summer Vibes - Ibiza Session Volume 2 (2025) [MP3|320 Kbps] <House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246136.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Ibiza Winter Session 2026 (Late Night Techno Kisses) (2025) [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246114.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Armin van Buuren - A State Of Trance 1249 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246103.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Ibiza Winter Session 2026 (The Tech House Rockets) (2025) [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246093.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Ori Uplift - Uplifting Only Episode 664 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246082.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - A State of Trance - Classics Top 10, Vol. 10 (2025) [FLAC|Lossless|WEB-DL|t
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246074.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Miami Sessions 2023 (Mixed by Milk & Sugar) (2023) [MP3|320 Kbps] <House, D
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246067.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Uplifting Only Top 15: January 2023 (Extended Mixes) (2023) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246057.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Chris Wonderful - Music for Lovers, Vol. 1 (2013) Yoola, 2020 [FLAC|Lossless|WEB
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246007.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Alexander Popov - Adagio (2021) Singles [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245993.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ VA - World Of Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245971.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ VA - Chillout Lounge 2021 [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245806.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ VA - Progressive Dreamland (2023) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245761.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ VA - Lovely001 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245731.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ Metropolis - Metropolis (2018) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245709.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ LDA - Shattered Feelings. (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245670.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Hocico - HyperViolent (2022) 2xCD [FLAC|Lossless|image + .cue] <EBM, Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245667.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ VA - A Chillout Affair (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245658.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Absent - Beaufort (2020) Airvent [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Do
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245654.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ VA - Sublime Drum & Bass, Vol. 02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & B
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245590.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ VA - Exotic Paradise Vol.1 (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245546.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ VA - Exotic Paradise Vol.1 (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6133A0BD6C355EC88212C67E556D106757F37F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630572   (245512) от 02.05.2023
-
-Roger Shah & Ambedo - Tribute To Earth (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Shah & Ambedo - Tribute To Earth (Mixed) [6:34]
-02. Roger Shah & Ambedo - Sun And Moon (Mixed) [5:41]
-03. Roger Shah & Ambedo - Oceans (Mixed) [5:39]
-04. Roger Shah & Ambedo & Yélow feat. Capri - The Greatest Gift (Mixed) [6:19](   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4E32522EFB145A13B10161E00266D86F99F273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449392   (245321) от 21.02.2021
-
-Tiesto - Tomorrowland Friendship Mix (2021-02-18) [MP3|320 Kbps] <House, Future House, Bass House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - The Business
-02. KREAM - Take Control
-03. VINNE ft. Thayana Valle - Clothes Off
-04. Imanbek & GOODBOYS - Goodbye (GOODBOYS VIP Edit)(   Читать дальше...   )Жанр: House, Future House, Bass HouseПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E00B5CB87855FD39B9A8D8513D2B650BC3B5501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631177   (245264) от 04.05.2023
-
-VA - Spring Break Miami 2023: Best Of Dance & House (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teknova - Weekend 2K23 (Original Mix) [2:15]
-02. Deep Emotion & Dani Corbalan - Now You're Gone (Original Mix) [2:46]
-03. MaxRiven - Back To The 2000s (Original Mix) [2:28]
-04. Stephan F & Ya-Ya - Feel The Vibe (Original Mix) [2:47](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF7342C8CA5E897595E72BBB0A527E4C0B234D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631155   (245244) от 04.05.2023
-
-VA - Best Essentials Hype SFR (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noise Generation - Tulum Mantra (Original Mix) [8:43]
-02. ATIK ATH - Atermon (Focus FL Remix) [7:17]
-03. Daniel Testas - Koko (Zy Khan Remix) [7:28]
-04. Nick Mason - Dreams Stay Dreams (Original Mix) [8:24](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3CBE372C7E199857F433025F7C8C5D8581799DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

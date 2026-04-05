@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1863367   (1063948) от 
+
+TutorPlace, Александр Монетов | Моушн-дизайнер (2026) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите создавать динамичные ролики, которые цепляют внимание с первых секунд и выглядят профессионально? Курс по моушн-дизайну поможет превратить идеи в визуальные истории, освоить анимацию и уверенно работать с графикой для видео, брендов и цифровых проектов!Производство: TutorPlaceЖанр: Моушн-дизайнЯзык озвучки: РусскийПродолжительность: 05:02:16Реклама: Сторонние вставки и наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB6FB555137A8D6CCE9F35A1D14250E9F702514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862439   (1063131) от 
+
+Школа дизайна Виктора Дембовского, Виктор Дембовский | Дизайн общественных помещений (2025) WEB-DL, PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ключевые навыки проектирования офисных помещений, ресторанов и выставочных стендов — 3 направления с максимальным финансовым и репутационным потенциалом для дизайнера.Производство: Школа дизайна Виктора ДембовскогоЖанр: видеокурс, обучающий курс, дизайнЯзык озвучки: русскийПродолжительность: 132:01:49Реклама: наложение на видео (плашка спонсоров)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB5A38F87AFE552C1797F6322755AE4D3D84DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860916   (1062220) от 
 
 Светлана Баулина | Инженерные коммуникации в ArchiCAD: всё, что нужно знать дизайнеру (2025) PCRec [AD] [RU]
@@ -7,7 +59,7 @@ https://t.me/izofen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062220.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ TutorPlace, Анастасия Газукина | Акварельная жив�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061299.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ TutorPlace, Александр Воеводов | Текстурирование
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1060990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1060990.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059797.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ TutorPlace, Алёна Цветкова | Как стать иллюстрато
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059365.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058669.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Marker School, Екатерина Пластинина | Базовый курс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058147.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ TutorPlace, Дарина Костина | Adobe InDesign (2024) PCRec [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058067.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Game Asset Workflow - A Complet
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055724.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Creative Shrimp, Gleb Alexandrov | EEVEE Realistic Lighting and Rendering (2025)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055723.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Amamschool, Анастасия Масленко, Анастасия Моисее
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054811.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054768.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053674.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053673.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053520.jpg" />
 </div>
 
 
@@ -412,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053519.jpg" />
 </div>
 
 
@@ -440,7 +492,7 @@ Marker School, Анастасия Агеева | Базовый курс гра�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052058.jpg" />
 </div>
 
 
@@ -466,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050040.jpg" />
 </div>
 
 
@@ -493,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049515.jpg" />
 </div>
 
 
@@ -522,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049514.jpg" />
 </div>
 
 
@@ -549,7 +601,7 @@ Marker School, Екатерина Пластинина | Bella Grafica! Архи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049488.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049345.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049344.jpg" />
 </div>
 
 
@@ -633,7 +685,7 @@ Genius.Space, Катерина Кравчук | Профессия Графич�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048438.jpg" />
 </div>
 
 
@@ -644,58 +696,6 @@ Genius.Space, Катерина Кравчук | Профессия Графич�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CA51D8405A0F2A3E1D9FD1ED5E61664BB6497DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841877   (1048434) от 13.12.2025
-
-Yarets.Art, Виктория Ярец | Pixel Art (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечтаешь оживлять миры, где каждый пиксель — история? Раскрой магию Pixel Art! Эта программа взорвёт ваш креатив! Представь: ты создаёшь миры, принты, персонажей, которые дышат ретро-эстетикой, словно сошли с экранов культовых игр 90-х. Что, если ты можешь не только играть, но и творить их — даже без опыта и дорогих программ?Производство: Yarets.ArtЖанр: видеокурс, обучающий курс, графика, дизайн, ProcreateЯзык озвучки: русскийПродолжительность: 04:02:56Реклама: наложение на видео (плашка спонсоров)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B220BAB8915CC90DB6F805138BD709E42A25829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841444   (1047981) от 11.12.2025
-
-TutorPlace, Дарина Костина | Adobe Illustrator для начинающих (2024) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите овладеть всеми секретами Adobe Illustrator? Узнайте, как создавать профессиональную векторную графику и проекты от А до Я, освоив основные инструменты и техники дизайна!Производство: TutorPlaceЖанр: видеокурс, обучающий курс, графика, дизайн, Adobe IllustratorЯзык озвучки: русскийПродолжительность: 08:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2DD336AEB71EF8364938971051F9BA0FF7499A
 ```
 
 https://mybot314.ru/tekegram_catalog/

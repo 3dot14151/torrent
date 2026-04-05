@@ -6,7 +6,7 @@ The Chainsmokers & Coldplay - Something Just Like This (Remix Pack) (2017) [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718507.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Chainsmokers - Memories... Do Not Open (2017) [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718503.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - NRJ Spring Hits (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Ele
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718425.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Hanne Sorvaag - Featuring (2016) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, C
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718161.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Viola Valentino - Un Angelo Dal Cielo (1991) Compilation [APE|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716527.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - The Sun Shines Here (The Roots Of Indie-Pop 1980-1984) (2021) 3xCD, Compila
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716398.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kaija Koo - Kuka sen opettaa (2014) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716036.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Laid Back - Happy Dreamer (2007) [FLAC|Lossless|image + .cue] <Electronic, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716026.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Texas - The Conversation (2CD) (2013) Deluxe Edition [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715012.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Michael Larsen - Solang es deine Sehnsucht gibt (1987) [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714488.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jeanne Mas - PH (2017) [FLAC|Lossless|tracks + .cue] <Chanson, Pop, Rock, Female
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714339.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sylvan Esso - What Now (2017) [FLAC|Lossless|tracks + .cue] <Electropop, Indie P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714329.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Matia Bazar - Brivido Caldo (2000) [FLAC|Lossless|tracks] <Pop, Italo-pop, Disco
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714080.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Rick Astley - 50 (2016) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713954.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Tom Odell - Wrong Crowd (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Indi
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713951.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - The Sound Of Summer (2017) Limited Special Edition[FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713771.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Vanessa Mai - Fur Dich (2016) [FLAC|Lossless|image + .cue] <Рор>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713418.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Madonna - Platinum Hits '2000 (2000) Unofficial Release [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712851.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Femme Schmidt - Raw (2016) [FLAC|Lossless|tracks] <Pop, Female Vocal>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712199.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Billboard 1986 - 1989 vol.5 (unknown year) Unofficial Release [APE|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712133.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Laid Back - Unfinished Symphonies (1999) [FLAC|Lossless|image + .cue] <Electroni
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712112.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Linda Jo Rizzo - Fly Me High (The Album) (2015) [FLAC|Lossless|tracks] <Italo-Di
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711961.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Kenny Rogers - Ruby Don't Take Your Love To Town (Unknown) Compilation [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711183.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ The Seekers - The Very Best Of The Seekers (1997) [FLAC|Lossless|image + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711146.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ ZAYN - Icarus Falls (2018) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711013.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Blondie - Pollinator (2017) [FLAC|Lossless|tracks] <Pop Rock, Post Punk, New Wav
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710397.jpg" />
 </div>
 
 

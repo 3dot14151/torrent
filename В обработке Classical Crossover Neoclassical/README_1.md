@@ -1,3 +1,32 @@
+###  Публикация: 1320523   (468897) от 19.08.2019
+
+VA - 300% Classic In Rock (1999) [MP3|320 Kbps] <Classical, Vocal, Rock, Trance>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolf Hoffmann - Prelude (Bizet) (1:25)
+02. Angelica - Un Bel Di (Puccini) (4:42)
+03. Trance Opera - Habanera (Bizet) (6:00)
+04. Danney Alkana - Beethoven '5th' (Beethoven) (3:21)(   Читать дальше...   )Жанр: Classical, Vocal, Rock, TranceПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA599EE6961D709D39561DB2DAA3ABD86006DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945064   (435265) от 09.10.2015
 
 David Garrett - Explosive (2015) Deluxe Edition [MP3|320 кб/с]<Classical, Crossover>
@@ -6,7 +35,7 @@ David Garrett - Explosive (2015) Deluxe Edition [MP3|320 кб/с]<Classical, Cro
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435265.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ BrunuhVille - The Eternal Forest (2011) [MP3|320 кб/с]<Neo-Classical, Instrum
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431447.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ BrunuhVille - Tales From The Lost Kingdom (2012) [MP3|320 кб/с]<Neo-Classical
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431434.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ BrunuhVille - Once Upon A Time (2011) [MP3|320 кб/с]<Neo-Classical, Instrumen
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431252.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Roman Ilyin - Pieces. Part 1 (2019) [MP3|320 Kbps] <Modern classical, ensemble, 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427332.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ BrunuhVille - Northwind (2015) [MP3|320 кб/с]<Neo-Classical, Instrumental, Ce
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422479.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Roman Ilyin - Pieces. Part 2 (2019) [MP3|320 Kbps] <Modern classical, ensemble, 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420965.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ David Garrett - Rock Revolution (2017) Deluxe Edition [MP3|320 Kbps] <Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416639.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ David Garrett - Music (2012) Deluxe Edition [MP3|320 кб/с]<Classical, Instrum
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406490.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Princess - 5 albums (2002-2008) [MP3|320 кб/с]<Classical crossover, Violin>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403387.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ IIlyin - EP_005 Else Lie (2020) [MP3|320 Kbps]
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376538.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ David Garrett - Alive – My Soundtrack (2020) Deluxe Edition [MP3|320 Kbps] <Ne
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376016.jpg" />
 </div>
 
 
@@ -365,7 +394,7 @@ Nox Arcana - Gothic (2015) [MP3|320 кб/с]<Neo-Classical, Dark Ambient, Darkwa
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367404.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ Ludovico Einaudi - Elements (2015) Deluxe Edition [MP3|320 кб/с]<Modern Class
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367273.jpg" />
 </div>
 
 
@@ -423,7 +452,7 @@ Andrea Bocelli - Cinema (2015) Deluxe Edition [MP3|320 кб/с]<Pop/Classical Cr
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367132.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363264.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ VA - The Acoustics Collection. Guitar (2002) [MP3|320 кб/с]<Classical, Instru
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347493.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ Brian Crain - Sienna (2003) [MP3|320 кб/с]<Neoclassical, New age, Piano>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340333.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ David Garrett - Unlimited - Greatest Hits (2018) 2CD [MP3|320 Kbps] <NeoClassica
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338209.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Lena Natalia - Sundays in Paris (2015) [MP3|320 кб/с]<Classical, Neo-Classica
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323881.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Andre Rieu - December Lights (2012) [MP3|320 kbps]<Classical, Violin>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309894.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ The Piano Guys - Limitless (2018) [MP3|320 Kbps] <Neoclassical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300883.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Wayne Gratz - 16 альбомов (1989 - 2011) [MP3|192-320 кб/с]<Instrument
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300610.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Slava Romanchenko - Impressions (2012) [MP3|320 кб/с]<Neoclassic/ Instrumenta
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258619.jpg" />
 </div>
 
 
@@ -737,7 +766,7 @@ The Neon Philharmonic Orchestra - Switched On Classics (1997?) 4CD, Box Set [MP3
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229104.jpg" />
 </div>
 
 
@@ -751,35 +780,6 @@ The Neon Philharmonic Orchestra - Switched On Classics (1997?) 4CD, Box Set [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CEF6A02C9D26B22FB24673B16166A418E75DE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425149   (222251) от 20.11.2020
-
-Ильин - Еще ложь (2020) [MP3|320]
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ст. 1. Обязательство соблюдать права человека
-02. Ст. 3. Запрещение пыток
-03. Ст. 5. Право на свободу и личную неприкосновенность
-04. Ст. 8. Право на уважение частной и семейной жизни(   Читать дальше...   )Жанр: Neoclassical, contemporary, pianoПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57BB72114C95C2653A726FD6A911C769AB0E0FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 952330   (354932) от 01.11.2015
+
+XCOM: Enemy Unknown v1.1.01 + Mod Money [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354932.jpg" />
+</div>
+
+
+###  Подробнее
+
+XCOM: Enemy Unknown - Легендарная Стратегия серии XCOM теперь на ваших андроид устройствах. Наша планета под угрозой вторжения инопланетян. Они проявляют активность во всех уголках Земли. Их тарелки похищают людей и заражают их странными болезнями. Все страны сплотились, и создали секретное подразделение под название XCOM. Вы становитесь во главе этого подразделения. (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 28 октября 2015 г.Разработчик: 2K Games, Inc.Поддерживаемая ОС: Android 2.3.3+Жанр: Стратегии / ЭкшенЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C039FA2571DC9D638EABE64A2EA4929832235F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882008   (354927) от 01.11.2015
+
+Assassin's Creed Pirates  v2.4.0 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Assassin's Creed Pirates – игра на андроид, которая посвящена морским баталиям. Вы будете играть за молодого капитана Алонсо Батилью. Сражайтесь с другими кораблями в Карибском море. Вас ожидает большой выбор всевозможного оружия, с помощью которого вы сможете уничтожить неприятеля и стать легендарным пиратом. Набирайте свою команду, оборудуйте свой корабль всем (   Читать дальше...   )Тип издания: Лицензия (Full с маркета, ломать не требуется)Релиз состоялся: 21 октября 2015 г.Разработчик: Ubisoft EntertainmentПоддерживаемая ОС: Аndroid 3.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C286B5F8DEC8D38A68484ACE22453720E6E9CA40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577557   (354283) от 19.09.2022
+
+VPN Украина: VPN IP в Украине 1.107 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vpn Украина это Быстрый и бесплатный VPN-сервис которому доверяет более 500 000 пользователей. Приложение поможет в одно нажатие получить украинский IP или разблокировать доступ к закрытым в Украине сайтам и приложениям. Безопасное и анонимное подключение обеспечивает технология подключения OpenVPN с OpenSSL ключом 2048 бит или более быстрое подключение Shadowsocks.Тип издания: ProРелиз состоялся: 25 авг. 2022 г.Разработчик: AltAppsПоддерживаемая ОС: Android 4.4 и вышеЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6242A1BDBF67C61525D26C10AF03EAB4BEAE1B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072131   (354251) от 12.11.2016
+
+Супер простой Список покупок v2.0.6 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одно из самых простых приложений для составления списка покупок!
+Чтобы добавить позицию, нажмите кнопку +. Введите позицию и выберите цвет. Готово.Тип издания: Пиратка (Разблокирована)Релиз состоялся: 06.10.2016Разработчик: bitwize10Поддерживаемая ОС: Android 2.2+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC50C878A3B7A4FE656C493BF6820A88998E820E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072044   (354017) от 12.11.2016
 
 Package Disabler Pro 6.6 [Ru]
@@ -6,7 +111,7 @@ Package Disabler Pro 6.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354017.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353878.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ Garmin: Дороги Беларуси 7.20 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353010.jpg" />
 </div>
 
 
@@ -89,7 +194,7 @@ Rotation - Orientation Manager v25.0.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352306.jpg" />
 </div>
 
 
@@ -115,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351658.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ Radio Garden v2.1.3 [En] - радиостанции мира на интерак
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349702.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349630.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ Yokee Караоке по-русски v3.14.016 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349601.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349543.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349523.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ Sonic Mobius Evolution 1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349303.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ ProgTV Android 2.26.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349237.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ Sonic Lost Worlds 1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348996.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ Dig Out!: Короли подземелий 2.17.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348656.jpg" />
 </div>
 
 
@@ -377,7 +482,7 @@ KingoRoot 2.5 Beta[Ru/En]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348294.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ Prisma 1.1.63 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347396.jpg" />
 </div>
 
 
@@ -432,7 +537,7 @@ ImageMeter - photo measure v3.6.2 (1) Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347222.jpg" />
 </div>
 
 
@@ -458,7 +563,7 @@ Action Strike Герои: Онлайн PVP FPS v0.9.33 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346679.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ SkySafari 6 Pro v6.7.2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346449.jpg" />
 </div>
 
 
@@ -512,7 +617,7 @@ TikTok v17.7.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346292.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ InstaSave v1.3.3 [Ru/Multi] - загрузки фото и видео из Insta
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345121.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343955.jpg" />
 </div>
 
 
@@ -576,113 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0FA7B6A58AEA0EFDC445376B21A2837014A39CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418678   (339720) от 28.10.2020
-
-NBA JAM by EA SPORTS™ 04.00.80 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играйте со своими любимыми звездами из всех 30 команд NBA в непревзойденной баскетбольной аркаде "2 на 2"! Игра, которую вы помните, обрела новый облик!Тип издания: ПираткаРелиз состоялся: 18 февраля 2020 г.Разработчик: ELECTRONIC ARTSПоддерживаемая ОС: Android 5.0 и вышеЖанр: Sports (Спортивная игра)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92790F0EDB8675F941A399313851225D6E26474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073593   (339675) от 18.11.2016
-
-Ace Stream Media 3.1.11.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система Ace Stream - это инновационная медиа-платформа нового поколения, которая откроет для вас новый высококачественный уровень мультимедийного пространства в сети Интернет:
-
-- наслаждаетесь онлайн просмотром огромного количества трансляций, с наилучшем аудиовизуальным качеством в Интернете (ТВ-каналы, пользовательские стримы, фильмы, мультфильмы и др.), вещание (   Читать дальше...   )Тип издания: бесплатноРелиз состоялся: 09.11.2016Разработчик: Ace StreamПоддерживаемая ОС: Android 4.0.1 и вышеЯзык интерфейса: русский, английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D5277052BF04581CEB4D9F5655DF6348E9C520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419229   (339575) от 28.10.2020
-
-Тысяча (1000) Онлайн v1.14.6.202 [Ru/En] (обновляемая)
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем новую версию Тысячи Онлайн с улучшенным дизайном и с отличной стабильностью - Тысячу Онлайн HD!Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 13.10.2020Разработчик: JagPlayПоддерживаемая ОС: Android 4.1+Жанр: КарточныеЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32EF4CF8F76610B2346EA4DA19841BDADE87170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419392   (339338) от 28.10.2020
-
-Aerofly 2 Flight Simulator v2.5.41 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря авиасимулятору Aerofly 2 вы сможете познакомиться с миром полетов на самолетах с таким качеством, которое вы еще никогда не видели прежде. Вас ждет большой выбор высокодетализированных самолетов с полностью анимированными 3D-кабинами и полеты в фантастическом районе залива Сан-Франциско и его окрестностях.
-Авиасимулятор Aerofly 2 — это реалистичная физика (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 20 июня 2020 г.Разработчик: IPACSПоддерживаемая ОС: Android 5.0 и вышеЖанр: Simulation (Симулятор)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7053AB466FB641ABD2EF787E523435D1E7F29001
 ```
 
 https://mybot314.ru/tekegram_catalog/

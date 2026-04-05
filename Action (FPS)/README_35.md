@@ -1,3 +1,55 @@
+###  Публикация: 1076747   (217319) от 19.12.2016
+
+ARAYA (2016) [En/Th] (1.1) Repack Other s
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра ARAYA — это мрачный хоррор с видом от первого лица, действие которого разворачиваются в одном из госпиталей Тайланда. Наблюдая за происходящими событиями от лица трех различных героев, игроку необходимо будет сложить воедино все части одной большой мозаики и узнать, кто же стоит за убийством некой девушки, по имени Арайи.Тип издания: RepackРазработчик: MAD Virtual Reality StudioЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: Английский, ТайскийЯзык субтитров: Английский, ТайскийЯзык интерфейса: Английский, Тайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD3C47F4EF3D8371482A846E1E9BBA6BAE4F0C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853137   (217119) от 24.12.2014
+
+Sanctum 2 (2013) [Ru/Multi] (1.4.35442) SteamRip Let'sPlay
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sanctum 2 - продолжение одной интересной гибридной игры, совмещающей в себе шутер от первого лица и стратегию (Tower Defence). В новой части игры нас ожидает большое количество новых карт, обновленные башни, новые монстры, плюс теперь у нас будет выбор между 4 новыми классами защитников, которых можно прокачивать и открывать новое, более мощное оружие. У каждого (   Читать дальше...   )Тип издания: SteamRipРазработчик: Coffee Stain StudiosЖанр: Action (Shooter) / Strategy (Tower Defense) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B61FD53B071F48FB33B57D9BA77EE48EB340AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966669   (217046) от 18.12.2015
 
 Project Pulsation (2015) [Ru/En] (1.0) License HI2U
@@ -6,7 +58,7 @@ Project Pulsation (2015) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217046.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Madness Beverage (2021) [En] (7802120) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216248.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Aim Hero (2016) [Ru/En] (0.158) Portable Devint
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215532.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Behind the Memory (2016) [En/Es] (1.1.4.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215247.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Call of Duty 4: Modern Warfare (2007) [Ru] (1.7/MP) Rip =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214983.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Dispatcher (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214617.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Turbo Overkill (2023) [Ru/Multi] (1.00) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213527.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Let'sРlay [Di
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212529.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Heretic + Hexen (2025) [Ru/Multi] (Update 1) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212166.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Relicta (2020) [Ru/Multi] (1.10/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212143.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Soldier of Fortune II (2): Double Helix (2003) [Multi] (1.03hf) License GOG [Gol
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211299.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ The Hotel (2022) [Ru/Multi] (1.1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211142.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Nightmare Reaper (2019) [En] (2.30) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211081.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ CyClones (1994) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210041.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Exorcism Ritual (2023) [En] (1.0) Scene DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206601.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ TV189 (2018) [En] (1.0) License TiNYiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205469.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205010.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Wolfenstein: Enemy Territory (2003) [En] (1.0RC1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204741.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Skater XL - The Ultimate Skateboarding Game (2020) [En] (1.2.2.5) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204412.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202453.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Hordelord (2025) [Ru/Multi] (16) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202394.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Survival & Horror: Hangman's Rope (2023) [Ru/En] (Build 11602258) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202222.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Paint the Town Red (2021) [Ru/Multi] (1.3.4 r5682) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202025.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Gunfire Reborn (2021) [Ru/Multi] (Build 20537927/dlc) Repack Let'sРlay [Bundles
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202009.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Gunfire Reborn - это приключенческая многоуровнев�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EBDDB76EA6A4C1C168D76BA8C5ACB74CBBA3E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829679   (201860) от 25.10.2025
-
-Crysis 2 (2011) [Ru] (1.9.0.0/dlc) Repack Necros [Limited Edition]
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201860.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 августа 2023 года разведывательное подразделение Корпуса морской пехоты США было отправлено в Нью-Йорк для эвакуации бывшего сотрудника Crynet доктора Натана Гулда, который может обладать важной информацией о борьбе с цефами, инопланетной расой, пытающейся уничтожить человечество.Тип издания: RepackРазработчик: CrytekЖанр: Шутер от первого лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E820D8D8E8E1E3C5F2392F34457B0B7E5A6CEC4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136678   (201831) от 30.08.2023
-
-Battle: Los Angeles – The Videogame (2011) [Ru] (1.0) Repack Other s
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная по мотивам одноименного голливудского фильма, игра Battle: Los Angeles расскажет историю о вторжении инопланетной расы на нашу планету. По сюжету, в недалеком будущем пришельцы атакуют крупнейшие города Земли, истребляя и уничтожая все на своем пути. Люди в панике, а военные безуспешно пытаются отразить атаки агрессоров. Одной из горячих точек планеты становится (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18DF385C9BCD58207AD5F559872437B09D42ED2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

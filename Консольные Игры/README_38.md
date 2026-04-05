@@ -6,7 +6,7 @@ Titan Quest (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478661.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Transformers: Rise of the Dark Spark / Трансформеры: Битва за
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477119.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Stuntman: Ignition (2007) [PS3] [USA] 1.82 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476859.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Ninja Gaiden Sigma 2 (2009) [PS3] [USA] 2.80 [CFW] [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476804.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Ben 10 Ultimate Alien: Cosmic Destruction (2010) [PS3] [EUR] 3.50 [Cobra ODE / E
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472882.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Catherine (2011) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472880.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Resident Evil 5 + DLC (2009) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472780.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Severed (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472486.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471039.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Borderlands 2 [Xbox360] [ENG] [Region Free] [LT+ 2.0] (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470939.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Killer Is Dead (2013) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru] | R.G.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470712.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Cartoon Network. Punch Time Explosion XL (2011) [PS3] [USA] 3.72 [Cobra ODE / E3
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470572.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ The Walking Dead Survival Instinct (2013) [Xbox360] [RegionFree] [FreeBoot] [Uno
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470493.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Borderlands 2 (2014) [PSVita] [USA] 3.60 [HENkaku] [Repack / 1.09 ] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470242.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Puyo Puyo Tetris (2014) [PS3] [JAP] 3.40 [Repack]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469308.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ F1 2012 [Xbox360] [ENG] [Region Free] [LT+ v2.0] (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468697.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Sonic and the Black Knight (2009) [Wii] [PAL] [License] [En]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468300.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Super Mario Maker 2 (2019) [Switch] [USA] 10.0.4 [NSP] [License / 3.0.1] [Ru/Mul
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467927.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Trinity: Souls of Zill O’ll (2010) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466056.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ NBA 2K16 (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464166.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463924.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ NBA 2K16 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463894.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Spore Hero (2009) [Wii] [PAL] [License] [En/Multi]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463867.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Tom Clancy's Splinter Cell: Blacklist - Deluxe Edition (2013) [Xbox360] [RegionF
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461751.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ God of War II (2007) [PS2] [EUR] [License] [Ru/Multi]
 >>PS2
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460503.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Martian Panic [Wii] [PAL] [ENG] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460365.jpg" />
 </div>
 
 

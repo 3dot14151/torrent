@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835036.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cirque du Soleil: Сказочный мир / Cirque du Soleil: Worlds Away (201
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834277.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ G. BIZET - Carmen - Metropolitan Opera, Garanca, Alagna  (2010) 2DVD5
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834068.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ UFO -Rockpalast. Hardrock Legends Vol.1 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833875.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833702.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Manfred Mann's Earth Band-Watch The DVD (2008) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833590.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833052.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ AC/DC: No Bull (1996) BDRip [H.264/720p-LQ] [Directors Cut] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832698.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831809.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ AC/DC - No Bull (1996) BDRemux [VC-1/1080i] [Directors Cut]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830962.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Yello - Live in Berlin (2017) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830866.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Talking Heads: Stop Making Sense (1984) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830698.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_830629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_830629.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Mark Knopfler: A night in London (1996) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830337.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829880.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829824.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829808.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828968.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828888.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828803.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826951.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826899.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826618.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826611.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826153.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825553.jpg" />
 </div>
 
 

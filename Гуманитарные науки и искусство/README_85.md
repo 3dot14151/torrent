@@ -1,81 +1,3 @@
-###  Публикация: 1253973   (373338) от 14.10.2018
-
-Б. Кёпеци | Идеология «новых левых» (1977) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор исследует причины возникновения движения так называемых "новых левых" в капиталистических странах. В книге показывается, что, несмотря на критику капитализма и попытки отмежеваться от традиционной буржуазной "левой", это движение является реакцией мелкобуржуазной интеллигенции на противоречия общественной жизни при капитализме и в конечном (   Читать дальше...   )Жанр: История, политология, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3A3113FFB29768E56E43C05A3FF342E90E952A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253967   (373337) от 14.10.2018
-
-Л. И. Пияшева | Международная экономическая теория и практика социал-реформизма (1983) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор исследует теорию, идеологию и практику социал-реформизма применительно к западноевропейским странам, возглавляемым социал-демократическими правительствами. Анализируется вопрос о взаимоотношении буржуазных и социал-реформистских концепций многостороннего регулирования экономики. Показывается то новое, что внесли ученые социал-реформистской ориентации в теорию (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F245F18C4FB4EFA1C932EDDF5B64A0CDB44F80CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253976   (373192) от 14.10.2018
-
-А. Лавровский | Американская социологическая пропаганда. Сущность, концепции, методы - критический анализ (1978) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373192.jpg" />
-</div>
-
-
-###  Подробнее
-
-В теории буржуазной пропаганды разработана ее детальная классификация в зависимости от характеристики источника и социально-психологической организации теста, от цели ведения пропаганды и путей воздействия на сознание человека, направленности методов воздействия. Такой подход к пропаганде, как считают ее теоретики и практики, учитывая обстановку, в которой ведется (   Читать дальше...   )Жанр: История, политология, экономика, искусство, психология, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F59D3364923BD6834DF0842BE41F326A492F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949886   (373093) от 25.10.2015
 
 Ю. Крижанич | Политика (1965) [DJVU]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373093.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372764.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372745.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372736.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372563.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370971.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370950.jpg" />
 </div>
 
 
@@ -273,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370128.jpg" />
 </div>
 
 
@@ -299,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370009.jpg" />
 </div>
 
 
@@ -325,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369996.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369836.jpg" />
 </div>
 
 
@@ -377,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369430.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369406.jpg" />
 </div>
 
 
@@ -430,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368295.jpg" />
 </div>
 
 
@@ -456,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367642.jpg" />
 </div>
 
 
@@ -483,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367469.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367323.jpg" />
 </div>
 
 
@@ -537,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366191.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366187.jpg" />
 </div>
 
 
@@ -589,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366180.jpg" />
 </div>
 
 
@@ -615,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365999.jpg" />
 </div>
 
 
@@ -641,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365997.jpg" />
 </div>
 
 
@@ -669,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365996.jpg" />
 </div>
 
 
@@ -680,6 +602,91 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C4DF5B1F3E3A20C2762A1FD85FA778780106EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950360   (365849) от 28.10.2015
+
+И. Н. Бродский | Элементарное введение в символическую логику (1964) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа представляет собой учебно-методическое пособие для заочников по разделу «Символическая логика» из курса формальной логики, читаемого на философском факультете ЛГУ. В ней излагается круг вопросов, связанных с так называемым классическим исчислением высказываний, и даются краткие сведения о логике предикатов.
+
+Пособие рассчитано на студентов философских факультетов (   Читать дальше...   )Жанр: Логика, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC091AA9099B4EA81F59789E80DBB1425DF5182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950813   (365831) от 28.10.2015
+
+Джон Кейнс | Впечатления о Советской России. Должно ли государство управлять экономикой (2015) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дж. Кейнс – известный английский экономист, основатель нового направления в политэкономии. Кейнс посетил Советский Союз трижды – в 1925, 1928 и 1936 годах. Во время первой поездки он даже принял участие в праздновании 200-летия Российской академии наук.
+
+В своей книге, критикуя большевизм за чрезмерную жесткость и следование марксистским догмам, он все же видит в (   Читать дальше...   )Жанр: ЭкономикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814D82C458F219DD42C45027B332EC533D094805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950951   (365801) от 28.10.2015
+
+А. Н. Кочергин и др. | Философский лабиринт: Сборник задач и упражнений по философии (1992) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365801.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора:
+
+Многие задачи и упражнения носят дискуссионный характер и не имеют однозначных общепринятых решений в нашей философии, поэтому вопросы, которые ставятся в этих задачах, не имеют категорических формулировок и обычно выражены в словах: «согласны ли вы с автором», «каково ваше мнение», «прав ли автор» и т. п.
+(   Читать дальше...   )Жанр: История, философия, логикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A013AA5DCCAFB1644002858081A5A77B340F849C
 ```
 
 https://mybot314.ru/tekegram_catalog/

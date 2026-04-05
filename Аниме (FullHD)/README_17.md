@@ -6,7 +6,7 @@ Gekijouban Haikyuu!! | Волейбол (компиляция) [2015, Movie, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792508.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Haikyuu!! Riku vs Kuu | Haikyu!! Land vs Air | Волейбол OVA-3 [2019, OVA
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792507.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou | Haikyu!! Karasuno Hig
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792503.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Haikyuu!! Second Season | Волейбол [ТВ-2] [2015, TV, 25 из 25] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792481.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Haikyuu!! | Волейбол TB-1 [2014, 25 из 25] BDRip 1080 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792439.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Oshiete! Galko-chan | Расскажи нам, Гяруко-тян! [2016, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792412.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Blade Runner: Black Out 2022 | Бегущий по лезвию: Блэкаут 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791872.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Godzilla 3: Hoshi wo Kuu Mono | Godzilla: The Planet Eater | Годзилла: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791548.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Azure Striker Gunvolt | Armed Blue: Gunvolt | Лазурный воин Ганв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790531.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Anime-Gataris | Истории об аниме [2017, TV, 12 из 12] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790499.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Tales of Zestiria The Cross | Tales of Zestiria The X | Сказания Зес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790425.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Lostorage Incited WIXOSS | Беспамятство: Побуждение WIXOSS
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789876.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788995.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 24 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788462.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.fl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787556.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Koi Suru Asteroid | Asteroid in Love | Влюблённый астероид [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786723.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786664.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Giant Killing / Вынос гигантов [2010, TV, 26] HDTV 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786656.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786542.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Garo: Divine Flame | Гаро: Священное пламя [2016, MV] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786294.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786088.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Accel World: Infinite Burst | Ускоренный мир: Бесконечно�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786080.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786048.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ One Room / Из одной комнаты [2017, TV, 12 из 12] WEBRip 1080p HE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786036.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784855.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Inukami! | Инуками! [2006, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784577.jpg" />
 </div>
 
 

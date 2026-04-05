@@ -1,3 +1,55 @@
+###  Публикация: 1042561   (577679) от 13.08.2016
+
+Полтора шпиона / Central Intelligence (2016) WEBRip [H.264/1080p-LQ] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577679.jpg" />
+</div>
+
+
+###  Подробнее
+
+От лайка в соцсети до спасения мира — один шаг. Сегодня ты френдишь бывшего одноклассника, а завтра — он тащит тебя под пули. Кто ж знал, что заядлый любитель пончиков превратится в похожего на скалу супершпиона.Производство: США, Universal Pictures, Bluegrass FilmsЖанр: Комедия, КриминалРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Кевин Харт, Эми Райан, Даниэль Николет, Джейсон Бейтман, Аарон Пол, Райан Хансен, Тим Гриффин, Тимоти Джон СмитПеревод: Дублированный (Чистый звук)Язык субтитров: КитайскийПродолжительность: 01:43:47Реклама: Присутствуют вставки голосовой и текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB5A5E16DA2F36ED5A33064C8C0DDB29E8207F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302669   (577545) от 18.05.2019
+
+Saenal Park | Цикл «Overgeared / Во всеоружии» [24 книги] (2018-2019) [FB2]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корейская VR-MMORPG лайт-новелла, повествующая о приключениях невезучего, но очень настойчивого кузнеца.Жанр: ранобэ на русскомФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D25ECFF6F67F77120D1DC9407B44D565CD9D464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150682   (577439) от 16.07.2017
 
 Советник президента по климату предупредил о новых погодных аномалиях
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_577439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_577439.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Windows 10 Pro v1809 build 17763.503 x64 by Zosma (17.05.2019)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577379.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_577317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_577317.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.708] (Fix 2022/30.05)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577097.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ Astra Linux 1.7.1 [amd64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577088.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576654.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576629.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ Android-x86 (KitKat) 4.4-r3 [x86] 2xCD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576596.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ Counter-Strike: Global Offensive (P/1.16.1.0) [Ru] 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576005.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575859.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_575844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_575844.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_575769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_575769.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575727.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4405.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575711.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ The Solus Project (2016) [Ru/Multi] (1.021) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575708.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_575695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_575695.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575123.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ ROSA Desktop Fresh R6 (KDE) [i586/x86-64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574920.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574919.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ Adobe Dreamweaver CC 2015.0 Build 7714 RePack by D!akov [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574909.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574904.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574775.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ TeraCopy PRO 2.2 Beta 3 [Multi(Rus)]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_574479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574479.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573943.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C2E41E013C92AAA414F78C6B4C2164BC7F9E4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151174   (573923) от 18.07.2017
-
-ФАС потребовала от "большой четверки" операторов связи отменить роуминг по РФ внутри сети
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_573923.jpg" />
-</div>
-
-
-###  Подробнее
-
-МОСКВА, 17 июля. /ТАСС/. Федеральная антимонопольная служба (ФАС) России выдала предупреждение "большой четверке" операторов связи ("Билайн", МТС, "Мегафон", Теле2) по национальному роумингу, требует изменить тарифы в течение 14 дней. Об этом говорится в сообщении ведомства."Согласно предупреждению, четверка мобильных операторов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048426   (573878) от 20.05.2019
-
-Titan Quest (2016) [Ru/En] (2.5a/dlc) Repack xatab [Anniversary Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Titan Quest - Anniversary Edition, мифический набор, из которого так и рвётся наружу отполированный до блеска эпоc оригинальной экшен/RPG и дополнения The Immortal Throne. В эпоху древних богов, полководцев и царей страна, охваченная бедствием, молила о герое... То есть, о вас!Тип издания: RepackРазработчик: THQ Nordic, Iron Lore EntertainmentЖанр: RPG (Rogue, Action), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9411AFF78C957F377C470D9526B803D19F5FD0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

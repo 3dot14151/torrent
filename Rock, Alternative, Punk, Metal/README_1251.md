@@ -1,3 +1,32 @@
+###  Публикация: 1749918   (43349) от 16.09.2024
+
+Corporal Shred - Thrashtosterone (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43349.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. My Arena
+2. Regained Terror
+3. Thrashtosterone
+4. Worthless(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5E45CD840A68A32FD6B6957F4CAC0B33B8CD5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749807   (43338) от 16.09.2024
 
 Evil Impulse - Evil Impulse (2024) [FLAC|Lossless|image + .cue] <Thrash, Groove Metal>
@@ -6,7 +35,7 @@ Evil Impulse - Evil Impulse (2024) [FLAC|Lossless|image + .cue] <Thrash, Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43338.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Lakeview - Lakeview (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43250.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Dark Tranquillity - Endtime Signals (2024) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43246.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Michael Schenker Group - My Years with UFO (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43165.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Cure - Happy The Man (1984) [MP3|320 Kbps] <New Wave, Post-Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43164.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Earth Lux - Earth Lux (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43147.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Skyline - Human Monster (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43146.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Servants to the Tide - Where Time Will Come to Die (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43145.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Local H - Whatever Happened To P.J. Soles? (2004) Reissue, Remaster, 2024, Studi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43142.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Residents - Demons Dance Alone (2019) pREServed Edition, 2024, Cherry Red Re
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43134.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Doro - Anthems for the Champion (2007) Remaster, 2024, Rare Diamonds Productions
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43132.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Nightwish - Yesterwynde (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43036.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Nightwish - Yesterwynde (2024) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43021.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ SteelCity - Reverence (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42939.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Krilloan - Return Of The Heralds (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42935.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Sweet - Full Circle (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42921.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42856.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Nightwish - Yesterwynde (2024) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42820.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Nightwish - Yesterwynde (2024) Limited edition earbook, 2024, Napalm Eagles [MP3
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42742.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Different Image Project - Embers of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42624.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Black Bay - Black Bay (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42610.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Blues Pills - Birthday (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42508.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Serious Black - Rise of Akhenaton (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42507.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Eagle Twin & The Otolith - Legends Of The Desert: Vol. 4 (2024) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42416.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Ascension Ritual - Ascension Ritual (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42415.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Ascension Ritual - Ascension Ritual (2024) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B50FF16EC693312F0D77236609D1CEE523A1D67C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751529   (42409) от 25.09.2024
-
-Galneryus - The Stars Will Light The Way (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Towards the Utopia (Instrumental)
-02. The Reason We Fight
-03. Lost in the Darkness
-04. Finally, It Comes!(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE03FF2CC84D34CB5C4A4F18293F3E501A25562
 ```
 
 https://mybot314.ru/tekegram_catalog/

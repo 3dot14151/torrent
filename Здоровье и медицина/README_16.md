@@ -1,31 +1,3 @@
-###  Публикация: 1232023   (603137) от 21.06.2018
-
-Мосараф Али | Держите спину прямо. Как забота о позвоночнике может изменить вашу жизнь (2017) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мосараф Али – настоящий знаток человеческого тела, всемирно известный пионер интеграционной медицины, получивший всестороннее медицинское образование в Индии, России и Китае. Сегодня он руководит медицинским центром в Лондоне, где собрались ведущие специалисты альтернативной медицины.
-
-Его метод – единственный в своем роде, сочетающий в себе процедуры как официальной, (   Читать дальше...   )Жанр: Медицинская литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94246084DE5C60E11EC74EFA06ADE4032D8B08A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298177   (602108) от 26.04.2019
 
 Эндрю Коэн и др. | Как работает твое фантастическое тело (2019) [PDF]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602108.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597930.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597923.jpg" />
 </div>
 
 
@@ -114,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592885.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590950.jpg" />
 </div>
 
 
@@ -167,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590875.jpg" />
 </div>
 
 
@@ -193,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586451.jpg" />
 </div>
 
 
@@ -219,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585140.jpg" />
 </div>
 
 
@@ -245,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584214.jpg" />
 </div>
 
 
@@ -274,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582390.jpg" />
 </div>
 
 
@@ -300,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582205.jpg" />
 </div>
 
 
@@ -326,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582158.jpg" />
 </div>
 
 
@@ -352,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582153.jpg" />
 </div>
 
 
@@ -378,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581031.jpg" />
 </div>
 
 
@@ -404,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575983.jpg" />
 </div>
 
 
@@ -431,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575904.jpg" />
 </div>
 
 
@@ -459,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575685.jpg" />
 </div>
 
 
@@ -485,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570757.jpg" />
 </div>
 
 
@@ -511,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570654.jpg" />
 </div>
 
 
@@ -538,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569077.jpg" />
 </div>
 
 
@@ -567,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568540.jpg" />
 </div>
 
 
@@ -593,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567009.jpg" />
 </div>
 
 
@@ -619,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563585.jpg" />
 </div>
 
 
@@ -647,7 +619,7 @@ Elaine N. Marieb, Simone Brito | Anatomy and Physiology Coloring Workbook: A Com
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561312.jpg" />
 </div>
 
 
@@ -673,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560978.jpg" />
 </div>
 
 
@@ -686,6 +658,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:053A18AFF03235E788B1EBA893FC162675948F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530274   (560976) от 03.08.2012
+
+Н.К. Пермяков | Патология реанимации и интенсивной терапии [1985] [DJVU]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560976.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии рассмотрены вопросы общей патологии основных терминальных состояний, подлежащих реанимации и интенсивной терапии (остановка сердца, шок, коматозные состояния, острая почечная недостаточность и др.). Даны классификация реанимационной патологии, анализ травматических и нетравматических осложнений реанимации и интенсивной терапии.
+Анализируется возможность использования данных морфологии и биохимии трупной крови, а также ионно-осмотического баланса трупной крови и ликвора в патологоанатомической диагностике. Рассмотрены проблемы септических осложнений внутривенных манипуляций и патология трансфузионной терапии. Представлены особенности реанимационной патологии в педиатрической практике. Описаны болезни оживлённого организма. Освещены весьма важные и сложные вопросы деонтологии и, в частности, взаимоотношения патологоанатома и реанималога при составлении заключения о причинах смерти. Указаны пути ликвидации осложнений ренимации и интенсивной терапии. Монография расчитана на патологоанатомов, реаниматологов, (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F4ECE2B8183561B57A8DFE04BA2016BC232CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

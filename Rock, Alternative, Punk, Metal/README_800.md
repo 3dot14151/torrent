@@ -1,3 +1,32 @@
+###  Публикация: 1617500   (250301) от 07.03.2023
+
+Cardinal Black - January Came Close (2022) Scene [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise Up
+02. Where Do You Go
+03. Tell Me How It Feels
+04. Terra Firma(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6A3C479B4FA60FC052E85694AAF51C07A1C0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617448   (250296) от 07.03.2023
 
 Motorhead - Bad Magic: Seriously Bad Magic (2015) 2CD (Reissued-2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +35,7 @@ Motorhead - Bad Magic: Seriously Bad Magic (2015) 2CD (Reissued-2023) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250296.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Halo Of Catastrophe - Symphony From Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250294.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Serj Tankian - Perplex Cities (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250293.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250291.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Genesis - BBC Broadcasts (1978-1992) 5CD Box Set, Compilation, (2023) UMR/EMI [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250289.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Horojo Trio - Set The Record (2022) Scene [FLAC|Lossless|tracks] <Rock, Blues, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250269.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Warrior Pope - 3 Albums (2017-2023) [MP3|320 Kbps] <Drone-doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250264.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Genesis - BBC Broadcasts (1978-1992) (2023) 5CD Box Set, Compilation, UMR/EMI [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250253.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Myron Elkins - Factories, Farms & Amphetamines (2023) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250248.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250161.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Modern Hard Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250152.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250065.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ The Allman Brothers Band - Hittin’ the Note (2003) [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249995.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Classic & Easy Soft Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249978.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ VA - Glam Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249955.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Near Dark - One Day (1998) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249889.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Kvaen - The Great Below (2022) [FLAC|Lossless|image + .cue] <Black, Pagan, Vikin
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249877.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Devil's Black Shoes - Devil's Black Shoes, Vol. 1-2 (2023) 2CD [FLAC|Lossless|WE
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249873.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Malleus - The Fires of Heaven (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Speed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249819.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Lord of the Void - Consvming the Trails ov Light (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249817.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Glory Hunters - We Play Muzik (2022) [FLAC|Lossless|WEB-DL|tracks] <Ska, Punk>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249815.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249813.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249810.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249807.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Brave Rockets - Привет (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249798.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Brave Rockets - Привет (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBFA1919AB610AAD69E5055426D6E8AB0862AC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619137   (249794) от 14.03.2023
-
-Luiz Toffoli - Enigma Garden (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Grand Opening (01:57)
-02 - Human (05:16)
-03 - I'm Alive (03:50)
-04 - Both Worlds (05:56)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A039D0671C2CCC624F852996F16D9D7E79DD0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1802305   (14429) от 16.06.2025
+
+Билл Хансон | Тайная сила обоняния. Доверься носу. Иди за инстинктами (2024) [MP3, Семён Ващенко]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нос и обоняние – особая система, с помощью которой живые существа ощущают мир и общаются друг с другом. Как обоняние помогает обитателям нашей планеты размножаться, развиваться и выживать? Интересные и неожиданные истории о том, как запахи влияют на поведение зверей, птиц и насекомых, как побуждают к действию или вызывают отвращение (даже когда мы этого не чувствуем).Жанр: Учебная и научно-популярная литератураИздательство: БОМБОРАПродолжительность: 06:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABB82162EF7127B63D9F3BDB2794A27B74E2F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121330   (13917) от 21.06.2025
+
+Валентина Талызина | Мои пригорки, ручейки (2017) [MP3, Татьяна Телегина]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талызина не просто талантливая актриса, она талантливый человек: яркий, честный и очень принципиальный. Её жизнь похожа на гоголевский смех сквозь слёзы. В ней было много потерь и много побед. Талызина неисчерпаема. И было ясно: она должна написать книгу, потому что ей есть о чём рассказать. Она сделала это честно, талантливо и беспощадно. Талызина – актриса. И этим (   Читать дальше...   )Жанр: Биографии и МемуарыИздательство: Нигде не купишьПродолжительность: 09:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C04C6344AB78B01EFFA36FF9B74255126C24F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803445   (13674) от 23.06.2025
 
 Екатерина Сафро | От Норвегии до Перу. История одного почти кругосветного путешествия (2025) [MP3, Саша Магерова]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13674.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12891.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10440.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7918.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6421.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5324.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4926.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4923.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3735.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1996.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Suotana - Ounas I (2023) [MP3|320 Kbps] <Melodic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232453.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kill Command - Hostile Takeover (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232444.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dreadhammer - Sovereign (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232381.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ End of the Dream - Until You Break (2017) [MP3|320 Kbps] <Melodic Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232315.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Scaphis - Dissected & Fermented (2022) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232295.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ End of the Dream - All I Am (2015) [MP3|320 Kbps] <Melodic Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232285.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mare Salutis - Symphony of Thunderstorm (2023) [MP3|320 Kbps] <Instrumental, Sym
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232271.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Lintver - The Worst Is Yet to Come (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232269.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Demon Project - Demon Project (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232260.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Accusator - Trial by Fire (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232246.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Abstractian - Box Of Frogs (Poison) (2021) [MP3|320 Kbps] <Progressive Metal, Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232230.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ DethOps - Myślonur (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232224.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Kryptik - A Journey to the Darkest Kingdom (2023) [MP3|320 Kbps] <Black Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232217.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ AmongRuins - Land of the Black Sun (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232210.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Pandrador - Seidr (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232209.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sculforge - Intergalactic Battle Tunes (2023) [MP3|320 Kbps] <Speed Heavy, Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232183.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Nexorum - Death Unchained (2020) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232171.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Terranoct - Icon of Ruin (2023) [MP3|320 Kbps] <Progressive Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232165.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nexorum - Tongue of Thorns (2023) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232156.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Pyramaze - Bloodlines (2023) [MP3|320 Kbps] <Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232144.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Garrett Campbell - Skies Of Dragonlight (2023) [MP3|320 Kbps] <Symphonic Power, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232135.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Riffobia - Riffobia (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232054.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Unborn Prophecy - Waking Our Ancient Memories (2023) [MP3|320 Kbps] <Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232049.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Abstractian - Sharpened Hearts (2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232008.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Arkham Witch - Beer and Bullet Belts (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231981.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Morkt Stof - Revival (2023) [MP3|320 Kbps] <Progressive, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231904.jpg" />
 </div>
 
 

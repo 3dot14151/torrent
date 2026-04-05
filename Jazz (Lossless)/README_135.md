@@ -6,7 +6,7 @@ Louis Hayes - Return Of The Jazz Communicators (2014) Smoke Sessions Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603143.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Low Kick Collective - II (2017) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603114.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Low Kick Collective - Тот кто ищет выход (2017) EP [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603111.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Kenny G - The Moment (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603101.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Don Braden - Workin' (2006) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603002.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ David Grisman Quintet featuring Svend Asmussen - Svingin' With Svend (1988) Zebr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603001.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Stan Kenton - Summer Of '51 (1987) Garland [FLAC|Lossless|tracks + .cue] <Big Ba
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602999.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Tim Garland - ReFocus (2020) Edition Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602996.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - The First Ladies Of Swing (2002) K-tel Entertainment [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602990.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Miles Davis - Antwerp Blues (1967) 1998, Megadisc [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602785.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Tony Bennett - My Best To You (1982) Reissue 1995 [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602780.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Louis Hayes And The Cannonball Legacy Band - Dreamin' Of Cannonball (2002) TCB R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602679.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Carol Welsman - I Like Men: Reflections Of Miss Peggy Lee (2009) Welcar Music [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602585.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Red Mitchell & Jimmy Rowles - Red'N Me (1978) 1991, Dreyfus [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602053.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Budapest Ragtime Band - The Best Of (2001) 2CD, BRB Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602048.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Jazz Relax - Smooth Jazz Piano (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602021.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Parov Stelar - Moonlight Love Affair (2022) [FLAC|Lossless|image + .cue] <Nu Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602005.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Dave Frishberg - Let's Eat Home (1990) Concord Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601922.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Tubby Hayes Quartet - The Complete Tubby's Groove (1959) 2014, Master Jazz Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601921.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Tia Fuller - Angelic Warrior (2012) Mack Avenue Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601920.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Dead Frank - Coincidence (2017) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601918.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Dave Pike - Four Classic Albums (1961, 1962) 2CD, 2017, Avid Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601777.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Isao Suzuki & Tsuyoshi Yamamoto - Samba Club (1980) 2012, King Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601757.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Tia Fuller - Healing Space (2007) Mack Avenue Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601638.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Illinois Jacquet with Kenny Burrell - Desert Winds (2004) [FLAC|tracks+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601355.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Andy LaVerne Trio - Bud's Beautiful (1996) 2010, SteepleChase [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601227.jpg" />
 </div>
 
 

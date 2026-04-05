@@ -1,3 +1,56 @@
+###  Публикация: 1455083   (1025931) от 17.03.2021
+
+Александр Шаталов | Dynamics & visual effects  Maya 2017 (2017) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вам окунуться в одно из самых интересных и востребованных нынче направлений CG — создание динамических сцен и визуальных эффектов. «Взорвать» дом, создать метель, анимировать водопад — всё это станет реальностью. Вам потребуется лишь желание, чуточку терпения, и, под покровительством опытного ментора, вы сможете вдохнуть жизнь в мир полигонов и нормалей (   Читать дальше...   )Производство: 3dmaya.com.uaЖанр: Создание видеоПродолжительность: 93:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B31BDFA3918FE9DD0DD6C594F448FCE23B76ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455089   (1025908) от 17.03.2021
+
+Thiago Klafke | Making an Office Environment in Unreal 4 (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы всегда хотели узнать как создаётся игровое окружение? Стремитесь довести своё портфолио до высокого уровня игровой индустрии? А может Вы профи и хотите ускорить свой рабочий процесс? Или просто хотите знать как это делается? Тогда эта серия видео для Вас!
+Это не пошаговое руководство. Я не объясняю каждый клик мыши. Это скорее полный обзор моего процесса работы. (   Читать дальше...   )Производство: GumroadЖанр: Создание видеоПродолжительность: 26:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365D0436389CA7C8617CABD863B203196B2E996A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455693   (1025335) от 20.03.2021
 
 Евгений Грипинский | Энциклопедия Школы 3D Евгения Грипинского (2013-2021) PCRec
@@ -6,7 +59,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025335.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ CGAim, Вячеслав Богданов | Intro в Blender (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025005.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ Skillbox | 3D-аниматор с нуля до PRO (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024092.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ Knower School | Игровая модель топора (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023740.jpg" />
 </div>
 
 
@@ -118,7 +171,7 @@ CG Cookie, Jonathan Lampel | Основы цифрового освещения 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023739.jpg" />
 </div>
 
 
@@ -145,7 +198,7 @@ Udemy | Создание персонажа в Blender 2.83 для игр / Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023725.jpg" />
 </div>
 
 
@@ -172,7 +225,7 @@ School xyz, Игорь Зверев | Hyper Casual (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023184.jpg" />
 </div>
 
 
@@ -199,7 +252,7 @@ Udemy | Blender Academy (2021) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022875.jpg" />
 </div>
 
 
@@ -225,7 +278,7 @@ Skillbox, Лиза Ревзина и др. | UX-дизайнер с нуля д�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022835.jpg" />
 </div>
 
 
@@ -251,7 +304,7 @@ Udemy, Mrawan Hussain | Создание Jeep Willys MP 1942 от начала �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022745.jpg" />
 </div>
 
 
@@ -278,7 +331,7 @@ Help4d, Андрей Доронин | Базовый курс по Cinema 4D: А
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022493.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ Udemy, Mrawan Hussain | Создание и риггинг реалистичн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022376.jpg" />
 </div>
 
 
@@ -331,7 +384,7 @@ Udemy, Mrawan Hussain |  Создание и риггинг Железного �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022168.jpg" />
 </div>
 
 
@@ -358,7 +411,7 @@ WingFox, Maria Anikina | Создание реалистичных волос в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021849.jpg" />
 </div>
 
 
@@ -384,7 +437,7 @@ ArtStation, Rico Cilliers | Скульптинг органики в Blender 2.9
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021391.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ Jan Urschel | Введение в движок рендеринга Octane дл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021150.jpg" />
 </div>
 
 
@@ -437,7 +490,7 @@ WingFox, Gavin O'Donnell | Стилизованная иллюстрация - �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021093.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ CG Cookie, Jonathan Lampel | Основы текстурирования в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020939.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ CG Cookie | Кузница шейдеров - Создание материал�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020929.jpg" />
 </div>
 
 
@@ -516,7 +569,7 @@ CG Cookie, Wayne Dixon | Основы риггинга - Узнай как со�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020918.jpg" />
 </div>
 
 
@@ -542,7 +595,7 @@ Udemy, Mislav Majdandžić | Pixel Art Master Course - Beginner to Professional/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020544.jpg" />
 </div>
 
 
@@ -569,7 +622,7 @@ VideoSmile, Александр Коляса | Супер Substance (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019847.jpg" />
 </div>
 
 
@@ -595,7 +648,7 @@ Schoolism, Justin Goby Fields | Введение в ZBrush с Justin Goby Fields
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019694.jpg" />
 </div>
 
 
@@ -622,7 +675,7 @@ Gumroad, Simon Fuchs | Создание дрона в Blender 2.9 и Substance P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019199.jpg" />
 </div>
 
 
@@ -634,60 +687,6 @@ Gumroad, Simon Fuchs | Создание дрона в Blender 2.9 и Substance P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A76910CBA6FBC2155D157EC27A6D2E39026F0A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465431   (1019038) от 26.04.2021
-
-Cream-Motion | VoluMax v6 3D Photo Animator Tutorial (2021) HDRip [En]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучающий курс по VoluMax v6 3D Photo Animator.
-VoluMax 6 - 3D Photo Animator для After Effects - это просто лучший универсальный набор инструментов на рынке, позволяющий превратить ваши фотографии во впечатляющие 3D-анимации.
-Подробное описание по ссылкеЖанр: 3D-анимацияЯзык озвучки: EnglishПродолжительность: 03:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305DD5894626FA97708AFB3943DE37255475C612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465668   (1018884) от 27.04.2021
-
-Udemy, Brent Eviston | The Art & Science of Drawing / BASIC SKILLS  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Art & Science of Drawing - замечательная программа, которая научит вас рисовать. Программа проста: каждый день вы будете смотреть один видеоурок, который познакомит вас с необходимыми навыками рисования, а затем выполнять рекомендуемую практику. Искусство и наука рисования изобилуют мощным пониманием процесса рисования и предлагают одни из самых понятных и доступных (   Читать дальше...   )Производство: UdemyЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 04:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DB7DAA7764C405A0F9078E38221498365BE8A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

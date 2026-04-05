@@ -1,3 +1,32 @@
+###  Публикация: 429173   (266377) от 29.12.2011
+
+Анна Петряшева - Билетик в детство (2008) [MP3|320 kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1+/-12  Песенка сладкоежек
+2+/-13 Помогите бегемоту
+3+/-14 Рыжий кот
+4+/-15 Чудак(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DCD3E40D96039A0A446CB66812DE9911A68DA1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 429167   (266369) от 29.12.2011
 
 Анна Петряшева - Я рисую (2009) [MP3|320 kbps]<Детские песни и минусовки>
@@ -6,7 +35,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266369.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266307.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265806.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265124.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264706.jpg" />
 </div>
 
 
@@ -144,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264699.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264677.jpg" />
 </div>
 
 
@@ -196,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264674.jpg" />
 </div>
 
 
@@ -222,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264673.jpg" />
 </div>
 
 
@@ -248,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263618.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262927.jpg" />
 </div>
 
 
@@ -300,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262625.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262346.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262327.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262046.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261300.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ VA - Детские Песни (Созвездие Хитов 3 CD) (2004) [FLAC
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260551.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ VA - Детские Песни (Созвездие Хитов 3 CD) (2004) [MP3|
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260549.jpg" />
 </div>
 
 
@@ -506,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259824.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ VA - Mini Disco/Мини Диско 108 песен (1970-2012) [MP3|128 кб/с]
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259729.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259689.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259681.jpg" />
 </div>
 
 
@@ -622,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259428.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259065.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258610.jpg" />
 </div>
 
 
@@ -685,41 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC8F0BFABD8F679688D8B6C3AB54FC2BD73FC5E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500636   (258135) от 24.05.2012
-
-VA - Мои Любимые Песенки - Песни В.Шаинского (2005) [WavPack|Lossless]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песенка мамонтенка
-02. Облака
-03. Улыбка
-04. Песенка крокодила Гены
-05. Голубой вагон
-06. Песенка Шапокляк
-07. Белые кораблики
-08. Песенка Рыжехвостенькой
-09. Песенка Белочки и Зайчика
-10. На свете(   Читать дальше...   )2005Жанр: Детские песниПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B050C561CDDE066832D4CF84A1F87924427D7BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

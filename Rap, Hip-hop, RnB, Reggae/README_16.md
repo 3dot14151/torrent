@@ -1,32 +1,3 @@
-###  Публикация: 1537858   (665381) от 18.03.2022
-
-Cypress Hill - Back in Black (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Hardcore, Latin, Rapcore>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takeover
-02. Open Ya Mind
-03. Certified (feat. Demrick)
-04. Bye Bye (feat. Dizzy Wright)(   Читать дальше...   )Жанр: Hip-Hop, Hardcore, Latin, RapcoreПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF9F8E14653D0487667190E19274985A1A7B844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224506   (664019) от 12.05.2018
 
 Артём Лоик - На поле в Курукшетре (2018) [MP3|320 Kbps] <Rap, Hip-hop>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664019.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Fike & Jambazi - Где-то (2013) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664002.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664000.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663877.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Onyx & Dope D.O.D. - Shotgunz In Hell (2017) [MP3|320 kbps] <Hip-Hop, Hardcore H
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663038.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ SLIMUS - Место под луной (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661824.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ SLIMUS - Место под солнцем (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661818.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661781.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661732.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Jah Khalib - E.G.O. (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661717.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Desmond Dekker - The Best Of (2004) Compilation [FLAC|Lossless|image + .cue] <Re
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660707.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659751.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659619.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Machine Gun Kelly - Mainstream Sellout (2022) Explicit [FLAC 2.0|48/24|WEB-DL|tr
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656143.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652408.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Noize MC - Чайлдфри (2017) Single [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652127.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Billy Milligan - Геном (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648480.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648045.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ MATRANG - ЭЙА (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646587.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Ladies Of Soul 80S & 90S (2019) [MP3|320 Kbps] <Soul, Disco, Rhythm & Blues
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644839.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Romantic Soul Music (2019) [MP3|320 Kbps] <R&B, Soul>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644832.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Alai Oli, Хмыров - Последний из ушедших (2022) [MP3|320 
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644780.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Becko - You Are (Not) Alone (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic Roc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642729.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ N1NT3ND0 (Баста) - Папа на рэйве (2019) [MP3|320 Kbps] <Rap, Hip
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642683.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Noize MC - Хипхопера: Орфей & Эвридика (2018) [MP3|320 Kbp
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637234.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ Noize MC - Хипхопера: Орфей & Эвридика (2018) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5CEF52C6C9D631FDC6BB32C6A0F0FE76D72122B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033707   (635702) от 12.07.2016
+
+Каспийский Груз - The Брутто (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не было и не надо (feat. Гансэлло)
+02. Guantanamera (feat. Ликий Адвайта)
+03. Черная Волга
+04. Стрелки(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF992FFBFB8C73FEA129DB6C5DC270E92387D4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

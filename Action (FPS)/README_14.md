@@ -1,3 +1,55 @@
+###  Публикация: 784374   (740621) от 07.05.2014
+
+Dead Island Riptide (2013) [Ru/Multi] (1.4.1.1.13/dlc) License PROPHET
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они думали, что сумели сбежать от смерти. Они ошибались. На борту военного корабля, где нашли убежище выжившие после кровавых кошмаров острова Баной, произошла новая вспышка таинственной эпидемии. В поисках спасения отчаянные парни и девушки покинули обреченное судно. Но им еще невдомек, что на незнакомом берегу их уже поджидают бесчисленные полчища оживших мертвецов, (   Читать дальше...   )Тип издания: LicenseРазработчик: TechlandЖанр: Action / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Итальянский, Испанский, Польский, ЧешскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Испанский, Польский, Чешский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46DD9004AF0F65897E88529D73713A1A219AD0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347861   (735494) от 26.07.2020
+
+World War Z (2019) [Ru/Multi] (1.70/dlc) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735494.jpg" />
+</div>
+
+
+###  Подробнее
+
+World War Z - это напряженный командный шутер на четверых игроков с видом от третьего лица и одиночным режимом, в котором несметные орды зомби безудержно стремятся настичь оставшихся в живых людей. В World War Z - наследнице одноименного блокбастера от Paramount Pictures - вас ждет сверхдинамичный игровой процесс. Исследуйте новые сюжетные линии и узнавайте персонажей (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: Action (Survival Horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683ED25F3E4CE6F3CA463C1FDAA22C0BA7C9085F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 788464   (734526) от 21.05.2014
 
 The Typing Of The Dead: Overkill (2013) [Ru/En] (1.0u1) Repack Audioslave
@@ -6,7 +58,7 @@ The Typing Of The Dead: Overkill (2013) [Ru/En] (1.0u1) Repack Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734526.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Cubers: Arena (2020) [Ru/Multi] (9043596) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734140.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ On The Verge II (2020) [Ru/En] (1.5) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733684.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Hellpoint (2020) [Ru/Multi] (0.284) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733266.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2491/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733263.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Bright Memory: Infinite (2021) [Ru/Multi] (1.09/dlc) Repack Other s [Ultimate Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732588.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Battlefield 1942 + Battlefield 1942: Secret Weapons of WWII + Battlefield 2 Powe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732354.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730326.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Dead Island: Riptide - Definitive Edition (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730222.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729221.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.1464/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729204.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728009.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Investigator (2016) [Ru/En] (1.14/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724726.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17495) Repack YelloSOFT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723808.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721942.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Homefront: The Revolution (2016) [Ru] (1.0781467/dlc) Repack Other s [Freedom Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721931.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Dead Island: Riptide (2016) [Ru/Multi] (1.0) Repack YelloSOFT [Definitive Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721491.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Megaton Rainfall (2017) [Ru/Multi] (1.08) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720897.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719992.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719984.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Hellbound (2020) [En] (1.0.1) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718522.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ The Cursed Forest (2019) [Ru/En] (1.0.3) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718469.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Enemy Front (2014) [Ru/En] (3.4.4.6290/upd4) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717878.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Hellpoint (2020) [Ru/Multi] (1.01) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716460.jpg" />
 </div>
 
 
@@ -615,61 +667,6 @@ Hellpoint - Action RPG в жутком фантастическом сеттин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1743EEF74A831A8C6B8B06F63C5C1A99E162FB4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400471   (716457) от 06.08.2020
-
-Relicta (2020) [Ru/Multi] (1.0) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Relicta — основанная на законах физики головоломка с видом от первого лица. Раскройте тайны базы «Чандра», меняя магнетизм и гравитацию. Вы одни на Луне. Чтобы спасти дочь, вам придется полагаться на свой ум...Тип издания: RepackРазработчик: Mighty PolygonЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E6206E36B0CC341122FC2FECBE112472C6CDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130492   (715859) от 01.05.2017
-
-Fear of Clowns (2017) [En] (1.01) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оно: Кошмар из прошлого - Игра в жанре ужасов от первого лица.
-"Ты проснулся посреди ночи от звонка в дверь своей квартиры.
-Кто же это может быть в столь поздний час? Ведь ты никого не ждал...
-Может ошиблись адресом? А может... Кто-то захотел поиграть с тобой?(   Читать дальше...   )Тип издания: RepackРазработчик: Mikhail NevskyЖанр: Adventure (Horror), 1st Person, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA86D8C7D5ACC0B13265285FEBF2E114E910DB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 214556   (280492) от 23.11.2018
+
+Ангел-А / Angel-A (2005) [1080p] BDRemux
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280492.jpg" />
+</div>
+
+
+###  Подробнее
+
+28-летний Андре должен десятки тысяч евро различным бандитам по всему Парижу. Когда подходит срок расплаты, он понимает, что шансов расплатиться — нет. И в полиции, и в американском посольстве ему отказывают в помощи.
+Но вот, решив покончить с собой, он видит на мосту сногсшибательную красотку в очень маленьком черном платье, которая прыгает в Сену. Андре бросается (   Читать дальше...   )Жанр: Фэнтези, Комедия, МелодрамаРежиссер: Люк БессонАктеры: Жамель Деббуз, Ри Расмуссен, Жильбер Мелки, Серж Риабукин, Аким Шир, Эрик Балье, Луи Пора, Веню Бун, Жером Жесдон, Мишель БеллоПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48A7005AD1409CCB2289C97909E317699FE3D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239636   (280482) от 23.11.2018
+
+Wallpaper Engine 1.0.1369 Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wallpaper Engine позволяет вам использовать живые обои на рабочем столе Windows. Поддерживаются различные типы обоев, включая 3D и 2D-анимацию, веб-сайты, видеоролики и даже определенные приложения. Выберите существующие обои (более 400 в раздаче) или создайте свои собственные.Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF9F502F10EE2E4DCCFBAA3EC98F554E7E68C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256708   (280463) от 23.11.2018
 
 Пес (2018) SATRip [H.264] (сезон 4, серии 1-20 из 24) (обновляемая)
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280463.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280455.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279950.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Adobe Photoshop CC 2020 21.0.0.37 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279945.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Divinity II: The Dragon Knight Saga / Divinity 2: Пламя мести [Ru] (Re
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279931.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279813.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279804.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279799.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279750.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279748.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ FuckYouBill 2009 DVD9 [Русский\Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279600.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279551.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_279304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_279304.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278790.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278788.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278678.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278324.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278159.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278064.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278057.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ Movavi Video Suite 16.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278055.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277402.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ Unlocker 1.8.7 [Multilang]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277283.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ Total War: WARHAMMER II / Total War: WARHAMMER 2 (2017) [En] (1.5.0/dlc) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277270.jpg" />
 </div>
 
 
@@ -631,58 +684,6 @@ Total War: WARHAMMER II - это стратегическая игра поис�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E66DDDBA0260732CE15A35446E1393B1EB31B355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557599   (277269) от 25.11.2018
-
-Dungeon Siege: Legends of Aranna / Dungeon Siege: Легенды Аранны (2003) [Ru] (1.50) Repack R.G. Games
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда несколько лет назад появилась на свет игра Dungeon Siege, к ней сразу же прочно приклеился титул «3D-убийцы Диабло». Кто-то посчитал, что она несколько линейна и излишне автономна от игрока, другие хвалили за графику, качественное месилово и удобный интерфейс. А пока первые и вторые спорили, Mad Doc Software, переговорив с Gas Powered Games и Microsoft, взялась (   Читать дальше...   )Тип издания: RePackРазработчик: Mad Doc Software, Gas Powered GamesЖанр: Action-RPG, Rogue-likeЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B06B67DE2A9F12894022A2FD88B6B60DE4DA622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613413   (277268) от 25.11.2018
-
-Я тоже хочу (2012) BDRip [720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277268.jpg" />
-</div>
-
-
-###  Подробнее
-
-По пустынной летней дороге мчится огромный черный джип. В нем — Бандит, его друг Матвей со стариком-отцом, Музыкант и красивая девушка. Они ищут Колокольню Счастья, которая по слухам находится где-то между Питером и Угличем, рядом с уже давно неработающей атомной станцией. Колокольня забирает людей. Но не всех. Но в темной большой машине каждый верит, что выберут (   Читать дальше...   )Производство: РоссияЖанр: Драма, КриминалРежиссер: Алексей БалабановАктеры: Александр Мосин, Олег Гаркуша, Юрий Матвеев, Алиса Шитикова, Алексей Балабанов, Петр Балабанов, Виктор Горбунов, Авдотья Смирнова, Сергей Шолохов, Сергей КульчицкийПеревод: Не требуется «Русский»Субтитры: ОтсутствуютПродолжительность: 01:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE496F176E1B6D536DBD91DF7D48E29F50973086
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1555614   (231215) от 04.06.2022
+
+Udemy, Nexttut, Hamidreza Afshari | Texturing a Complete Scene in Substance 3D Painter (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстурируйте полную сцену с помощью различных материалов, таких как стена, металл, пластик, дерево, сталь и т.д.
+Мы начнем с создания нового проекта и запекания карт. Затем мы будем создавать текстуры для всех наших ассетов одну за другой с помощью ресурсов, предоставленных Substance 3D Painter.
+После завершения текстурирования мы экспортируем наши текстуры для (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, ТекстурированиеЯзык озвучки: АнглийскийПродолжительность: 14:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B261378257117962B7AC8FE05D05ABC5F2EBD2EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555613   (231128) от 04.06.2022
 
 Udemy, Matthew Blackwood | Rigging Vehicles with Rigid Body Physics in Blender 3.0 (2022) PCRec [EN / EN Sub]
@@ -6,7 +34,7 @@ Udemy, Matthew Blackwood | Rigging Vehicles with Rigid Body Physics in Blender 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231128.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230953.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ Linguatrip, Веня Пак | Произношение 2022 (2022) WEB-DL [AD] [
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230947.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ Proprofiling, Алексей Филатов | Скрытые внушения в
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230935.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ Profit, Степанцев Альберт | Вебинар «Асинхронн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230920.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ Udemy, Pikuma.com, Gustavo Pezzi | Learn Assembly Language by Making Games for t
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230914.jpg" />
 </div>
 
 
@@ -173,7 +201,7 @@ HSCAKE | Китайский для начинающих (2022) WEB-DL [AD] [RU]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230900.jpg" />
 </div>
 
 
@@ -200,7 +228,7 @@ Udemy, Luke Priddy | English Grammar Complete | All English Sentence Patterns (2
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230871.jpg" />
 </div>
 
 
@@ -229,7 +257,7 @@ ituroki.info, Jamalov Elchin | IP телефония 3CX (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230836.jpg" />
 </div>
 
 
@@ -258,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230758.jpg" />
 </div>
 
 
@@ -286,7 +314,7 @@ Humanity-Life, Владлен Статный | Оперативная психо
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230712.jpg" />
 </div>
 
 
@@ -313,7 +341,7 @@ PSY2.0, Михаил Филяев, Екатерина Пыхарева и др. 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230705.jpg" />
 </div>
 
 
@@ -339,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230681.jpg" />
 </div>
 
 
@@ -368,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230633.jpg" />
 </div>
 
 
@@ -397,7 +425,7 @@ Artilike, Галина Гомзина | Акварельный интенсив 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230627.jpg" />
 </div>
 
 
@@ -423,7 +451,7 @@ MasterClass , Terence Tao | Teaches Mathematical Thinking (2022) WEB-DL [EN / EN
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230617.jpg" />
 </div>
 
 
@@ -449,7 +477,7 @@ Fluidart, Екатерина Гаврилова | Онлайн курс «Сов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230612.jpg" />
 </div>
 
 
@@ -478,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230601.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ Artmeup, Кристина Бриль | Текстурная живопись (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230580.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ CG Forge, Tyler Bay | Pyro II - Flames & Sparse Pyro (2020) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230523.jpg" />
 </div>
 
 
@@ -564,7 +592,7 @@ Meg Bitton | CLASSIC PHOTOSHOP EDITS VOLUME III (2019) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230492.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ Skillshare, Yassine Larayedh | Create Realistic Looking Forests & Mountains in B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230413.jpg" />
 </div>
 
 
@@ -617,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230401.jpg" />
 </div>
 
 
@@ -646,7 +674,7 @@ Liveclasses, Саша Чалдрян | Основы коллажа (2019) WEB-DL
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230399.jpg" />
 </div>
 
 
@@ -672,7 +700,7 @@ FlippedNormals, Tim Bergholz | Blender for Beginners & Blender Flashbang Grenade
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230393.jpg" />
 </div>
 
 
@@ -684,32 +712,6 @@ FlippedNormals, Tim Bergholz | Blender for Beginners & Blender Flashbang Grenade
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEC926EB475DF35B0DF0960CF129F0F0D58C265F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556542   (230390) от 09.06.2022
-
-Udemy, Titanforged Entertainment | Unreal Engine 5 Blueprints: Develop Your First Two Games (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы ищете быструю и мощную систему визуального скриптинга , позволяющую может создать любую игру, которую вы хотите, Unreal Engine 5 Blueprints - лучший выбор. Создавайте высококачественные игры, используя те же инструменты, которые AAA-студии используют в своих проектах на Blueprints. Все бесплатно. Переходите к созданию игры с помощью Unreal Engine 5 Blueprints! (   Читать дальше...   )Производство: Udemy, Titanforged EntertainmentЖанр: Unreal EngineЯзык озвучки: АнглийскийПродолжительность: 11:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF9D997DAB65A041E49D1E9271E346853ED99E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

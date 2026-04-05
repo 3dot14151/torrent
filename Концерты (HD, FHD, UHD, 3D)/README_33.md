@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268119.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_266980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266980.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266562.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265733.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265641.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263589.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ The Doors: Live At The Bowl '68 (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263466.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263066.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263053.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261244.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260856.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Slash: Apocalyptic Love Album Release - Live From New York City (2012) HDTVRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260518.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256756.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ AC/DC: Live at Donington (1991/2007) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255843.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255055.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ The Australian Pink Floyd Show Live at Hammersmith Apollo (2011/2012) BDRip [720
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253277.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252488.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252466.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Metallica - Live in Moscow (2019) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250162.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NEMOPHILA. Seize the Fate U.S. tour 2023 HOUSE OF BLUES SAN DIEGO (2023) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247835.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246208.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246029.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244491.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244470.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243718.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243336.jpg" />
 </div>
 
 

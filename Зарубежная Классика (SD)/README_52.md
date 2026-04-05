@@ -1,3 +1,56 @@
+###  Публикация: 217709   (638353) от 11.07.2010
+
+Счастливчики / Les Veinards / People in Luck (1963) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антуан Борпэр, владелец небольшого магазинчика в Лиможе, выиграл большой приз в национальной лотерее 100 миллионов франков. Вместе с женой и дочкой он отправляется за призом в Париж.
+Получив приз в виде денежной массы, он сложил всё в чемоданчик, с которым нигде не расставался. Но ему постоянно мерещится, что за ним следят, что его хотят ограбить. И он решает поместить (   Читать дальше...   )Жанр: комедияРежиссер: Филипп де Брока / Philippe de Broca, Жан Жиро / Jean Girault, Жак Пиното / Jacques PinoteauВ ролях: Френс Англаде (Corinne), Франсис Бланш (Bricheton, le gagnant du repas), Бланшетт Брюнуа (Mme Beaurepaire), Даниэль Секкальди (Gros nounours), Ивонн Клеш (Elise Flavigny), Geneviève Cluny (Patricia Paddington), Клодин Костер (Virginie), Дарри Коул (Simon Taquet), Мирей Дарк (Jacqueline), Луи де Фюнес (Antoine Beaurepaire), Пьер Дори (Sam Chips), Жак Иллинг (Le (   Читать дальше...   )Перевод: Оригинальный, Авторский (Козлов Сергей)Формат: MatroskaПродолжительность: 01:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF97A21FF3D983D66688989F0E790BAD3B34F55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031244   (637930) от 11.07.2016
+
+Малыш из Бруклина / The Kid from Brooklyn (1946) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромный молочник Берли Салливан случайно посылает в нокаут пьяного чемпиона по боксу Спида Макфарлейна, клеившегося к его сестре. Этот эпизод резко меняет жизнь Берли…Производство: США / Samuel Goldwyn Company, Trinity ProductionsЖанр: Мьюзикл, КомедияРежиссер: Норман З. МакЛеодАктеры: Дэнни Кэй, Вирджиния Майо, Вера-Эллен, Стив Кокран, Ив Арден, Уолтер Абель, Лайонел Стэндер, Фэй Бейнтер, Кларенс Колб, Виктор КатлерПеревод: Двуголосый закадровый (Студия «Ульпаней Эльром»)Субтитры: ОтсутствуютПродолжительность: 01:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DFBF0F0F64EB74DA67AC4663E2AF29B7D79C1AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905275   (637624) от 12.06.2015
 
 Миланский калибр 9 / Milano calibro 9 (1972) DVDRip [H.264] [VO]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637624.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636714.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636416.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636028.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635163.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635093.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634913.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634897.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634853.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634779.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634757.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634408.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634325.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634321.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634130.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633605.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633594.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633485.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633481.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632784.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632735.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632730.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632725.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632651.jpg" />
 </div>
 
 
@@ -623,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F58AC820FDEA57E21423542BF81F727613BDD5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800559   (632650) от 03.07.2014
-
-Жандарм на отдыхе / Le gendarme en balade (1970) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всему приходит конец. Начальство сочло наших героев слишком старыми и отправило их на заслуженный отдых. Это трагический момент в жизни такого мужественного офицера как сержант Крюшо. Запершись в роскошном замке своей жены, он предается унынию. Приезд бывшего начальника Жербера выводит его из спячки. Они собирают своих подчиненных, надевают любимую жандармскую форму (   Читать дальше...   )Производство: Франция, ИталияЖанр: КомедияРежиссер: Жан ЖироАктеры: Луи де Фюнес, Жан Лефевр, Ги Гроссо, Мишель Модо, Николь Вервиль, Франс Румилли, Ив Венсан, Кристиан Марен, Клод Жансак, Мишель Галабрю, Сара Франкетти, Уго ФангареджиПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDDAFE64B3FC356B6249B0B6820DD72362C3EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 218766   (632636) от 14.07.2010
-
-Большая прогулка / La grande vadrouille (1966) [H.264] HD-DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небо над Парижем, 1942 год. Английский бомбардировщик, выполняющий важное задание, подбит немцами. Летчики покидают горящую машину, договариваясь встретиться через некоторое время в турецкой бане. Один из них приземляется на крыше дома, где работает парижский маляр Огюстен Буве.
-Другой падает на крышу Гранд-Опера и прячется вместе с парашютом в апартаментах главного дирижера. А командир экипажа сэр Реджинальд «приводняется» в зоопарке - в пруду с тюленями. И как только англичане попадают в Париж, начинаются совершенно невероятные приключенияЖанр: комедия, военныйРежиссер: Жерар Ури / Gérard OuryВ ролях: Бурвиль (Augustin Bouvet), Луи де Фюнес (Stanislas LeFort), Клаудио Брук (Peter Cunningham), Андреа Паризи (Soeur Marie-Odile / Sister Marie-Odile), Колетт Броссе (Germaine), Майк Маршалл (Alan MacIntosh), Мари Марке (Mère Supérieure), Пьер Бертен (Le grand-père de Juliette - propriétaire du guignol), Бенно Штерценбах (Major Achbach), Мари Дюбуа (Juliette), Терри-Томас (Sir Reginald), Зигхардт Рупп (Lt. Stuermer)Перевод: Оригинальный, Профессиональный (советское дублирование чищенный), Профессиональный (многоголосый, закадровый), Профессиональный (советское дублирование)Формат: Matroska
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C0A3CBA45BA30604A72D031C20D660C82DA743
 ```
 
 https://mybot314.ru/tekegram_catalog/

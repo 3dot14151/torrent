@@ -1,3 +1,108 @@
+###  Публикация: 1730833   (9022) от 07.08.2025
+
+Beyblade Burst QuadDrive | Beyblade Burst Dynamite Battle | Бейблэйд Взрыв — Динамитная Битва [2021, ONA, 30 из 52 эп.] WebRip 1080p raw+eng+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Белл Дайкокутен – настоящий Король Демонов, которого опасаются мирные жители. Люди наслышаны о его злодеяниях, но можно ли верить многочисленным легендам? У ворот Макаи когда-то было сражение, доказавшее непобедимость Белла, причем последний не намерен останавливаться и объявляет войну всем Блейдерам. Какой финал желает увидеть Король Демонов? В параллельной вселенной (   Читать дальше...   )Производство: OLMЖанр: приключенияРежиссер: Акияма КацухитоПеревод: HnYОзвучка: OriginalЯзык озвучки: Японский, Английский и РусскийСубтитры: АнглийскиеПродолжительность: 52 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283FAE5AFA3F0C1F352A8822D09A5311288E3CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346342   (7955) от 14.08.2025
+
+Kanashimi no Belladonna | Belladonna of Sadness | Печальная Белладонна [1973, Movie] BDRip HEVC 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7955.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сельской глубинке средневековой Франции двое влюблённых крестьян, Жан и Жанна, направляются к местному господину за разрешением на брак. Однако налог на венчание резко возрос, жених заплатить не в состоянии, и потому первая брачная ночь с невестой достаётся господину и его свите. Почувствовав себя брошенной Богом, девушка обращается к нечистой силе. Так начинается (   Читать дальше...   )Производство: Япония. Mushi ProductionЖанр: драма, романтика, эротикаРежиссер: Ямамото ЭйитиЯзык озвучки: Японский и русский (DobrySkazochnik (Артём Федько))Субтитры: Английские, русскиеПродолжительность: 89 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA4FE850BF4685C15651B1515AA744EDCBE4D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812650   (7756) от 15.08.2025
+
+Akira | Акира [1988, Movie] WEBRip 2160p/4K raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя 31 год после Третьей мировой войны и ядерной бомбардировки столицы Японии, воссоздан новый город - Нью-Токио. Внешне все под контролем, однако страна теперь напоминает профашистское государство, жесточайшим образом подавляющее попытки мятежа. В исследовательских центрах проводятся парапсихологические опыты над людьми для разработки совершенного вида оружия. (   Читать дальше...   )Производство: Япония / Akira Committee Company Ltd., Akira Studio, TMS EntertainmentЖанр: аниме, мультфильм, фантастика, боевик, триллер, детективРежиссер: Кацухиро ОтомоПеревод: Дублированный (Студийная Банда, Reanimedia)Язык озвучки: Русский, японскийСубтитры: РусскиеПродолжительность: 02:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398B15EACFAE38F38A491354F4B8F2B6649B87F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737209   (5285) от 30.08.2025
+
+Юный лорд — мастер побега | Неуловимый самурай | Nige Jouzu no Wakagimi | The Elusive Samurai [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть потомком рода Камакура и будущим сёгуном и так непросто, но ещё сложнее, когда ты ко всему прочему не особо-то любишь сражаться. Тогда у тебя остаётся лишь два варианта: либо терпеть, либо просто сбегать с тренировок! И наш герой — Ходзё Токиюки — выбирает второе, ведь он — настоящий мастер побега.
+Но вот спокойным денькам приходит конец. Сёгунат Камакура оказывается (   Читать дальше...   )Производство: Япония / Студия CloverWorksЖанр: Комедия, приключения, сёненРежиссер: Ямадзаки ЮтаЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7BA7DDF0FB87CB23DAD3BB78D007F1DE5F5D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804283   (4839) от 01.09.2025
 
 Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcist in Another World | Перерождение сильнейшего экзорциста [2023, TV, 13 из 13 эп.] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +111,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4839.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ One Piece | Ван-Пис [1999, TV, 207-1122 эп.] WEBRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4754.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4680.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4556.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ Overtake! | Обгон! [2023, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3808.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2456.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ Higurashi no Naku Koro ni Kai | When They Cry: Kai | Когда плачут ц�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1815.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ Higurashi no Naku Koro ni | Higurashi When They Cry | Когда плачут ц
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1814.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1299.jpg" />
 </div>
 
 

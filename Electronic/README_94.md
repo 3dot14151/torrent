@@ -1,3 +1,61 @@
+###  Публикация: 1104527   (878299) от 16.02.2017
+
+VA - Lounge & Love Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Thomas Dur - Midnight in Manhattan  4:56
+02.  Bronson - Pousada Paulista (Trip Dub Mix)  5:13
+03.  Logophilia - Gaillardia  5:50
+04.  Toca Lounge - Electric Feeling (Instrumental Version)  4:04(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6ADCD49BE1686FA43A0B5B4073B86EE4850E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104683   (878289) от 16.02.2017
+
+VA - Nu Disco & House Dreams Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Re-Tide - Revolution Is Here 05:42
+02. The Morphoders - Substance 06:05
+03. Massimo Voci - Thaleia 06:24
+04. Christian Belt - Urban Jungle 08:48(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6574769136886F639F6F715B7DF2EACD031352D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104504   (878286) от 16.02.2017
 
 VA - Pump Up The House Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
@@ -6,7 +64,7 @@ VA - Pump Up The House Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878286.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - EDM Invasion 5 (2017) [MP3|320 Kbps] <House, Electro House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878127.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - 90s Chillout (The Very Best 90s Music for Lounge and Chillout) (2017) [MP3|
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878028.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ BlutEngel - Leitbild (2017) 2CD Deluxe Edition [MP3|320 Kbps] <Darkwave, Synth-p
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877892.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Gai Barone - Towards (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877681.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA -  Drumsterdam (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877664.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Astropilot & Friends - Soul Surfers (2016) [MP3|320 кб/с] <Psybient, Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877658.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Depeche Mode - Greatest Hits. Volume 1,2 (2009) Compilation, 4CD [FLAC|Lossless|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877547.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Eekkoo - The 4th Season (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877453.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Turboslash - Speed (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877449.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Ultra Music Festival 2016 (2016) Compilation [FLAC|Lossless|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877318.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Amtrac - Oddyssey (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876904.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Greg Dusten - Pure Trance Selection Winter 2020 2020-03-30 [MP3|320 Kbps] <Tranc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876895.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Lazy Hammock Sounds Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876736.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Massive Erotic Lounge Kiss (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876712.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Acoustic Covers Album (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumen
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876543.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - St Valentine Lounge and Piano Chill for Lovers (2017) [MP3|320 Kbps] <Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876540.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Chillout Sounds Of Nature (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876433.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Vacuum - Your Whole Life Is Leading Up To This (2007) [FLAC|Lossless|image + .cu
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876416.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Christine - Atom From Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Fut
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876348.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Armin Van Buuren A State Of Trance 800 (The Official Compilation) (2017) [M
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876284.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Relaxing at Work (Work With Chilled Music) (2016) [MP3|320 кб/с] <Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875737.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Soft House Miami 2016 (15.03.2016) [MP3|320 кб/с] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875736.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Tantra Masters - Tantra Massage Sex Lounge - Chill Out Moaning Sounds Sexy Music
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875460.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Tantra Masters - Tantra Massage Sex Lounge - Chill Out Moaning Sounds Sexy Music
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC0EE45F5A58B12A5E9B793DEE0EB33DE0712CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105696   (875075) от 18.02.2017
-
-VA - Psychedelic Goa Vol.2 (2017) [MP3|320 Kbps] <Psy Trance, Goa>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Elektrik Boy - Sarcastic Being  8:03
-02.  Freny - Super Psychedelic Funky Love  7:58
-03.  Acid Trooper - Our Reason  7:21
-04.  Midiride - Sonic Prohpecis  7:22(   Читать дальше...   )Жанр: Psy Trance, GoaПродолжительность: 03:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D20058F454C90F280DF3E0DF2FBC4909A59643E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105451   (875055) от 18.02.2017
-
-Garrison - Unrealistic (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875055.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Life (04:45)
-2. Forest Night (05:22)
-3. East Wind (06:32)
-4. Submarine (04:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843C6FD28B97AD4EE8AD40762C82F70A1DAE447F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ Windows 10 3in1 x64 22Н2 (build 19045.7058) by ivandubskoj 23.03.2026 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062187.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 03.2026
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061137.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Microsoft® Windows® 10 Professional VL x64 22H2 RU by OVGorskiy 03.2026
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060656.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.7058 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060417.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v30 (esd) [En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058308.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v30 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058307.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Windows 10 Enterprise LTSC 2021 (x64) Elgujakviso Edition (v.13.02.26) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056601.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6937 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056238.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055812.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055810.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Windows 10 3in1 x64 22Н2 (build 19045.6812) by ivandubskoj 04.02.2026 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055730.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Windows 10 Enterprise LTSB (x64) Elgujakviso Edition (v.04.02.26) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055654.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Windows 10 Pro 22H2 19045.3324 (x64) — Windows 7/Vista Style Edition by Window
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055147.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 01.2026 by OVGorskiy
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052978.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6809 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052493.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2024 by Eagle123 (12.2025) [R
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050768.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Windows 10 x64 24in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.12.
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050234.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Windows 10 22H2 Compact (19045.6691) by Flibustier [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048935.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Windows 10 22H2 19044.6691/19045.6691 by SURASOFT (v25.12.09) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048280.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6691 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047918.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Windows 10 Pro 22H2 19045.6575 x64 by SanLex [Lightweight] [Ru/En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047375.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Windows 10 Pro 22H2 x64 Elgujakviso Edition (v.20.11.25) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046902.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Zver Windows 10.0.17763.1637 Enterprise LTSC Version 1809 x64 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040409.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Windows 10, Version 20H2 with Update [19042.746] AIO 64in2 (x86-x64) by adguard 
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039683.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Windows 10 Enterprise 2019 LTSC with Update [17763.1697] AIO 4in2 (x86-x64) by a
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039677.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Windows 10 20H2 (Build 19042.746) (40in2) x86/x64 by Sergei Strelec [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038613.jpg" />
 </div>
 
 

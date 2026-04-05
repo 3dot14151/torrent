@@ -1,3 +1,29 @@
+###  Публикация: 1713503   (60609) от 06.04.2024
+
+Farmer's Father: Save the Innocence (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Farmer's Father: Save the Innocence - это настоящая история о героях, которые появляются в условиях войны. Но теперь это история о вас. Главный герой - обычный человек, но на его плечах лежит ответственность за защиту самого ценного и невинного. Голод, раны, холод, болезни и жестокость врагов - это только часть того, с чем вам придется столкнуться. Вам предстоит (   Читать дальше...   )Тип издания: RepackРазработчик: FreeMind S.A.Жанр: Экшены, Приключенческие игры, СимуляторыЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD46E210664296E5D7B1D94B6E8FC1D59306BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713952   (60450) от 07.04.2024
 
 Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Repack FitGirl
@@ -6,7 +32,7 @@ Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60450.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Timeworks (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60434.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60387.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack Other s [AD]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60369.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Last Hope Bunker: Zombie Survival (2024) [Ru/Multi] (107) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60321.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Dishwashing Simulator (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60272.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Hydroneer (2020) [Ru/Multi] (3.0.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60250.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (s1.033s/dlc) Repack Other
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60169.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Scene DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60165.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ The Magical Mixture Mill (2024) [Multi] (13859651) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60158.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (20240405) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60089.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59957.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ The Lost Village (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59856.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Voice Love on Air (2024) [Multi] (1.1.6) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59811.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ RimWorld (2018) [Ru/Multi] (1.5.4063/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59751.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Anomaly Loop (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59547.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ My Life: Farm Vet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59533.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ One Last Dinner (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59327.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Hypnospace Outlaw (2019) [En] (2.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59174.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59160.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ The Repair House: Restoration Sim (2023) [Multi] (1.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58934.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Ready, Steady, Ship! (2024) [Multi] (1.0.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58914.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ The Signal State (2021) [Ru/Multi] (1.33b) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58800.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Love Too Easily (2023) [Multi] (19) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58777.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Gensokyo Odyssey (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58445.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Gensokyo Odyssey (2024) [En] (1.0) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0273A3C6DF7EB017A667C0741B0E33C01CF491E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287015   (58099) от 30.04.2024
-
-Dawn of Man (2019) [Multi] (1.8.2) License GOG (обновляемая)
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dawn of Man - уникальная историческая стратегия в реальном времени с изометрическим видом камеры от создателей Planetbase. Вам предстоит взять под контроль поселение первых современных людей и провести их через века, борясь за выживание. Игра начнется во времена каменного века и продолжиться до самого железного века, охватывая более 10 000 лет человеческой предыстории. (   Читать дальше...   )Тип издания: LicenseРазработчик: Madruga WorksЖанр: Стратегия, Строительство, МенеджментЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C569D56EDCD7B7AFDD8AB29FC897CFA69BC3C88D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1594122   (178110) от 01.12.2022
+
+культодиночества - мёртвое дерево (2022) [MP3|320 Kbps] <Post Punk, Indie Rock, Shoegaze, Coldwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. городской тоской 03:35
+02. я не хочу больше видеть тебя 03:30
+03. майский вечер 03:47
+04. экзистенциальная осень 04:32(   Читать дальше...   )Жанр: Post Punk, Indie Rock, Shoegaze, ColdwaveПродолжительность: 00:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B37F77CB749DE60636DBDB19631C7E5E6157C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594384   (178099) от 01.12.2022
 
 Alter Bridge - Pawns & Kings (2022) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Hard Rock, Alternative Rock>
@@ -6,7 +35,7 @@ Alter Bridge - Pawns & Kings (2022) [FLAC|Lossless|tracks + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178099.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Rock Love Ballads 2023 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178089.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Megahertz - Burning Like Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178087.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Hey You - All New Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178082.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Dr.X - Music as Soul Assistance (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178049.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [MP3|320 Kbps] <N
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178034.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Black Rain - Untamed (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178023.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178013.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Ancient Machine - Distance Between Us (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178010.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177996.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Antti Martikainen - 3 Albums (2020-2022) [MP3|320 Kbps] <Power Metal, Epic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177978.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Amberian Dawn - Take A Chance - A Metal Tribute to Abba (2022) [FLAC 2.0|44/24|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177975.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Heavy '70s Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177963.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Heathen Foray - Weltenwandel (2020) [FLAC|Lossless|image + .cue] <Melodic Viking
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177898.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ The Heavy - 7 альбомов (2007 - 2023) [FLAC|Lossless|tracks + .cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177894.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177891.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Ayreon - Universal Migrator Part I & II (2000) 5 x CD, Compilation, Reissue, 202
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177853.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Latter Reign - II (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hair Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177849.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Rock Hits (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177805.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Graveyard of Souls - Infinitum Nihil (2015) [FLAC|Lossless|image + .cue] <Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177739.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Graveyard of Souls - Todos los caminos llevan a ninguna parte (2016) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177736.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Saltatio Mortis - Erwachen (2004) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177734.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Saltatio Mortis - Das Zweite Gesicht (2002) [FLAC|Lossless|image + .cue] <Folk M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177729.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Saltatio Mortis - Des Konigs Henker (2005) [FLAC|Lossless|image + .cue] <Folk Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177726.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ October Tide - The Cancer Pledge (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177709.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ October Tide - The Cancer Pledge (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99221D83D9790BD7D19BB052FCC890AB80A81F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429303   (177707) от 05.12.2020
-
-Frostnatt - Når Vinteren Kommer (Nar Vinteren Kommer) (2020) EP [FLAC|Lossless|Web-DL|tracks] <Black Metal, Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Når Vinteren Kommer (5:02)
-02. Nordavind (5:06)
-03. Den Mørke Skogen (3:58)
-04. Iskald (5:59)(   Читать дальше...   )Жанр: Black Metal, Atmospheric Black MetalПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF93B0CD0DE9D146AF5F3C1463FD41BDF82C1B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

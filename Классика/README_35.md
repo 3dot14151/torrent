@@ -1,3 +1,38 @@
+###  Публикация: 563306   (403610) от 22.10.2012
+
+VA - Reference Classics First Sampling (1990)[FLAC|Lossless]<Classical Instrumental>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+
+01. Pacific Symphony Orchestra (Copland)-An Outdoor Overture [09:03]
+02. Tafelmusik Baroque Orchestra (Pachelbel)-Canon and Gigue in D [04:06]
+03. Tafelmusik Baroque Orchestra (Pachelbel)-Canon and Gigue in D [01:36]
+04. Chicago Pro Musica (Walton)-Facade Suite {Fanfare} [00:34]
+05. Chicago Pro Musica (Walton)-Facade Suite {Scotch Rhapsody} [01:10]
+06. Chicago Pro Musica (Walton)-Facade Suite {Tango Pasodoble} [01:54]
+07. Minoru Nojima (Liszt)-Feux Follets [03:40]
+08. Pacific Symphony Orchestra (Respighi)-Church Windows [06:34](   Читать дальше...   )Жанр: Classical InstrumentalПродолжительность: 01:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEBCF182E3F851C6237E5DEFAF9784C8A621744E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563536   (403387) от 22.10.2012
 
 Princess - 5 albums (2002-2008) [MP3|320 кб/с]<Classical crossover, Violin>
@@ -6,7 +41,7 @@ Princess - 5 albums (2002-2008) [MP3|320 кб/с]<Classical crossover, Violin>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403387.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ VA - Kopfbezogene Stereophonie "Klassik 1" (1988) 2 Binaural CD[FLAC|Lossless]<C
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402791.jpg" />
 </div>
 
 
@@ -77,7 +112,7 @@ J.S. Bach - Goldberg Variations BWW 988 on organ (Elena Barshai) (2007) [FLAC|Lo
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402745.jpg" />
 </div>
 
 
@@ -103,7 +138,7 @@ Mozart, Beethoven, Schumann, Schubert, Grieg - Piano Concertos: Svjatoslav Richt
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400789.jpg" />
 </div>
 
 
@@ -132,7 +167,7 @@ Giuseppe Verdi - La Forza del destino (1986) 3CD [FLAC|Lossless]<Classical, Roma
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394862.jpg" />
 </div>
 
 
@@ -160,7 +195,7 @@ Lindsey Stirling - Lindsey Stirling (Target Exclusive Deluxe Edition) (2013) [FL
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391525.jpg" />
 </div>
 
 
@@ -189,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391505.jpg" />
 </div>
 
 
@@ -224,7 +259,7 @@ Wolfgang Amadeus Mozart - Mitridate  (Christophe Rousset & Les Talens Lyriques) 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389249.jpg" />
 </div>
 
 
@@ -252,7 +287,7 @@ Hardy Rittner - Brahms - Early Piano Works Vol.2 (2008) [DST 5.1, 2.0 1bit/2822,
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387639.jpg" />
 </div>
 
 
@@ -287,7 +322,7 @@ Csaba/Heisser - Johannes Brahms – The Violin Sonatas (2004) [DST 5.0, 2.0 1bit
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387631.jpg" />
 </div>
 
 
@@ -322,7 +357,7 @@ Berliner Barock Solisten / Thomas Quasthoff - J.S. Bach - Kantaten BWV 56, 158 &
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387626.jpg" />
 </div>
 
 
@@ -357,7 +392,7 @@ Bach Collegium Japan / Masaaki Suzuki - J.S. Bach - Cantatas Vol. 34 (2007) [DST
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387618.jpg" />
 </div>
 
 
@@ -385,7 +420,7 @@ Gerd Zacher - Mendelssohn, Brahms: Organ Works (2006) 2 SACD [DST 5.1, 2.0 1bit/
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387616.jpg" />
 </div>
 
 
@@ -420,7 +455,7 @@ Bach Collegium Japan / Masaaki Suzuki - J.S. Bach - Cantatas Vol. 43 (2008) [DST
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387494.jpg" />
 </div>
 
 
@@ -448,7 +483,7 @@ Martin Schmeding - Brahms - Organ Works (2007) [DST 5.1, 2.0 1bit/2822,4kHz |SAC
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387484.jpg" />
 </div>
 
 
@@ -483,7 +518,7 @@ Anne Horsch - Brahms - Organ Works (2008) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387337.jpg" />
 </div>
 
 
@@ -513,7 +548,7 @@ Virgil Fox - The Bach Gamut: Live in San Fracisco 1976 (2006) [FLAC|Lossless|ima
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387287.jpg" />
 </div>
 
 
@@ -542,7 +577,7 @@ Scottish Chamber Orchestra - Brahms – Violin Concerto & Hungarian Dances (2004
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387214.jpg" />
 </div>
 
 
@@ -577,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387208.jpg" />
 </div>
 
 
@@ -603,7 +638,7 @@ Julia Fischer - J.S. Bach - Sonatas And Partitas For Solo Violin BWV 1001-1006 (
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387205.jpg" />
 </div>
 
 
@@ -638,7 +673,7 @@ Wuerttembergische Philharmonie Reutlingen, Jascha Heifetz - Bach, Mozart, Brahms
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387201.jpg" />
 </div>
 
 
@@ -673,7 +708,7 @@ Academy Of Ancient Music / Richard Egarr - J.S. Bach - The Six Brandenburg Conce
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387199.jpg" />
 </div>
 
 
@@ -708,7 +743,7 @@ Stockholm Baroque Orchestra / Maria Lindal - Dancing Bach (2006) [DST 5.0, 2.0 1
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387194.jpg" />
 </div>
 
 
@@ -743,7 +778,7 @@ Brecon Baroque, Rachel Podger - J.S. Bach - Violin Concertos (2010) [DST 5.0, 2.
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387068.jpg" />
 </div>
 
 
@@ -778,7 +813,7 @@ Knud Vad - J.S. Bach: Complete Organ Works (2005) Box Set 18SACD [DST 5.1, 2.0|1
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386772.jpg" />
 </div>
 
 
@@ -792,35 +827,6 @@ Allegro (4:28) • SONATA NO. 3 IN D MINOR, BWV 527 : 7. I. Andante (6:20) • 8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3476A8BC029D9BC6D142B5A1D3480D9C81C32634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067160   (386482) от 29.10.2016
-
-J.S.Bach - Ouvertures (The 4 Orchestral Suites) (Bach Collegium Japan, Masaaki Suzuki) (2005) [DST64 2.0, DST64 5.0|64(2,8 MHz/1 Bit|ISO|SACD-R] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск #01
-01. Ouverture III: Ouverture (10:23)
-02. Air (4:44)
-03. Gavotte (4:28)(   Читать дальше...   )Производство: BIS RecordsЖанр: ClassicalФормат: SACD-R (image+booklet)Продолжительность: 01:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F038AC468370CAD92602EC0865498059EC4EAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

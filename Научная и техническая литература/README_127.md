@@ -1,136 +1,3 @@
-###  Публикация: 1107719   (865603) от 23.02.2017
-
-С.М. Рюмик | 1000 и одна микроконтроллерная схема. Выпуск 3 (2016) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865603.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой книге «Выпуск 3» содержатся электрические схемы сопряжения микроконтроллеров с внешними устройствами. Основной упор, в отличие от аналогичных по тематике изданий, делается на рассмотрение небольших, конструктивно завершённых, схемных узлов.
-В книге освещается работа базовых микроконтроллерных подсистем, в частности ввода и вывода сигналов, питания, тактирования, (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193B913034891F5833080529D3FADC9D97F4EE06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375418   (865384) от 14.04.2020
-
-Екатерина Кононенко | Продюсер. Инструкция по применению, или Куда приводят мечты (2019) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Екатерина Кононенко – продюсер таких громких и рейтинговых проектов, как фильмы "Марафон желаний", "Я худею", "Хардкор", "Кислород", "Троица", клипов к песням "Пьяная любовь" (Дима Билан & Polina), "Вояж" и "Кольщик" (группа "Ленинград") и многих других.
-
-"В кино у (   Читать дальше...   )Жанр: Культура и искусство, Кинематограф, Истории успехаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67EC1D3AB3D67B7344885CE185BD898FE02017D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375587   (865312) от 14.04.2020
-
-Серджио Боллиторе | Италия. Полная история страны (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Италия – страна с историей, которая насчитывает не одну тысячу лет. Цезарь, Наполеон, Леонардо да Винчи – великие итальянцы, которые покорили мир! А сколько открытий и достижений во всех областях науки и искусства было совершено именно в Италии! Все самые важные события от этрусков до Берлускони найдет читатель в этой книге. Интересно читать и легко запомнить все (   Читать дальше...   )Жанр: Культурология, Популярно об историиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F474CAD9FD2739CA50EE764590BDDD7544979DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375453   (865305) от 14.04.2020
-
-Джон Брокман (ред.) | Искусственный интеллект – надежды и опасения (2020) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865305.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далеком 1950 году американский математик, отец-основатель кибернетики и теории искусственного интеллекта Норберт Винер опубликовал работу «Человеческое применение человеческих существ» (в русском переводе – «Кибернетика и общество»), в которой выразил свои опасения, связанные с развитием искусственного интеллекта.Жанр: Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B1460A10CDCDBF7F6AEC53120A50F18AA787C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300787   (865293) от 02.03.2011
-
-Мир в войнах | Серия книг [1998-2006] [fb2, djvu]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: fb2, djvu
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999447   (864824) от 22.03.2016
 
 М. Червонный | Конспект курса политграмоты [Изд. 2-е] (1925) [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864824.jpg" />
 </div>
 
 
@@ -167,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864823.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864820.jpg" />
 </div>
 
 
@@ -221,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864816.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864810.jpg" />
 </div>
 
 
@@ -276,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864776.jpg" />
 </div>
 
 
@@ -302,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864728.jpg" />
 </div>
 
 
@@ -330,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864726.jpg" />
 </div>
 
 
@@ -356,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864718.jpg" />
 </div>
 
 
@@ -384,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864622.jpg" />
 </div>
 
 
@@ -410,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864617.jpg" />
 </div>
 
 
@@ -439,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864573.jpg" />
 </div>
 
 
@@ -465,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864535.jpg" />
 </div>
 
 
@@ -491,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864513.jpg" />
 </div>
 
 
@@ -520,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864512.jpg" />
 </div>
 
 
@@ -547,7 +414,7 @@ I.T. Johnson, G.M. Williamson / И.Т. Джонсон, Г.М. Уильямсон
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864412.jpg" />
 </div>
 
 
@@ -573,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864403.jpg" />
 </div>
 
 
@@ -599,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864346.jpg" />
 </div>
 
 
@@ -627,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864339.jpg" />
 </div>
 
 
@@ -653,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864273.jpg" />
 </div>
 
 
@@ -679,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864267.jpg" />
 </div>
 
 
@@ -690,6 +557,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7732CFA69617F1FF8B03BBAE275615653F4ADF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108134   (863922) от 24.02.2017
+
+Р.Л. Смелянский | Компьютерные сети [2 тома] (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863922.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1 томе приведены теоретические основы систем передачи данных, характеристики основных видов физических сред, способы кодирования и передачи аналоговых и цифровых данных, основы организации компьютерных сетей и систем передачи данных.
+Рассмотрены основы международной и отечественной систем стандартизации в области компьютерных сетей, ладонная модель взаимодействия (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00D4DF33F8149CB5BC9C5A4AD5C11682ADB6CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374750   (863870) от 15.04.2020
+
+М.В. Алпатов | Этюды по всеобщей истории искусств. Избранные искусствоведческие работы (1979) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Владимирович Алпатов родился 27 ноября (10 декабря) 1902 года в Москве. Учился в Реальном училище, затем в 1919—1921 годах на филологическом факультете Московского университета на отделении истории искусств.
+В 1954 году М. В. Алпатов избран действительным членом Академии художеств СССР. В 1958 году ему присвоено звание заслуженного деятеля искусств РСФСР. (   Читать дальше...   )Жанр: искусствоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819D02A6605839B51D83FCD3E9D77CF60E153BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375792   (863751) от 15.04.2020
+
+Юрий Мишаткин | Соловушка НКВД (2020) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863751.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой книге волгоградского писателя повествование о закордонной деятельности перед Отечественной войной агентов ОГПУ-НКВД певицы Н. Плевицкой и ее мужа, белого генерала, судебных процессах, казнях главных чекистов страны Ягоды, Ежова, Берии, Абакумова, Меркулова, невыдуманные рассказы.Жанр: Роман-исповедь, документальные повести, рассказыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55824D5484260CE5690D5F51EF456575CF94BF6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999671   (863052) от 23.03.2016
+
+И. А. Трахтенберг | Капиталистическое воспроизводство и экономические кризисы (1954) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863052.jpg" />
+</div>
+
+
+###  Подробнее
+
+С тех пор, как крупная машинная индустрия стала господствующей формой капиталистического производства, развитие хозяйства буржуазных стран периодически прерывается. Каждые 7—10 лет разражается экономический кризис: обнаруживается, что произведено слишком много товаров — больше того, что может найти себе сбыт, что может быть реализовано, т. е. продано за деньги. Товары (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3356806A2B94AE1DD720E826301B3226A0B4D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999654   (863049) от 23.03.2016
+
+М. Митин | Диалектический материализм – мировоззрение марксистско-ленинской партии (1941) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тема «Диалектический материализм как мировоззрение марксистско-ленинской партии» — очень большая.
+
+В данной брошюре мы ограничимся следующими тремя вопросами: 1) что такое диалектический материализм и как он возник, 2) как наша партия на протяжении всей своей истории боролась за это мировоззрение, отстаивала его чистоту, 3) какую роль играет диалектический материализм (   Читать дальше...   )Жанр: История, философия, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF7191C9D32DE53F3F61FEAE2ABECB33F4237A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,134 @@
+###  Публикация: 1808111   (2383) от 17.09.2025
+
+Операция «Катастрофа» / Morning Departure (1950) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для экипажа британской субмарины «Троянец» это должно было быть обычное утро, пока их жизни навсегда не изменила непредвиденная катастрофа. После случайного столкновения с миной в мирных британских водах, сильнейший взрыв отправил лодку на океанское дно с запертыми внутри 12-ю моряками.Производство: Великобритания / J. Arthur Rank Organisation,Jay Lewis ProductionsЖанр: драма, военный, историяРежиссер: Рой Уорд БейкерАктеры: Джон Миллз, Найджел Патрик, Питер Хэммонд, Эндрю Кроуфорд, Майкл Бреннан, Джордж Коул, Виктор Маддерн, Родди МакМиллан, Фрэнк Коберн, Джек СтюартПеревод: Одноголосый любительский (den904)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: tt0042810
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9939A47C3421DC2CDE23F06010C1664D5CBC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818533   (2327) от 17.09.2025
+
+Приключения Боба и Дага МакКензи. Странное варево / The Adventures of Bob and Doug McKenzie: Strange Brew (1983) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два добряка-придурка братья Боб и Даг Маккензи попали на пивзавод в самый разгар дележа власти на предприятии. Совсем недавно скончался глава фирмы, а на пивоварне уже вовсю властвует его братец Клод. Клод времени зря не теряет и женится на вдове брата. Но эта парочка не учла, что существует ещё и совершеннолетняя дочь Памела, которой по закону принадлежит больше (   Читать дальше...   )Производство: Канада, США / Metro-Goldwyn-Mayer (MGM)Жанр: фантастика, комедия, криминалРежиссер: Рик Морэнис, Дэйв ТомасАктеры: Дэйв Томас, Рик Морэнис, Макс фон Сюдов, Пол Дули, Линн Гриффин, Энгус МакИннес, Том Харви, Дуглас Кэмпбелл, Брайан МакКоннаки, Лен ДончеффПеревод: профессиональный двухголосый (HTB+)Язык озвучки: русский, английскийСубтитры: русские (на места без перевода)Продолжительность: 01:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CAC83D996CFD3D9950EA8079770FE2B9AE3FC10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808619   (2196) от 18.09.2025
+
+Орел или решка / Pile ou face (1980) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2196.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Альфреда Харриса
+ Жена Эдуара Морле выпала из окна. Инспектор Барни уверен, что Эдуар избавился от жены, чтобы осуществить свою давнюю мечту — вместе с любовницей уехать на тропический остров. Несмотря на то, что дело закрыто за неимением улик, старый полицейский пёс продолжает копать. Но почему он так уверен в своей версии?Производство: Франция / Antenne-2, FDRЖанр: триллер, драма, криминал, детектив, экранизацияРежиссер: Робер ЭнрикоАктеры: Филипп Нуаре, Мишель Серро, Дороти, Андре Фалькон, Бернар Ле Кок, Гаэль Легран, Фред Персонн, Пьер Ардити, Жан Дезайи, Антониетта МойяПеревод: Дублированный (Ленфильм)Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B69A9CDA2187BF18DCCE5F76F9C994FB9B2566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818777   (2150) от 18.09.2025
+
+Ночью правит террор / The Night Holds Terror (1955) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа сбежавших заключенных, спасаясь от полицейского преследования, захватывает пригородный дом, превращая жизнь живущей там семьи в кошмар. Чем дольше преступники остаются там, тем больше нарастает напряженность и тем больше вероятность того, что произойдет трагедия. Фильм основан на реальных событиях, связанных с ограблением поезда, произошедшим в 1950-х годах (   Читать дальше...   )Производство: США / Andrew L. Stone ProductionsЖанр: фильм-нуар, триллер, драма, криминалРежиссер: Эндрю Л. СтоунАктеры: Джек Келли, Хильди Паркс, Винс Эдвардс, Джон Кассаветис, Дэвид Кросс, Эдди Марр, Джек Крушен, Джойс МакКласки, Джонатан Хейл, Барни ФиллипсПеревод: Авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F20C331A264A8C764FC46509FC9146C4456EF2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818920   (2027) от 19.09.2025
+
+Графиня из Гонконга / A Countess from Hong Kong (1967) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет в общих чертах основан на истории русской певицы и танцовщицы Мусии «Ской» Содской, с которой Чаплин познакомился во Франции в 1921 году... Влиятельный американский дипломат завершает круиз по всему миру, возвращаясь в США. В Гонконге он встречает русскую графиню-эмигрантку, вынужденную работать танцовщицей. На следующее утро после весело проведённого вечера (   Читать дальше...   )Производство: Великобритания / Chaplin Film Productions Ltd., Universal PicturesЖанр: комедия, мелодрамаРежиссер: Чарли ЧаплинАктеры: Марлон Брандо, Софи Лорен, Сидни Чаплин, Типпи Хедрен, Патрик Каргилл, Майкл Медуин, Оливер Джонстон, Джон Пол, Маргарет Разерфорд, Питер Бартлетт, Билл Наги, Дилис Лэй, Анджела Прингл, Дженни Бриджес, Артур ГроссПеревод: профессиональный многоголосый (5 канал; Юниверсал)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B8CAAB465DD22C9C4D92E059BB86424E0B359A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818931   (1991) от 19.09.2025
 
 Женщина в чёрном / The Woman in Black (1989) BDRip [H.264] [AVO]
@@ -6,7 +137,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1991.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1901.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1681.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1603.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1554.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1465.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1462.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1176.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1017.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_992.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_951.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_842.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_563.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_388.jpg" />
 </div>
 
 

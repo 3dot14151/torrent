@@ -6,7 +6,7 @@ Midnight Serenaders - Hot Lovin' (2011) [FLAC|Lossless]<Swing, Retro Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253349.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Battista Lena Trio - Plays (2000) [FLAC|Lossless]<Contemporary Jazz, Modern Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252847.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Belogenis Malaby Dunn Sawyer - Twice Told Tales (2003) [FLAC|Lossless]<Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252843.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sarah Menescal - Moonlight Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa No
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252453.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Blue Notes - The Finest Voices In Jazz (2005) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251413.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Fausto Papetti - Grand Collection (1988) [FLAC|Lossless]<Pop, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251166.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Luis Russell - Luis Russell and orchestra (1930-1934) (1996) [FLAC|Lossless]<Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251128.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Fats Waller - 1941 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249821.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Michael Feinstein - Michael & George: Feinstein Sings Gershwin (1998) Concord Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249767.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Clifford Brown & Max Roach All Stars - Best Coast Jazz (1954) 2015, Fresh Sound 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249632.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Jacky Terrasson & Cassandra Wilson - Rendezvous (1997) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249133.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Oscar Peterson - Exclusively For My Friends 6CD +1CD (1993 & 1996) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248874.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Erroll Garner - The Original Misty (1954) (1988) [FLAC|Lossless]<Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248766.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ The Frank Wess Orchestra - Entre Nous (1990) (1991) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248758.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Avi Lebo Double Trombone Quintet & Slide Hampton - Shades of Brass (1996) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248744.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ John Coltrane - The Best of John Coltrane (2009) [FLAC|Lossless]<Bop, Hard Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248424.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Muggsy Spanier - Muggsy Spanier  (1944) (1997) [FLAC|Lossless]<Dixieland, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_246378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246378.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Kandace Springs - The Women Who Raised Me (2020) [FLAC|Lossless|image + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246023.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Michael Davis - Absolute Trombone (1997) Hip-Bone Music [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245957.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ The Teddy Buckner Band - In Concert At The Dixieland Jubilee (1955) 1988, Gnp Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245949.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Phil Woods Quartet - European Tour Live (1980) 2CD, 1995, Red Record [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245938.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Sonny Rollins - And The Contemporary Leaders (1958) 1988, Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245937.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Tete Montoliu - Catalonian Folksongs (1977) Remaster, 2015, Solid Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245929.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Johnny Smith - The New Johnny Smith Quartet (1956) Remaster, 2016, Warner[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245912.jpg" />
 </div>
 
 
@@ -776,7 +776,7 @@ Dan Nimmer Trio - Horizons (2020) Venus Records [FLAC|Lossless|image + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245910.jpg" />
 </div>
 
 
@@ -805,7 +805,7 @@ Steve Lacy - The Window (1988) Soul Note[FLAC|Lossless|tracks + .cue] <Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245836.jpg" />
 </div>
 
 

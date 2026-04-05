@@ -6,7 +6,7 @@ Fred Hersch - Open Book (2017) Palmetto Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236791.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Dutch Jazz Orchestra - Portrait of a Silk Thread: Newly Discovered Works of 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236776.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ June Christy - This Time Of Year (1961) 2010, Toshiba-EMI [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236765.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Phil Woods Quintet + One - Flash (1990) Concord Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236764.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Konstantin Klashtorni - Chillaxonic: 3rd Facet (2023) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236706.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Betty Carter - I Can't Help It (1992) Impulse! [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236688.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Riccardo Fassi & Gary Smulyan - L'amico Immaginario (1994) 1998, Splasc(H) Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236599.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jimmy Giuffre - Jimmy Giuffre (1954, 1955) 2005, Membran Music [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236527.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ European Jazz Trio - Pray: Spring Sea (2012) M&I [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236449.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Barney Kessel - Three Classic Albums Plus (1957 - 1959) 2CD, 2012, Avid Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236421.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Steve Gadd, Eddie Gomez, Ronnie Cuber - Center Stage (2022) Leopard [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236393.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hank Jones - Here's Love (1963) 2011, Universal [FLAC|Lossless|image + .cue] <Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236350.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Charlie Barnet - Giants Of The Big Band Era (1990) MAGMA [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236323.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Dena DeRose - Live at Jazz Standard, Vol. 1 (2007) MaxJazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236318.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Eddie Gomez - Discovery (1987) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236310.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Luciana Souza - The Book Of Chet (2012) Sunnyside [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236294.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Black Art Jazz Collective - Ascension (2020) HighNote Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236256.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Artie Shaw - 1945 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236228.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Miles Davis & Gil Evans - Concierto de Aranjuez (1961) 1990, Giants Of Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236221.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Eddie Gomez Trio - Palermo (2007) Jazz Eyes [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236169.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Eric Alexander Quartet - Sunday In New York (2006) Venus Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236148.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Florian Pellissier Quintet - Rio (2021) Hot Casa Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236132.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Carmen Lundy - Soul To Soul (2014) Core Port [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236093.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Jessica Williams - Songs For A New Century (2008) Origin Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236087.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Gary Versace - All For Now (2020) SteepleChase [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236051.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Eddie Higgins Trio - Secret Love (2007) Venus Records [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236046.jpg" />
 </div>
 
 

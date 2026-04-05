@@ -1,3 +1,160 @@
+###  Публикация: 1122136   (794176) от 05.04.2017
+
+Интернет-компании выступили против блокировки сайтов с нелицензионным кино
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_794176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российские интернет-компании высказались против предложения министра культуры Владимира Мединского упростить процедуру блокировки сайтов с нелицензионным контентом. Об этом пишет газета «Ведомости» со ссылкой на письмо Российской ассоциации электронных коммуникаций (РАЭК) спикеру Госдумы Вячеславу Володину.Из послания следует, что стремление защитить российское кино, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122350   (794144) от 05.04.2017
+
+FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794144.jpg" />
+</div>
+
+
+###  Подробнее
+
+FlatOut 4: Total Insanity - это очередная часть знаменитой гоночной аркадной серии, в которой игрокам позволено фактически все - в том числе и "стрелять" водителем автомобиля из лобового стекла, чтобы установить рекорд дальности полета. Подзаголовок Total Insanity немного неточен - полного безумия здесь нет. По крайней мере, в режиме карьеры, состоящем (   Читать дальше...   )Тип издания: LicenseРазработчик: Kylotonn Entertainment, Tiny Rebel GamesЖанр: Racing, Arcade, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E6E0545FC80E1DAC6A66866E64C689776375E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122209   (794143) от 05.04.2017
+
+Когда российское кино совсем "не заходит"
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_794143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Претензия
+Довожу до Вашего сведения, что мной 18 марта 2017 года был приобретен билет на просмотр фильма "Везучий случай".В кинозал я вошел в хорошем настроении. По заявлении кинотеатром и режиссером Самгиным фильм "Везучий случай" - комедия. Но заявленными характеристиками фильм не обладает. Шутки, которые используются в фильме уже были использованы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122580   (794142) от 05.04.2017
+
+LEGO City Undercover (2017) [Ru/Multi] (1.0) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к Чейзу! В игре LEGO® CITY Undercover вы примерите на себя роль Чейза Маккейна — офицера полиции, которому поручена операция под прикрытием по поиску преступника Рекса Фьюри. В совместном режиме для двух игроков можно исследовать открытый мир мегаполиса LEGO® City, состоящего из более чем 20 кварталов, в котором вас ждут расследования, угонщики, вождение (   Читать дальше...   )Тип издания: LicenseРазработчик: Traveller's TalesЖанр: Action, Arcade, 3D, 3rd Person, Open WorldЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10321EDC579E4E08FA6FEEF102978F941D4DEB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122607   (794140) от 05.04.2017
+
+Максим Дорофеев | Джедайские техники. Как воспитать свою обезьяну, опустошить инбокс и сберечь мыслетопливо (2017) [FB2]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему, даже зная, как надо правильно работать, человек на практике делает все так, как привык… то есть плохо? Максим Дорофеев простым и доступным языком объясняет, почему так происходит. Прочитав его книгу, вы узнаете, как устроено ваше мышление и память; почему вы неэкономно тратите ресурсы своего мозга; как их сохранить, как правильно концентрироваться, формулировать (   Читать дальше...   )Жанр: Личностный рост, Самосовершенствование, Лайфхаки, Тренировка мышленияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65ABB3915C372DC3FDA15EAB64922F4832F6D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122369   (794137) от 05.04.2017
+
+Бессонная ночь / Sleepless (2017) WEB-DL [H.264/1080p-LQ] [AVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейские Винсент с напарником стали обладателями сумки с 25 килограммами кокаина. Но данный товар принадлежит одной крупной шишке и чтобы вернуть кокаин, у Винсента похищают его сына. Винсент идет возвращать своего сына.Производство: США, FilmNation Entertainment, Open Road Films (II), Riverstone Pictures, Vertigo EntertainmentЖанр: Боевик, ТриллерРежиссер: Баран бо ОдарАктеры: Мишель Монахэн, Гэбриэл Юнион, Дермот Малруни, Джейми Фокс, Скут МакНэри, Дэвид Харбор, Ти-Ай, Вероника МакКласки, Октавиус Дж. Джонсон, Тим КонноллиПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Озвучка / Автор перевода: BadBajoСубтитры: Английские (отключаемые)Продолжительность: 01:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4140119C65684E809F84198B74F729E84986F95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066493   (794136) от 05.04.2017
 
 Ходячие мертвецы / The Walking Dead (2016) WEB-DL [H.264/720p-LQ] (сезон 7, серии 1-16 из 16) LostFilm
@@ -6,7 +163,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794136.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.04/dlc) License CPY
 >>18
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794135.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794134.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793770.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793769.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ Windows 10 стала самой популярной операционной �
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793766.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ WPI x86-x64 by OVGorskiy® 12.2018 1DVD [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793763.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793762.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ Windows 10 Enterprise LTSB x64 (Version 1607) Elgujakviso Edition v.05.01.19 [Ru
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793761.jpg" />
 </div>
 
 
@@ -244,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793695.jpg" />
 </div>
 
 
@@ -271,7 +428,7 @@ YouTube скроет «дизлайки» для всех видео
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793539.jpg" />
 </div>
 
 
@@ -297,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793538.jpg" />
 </div>
 
 
@@ -323,7 +480,7 @@ Pink Floyd - Oh By The Way (16CD Box Set EMI Records 40th Anniversary Edition) (
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793529.jpg" />
 </div>
 
 
@@ -352,7 +509,7 @@ BootPass 4.2.7 Full Native [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793479.jpg" />
 </div>
 
 
@@ -380,7 +537,7 @@ Assetto Corsa (2014) [Ru/En] (1.16.3/dlc) Repack R.G. Origami
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793478.jpg" />
 </div>
 
 
@@ -406,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793477.jpg" />
 </div>
 
 
@@ -432,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793476.jpg" />
 </div>
 
 
@@ -458,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793335.jpg" />
 </div>
 
 
@@ -484,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793227.jpg" />
 </div>
 
 
@@ -510,7 +667,7 @@ Total Commander 8.52a VIM 14 portable by Matros [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793208.jpg" />
 </div>
 
 
@@ -523,162 +680,6 @@ Total Commander 8.52a VIM 14 portable by Matros [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61CD1F1789D1BB35E81D01C27740D2C4E833586F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012596   (793204) от 01.05.2016
-
-Voyager 16.04 LTS [x86-64] 2xDVD
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел новый релиз французского дистрибутива на основе Ubuntu 16.04. В качестве рабочего окружения используется Xfce 4.12.2. Дистрибутив отличается ярким внешнем видом, легкостью и богатыми возможностями кастомизации. В рабочем окружении представлены Conky,Gimp,Thunderbird,Firefox,LibreOffice,Mpv Media Player и др. Ядро 4.4. Так же есть поддержка UEFI.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1EA7383629677308C3DFBA544FA8113CFB93A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710392   (793199) от 01.05.2016
-
-NG. Винни Джонс: Реально о России / Vinnie Jones: Russia's Toughest (2013) HDTVRip [H.264/720p-LQ] [1-6 серии из 6]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот документальный фильм из шести серий рассказывает о Винни Джонсе, который бросает вызов России. Задача Винни - выяснить, почему считается, что здесь так тяжело работать и жить, и соответствует ли это действительности. Винни попробует жить в России, примерив на себя профессии, которые могут показаться очень тяжелыми. Бывшему "плохому мальчику" от футбола (   Читать дальше...   )Жанр: Документальный, познавательныйАктеры: Винни ДжонсПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 6 х ~00:44:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011114   (793198) от 01.05.2016
-
-Dark Souls III (2016) [Ru/Multi] (1.04/dlc) Repack R.G. Games [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793198.jpg" />
-</div>
-
-
-###  Подробнее
-
-DARK SOULS™ III продолжит испытывать игроков на прочность в новой главе прославленной саги, определившей лицо жанра. Огонь гаснет, мир обращается в руины, и вам предстоят сражения с еще более колоссальными врагами. Вас ждет традиционная мрачная и притягательная атмосфера, напряженные битвы и еще более динамичный геймплей.Тип издания: RepackРазработчик: FromSoftware, IncЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA85CF422C1376915254FACB8F019A19355EB6A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012725   (793196) от 01.05.2016
-
-Adobe Photoshop Lightroom 6.5.1 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B172D1F5303069810EA6EA053DEB3263AFD059F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744838   (793195) от 01.05.2016
-
-AirDroid v3.2.1.1 [Ru/Multi] - управление устройством из веб браузера компьютера с помощью Wi-Fi
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793195.jpg" />
-</div>
-
-
-###  Подробнее
-
-AirDroid это бесплатное и удобное приложение, которое поможет Вам управлять Вашим Андроидом прямо из браузера, все без проводов с помощью Wi-Fi.Тип издания: FreeРелиз состоялся: 29.04.2016Разработчик: Sand StudioПоддерживаемая ОС: Android 2.1+ (ICS поддерживается)Язык интерфейса: Мульти / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B263C7EB0EDA3A980A910E064FACC49397F50A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012555   (793193) от 01.05.2016
-
-АСТЕР V7 2.11 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793193.jpg" />
-</div>
-
-
-###  Подробнее
-
-АСТЕР — программа (и только программа!), позволяющая создать несколько рабочих мест на базе одного системного блока. АСТЕР является программным решением и не использует тонкие клиенты или терминальные станции - его аналогами являются такие популярные программы как MS MultiPoint, SoftXpand, Betwin, Userful и др.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC52D3B587011DB9600C0C245B4B42AF24BBF5A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 1502172   (827742) от 14.10.2021
+
+ESET NOD32 Antivirus / Smart Security 8.0.319.1 RePack by KpoJIuK (2021.10.12) [Ru/En]
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827742.jpg" />
+</div>
+
+
+###  Подробнее
+
+ESET NOD32 8 - гарантирует вашему компьютеру высокий уровень антивирусной безопасности. Простой и надежный вариант для базовой защиты ПК от вирусов, червей, троянских программ, шпионского, рекламного и потенциально опасного ПО, руткитов и фишинг-атак.
+ESET Smart Security 8 - поможет сделать работу в интернете максимально защищенной и безопасной. Надежное распознавание (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2657B3042835546F9B4EBCC5F319878333F4D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115215   (827538) от 17.03.2017
+
+Зеленый змий. Тысячелетняя война (2015) SATRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня считается, что Россия страна пьющая, населению длительное время внушалась мысль о том, что пьянство - это старинная русская традиция, но так ли это на самом деле? На этот вопрос попытались ответить авторы фильма, взглянув на проблему распития спиртных напитков через призму истории России.Телекомпания: Россия, ООО «АстраАрт»Жанр: Документальный, история, исследованиеРежиссер: Егор ЖенинПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27FA70FDEBBE1E54E53C7FB3D755030AD0345DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114620   (827527) от 17.03.2017
+
+Российский аналог Alibaba начнут создавать в мае 2017
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заместитель министра экономического развития Олег Фомичев рассказал, что в мае начнется создание национального торгового интернет-агрегатора по примеру знаменитой китайской площадки Alibaba.Но российской площадке, которая будет создана на платформе Сбербанка, продавцы смогут предлагать свои товары как россиянам, так и зарубежным покупателям.В данный момент создается (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380973   (827477) от 06.05.2020
+
+Ученые создали необычный двигатель, который сможет разгонять ракеты непрерывными взрывами
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда ученых из Университета Центральной Флориды впервые испытала экспериментальный ракетный двигатель PDE, который, по их мнению, может изменить подход к запуску космических аппаратов. Результаты исследований были опубликованы в журнале Combustion and Flame.Идея детонационного двигателя (PDE) была предложена выдающимся советским физиком, академиком Я. Б. Зельдовичем (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632072   (827449) от 23.03.2015
+
+Топтуны [1-24 серии из 24] (2013) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Детектив, криминальный фильмРежиссер: Сергей Векслер, Сергей АртимовичАктеры: Денис Никифоров, Анна Носатова, Андрей Негривода, Дарья Шиханова, Ксения Иванова, Владимир Яковлев, Сослан Фидаров, Елена Мольченко (Фатюшина), Сергей Векслер, Евгений Леонов-Гладышев, Александра Афанасьева-Шевчук, Анна Банщикова, Егор Баринов, Луиза-Габриэла Бровина, Александр Рапопорт, Татьяна Косач-Брындина, Алексей Секирин, Бесо Гатаев, Евгений Ермаков, Алена (   Читать дальше...   )Перевод: Оригинал (Русский)Субтитры: ОтсутствуютПродолжительность: 24 х ~ 00:44:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115301   (827422) от 17.03.2017
+
+PC Building Simulator (2016) [En] (5.5.1) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реалистичный симулятор компьютерного мастера, посвященный самостоятельной сборке ПК. По словам создателя PC Building Simulator, в игре представлены точные размеры 3D-моделей комплектующих, а также все соответствующие для них слоты — как в реальной жизни. Игрокам предлагается устанавливать процессор, графику, "оперативку" и SSD-накопители, наносить термопасту, (   Читать дальше...   )Тип издания: RepackРазработчик: McINTYREЖанр: Simulator, 3D, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E060C1D384FBBE87D2F4762BA912D08EE6D0ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114199   (827421) от 17.03.2017
 
 Total Commander 9.0a Freemen 17.3 Full RePack (& Portable) by notn [Multi/Ru]
@@ -6,7 +163,7 @@ Total Commander 9.0a Freemen 17.3 Full RePack (& Portable) by notn [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827421.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827417.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ SIGERSHADERS V-Ray Material Presets Pro 4.1.6 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827414.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ Aлександр Куртеев | Прибыльный интернет-маг�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827413.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827412.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ Windows 10 (x86/x64) 12in1 + LTSB +/- Office 2016 by SmokieBlahBlah 16.03.17 [Ru
 >>24
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827410.jpg" />
 </div>
 
 
@@ -165,7 +322,7 @@ Pinnacle Studio Ultimate 23.2.0.290 + Сontent + Plugins + Tool [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827345.jpg" />
 </div>
 
 
@@ -191,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826854.jpg" />
 </div>
 
 
@@ -219,7 +376,7 @@ BBC: Планета Земля / Planet Earth (2006) HD-DVD Remux [VC-1/1080p] (
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826843.jpg" />
 </div>
 
 
@@ -248,7 +405,7 @@ Bandicam 3.0.4.1035 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826520.jpg" />
 </div>
 
 
@@ -274,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826431.jpg" />
 </div>
 
 
@@ -301,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826427.jpg" />
 </div>
 
 
@@ -327,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826423.jpg" />
 </div>
 
 
@@ -354,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826419.jpg" />
 </div>
 
 
@@ -380,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826418.jpg" />
 </div>
 
 
@@ -406,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826330.jpg" />
 </div>
 
 
@@ -432,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826327.jpg" />
 </div>
 
 
@@ -458,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826226.jpg" />
 </div>
 
 
@@ -484,7 +641,7 @@ Windows 11 Pro 21H2 22000.258 x64 ru by SanLex (2021.10.14) [Ru]
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826110.jpg" />
 </div>
 
 
@@ -510,7 +667,7 @@ Victoria 5.37 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826109.jpg" />
 </div>
 
 
@@ -521,163 +678,6 @@ Victoria 5.37 Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0D474C4CE3B241801A5421B0F1A064605FB9354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368729   (826107) от 15.10.2021
-
-DOOM Eternal (2020) [Ru/Multi] (1.0.7241573/dlc) Repack West4it
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826107.jpg" />
-</div>
-
-
-###  Подробнее
-
-DOOM Eternal от id Software – прямое продолжение хита DOOM, получившего награду «Лучший боевик» на церемонии The Game Awards 2016 года. Прорывайтесь сквозь измерения, сокрушая всё на своём пути с невероятной силой и скоростью. Эта игра задаёт новый стандарт для шутеров с видом от первого лица.Тип издания: RepackРазработчик: id SoftwareЖанр: Action, Shooter, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D701CA4B5296F5CCC3E57218B437F819186E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862592   (825739) от 24.03.2015
-
-Stranded Deep (2015) [En] (0.03) SteamRip R.G. Игроманы [Steam Early Access]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stranded Deep — это квест с видом от первого лица с элементами экшена от студии Beam Team Games. Издателем игры выступает Beam Team Games.
-Сюжет игры прост - терпя авиакрушение ваш герой оказывается посреди Тихого океана. Сооружаем все что попадется под руку, едим все что движется...Тип издания: Steam Early AccessРазработчик: Beam Team GamesЖанр: Indie / Survival RPGЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9E75BD06C0F82A9F38A9673D134790E611B991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115458   (825682) от 18.03.2017
-
-Набор обновлений UpdatePack7R2 17.3.15 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC59B8BEF1CF18BDEBE4F5B486046E47A1C0AD9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115495   (825670) от 18.03.2017
-
-Microsoft перестала поддерживать Windows 7 и 8 на новейшем "железе"
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владельцы современных компьютеров под управлением Windows 7 и Windows 8.1, попытавшиеся установить последние обновления безопасности, получили ошибку о "неподдерживаемом оборудовании". Как оказалось, на этой неделе Microsoft прекратила поддержку устаревших операционных систем на новейшем "железе", о чем компания предупредила еще в январе прошлого (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115819   (825661) от 18.03.2017
-
-Proteus 8 Professional 8.6 SP2 Build 23525 RePack [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Proteus Professional — пакет программ для автоматизированного проектирования электронных схем. Пакет представляет собой систему схемотехнического моделирования, базирующуюся на основе моделей электронных компонентов принятых в PSpice. Отличительной чертой пакета Proteus Professional является возможность моделирования работы программируемых устройств: микроконтроллеров, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1465F4FC192C560A8B9083268EB5D8B3DA4A0C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114516   (825659) от 18.03.2017
-
-Почему он? / Why Him? (2016) (2016) WEB-DLRip [H.264/1080p-LQ] [Line]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава семейства вступает в противостояние с молодым и богатым парнем своей дочери.Производство: США, Камбоджа, 20th Century Fox Film Corporation, 21 Laps Entertainment, Red Hour FilmsЖанр: КомедияРежиссер: Джон ГамбургАктеры: Зои Дойч, Джеймс Франко, Тэнджи Эмброуз, Седрик «Развлекатель», Боб Стефенсон, Брайан Крэнстон, Меган Маллалли, Зак Перлман, Гриффин Глюк, Джи Янг ХаньПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:52:28Реклама: Присутствуют голосовые и текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0632FDD2567725E1A762D4FE0FE97BDB378725FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

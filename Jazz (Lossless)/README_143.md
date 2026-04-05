@@ -6,7 +6,7 @@ The David Hazeltine Trio - The Jobim Songbook in New York (2007) Chesky Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578135.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gerry Mulligan meets Scott Hamilton - Soft Lights & Sweet Music (1986) 2006, Mob
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578133.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jodi Proznick Quartet - Foundations (2007) Cellar Live [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578006.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Andrew Hill - Lift Every Voice (1969) /2014, Universal/[FLAC|tracks+.cue]<Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577748.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ned Rothenberg - Ned Rothenberg Quintet for Clarinet and Strings (2010) [FLAC|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577746.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jimmy Smith - Open House & Plain Talk (1960) /1999, Ars Nova/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577744.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nancy Danino - Testify (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577619.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Various Artists - Gentle Jazz (2010) [FLAC|Lossless]<Vocal Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_577418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_577418.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ We3 - Amazing (2011) [FLAC|Lossless]<Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_577415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_577415.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Romane - Swing for ninine (2011) [FLAC|Lossless]<Swing, Guitar Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_577278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_577278.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Alexandre Tharaud - Le Boeuf sur le Toit: Swinging Paris (2012) Virgin Classics[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576736.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Franco Cerri - Passavo Di Qui (2012) [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576730.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Ronnie Cuber - Passion Fruit (1986) King Records[FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576727.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ La Machine Ronde - Music Makes The World Go Round (2015) [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576717.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Paulinho da Viola - Samba E Choro Negro (1993) [APE|Lossless|tracks + .cue] <Bra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576716.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Count Basie - Classic Jazz Archive (2004) 2CD [FLAC|Lossless]<Jazz, Swing, Big B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576700.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Joscho Stephan Trio meets Matthias Strucken - Gypsy Vibes (2016) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576652.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Max Roach - Long as You're Living (1960) 1990, Enja [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576368.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Anita O'Day - Live in Tokyo '63 (2007) Kayo [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576367.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Chico Freeman 4-tet - Spoken into Existence (2015) Jive Music [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576366.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Members Of The Artie Shaw Orchestra - A Tribute To Artie Shaw (1997) Green Hill 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576362.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Jamie Cullum & Friends - Devil May Care! (2010) Candid [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576361.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Julie London - The Essential Recordings (1955 - 1962) 2CD, 2016, Primo [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576245.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Dean Martin - This Time I'm Swingin'! (1960) 2013, Mobile Fidelity Sound Lab [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576241.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Theo Croker - Blk2life, A Future Past (2021) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575779.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Caroline - Dog Eats Cat Eats Mouse (2015) [FLAC|Lossless|image + .cue] <Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574929.jpg" />
 </div>
 
 

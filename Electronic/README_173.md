@@ -1,3 +1,61 @@
+###  Публикация: 1215968   (751243) от 30.03.2018
+
+Ghosts - The Second Compilation by ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ (2018) [MP3|320 Kbps] <Ambient, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. insomnia_afraid 2:46
+02. niels_binias_nebuchadnezzar 8:15
+03. ecepta_regret 3:44
+04. black_paper_why 5:40(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 02:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D83710ECBB728BFB05EFB3A32B9E37BA7939C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216263   (751239) от 30.03.2018
+
+St. Germain - Tourist (Limited Edition) (2000) Blue Note [FLAC|Lossless|tracks + .cue] <Downtempo, Deep House, Future Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751239.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Rose Rouge (07:02)
+02. Montego Bay Spleen (05:43)
+03. So Flute (08:29)(   Читать дальше...   )Жанр: Downtempo, Deep House, Future JazzПродолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9352F369181257E4F454C20B271B73B8B15DE515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216446   (751209) от 30.03.2018
 
 Café del Mar - Phuket (2018) [MP3|320 Kbps] <Downtempo, Chill House, Nu Disco>
@@ -6,7 +64,7 @@ Café del Mar - Phuket (2018) [MP3|320 Kbps] <Downtempo, Chill House, Nu Disco>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751209.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Enrico Sangiuliano - Discography 14 Releases (2009-2018) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751030.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ Zinovia Arvanitidi - Ivory (2018) Kitchen. Label [FLAC|Lossless|WEB-DL|tracks] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750722.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ VA - Garten Lounge Musik (2016) [MP3|320 кб/с] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750270.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ VA - Mallorca Chillout Lounge Music (200 Songs) (2016) [MP3|320 кб/с] <Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750253.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ Alex de Vega - Dark Adaptation (2013) [MP3|320 kbps] <Jungle, Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750198.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ omni causa - Discography 5 Releases (2016-2020) mindcolormusic [FLAC|Lossless|tr
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750170.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ Starfish Pool - Collection 19 Releases (1995-2001) [FLAC|Lossless|tracks+.cue, t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750017.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ Solar Bears - Discography 8 Releases (2010-2016) Planet Mu, Sunday Best [FLAC|Lo
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750008.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ New Arcades - Proximity (2021) [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749900.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ MUST DIE! - CRISIS VISION (2021) 2CD Deluxe Edition [FLAC|Lossless|tracks + .cue
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749672.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Soul Button - Ojas (2018) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Tech House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749578.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Aly & Fila - Future Sound of Egypt 541 (2018) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749577.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ George FitzGerald - All That Must Be (2018) [FLAC|Lossless|WEB-DL|tracks] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749330.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Carpenter Brut - Leather Teeth (2018) [MP3|320 Kbps] <80s, Dark Synth, Retrowave
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749214.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Summer Chill (2016) [MP3|320 кб/с] <Chill Out, Chill House>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748640.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Big Party: EDM Anthems (2019) [MP3|320 Kbps] <Big Room, Progressve House, F
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748514.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - We Love House (2019) [MP3|320 Kbps] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748512.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Sounds Of Instruments 03 (Mixed by Terry Lee Brown Jr.) (2007) [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748511.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Côte Déserte (Cote Deserte) - Dale Cooper's Case (2011) EP [FLAC|Lossless|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748507.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Dancefloor Hits (2019) [MP3|320 Kbps] <House,  Progressive House, Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748506.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Côte Déserte (Cote Deserte) - Strange To Look At Her. It Seems That... (2014) 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748430.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - I Love Chill Vol. 4 (Finest Ambient Lounge And Chillout Music) (2019) [MP3|
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748424.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748408.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EFCC64AA2E4344A8F7188E494372AB659753883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281974   (748292) от 10.02.2019
-
-Sopor Aeternus - Death & Flamingos (2019) [MP3|320 Kbps] <Darkwave, Gothic Rock, Neo-Classic, Deathrock>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748292.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Side A
-2. Kinder Des Teufels
-3. Spell Bound
-4. The Boy Must Die(   Читать дальше...   )Жанр: Darkwave, Gothic Rock, Neo-Classic, DeathrockПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FA4AA5AA2A946EAD5A3E228F07BE6C98115133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019395   (748203) от 24.05.2016
-
-Shakti - Psychedelic Experience (2016) [FLAC|Lossless|image + .cue] <Psychedelic Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brightlight - What are you looking for
-02. Dr Hoffman - My problem child
-03. Ganesha - Waiting for the sun
-04. Ganesha - Space love(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16094997A19080FD8E5818A6622C8594D3503972
 ```
 
 https://mybot314.ru/tekegram_catalog/

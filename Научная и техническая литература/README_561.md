@@ -1,136 +1,3 @@
-###  Публикация: 1270445   (157497) от 19.12.2018
-
-Ю.Т. Зырянов и др. | Проектирование радиопередающих устройств для систем подвижной радиосвязи (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157497.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрено построение усилителей мощности автогенераторов и умножителей частоты для радиопередатчиков подвижной связи. Подробно освещены вопросы выбора генераторных приборов, определения схем построения режимов работы, согласования в узкой и широкой полосе частот, повышения выходной мощности этих устройств, а также увеличения полосы рабочих частот (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADCC110F7C000B0B9B3FDCA35165684B4E3FD28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270428   (157492) от 19.12.2018
-
-В.С. Солодов, Н.В. Калитёнков | Надежность радиоэлектронного оборудования и средств автоматики (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание пособия соответствует программе «Надежность и техническая диагностика транспортного радиооборудования и средств автоматики» для специальности «Техническая эксплуатация транспортного радиооборудования».
-Курс состоит из 15 лекций и рассчитан на изучение дисциплины в течение одного семестра. Лекции содержат тщательно подобранные примеры решения типовых задачЖанр: РадиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54EA3884E2CF3138CDF42F6D9E373D96BF256424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518058   (157457) от 18.12.2021
-
-Ричи Босток | Дыхание. Как у вас с ним? (2022) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваша жизнь начинается с первого вздоха и заканчивается последним, каждый год вы вдыхаете около 8 миллионов раз, но даже не подозреваете, что на самом деле не умеете правильно дышать. А ведь дыхание – настоящая суперсила и может подзарядить лучше, чем чашка эспрессо, помочь ясно и креативно мыслить, успокоить встревоженный разум и расслабиться в считаные минуты. У (   Читать дальше...   )Жанр: Здоровье, Популярно о медицинеПеревод: А. В. ИвановаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221306D630A941CD636F851C4ADE9D4BAA2A1A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600336   (157432) от 27.12.2022
-
-Ю. С. Забродин | Промышленная электроника (1982) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157432.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются принцип действия полупроводниковых приборов, транзисторных усилителей и интегральных схем импульсной и цифровой техники: выпрямители, инверторы, преобразователи частоты и т.д.
-Предназначается для студентов энергетических и электромеханических специальностей.Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26886160C58C5AB90A13371295BAD46C0841F11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270602   (157426) от 19.12.2018
-
-К.А. Карпов, Р.О. Олехнович | Прикладная гидрогазодинамика (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157426.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии представлены теоретические основы, расчетные зависимости, справочные данные и задачи (с примерами решения и числовыми ответами) по прикладной гидрогазодинамике, а также рекомендации по проведению технологических расчетов нефте- и газопроводов.
-Учебное пособие предназначено для бакалавров, обучающихся по направлению «Теплоэнергетика и теплотехника», «Техническая (   Читать дальше...   )Жанр: Физика, химияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD279B41F7F945C79FB17367B4DF3AB90E4D0EEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518153   (157408) от 18.12.2021
 
 Фрэнк Вильчек | Основы реальности. 10 Фундаментальных принципов устройства вселенной (2021) [FB2]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157408.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157392.jpg" />
 </div>
 
 
@@ -194,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157356.jpg" />
 </div>
 
 
@@ -221,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157348.jpg" />
 </div>
 
 
@@ -248,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157263.jpg" />
 </div>
 
 
@@ -275,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157248.jpg" />
 </div>
 
 
@@ -301,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157222.jpg" />
 </div>
 
 
@@ -328,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157190.jpg" />
 </div>
 
 
@@ -354,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157141.jpg" />
 </div>
 
 
@@ -380,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157072.jpg" />
 </div>
 
 
@@ -406,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157049.jpg" />
 </div>
 
 
@@ -434,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157048.jpg" />
 </div>
 
 
@@ -461,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157027.jpg" />
 </div>
 
 
@@ -487,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156994.jpg" />
 </div>
 
 
@@ -514,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156992.jpg" />
 </div>
 
 
@@ -540,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156916.jpg" />
 </div>
 
 
@@ -566,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156909.jpg" />
 </div>
 
 
@@ -592,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156898.jpg" />
 </div>
 
 
@@ -619,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156896.jpg" />
 </div>
 
 
@@ -647,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156881.jpg" />
 </div>
 
 
@@ -674,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156880.jpg" />
 </div>
 
 
@@ -685,6 +552,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3D8B9D033C074BD707C7862991C33B4D71D159B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193491   (156851) от 24.12.2017
+
+Книжная серия | Элитные войска [16 книг] (2001-2007) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия посвящена армиям разных времен и народов: их истории и организации, снаряжению, вооружению, униформе, знакам различия и отличия. Книги отличают тщательность подготовки, историческая достоверность, объективность подхода к описываемым событиям, широта и новизна привлекаемых архивных материалов. Все книги дополнены уникальными фотографиями из государственных и (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E8E46A61991D912B56D930E0315E365116C880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346092   (156819) от 20.12.2019
+
+Карло Ровелли | Срок времени (2020) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карло Ровелли – итальянский физик-теоретик, специалист в области квантовой гравитации, автор нескольких научно-популярных книг. В “Сроке времени” он предлагает неожиданный взгляд на такой, казалось бы, привычный нам всем феномен, как время. Время, утверждает он, не универсальная истина, а иллюзия, это просто наше ощущение последовательности событий, их причинно-следственных (   Читать дальше...   )Жанр: Научно-популярная литература, МетафизикаФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA8D0642115F8CDA2638A24BE3056E008006EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600525   (156725) от 27.12.2022
+
+А.В. Кирилина | Черчение мебели (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие позволит обучающимся получить базовые знания по черчению мебели. Представлены основные правила и требования к черчению изделий мебели. Особое внимание уделено конструированию предметов мебели из материала ЛДСтП.Жанр: Инженерная графикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEE031B55C521F6C0826CECB5AD95474155AC07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194381   (156700) от 24.12.2017
+
+Эд Йонг | Как микробы управляют нами. Тайные властители жизни на Земле (2018) [PDF, FB2, RTF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое животное, будь то человек, кальмар или оса, является домом для миллионов бактерий и других микробов. Эд Йонг, чей юмор столь же очевиден, как и его эрудиция, побуждает нас посмотреть на себя и наших живых спутников внутри в новом свете – не как на индивидуумов, а как на большой взаимосвязанный и взаимозависимый мир, которым мы, безусловно, являемся.
+
+Микробы (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Микробиология, Научно-популярная литератураПеревод: Виктор Ковылин, Полина ИноземцеваФормат: PDF, FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F680B4507F3B650DDF580AC1FD10E27A02F669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433725   (156694) от 21.12.2020
+
+Георг Гегель | Опыты сознания (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156694.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящую книгу знаменитого немецкого мыслителя Г.В.Ф. Гегеля вошел его известный труд «Феноменология духа» и фрагмент произведения «Философия права». «Феноменологию духа» Гегель писал, когда Йену осаждали войска Наполеона, и философ чувствовал себя свидетелем величайшего перелома в истории человечества, перехода от традиционного уклада к всемирной современности. (   Читать дальше...   )Жанр: Зарубежная классика, Книги по философииПеревод: Борис Столпнер, Густав ШпетФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:565D1D05A7EE12F4DDC3EDF154DBC0AB410B2F89
 ```
 
 https://mybot314.ru/tekegram_catalog/

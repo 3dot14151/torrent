@@ -6,7 +6,7 @@ Evanescence - Synthesis Live (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356321.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356161.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ The Beatles: Концерт на стадионе Шей / Shea stadium concert 
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356087.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Masami Okui - GIGS 2007 Masami Life (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355946.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Masami Okui - GIGS 2006 GodSpeed (2006) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355942.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Testament - Dark Roots Of Thrash (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355931.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Kreator - Gods Of Violence: Live At Wacken 2014 (2017) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355640.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355490.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ AC/DC - Live At Donington (1991) DVD-9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_355091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_355091.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Led Zeppelin - Celebration Day (Bonus DVD) (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354767.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354760.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354389.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Popa Chubby - Wild (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354308.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Anthrax - Chile On Hell 2013 (2014) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353693.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Megadeth - Rust In Peace Live (2010) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353316.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Iron Maiden - Maiden England '88 (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353297.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - Осенний марафон № 201 / Видеоклипы (Популя�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353150.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Eric Clapton's: Crossroads Guitar Festival (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352296.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Roger Waters -The Wall Show ( London O2 Arena 5/02/2011 )(Pink Floyd Reunite) (2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_352091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352091.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351865.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Hugh Laurie: Let Them Talk. A Celebration of New Orleans Blues (2011) [1080i] HD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351739.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Gregorian - Live! Masters of Chant: Final Chapter Tour (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351721.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Benny Benassi 'Rough Road' Bus Tour - Episode 5 (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350586.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ DVJ Bazuka - Remind (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350427.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350234.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ U.D.O. - Live in Sofia (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_350081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350081.jpg" />
 </div>
 
 

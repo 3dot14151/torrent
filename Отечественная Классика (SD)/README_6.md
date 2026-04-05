@@ -1,3 +1,55 @@
+###  Публикация: 745819   (962743) от 19.01.2014
+
+Богатая невеста (1937) DVBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идет уборка урожая в одном из украинских колхозов. Отлично работают тракторист Павло и лучшая колхозница Маринка. Они любят друг друга. Но веселый характер девушки нравится не только Павлу. Счетовод и авантюрист Ковынько давно тоскует по Маринке и строит комсомольцам всякие козни...Жанр: музыкальная комедияРежиссер: Иван ПырьевАктеры: Марина Ладынина, Фёдор Курихин, Борис Безгин, Иван Любезнов, Степан Шагайда, Анна Дмоховская, Александр Антонов, Иван Матвеев, Любовь Свешникова, Иван Бондарь, Наталия Гебдовская, Дмитрий КапкаПродолжительность: 01:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D89FE9433CA6A1399F412B5C5A320B9D39B285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745769   (962741) от 19.01.2014
+
+Морской пост (1938) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962741.jpg" />
+</div>
+
+
+###  Подробнее
+
+О буднях морской пограничной заставы в середине30-х годов. На маленьком тихоокеанском острове несет службу гарнизон пограничной охраны НКВД. Небольшой отряд бойцов мужественно защищает родную землю от нападения японских диверсантов и гонит прочь непрошенных гостей.Производство: СССР, Одесская киностудияЖанр: Приключения, военныйРежиссер: Владимир ГончуковАктеры: Иван Новосельцев, С. Юмашева, Николай Ивакин, И. Рожнятовский, Александр Луценко, Василий Людвинский, Владимир Уральский, Мария Яроцкая, Иван Юдин, Петр Аржанов, А. Аэргардт, Даниил Введенский, Р. ПакПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F8419F76EB5815E12C30AC7158CAC0AD81C264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 745986   (962727) от 19.01.2014
 
 Человек №217 (1944) DVDRip
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962727.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962425.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961633.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961105.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960195.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960044.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959906.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958858.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958366.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957858.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957854.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957645.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_957603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_957603.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957599.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957540.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957216.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956269.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954543.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953386.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953275.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952957.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952343.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951798.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951485.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D605C7D180B5582472E4EDAD653CCAA49D4A9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622848   (950608) от 01.03.2013
-
-Максим Перепелица (1955) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселого парня, деревенского шутника и балагура Максима Перепелицу призывают на службу в армию. Но и там, пытаясь избежать трудностей армейской жизни, он пытается ловчить. Однако открытый добродушный нрав, настоящий характер заставляют парня переосмыслить происходящее с ним. На побывку в родное село, где его дожидается любимая, Максим приезжает в звании младшего (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: КомедияРежиссер: Анатолий ГраникАктеры: Леонид Быков, Василий Фушич, Георгий Вицин, Николай Яковченко, Александр Борисов, Георгий Осипенко, Кирилл Лавров, Татьяна Пельтцер, Людмила Сосюра, Таисия Литвиненко, Константин Сорокин, Нина Тамарова, Павел Усовниченко, Александр Степанов, Александр Суснин, Сергей Сибель, Раднэр Муратов, Елизавета Уварова, Борис Лескин, Лидия Федосеева-Шукшина, Борис Аракелов, (   Читать дальше...   )Продолжительность: 01:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F458E69DE8465EDF408C7ABA2C56162A8C4F1188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929013   (950470) от 22.02.2020
-
-Максим Перепелица (1955) DVDRip [H.264] [Реставрация]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселого парня, деревенского шутника и балагура Максима Перепелицу призывают на службу в армию. Но и там, пытаясь избежать трудностей армейской жизни, он пытается ловчить. Однако открытый добродушный нрав, настоящий характер заставляют парня переосмыслить происходящее с ним. На побывку в родное село, где его дожидается любимая, Максим приезжает в звании младшего (   Читать дальше...   )Производство: СССР / Киностудия ЛенфильмЖанр: КомедияРежиссер: Анатолий ГраникАктеры: Леонид Быков, Василий Фушич, Георгий Вицин, Николай Яковченко, Александр Борисов, Георгий Осипенко, Кирилл Лавров, Татьяна Пельтцер, Людмила Сосюра, Таисия Литвиненко, Константин Сорокин, Нина Тамарова, Павел Усовниченко, Александр Степанов, Александр Суснин, Сергей Сибель, Раднэр Муратов, Елизавета Уварова, Борис Лескин, Лидия Федосеева-Шукшина, Борис Аракелов, (   Читать дальше...   )Продолжительность: 01:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D591187218C22E14C3740B1DB29E51B702850F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

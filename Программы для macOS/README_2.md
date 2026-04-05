@@ -1,3 +1,56 @@
+###  Публикация: 1437749   (1042028) от 05.01.2021
+
+WidsMob Panorama 3.21 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте высококачественную панораму в один клик
+WidsMob Panorama - это профессиональная программа для создания панорам, которая автоматически создает панораму. Это программное обеспечение для сшивания панорамных изображений может сшивать панораму и обычные фотографии с невероятной скоростью и простыми шагами.Тип издания: macOS SoftwareРелиз состоялся: 05.01.2021Разработчик: WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40534AFDBFCB513A83351AC12C4E664B9C8CAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437713   (1041945) от 05.01.2021
+
+Boom 2 v1.6.13 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boom 2 является уникальным приложением для профессиональной обработки звука, которое радикально изменяет ваше восприятие музыки. Эта премиальная версия включает в себя бесплатные звуковые эффекты, обеспечивающие потрясающие ощущения. Приложение разработано только для OS X Yosemite и более поздних версий. Оно автоматически калибруется в соответствии с типом компьютера (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.01.2021Разработчик: Global Delight Technologies Pvt. Ltd.Поддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6274AD7FFB8CB7FCD86BC6A3FD0FBCF5F7EC8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437992   (1041762) от 06.01.2021
 
 UctoX 2 v2.8.4 [Multi]
@@ -6,7 +59,7 @@ UctoX 2 v2.8.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041762.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Movie Collector 20.2.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041759.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Comic Collector 20.2.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041757.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Music Collector 20.2.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041753.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ WeClean Pro 3.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041749.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Splash n Recolor 3.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041741.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Subtitle Studio 1.5.4 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041727.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ Tenorshare UltData 9.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041575.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ DJ Mix Pads 2 - Remix Version 5.5.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041505.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ WidsMob Montage 1.18 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041502.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Retina 5K Wallpaper Set 1.4.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041471.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ Valentina Studio Pro 10.6.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041196.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ Pyka Unlimited 1.0.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041188.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ PasswordTool 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041184.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ QR Capture 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041181.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ Keyboard Maestro 9 v9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041110.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ RapidCart Pro 4 v4.18.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040946.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ xScan 4.5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040914.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ Tenorshare ReiBoot Pro 7.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040691.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ Vezér 1.8.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040187.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ Hydra 4.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040185.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ Trickster 3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040153.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ SketchUp Pro 2021.0.1 v21.0.392 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039978.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ Design Your Collage 1.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039953.jpg" />
 </div>
 
 
@@ -626,60 +679,6 @@ Design Your Collage 1.1.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0969E39B4B375F979EA3C3EA775CDBC9F8240834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439404   (1039936) от 13.01.2021
-
-Wifiner 1.3.191 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обследование, анализ и устранение неисправностей в сети Wi-Fi
-Легко анализируйте свой Wi-Fi и увидите проблемы, препятствующие стабильному и быстрому подключению. Вы можете выполнить всестороннее сканирование своей беспроводной сети, получить интерактивную цветовую карту с цветовой кодировкой и четко увидеть «мертвые» зоны.
-Вы можете загрузить свою собственную карту (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2019Разработчик: Etwok, LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D135C9D2C04D29929E8B6FAF8B0FE4F2F454B14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439504   (1039932) от 13.01.2021
-
-TunePat Any Audiobook Converter 1.1.0 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для Преобразования аудиокниг формата Audible AA / AAX в простой формат M4A / M4B / MP3Тип издания: macOS SoftwareРелиз состоялся: 12.01.2021Разработчик: TunePat Inc.Поддерживаемая ОС: macOS 10.11 - 10.15Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A9B279EDDB1AF0E0FCEE6EE6F107BF9F2D42DAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

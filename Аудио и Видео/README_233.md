@@ -6,7 +6,7 @@ VA - Autumn Grooves (The Lounge & Chill out Deluxe Collection), Vol. 1 (2020) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241012.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ EASTERN WIZARD - The Land of Mysteries (2022) [AAC|~326 Kbps] <Organic House, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240984.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Chilling Tunes for Heart & Soul (2020) [AAC|~315 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240944.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Autumn Grooves (The Lounge & Chill out Deluxe Collection), Vol. 2 (2020) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240935.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Cookin' Jazz, Vol. 2 (2020) [AAC|~327 Kbps] <Jazz, Nu Jazz, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240922.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Chillin' on the Foreshore (2021) [AAC|~295 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240914.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sarah Davachi - Cantus, Descant (2020) [AAC|~229 Kbps]<Electronic, Ambient, Mode
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240489.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Francesco Polito - Trip (2020) [AAC|~344 Kbps]<Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240135.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Paul Williams - Colours of Joy (2020) [AAC|~310 Kbps]<Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240098.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Blue Öyster Cult - The Symbol Remains (2020) [AAC|~337 Kbps]<Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240090.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Amazonics - Amazónico (Amazonico) (2020) [AAC|~308 Kbps] <Chillout, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240068.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240062.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Energy Voice - Best of Energy Voice (Expanded Edition, New Italo Disco Hits) (20
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240033.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Amandus - Sing a Song (2020) [AAC|~325 Kbps]<Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240019.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Róisín Murphy - Róisín Machine (Deluxe) (2020) [AAC|~321 Kbps]<Electronic, P
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239992.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Fancy - Sail Away (2020) [AAC|~329 Kbps]<Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239981.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239829.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Refreshing Jazz Lounge: Chillout Your Mind (2020) [AAC|~304 Kbps] <Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239793.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Relax Your Mind Lounge: Chillout Your Mind (2020) [AAC|~314 Kbps] <Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239784.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Restaurant Lounge: Chillout Your Mind (2020) [AAC|~328 Kbps] <Downtempo, Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239711.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Wine & Sunset Lounge: Chillout Your Mind (2020) [AAC|~323 Kbps] <Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239698.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Lilac Aromas Lounge: Chillout Your Mind (2020) [AAC|~326 Kbps] <Downtempo, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239573.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - I Love the Rain Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239470.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Autumn Leaves Lounge: Chillout Your Mind (2020) [AAC|~325 Kbps] <Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239458.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239043.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ VA - Fireplace Chill, Vol. 1 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237817.jpg" />
 </div>
 
 

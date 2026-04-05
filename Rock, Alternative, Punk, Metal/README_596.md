@@ -1,3 +1,29 @@
+###  Публикация: 545794   (478217) от 13.09.2012
+
+МашнинБэнд - 13 альбомов (1988 - 2006) [MP3|128-320 кб/с]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: АльтернативаПродолжительность: 00:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78EB86C7E9276D5B9DAF4F520B917A23D6A216A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159954   (478189) от 23.08.2017
 
 Doro - Calling The Wild (2000) 2CD, Reissue, 2010, Steamhammer [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +32,7 @@ Doro - Calling The Wild (2000) 2CD, Reissue, 2010, Steamhammer [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478189.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ The Ugly - Thanatology (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478179.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Makeout - The Good Life (2017) [FLAC|Lossless|tracks + .cue] <Pop Punk, Pop Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478173.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ Burning Rain - 3 альбомa (1999-2013) Discography [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478120.jpg" />
 </div>
 
 
@@ -122,7 +148,7 @@ Diaboli - Wiking Division (2015) [FLAC|image+.cue]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478028.jpg" />
 </div>
 
 
@@ -151,7 +177,7 @@ Major Parkinson - Twilight Cinema (2014) [FLAC|Lossless]<Progressive Rock, Art R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477919.jpg" />
 </div>
 
 
@@ -180,7 +206,7 @@ TesseracT - Polaris (2015) [FLAC|tracks+.cue]<Progressive Math Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477910.jpg" />
 </div>
 
 
@@ -209,7 +235,7 @@ Self-Hatred - Theia (2016) [FLAC|Lossless|image + .cue] <Death Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477723.jpg" />
 </div>
 
 
@@ -238,7 +264,7 @@ Distant Past - Rise Of The Fallen (2016) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477719.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Fаir Wаrning - Рimр Yоur Раst (2016) Jараnеsе Еditiоn [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477712.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Zdob si Zdub - 20 de Veri (2015) [MP3|320 кб/с]<Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477673.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Charred Walls Of The Damned - Creatures Watching Over The Dead (2016) [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477620.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ Devon Allman - Ride Or Die (2016) [FLAC|Lossless|image + .cue] <Blues-Rock, Sout
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477619.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ Seven - 7 (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477614.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ Sadhayena - Mist of Fury (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477594.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ Seven - Shattered (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477518.jpg" />
 </div>
 
 
@@ -470,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477514.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ Sari Schorr - A Force Of Nature (2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477510.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Tanna - Storm in Paradise (2020) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477480.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Opeth - Sorceress (2016) [MP3|320 Kbps] 2CD <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477384.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ HammerFall - Dominion (2019) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477310.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ The Walkabouts - Satisfied Mind (1993) [MP3|160-320 кб/с]<Indie rock, Alterna
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476911.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ Nova Enterprise - The Everlasting Paradox Of Spacetime (2022) [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476520.jpg" />
 </div>
 
 
@@ -679,7 +705,7 @@ Crises - Broken Glass (1998) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476518.jpg" />
 </div>
 
 
@@ -708,7 +734,7 @@ Mordred - The Dark Parade (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476510.jpg" />
 </div>
 
 
@@ -722,35 +748,6 @@ Mordred - The Dark Parade (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D2D9ED2730A54D1A156073DA05961344017FBEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567107   (476490) от 01.08.2022
-
-All I Know - Vanity Kills (2008) Reissue, 2022, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long (3:03)
-02. Bad Boy (2:43)
-03. Asphyxia (4:18)
-04. Rain (2010 Beau Hill Remix) (3:56)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE26A8B1EC3CCCCE4F121086EAA07B5B6ED5FF23
 ```
 
 https://mybot314.ru/tekegram_catalog/

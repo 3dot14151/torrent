@@ -1,3 +1,56 @@
+###  Публикация: 1334900   (290586) от 31.10.2019
+
+iMazing 2.10.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290586.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC40DC260D1DAE917A7E026B428770F4F084EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962664   (290472) от 06.12.2015
+
+9Dragons / 9Драконов (2009) [Ru] (0.9d) License
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра погружает игрока в захватывающий мир Средневекового Китая, находящийся в состоянии гражданской войны между шестью сильнейшими кланами мастеров боевого Кун-фу, а так же под угрозой захвата могучих и таинственных сил. Сюжет игры повествует как о судьбах простых смертных, так и о величайших воителях и мудрецах достигших просветления в те далекие времена. Вы можете (   Читать дальше...   )Тип издания: LicenseРазработчик: Indy21 CorporationЖанр: RPG (Japanese-style), 3D, 3rd Person, Online-only, Massively multiplayerЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3F1FE0ECA959D5C69FA97EEA62679B1B743D7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 269915   (289556) от 13.12.2010
 
 [Repack] Mount & Blade. Огнём и мечом. Великие битвы [Ru] 2010 | Fenixx
@@ -6,7 +59,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289556.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Multi] (1.0.8f) License FLT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289470.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289370.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (1.48) License PLAZA [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287599.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Wolfenstein II (2017) [Ru/Multi] (1.0/u4) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287297.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286788.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ Spider-Man: Web of Shadows [Ru/En] (RePack) 2008| [TrJ-VoRoN]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283524.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ The Beast Inside (2019) [Ru/Multi] (1.03) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283453.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ Road Redemption (2017) [Ru/Multi] (20171123) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283363.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ This War of Mine (2014) [Ru/Multi] (4.0.0/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282654.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ WWE 2K15 (2014) [PS3] USA (4.50) [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282460.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ Starpoint Gemini [En] (L) 2010 | TRiViUM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282015.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ Blood & Gold: Caribbean! (2015) [Ru/En] (1.0) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281503.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280081.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ The Cursed Forest (2015) [Ru/En] (0.7.3) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278797.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276779.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ Fallout: New Vegas (2012) [Ru] (1.4.0.525/dlc) Repack xatab [Ultimate Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276681.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276677.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ A Story About My Uncle (2014) [Multi] (3717) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276012.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License CODEX [Episode 1-5]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275414.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (1.2.2.57.4328/dlc) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273377.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273318.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271315.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (1.49) License PLAZA [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271055.jpg" />
 </div>
 
 
@@ -626,59 +679,6 @@ Titan Quest - Anniversary Edition, мифический набор, из кот�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46910AFE7F169A25894ED09205469B4E248E1913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273580   (270234) от 26.12.2010
-
-[WiiWare] Fluidity [Eng] (2010)
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Fluidity от Nintendo и Curve Studios сочетает в себе удивительный физический движок который воссоздает модель проточной води, с инновационными головоломками. Используя три формы воды — жидкость, лед и пар — игроки будут решать сложные головоломки в множестве глав магической книги под названием Акватикус.Жанр: PuzzleЯзык интерфейса: Eng
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E6749C52ABD38675611B1346CAF4A7596CB9A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273747   (269449) от 27.12.2010
-
-Warsow [En] (L) 2010
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269449.jpg" />
-</div>
-
-
-###  Подробнее
-
-War§ow - это киберспортивная игра в жанре FPS с открытым исходным кодом, но проприетарными ресурсами. Разработана группой энтузиастов на модифицированном движке QFusion, являющийся в свою очередь модификацией движка Quake 2, исходные коды которого id Software выпустила в 2001 году. Первая публичная версия вышла 8 июня 2005 года.
-War§ow специально создавалась для игры по сети. Она имеет много общего с такими играми как Quake World, модом Quake 3 Challenge ProMode Arena и серией Unreal Tournament. Команда разработчиков хотела создать весёлую, быструю, динамичную игру, поэтому предпочтение было отдано мультипликационной графике, с использованием цел-шейдеров, что делает игру яркой с отличной видимостью противников и уровней.Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st Person
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04699C4A92ABD148FC807DB48CAD70CAC8D5E48B
 ```
 
 https://mybot314.ru/tekegram_catalog/

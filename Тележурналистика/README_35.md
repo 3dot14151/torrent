@@ -1,29 +1,3 @@
-###  Публикация: 1022271   (729986) от 01.06.2016
-
-Нереальные аферисты. Дачники (2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729986.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой серии мы расскажем, как реальные аферисты используют для наживы дачно-огородный сезон. Как мошенники продают москвичам семена и рассады чудо-растений, которых не существует в природе? Смогут ли "нереальнее аферисты" внедриться в садовое товарищество, собрать от имени правления деньги с дачников на асфальтирование дороги, а затем – смыться? Как мошенники (   Читать дальше...   )Производство: Москва 24Жанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9633C9EE1B59286511481633895F95A1F18130D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127990   (729980) от 23.04.2017
 
 Чудо техники (2017.04.23) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729980.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729751.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729495.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728988.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728768.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728294.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727861.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727853.jpg" />
 </div>
 
 
@@ -240,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727825.jpg" />
 </div>
 
 
@@ -266,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727809.jpg" />
 </div>
 
 
@@ -292,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727782.jpg" />
 </div>
 
 
@@ -318,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727696.jpg" />
 </div>
 
 
@@ -344,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726729.jpg" />
 </div>
 
 
@@ -370,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726709.jpg" />
 </div>
 
 
@@ -396,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726687.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726659.jpg" />
 </div>
 
 
@@ -448,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726624.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726558.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726318.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725531.jpg" />
 </div>
 
 
@@ -552,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725196.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724812.jpg" />
 </div>
 
 
@@ -604,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724773.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724663.jpg" />
 </div>
 
 
@@ -657,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724660.jpg" />
 </div>
 
 
@@ -669,6 +643,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C67673D01EE25AB4CDB336E6AECFBF41CD8D47B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023538   (724550) от 05.06.2016
+
+НТВ-видение: Турецкая кухня. Часть вторая (2016.06.05) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724550.jpg" />
+</div>
+
+
+###  Подробнее
+
+В среднем, одну русско-турецкую войну от другой отделяла всего четверть века. Нынешнее перемирие – самое прочное, длится без малого сто лет. Какие перспективы у современных российско-турецких отношений? И что сейчас творится на турецкой внешнеполитической кухне? Об этом – в двухсерийном фильме Романа Соболя «Турецкая кухня» из цикла «НТВ-видение».Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF83893FF40B76B69015E4DE2A85CC4587169FF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

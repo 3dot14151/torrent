@@ -1,3 +1,32 @@
+###  Публикация: 1477107   (238957) от 13.06.2021
+
+Yat-Kha (Ят-Ха) - We Will Never Die (2021) [MP3|320 Kbps] <Ethno Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238957.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kongurgai
+2. Kazhanda-daa Olbes-le Bis
+3. Shartylaam
+4. Umyvalsya Nochyu Na Dvore...(   Читать дальше...   )Жанр: Ethno Rock, FolkПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35BFF254CFEC9262EE280C26AFD1637D864576B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636548   (238956) от 31.05.2023
 
 Alien Force - We Meet Again (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +35,7 @@ Alien Force - We Meet Again (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238956.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Users - The Users (2023) Remastered [FLAC 24/96|Lossless|WEB-DL|tracks] <Pun
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238948.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Last In Line - Jericho (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238938.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ AFI - Bodies (2021) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238937.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Kotipelto - Serenity (2007) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238934.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Muse - Will Of The People (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238930.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238923.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Kotipelto - Waiting For The Dawn (2002) [OGG Vorbis|485 Kbps] <Rock, Heavy Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238918.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Mass Madness - Innerbeast (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238906.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238905.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Roxy Blue - Want Some More (1992) Reissue, Remastered, 2013, FnA Records [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238904.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Velvet & Cashmere - Dose Of Masculinity (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238899.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Beckett - Beckett (1991) Reissue, Remastered, 2011, AOR Heaven [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238897.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Amken - Passive Aggression (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238890.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Tokyo - Seven (2023) [FLAC 2.0|24/48|WEB-DL|tracks] <Rock, New Wave>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238888.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ The Flower Kings - Adam & Eve (2004) InsideOutMusic, Remaster,2023 [FLAC 24/96|L
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238882.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Vortex - The Future Remains In Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238879.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Planetariet - Deluxe (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238875.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ James - Be Opened By The Wonderful (2023) 2CD, 40 Years Orchestrated [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238866.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Ghosther - Immersion (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Metal, Modern Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238859.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Skinner - The Dark Design (2023) [MP3|320 Kbps] <Heavy Metal, Power Metal, Thras
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238858.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Art Nation - Inception (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238857.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Inluzt - Echoes Of Revolution (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238851.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Excalion - Once upon a Time (2023) [FLAC|Lossless|image + .cue] <Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238850.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Resistor - The 5th Season (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238840.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Resistor - The 5th Season (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15EC8CB1AE490E2E36048946CEC402FEB402816E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577639   (238835) от 19.09.2022
-
-Sightless Era - Revelation (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son of Misery [00:03:51]
-02. Revelation [00:03:56]
-03. In Your Eyes [00:04:11]
-04. Incarceration [00:04:34](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB235319CC2D9A4A06A535673849E561714F3070
 ```
 
 https://mybot314.ru/tekegram_catalog/

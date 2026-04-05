@@ -1,3 +1,166 @@
+###  Публикация: 287886   (917943) от 31.01.2011
+
+[OBT] [RePack] [Mode] S.T.A.L.K.E.R.: CryZone Sector 23. CryZone Online / Сектор 23: Батя / Sector 23: Prologue (0.1) [Ru] 2011 |
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открытый бета тест мультиплеера проекта "CryZone: Sector 23". Сам сингл будет готов где то в апреле.
+
+Данный проект представляет собой глобальную модификацию для игры "Crysis" за счет использования сеттинга и ресурсов игры S.T.A.L.K.E.R. от компании GSC.
+Мод отражает концепцию игры S.T.A.L.K.E.R. на движке "Cry engine 2", обладающим куда большими возможностями, нежели X-Ray.
+Именно благодаря использованию в качестве "моторчика" CE 2, Вы сможете наблюдать превосходную графику, качественные модели и анимации персонажей, улучшеный рендер и многое другое.(   Читать дальше...   )Тип издания: Глобальная модификация "Crysis" за счет ресурсов "STALKER"Разработчик: "World of stalker TEAM" (Сокращенно WoS team)Жанр: Action/FPS с элементами RPGЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1505C55DB1A07AC17EB13D01615E40E4EA1B614C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289485   (917940) от 31.01.2011
+
+[Repack] Chessmaster: Grandmaster Edition  [Ru] 2008 | R.G. Catalyst
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная шахматная игра Chessmaster стала еще более совершенной! Обучающая система, созданная при поддержке международного мастера Джошуа Вайцкина, позволяет новичкам быстро освоить игру, а профессионалам изучить новые тактические ходы. В одиннадцатой игре серии собраны самые значимые мировые шахматные партии, благодаря чему любой сможет проанализировать игру (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft EntertainmentЖанр: Logic (Chess) / 3DЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289162   (917938) от 31.01.2011
+
+Microsoft Windows Server 2008 R2 x64 Standart for HP Proliant servers 7600.16385 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Windows Server 2008 — новая версия серверной операционной системы от Microsoft. Эта версия должна стать заменой Windows Server 2003 как представитель операционных систем поколения Vista (NT 6.x). Этот установочный диск выпущен 22 сентября 2009 года и является совместной разработкой компаний Microsoft и Hewlett Packard. Диск включает в себя специализированные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289588   (917937) от 31.01.2011
+
+Неадекватные люди (2010) DVDRip
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихий и воспитанный Виталик пытается начать жизнь с нуля в новом городе. Но странным образом ему на пути попадаются одни сумасшедшие. Его соседкой по лестничной площадке оказывается взбалмошная Кристина, стремящаяся переделать его из задрота в нормального мужика, на новой работе атакует похотливая начальница и даже психолог, помогающий ему совладать со всем этим — и тот оказывается садо-мазохистом. Виталик кажется единственным адекватным человеком здесь. Но так ли это на самом деле?Жанр: КомедияРежиссер: Роман КаримовАктеры: Ингрид Олеринская, Назар Ас-Самаррай, Артем Душкин, Полина Иосилевич, Илья Любимов, Юлия Такшина, Влад Топалов, Анастасия Федоркова, Евгений Цыганов, Марина ЗайцевПеревод: ОригинальныйФормат: AVIПродолжительность: 01:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A6EC5237522BD4AB45C4F90C374F9539A487F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 864646   (917877) от 30.01.2015
+
+Три богатыря: Ход конем (2014) WEB-DL [720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Придворный конь Гай Юлий Цезарь на свою беду подслушивает разговор бояр и узнает о заговоре против князя. Что же делать? Защитить-то князя некому! Богатыри далеко — ловят разбойника Потаню, Горыныч в отпуске, войско на учениях… Но если плохие парни собираются захватить мир, то кому-то же надо его спасти? Кто же он, настоящий герой, который придет на помощь? Конечно, (   Читать дальше...   )Производство: РоссияЖанр: Приключения, КомедияРежиссер: Константин ФеоктистовПерсонажи: Князь Киевский, Илья Муромец, Добрыня Никитич, Алёша Попович, Гай Юлий Цезарь и другиеПеревод: Не требуетсяПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36ADE591669DED768A39C0FF156FC3C12E8B0F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 632708   (917614) от 21.03.2013
+
+Depeche Mode - Delta Machine (Deluxe Edition) 2CD (2013) [FLAC|Lossless|tracks + .cue] <Electronic, Synth-Pop>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electronic, Synth-Pop |Продолжительность: 00:17:15
+
+01 | Long Time Lie | 04:23
+02 | Happens All The Time | 04:20(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 179743   (917434) от 02.03.2010
 
 VMware Workstation 7.0.1 Build 227600 Final Rus/Eng
@@ -6,7 +169,7 @@ VMware Workstation 7.0.1 Build 227600 Final Rus/Eng
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917434.jpg" />
 </div>
 
 
@@ -39,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917201.jpg" />
 </div>
 
 
@@ -65,7 +228,7 @@ L.A. Noire (2011) [Ru/Multi] (1.3.2617/dlc) Repack R.G. Revenants [The Complete 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917053.jpg" />
 </div>
 
 
@@ -91,7 +254,7 @@ NVIDIA GeForce Desktop 378.49 WHQL + For Notebooks [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916888.jpg" />
 </div>
 
 
@@ -117,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916828.jpg" />
 </div>
 
 
@@ -143,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916755.jpg" />
 </div>
 
 
@@ -169,7 +332,7 @@ Image Uploader 1.3.2 build 4510 alpha + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916751.jpg" />
 </div>
 
 
@@ -195,7 +358,7 @@ WPI x86-x64 by OVGorskiy® 01.2017 1DVD [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916664.jpg" />
 </div>
 
 
@@ -221,7 +384,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916641.jpg" />
 </div>
 
 
@@ -247,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916638.jpg" />
 </div>
 
 
@@ -273,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916635.jpg" />
 </div>
 
 
@@ -299,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916564.jpg" />
 </div>
 
 
@@ -325,7 +488,7 @@ XYZ School, Игорь Емельянов | Environment Art (2021) PCRec [RU]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916544.jpg" />
 </div>
 
 
@@ -351,7 +514,7 @@ Photo Studio PRO v2.5.6.6 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916543.jpg" />
 </div>
 
 
@@ -377,7 +540,7 @@ USB Disk Security 6.0.0.126 Eng/Rus
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916421.jpg" />
 </div>
 
 
@@ -403,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916407.jpg" />
 </div>
 
 
@@ -435,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916402.jpg" />
 </div>
 
 
@@ -461,7 +624,7 @@ Windows XP SP3 Atom (x86/Rus) 1.0 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916401.jpg" />
 </div>
 
 
@@ -496,7 +659,7 @@ m0nkrus x86-x64 System Boot DVD 12.0 (Windows от 98 до 2011) [Русский
 >>16
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916399.jpg" />
 </div>
 
 
@@ -522,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>38
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916398.jpg" />
 </div>
 
 
@@ -531,164 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 Вчера мы с Вами преодолели два очередных барьера: это 10 тыс. регистраций в сутки и более 2 млн. просмотров страниц. Возросло и количество релизов, качество по прежнему остается на высоком уровне, благодаря стараниям наших релизеров и модераторов, за что им отдельное и огромное спасибо!
 И в связи с этими важными и крупными цифрами объявляется фрилич, который будет включен после публикации этого объявления.
 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989262   (916335) от 22.02.2016
-
-Француз / Un Francais (2015) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марко — настоящий скинхед. Вместе со своими приятелями, Брагетом, Гран-Ги и Марвеном, он дубасит арабов и расклеивает плакаты ультраправых. Это продолжается до тех пор, пока он не начинает чувствовать, что вся эта ненависть улетучилась. Но как избавиться от жестокости, злости и глупости, которая в нас живет? Это пример пути человека, который был подонком, но захотел (   Читать дальше...   )Производство: Франция / Fin Aot Productions, Mars Films, France 3 CinmaЖанр: ДрамаРежиссер: ДьястемАктеры: Элбан Ленуар, Поль Ами, Джинн Роза, Патрик Пино, Рено Леба, Бландин Пелиссье, Алекс МартинПеревод: Многоголосый закадровый, любительский (Paradox & Omskbird records)Субтитры: отсутствуютПродолжительность: 01:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981F24A9C4A13CD18C8E4A58EDA85708EC0ABA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989149   (916334) от 22.02.2016
-
-Пятьдесят оттенков черного / Fifty Shades of Black (2016) WEBRip [Line]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неискушенная студентка колледжа знакомится с состоятельным бизнесменом, чьи сексуальные предпочтения омрачают их отношения.Производство: США, IM GlobalЖанр: КомедияРежиссер: Майкл ТиддесАктеры: Марлон Уайанс, Кали Хоук, Фред Уиллард, Майк Эппс, Эффион Крокетт, Джейн Сеймур, Флоренс Хендерсон, Эндрю Бэчелор, Дженни Зигрино, Кейт Лэнг Джонсон, Сидни Кастилло, Ирен Чои, Расселл Питерс, Д.С. Эрвин, Шонте Вайанс, Винсент Ошана, Ховард Алонсо, Брэд Шмидт, Джои Ромэйн, Дейв ШериданПеревод: Дублированный (Чистый звук)Продолжительность: 01:24:22Реклама: Присутствуют голосовые и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F2D6E1277C1DD95D609BDE849D22F7857A7FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138888   (916259) от 31.01.2015
-
-Разжалованный (2009) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой – незаметный человек, в звании рядового, бывший комбриг, приговоренный к расстрелу. Волей случая он спасается и под чужим именем продолжает воевать. Два бойца комендантской роты получают приказ доставить в военный трибунал разжалованного лейтенанта, обвиненного в трусости. По пути следования группа наталкивается на тяжелых раненных, оставленных в лесу (   Читать дальше...   )Производство: РоссияЖанр: Военный, драмаРежиссер: Владимир ТумаевАктеры: Александр Михайлов, Филипп Бажин, Ольга Лапшина, Николай Козак, Марина Куделинская, Денис Карасев, Андрей Межулис, Михаил Солодко, Никита ТезинПеревод: Не требуется (русский)Продолжительность: 01:32:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633166   (915927) от 22.03.2013
-
-Virtual Audio Cable 4.10 RePack [Английский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Virtual Audio Cable - виртуальный звуковой кабель (VAC) представляет собой звуковой (Wave) драйвер Windows, создающий в системе два звуковых устройства (порта): Virtual Cable n In и Virtual Cable n Out, где n — номер кабеля начиная с 1. К каждому из портов может быть присоединено любое количество приложений (клиентов); эта возможность в зарубежных документах носит (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593573   (915923) от 22.03.2013
-
-Aliens vs. Predator [Ru/En] (RePack/2.27/DLC) 2010 | R.G. Механики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый боевик от известного разработчика — компании Rebellion, в 1999 году выпустившей знаменитую игру, в которой люди, Чужие и Хищники впервые сошлись в бескомпромиссных сражениях.
-
-Битва продолжается — разные формы жизни снова сойдутся в непримиримой борьбе. В Aliens vs Predator игроков ждут три захватывающие сюжетные кампании, а также незабываемые многопользовательские (   Читать дальше...   )Тип издания: RePackРазработчик: RebellionЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A37A2D499C60E5FD83B2CB4BA780FCE49CC9E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633573   (915881) от 22.03.2013
-
-Recovery USB-flash for Acer Aspire V3-571G / Windows 8 (х64) [Русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915881.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Acer_V3_571G_W8.tib записанной на ноутбуке Acer v3-571g-53218g75Maii с помощью программы Acer Recovery Management. Образ флешки создан программой Acronis True Image Home 2013.Язык интерфейса: русский
 
 ## Скачать торент
 ```bash

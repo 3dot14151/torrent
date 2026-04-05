@@ -1,3 +1,32 @@
+###  Публикация: 1218654   (721268) от 10.04.2018
+
+Bruno Sanfilippo - Claroscuro (2014) [MP3|320 Kbps] <Neoclassical, Ambient>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ClarOscuro 5:58
+02. Absenta 5:18
+03. Aquarelle Sur Papier 5:12
+04. A Constant Passion 3:40(   Читать дальше...   )Жанр: Neoclassical, AmbientПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51E33936CE19367AC19419ED670F313C7889083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218667   (721264) от 10.04.2018
 
 Bruno Sanfilippo - Piano Textures 1 (2007) [MP3|320 Kbps] <Neoclassical, Experimental, Ambient>
@@ -6,7 +35,7 @@ Bruno Sanfilippo - Piano Textures 1 (2007) [MP3|320 Kbps] <Neoclassical, Experim
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721264.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Vanessa Mae - My New Classic (2012) [MP3|320 кб/с]<Pop, Classical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704258.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Jackie Evancho - Two Hearts (2017) [MP3|320 Kbps] <Classical Crossover, Vocal Po
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696777.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Appassionante - Nell'aria (2017) [MP3|320 Kbps] <Pop, Classical, Crossover, Voca
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696775.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Ilyin - Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695548.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Katherine Jenkins - Home Sweet Home (2014) [MP3|320 кб/с] <Classical Crossove
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680134.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Joep Beving - Prehension (2017) [MP3|320 Kbps] <Modern Classical, Piano>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657707.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Современное звучание Мировой Классики (20
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654163.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Fabio Fabor - Strings And... (2019) [MP3|320 Kbps] <Classical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642932.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Deviations Project - Deviations Project (2007) [MP3|320 Kbps] <Modern Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641666.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ The Third group - Ушедшие (2017) [MP3|320 Kbps] <Classical, Neo-classical
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605550.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ VA - Шедевры Классики В Современной Обработк�
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566582.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ VA - Шедевры Классики В Современной Обработк�
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566569.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Lindsey Stirling - Brave Enough (2016) [MP3|320 Kbps] <Classical Crossover, Pop,
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560998.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Nova Era - Fortissimo (2014) [MP3|320 кб/с]<Classical crossover, New Age>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560656.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555851.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ VA - Золотые Хиты Классики в современной обра
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545268.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Lindsey Stirling - Lindsey Stirling (2013) Target Exclusive Deluxe Edition [MP3|
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534951.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Paul Anthony Adams - Sonates au Clair De Lune (Moonlight Sonata) (2014) [MP3|320
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529617.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ VA - Highlights from Jesus Christ Superstar (1996) [MP3|320 кб/с]<Rock opera>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512222.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Adiemus - Songs Of Sanctuary (1995) [MP3|320 Kbps] <Modern Classical, Ambient>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500355.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ VA - Мировая Классика в современной обработк�
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490621.jpg" />
 </div>
 
 
@@ -662,7 +691,7 @@ VA - Complete Classical Chillout (2015) [MP3|320 кб/с]<Classical, Instrumenta
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483737.jpg" />
 </div>
 
 
@@ -691,7 +720,7 @@ VA - Иисус Христос Суперзвезда (русская верси
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480118.jpg" />
 </div>
 
 
@@ -726,7 +755,7 @@ VA - Мировая Классика в современной обработк�
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477934.jpg" />
 </div>
 
 
@@ -737,35 +766,6 @@ VA - Мировая Классика в современной обработк�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE49DB440A9AF51CD8192B7537A90F78981442F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320523   (468897) от 19.08.2019
-
-VA - 300% Classic In Rock (1999) [MP3|320 Kbps] <Classical, Vocal, Rock, Trance>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolf Hoffmann - Prelude (Bizet) (1:25)
-02. Angelica - Un Bel Di (Puccini) (4:42)
-03. Trance Opera - Habanera (Bizet) (6:00)
-04. Danney Alkana - Beethoven '5th' (Beethoven) (3:21)(   Читать дальше...   )Жанр: Classical, Vocal, Rock, TranceПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA599EE6961D709D39561DB2DAA3ABD86006DA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

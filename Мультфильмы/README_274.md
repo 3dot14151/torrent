@@ -1,3 +1,135 @@
+###  Публикация: 1185059   (263328) от 16.12.2017
+
+Южный Парк / South Park (2017) WEB-DL [H.264/1080p-LQ] (21 сезон, серия 01-10 из 10)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Южный Парк / South Park — американский мультсериал, созданный Мэттом Стоуном и Треем Паркером. Иногда название переводится также как «Саут-Парк» или «Саус-Парк». Выпускается кабельным телеканалом Comedy Central с 1997 года. Основу сюжета составляют приключения четырёх мальчиков и их друзей, живущих в маленьком городке Саут-Парк, штат Колорадо. Сериал высмеивает недостатки (   Читать дальше...   )Производство: СШАЖанр: Для взрослых, КомедияРежиссер: Трей Паркер, Эрик Сточ, Мэтт СтоунАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Элиза Шнайдер, Эдриан Бирд, Мэри Кэй Бергман, Дженнифер Хауэлл, Кайл Маккаллок и др.Перевод: Профессиональный, двухголосый закадровыйОзвучка: Paramount Comedy, Кубик в кубеСубтитры: Русские, АнглийскиеПродолжительность: 10x ~00:22:10Реклама: Вырезана
+ Присутствует ненормативная лексика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4B8CE27C58D19FB233BA592D02B93891978D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340768   (263268) от 25.11.2019
+
+Лешики. Таинственные похитители (2008) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лешики – таинственные лесные жители, не заметные взгляду простого человека, их видят лишь те, кто верит в волшебство и не утратил детскую бескорыстную любовь к сказкам. Увидев в сухой веточке или причудливо изогнутом корне старого пня загадочную фигурку, мы, порой, восхищаемся творением природы, даже не подозревая, что есть в лесу волшебные места, где обитает целый (   Читать дальше...   )Производство: Россия, Директ-Медиа, Издательство "Нитусов"Жанр: Детский, Приключения, Мультфильм, Рисованная анимацияРежиссер: Курченко Сергей, Курченко ОльгаСубтитры: отсутствуютПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4FE993A4696F3BD458D0A4B4613D366041ED208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340880   (263190) от 25.11.2019
+
+Затерянное львиное королевство / The Lost Lion Kingdom (2019) WEB-DLRip [H.264/720p-LQ] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм о борьбе добра со злом на просторах космоса. Героями здесь становятся звери, которые летают на футуристических звездолетах. По сюжету много лет назад животные покинули родную планету и нашли себе новый дом. И вот теперь затерянное царство львов на планете Малтурния в опасности! Афас, король львов, отправляет в космос своего первенца Самара и его верного (   Читать дальше...   )Производство: США / Dream Machine AnimationЖанр: Мультфильм, фантастика, приключения, детский, полнометражныйРежиссер: Джейсон РайтАктеры: Кдж Шрок, Сара ТейлорПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:814A8D6159C3D4AD8E0396DDF85B2665CD20EB90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340889   (263137) от 25.11.2019
+
+Скуби-Ду: Возвращение на остров зомби / Scooby-Doo: Return to Zombie Island (2019) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скуби-Ду и его друзья продолжают разгадывать загадки. Когда у них заканчиваются загадки, компания отправляется в отпуск на странный отдаленный остров, который они, возможно, уже посещали. Вещи становятся действительно страшными, когда зомби нападают на курорт; кажется, злая сила Симоны и Лены выжила.Производство: США / Hanna-Barbera Home Video, Warner Bros. AnimationЖанр: Мультфильм, фэнтези, комедия, детектив, приключения, семейныйРежиссер: Сесилия Аранович, Этан СполдингАктеры: Фрэнк Уэлкер, Грэй Гриффин, Мэттью Лиллард, Кейт Микуччи, Дженелл Кокс, Дэвид Херман, Джон Майкл Хиггинс, Дэйв Митчелл, Кассандра Петерсон, Роджер РоузПеревод: Многоголосый закадровый, любительский (Flarrow Films)Субтитры: АнглийскиеПродолжительность: 01:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F192148419926BABA1728B98FBFDFA3863B3EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341178   (262915) от 26.11.2019
+
+Соколик / Vanadzins (1978) DVDRip [VO]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262915.jpg" />
+</div>
+
+
+###  Подробнее
+
+По рассказу Вилиса Лациса.
+О мальчике по прозвищу Соколик, который живёт с отцом-рыбаком в деревушке на берегу моря. Отец ежедневно отправляется ловить рыбу, а Соколик на весь день остаётся дома вдвоём с котом. Мальчик мечтает когда-нибудь стать капитаном корабля, а пока лишь ждёт возвращения отца с моря. Но однажды его отец не возвращается...Производство: СССР, Латвийская республикаЖанр: Кукольный, КороткометражныйРежиссер: Арнольд БуровсПеревод: любительский одноголосый (progulkin)Субтитры: отсутствуютПродолжительность: 00:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B81E1482C7847E0EBE657A8C2048B056306E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192627   (262660) от 18.12.2017
 
 Балерина / Ballerina (2016) BDRip [H.264/1080p-LQ]
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262660.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262580.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262573.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262552.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262520.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262519.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262359.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262338.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262321.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262170.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262037.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262021.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261887.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261876.jpg" />
 </div>
 
 
@@ -370,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261860.jpg" />
 </div>
 
 
@@ -396,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261589.jpg" />
 </div>
 
 
@@ -422,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261530.jpg" />
 </div>
 
 
@@ -448,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261357.jpg" />
 </div>
 
 
@@ -474,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261068.jpg" />
 </div>
 
 
@@ -503,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260908.jpg" />
 </div>
 
 
@@ -530,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260887.jpg" />
 </div>
 
 
@@ -541,136 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68A3DB1F6D52127F7028EFBE5119AA3BB315FEF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505041   (260807) от 03.06.2012
-
-Детектив Глап / Glup (2003) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Купил вещь, а потом выбросил. Это так просто. Магазины пустеют, а мусорные свалки растут. Но есть то, чего мы, люди, не знаем — на свалке есть жизнь: битва за выживание! Тостеры, старые часы, лампы: эти бесполезные вещи заканчивают свое существование в жерле ужасной печи для сжигания мусора. Лишь детектив Глап и его группа мусорщиков пытаются сопротивляться тирании. (   Читать дальше...   )Жанр: мультфильмПерсонажи: Девочка Оливия и старые вещиПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BD2DAC3ABA4020643DBE0920800F984E5F68C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838588   (260741) от 23.11.2025
-
-Ловушка для кошек / Macskafogo / Cat City (1986) BDRip [H.265/1080p] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кошачьи банды, объединившись в преступные группировки, готовятся к решающей битве с мышами. Мыши, узнав об этом, сначала загрустили, но потом стало известно, что некий профессор Фусимиси изобрёл аппарат, позволяющий сделать кошек беспомощными. В путь к профессору отправляется лучший мышиный агент. Коты через своих осведомителей получают сведения об опасности, и за (   Читать дальше...   )Производство: Венгрия, Канада, Германия (ФРГ) / Pannónia FilmmstúdióЖанр: мультфильм, фантастика, комедия, криминал, приключения, семейныйРежиссер: Бела ТерновскиАктеры: Миклош Бенедек, Дьюла Бодроги, Илона Береш, Петер Хауманн, Андраш Керн, Ференц Каллаи, Янош Кёрменди, Иштван Мико, Карой Меч, Вера ПапПеревод: дублированный официальный (Союзмультфильм, английский)Язык озвучки: русский, венгерский, английскийСубтитры: русские (forced), венгерские, английскиеПродолжительность: 01:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DE7F73CBD5F9D218D2BC2BA0ACB039013536D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504734   (260565) от 02.06.2012
-
-Кунг-фу Панда: Удивительные легенды / Kung Fu Panda: Legends of Awesomeness (Сезон: 1 / Серии: 1-26 из 26) (2012) DVD5
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о продолжении приключений Панды По, о том, как он тренируется, защищается, борется, учит и учится, говорит слишком много и выступает в роли нового героя Долины Мира. И теперь, живя вместе с Неистовой Пятеркой, По придется взять на себя много новых обязанностей, ведь он Воин Дракона.Жанр: Рисованная анимацияРежиссер: Джим ШуманнПерсонажи: Мик Вингерт, Кэри Уолгрен, Фред Татаскьор, Макс Кох, Джеймс Си, Амир Талай, Люси Лью, Джеймс ХонгПеревод: Одноголосый закадровыйПродолжительность: 26 x ~ 00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DA640D9E277AC972FEB58CA8C37B038CBD9990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504523   (260514) от 02.06.2012
-
-Школа маленьких принцесс / Little Princess School (2007) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькие принцессы поступают в специальную волшебную школу, где им предстоит изучить невероятное множество магических предметов, поверить в себя и найти настоящих друзей.Жанр: мультфильм, детскийРежиссер: Але МакхаддоПерсонажи: Принцессы из сказокПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7B23B95BE6F5D1F4F00D5BCF5A163EE512AA6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504706   (260465) от 02.06.2012
-
-Лесные сокровища Бомпки / The Hidden Treasure of Wompkee Wood (2009) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260465.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о том, как маленькая Твиг и ее друзья: смелый Скаут и Дейзи, мудрый Хаммер и весельчак Бастер, отправляются на поиски волшебного светящегося камня, с помощью которого Бомпки научатся говорить на одном языке с Волшебным лесом.Жанр: ДетскийРежиссер: Майк ДеВито, Джэми НортонПерсонажи: БомпкиПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9DF7EDF4238E6A36E1C8B4E8A52209651FDE756
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,111 @@
+###  Публикация: 1379760   (837231) от 30.04.2020
+
+Toaru Majutsu no Index: Endymion no Kiseki | Некий Магический Индекс: Чудо Эндимиона [2013, Movie + Special] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837231.jpg" />
+</div>
+
+
+###  Подробнее
+
+События фильма развиваются сразу после окончания строительства космического подъёмника «Эндимион» в Академия-Сити. Главный герой Тома Камидзё и его подруга Индекс случайно сталкиваются с Арисой Мэйго, эспером нулевого уровня.
+По непонятным причинам «Ассоциация магов» преследует Арису и нападает на Академия-Сити. Чтобы защитить город от угрозы, образуется движение (   Читать дальше...   )Производство: J.C. Staff, ЯпонияЖанр: Приключения, МистикаРежиссер: Нисикиори ХиросиОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: Movie 01:30:08; Special 00:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DB9C6027C0D3EEADD028D050E624A7F0FDC54DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379758   (837229) от 30.04.2020
+
+Toaru Kagaku no Railgun | Некий Научный Рейлган [TV-1] [2009, TV, 24 ep + OVA + 3 Specials] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Академия-Сити. Население 2,3 миллиона. 80 процентов учащихся принимают активное участие в «Программе по развитию мозга». Их называют эсперами, и только семеро из них достигли 5-го уровня.
+Знакомьтесь c главными героями, гражданами Академии-Сити: Микото Мисакой и её подругой Куроко Сираи. Они следят за порядком в городе, и в то время, как Куроко является членом организации (   Читать дальше...   )Производство: J.C. Staff, ЯпонияЖанр: Приключения, Комедия, ФантастикаРежиссер: Нагай ТацуюкиОзвучка: Одноголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 24 Эпизодов по 23 Мин; OVA 34 Мин.; Specials 8 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCE588CFBC435A44D5F58F58BE13B69E9F21273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473407   (835858) от 09.10.2021
+
+Моя геройская академия [ТВ-5] / Boku no Hero Academia 5 / My Hero Academia Season 5 [2021, TV, 25 ep] WEB-DL 1080p Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый герой должен досконально владеть своим даром. Чтобы умело его контролировать понадобится обучение. Специально для такого открыли Геройскую Академию. Но можно ли туда попасть простому человеку, который не имеет никаких способностей? На самом деле с даром можно не только родится, а и получить в награду от супергероя.
+
+Простой парнишка Идзука Мидория не обладает (   Читать дальше...   )Жанр: приключения, комедияРежиссер: Нагасаки КэндзиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 25 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333A6D17D2042D8108259D801A1B12E216628339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113620   (835756) от 12.03.2017
+
+Империя трупов | Shisha no Teikoku | Империя мертвецов | The Empire of Corpses [2015, MV] BDRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная работа отправит нас в Европу XIX века. Юный студент Джон Уотсон был завербован службой разведки в качестве секретного агента. Технократия — мир, где наука совершила невероятный прорыв для любой промышленности. Создание гомункулов поставлено на поток, и существа с мертвым телом и искусственной душой используются во всех сферах жизни в роли солдат и рабочей (   Читать дальше...   )Производство: студия Wit StudioЖанр: приключения, фантастикаРежиссер: Макихара РётароОзвучка: Многоголосая от AniChaosПродолжительность: 02:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48019A7CEF2477EEA5FE3FC33C3FE344BBFFE369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379913   (835520) от 01.05.2020
 
 Арифурэта | Arifureta Shokugyou de Sekai Saikyou [2019, TV, 13 из 13] BDRip HEVC 10-bit 1080p raw+rus
@@ -6,7 +114,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835520.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834965.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 из 12] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834801.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ Bayonetta: Bloody Fate / Байонетта: Кровавая судьба (2013
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834464.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ Dirty Pair | Грязная Парочка [1987, OVA, 10 ep] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827350.jpg" />
 </div>
 
 
@@ -137,7 +245,7 @@ Dirty Pair: Project Eden | Грязная Парочка: Проект Эдем 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827349.jpg" />
 </div>
 
 
@@ -163,7 +271,7 @@ Dirty Pair: Affair of Nolandia | Грязная Парочка: Ноландск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827348.jpg" />
 </div>
 
 
@@ -189,7 +297,7 @@ Dirty Pair: Flight 005 Conspiracy | Грязная Парочка: Загово�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827347.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ Dirty Pair | Грязная Парочка [1985, TV, 24 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827346.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красновол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826312.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ OreGairu | Yahari Ore no Seishun Lovecome wa Machigatte Iru | Жизнь - Лю�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825620.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ OreGairu 2 | Yahari Ore no Seishun Lovecome wa Machigatte Iru. Zoku | Жизнь
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825619.jpg" />
 </div>
 
 
@@ -321,7 +429,7 @@ Redline | Красная Черта [2009, Movie] BDRip 1048p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825618.jpg" />
 </div>
 
 
@@ -347,7 +455,7 @@ Berserk | Берсерк [TV-2+TV-3] [2016-2017, TV, 24 ep] BDRip 1080p HEVC 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825617.jpg" />
 </div>
 
 
@@ -373,7 +481,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 ep + 1 s
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825616.jpg" />
 </div>
 
 
@@ -400,7 +508,7 @@ Berserk | Берсерк [TV-1] [1997, TV, 25 ep] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825615.jpg" />
 </div>
 
 
@@ -426,7 +534,7 @@ Sword Art Online | Мастера Меча Онлайн [ТВ-1] [2012, TV, 25 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825614.jpg" />
 </div>
 
 
@@ -453,7 +561,7 @@ DanMachi  | Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823833.jpg" />
 </div>
 
 
@@ -479,7 +587,7 @@ Sword Art Online: Extra Edition | Мастера Меча Онлайн: Посл
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823832.jpg" />
 </div>
 
 
@@ -507,7 +615,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823831.jpg" />
 </div>
 
 
@@ -534,7 +642,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka | Is It Wrong
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823830.jpg" />
 </div>
 
 
@@ -560,7 +668,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | Is It Wr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823828.jpg" />
 </div>
 
 
@@ -571,110 +679,6 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | Is It Wr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:055E5E2BD8BAF1D43FDD484D0D68E4358FEA0618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115397   (823809) от 19.03.2017
-
-Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабиринт сновидений) [1987, MV] HDTV 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм, безусловно, необычен и по внешнему виду и по содержанию. Графика очень далека от привычных стандартов аниме: тут нет ни прилизанных, блестящих волос, ни огромных влажных глаз, ни ярких красок. Но, упаси Боже называть этот фильм некрасивым! Он очень красив своими резкими, причудливыми пейзажами, необычными ракурсами и полетами камеры, запоминающимися персонажами, (   Читать дальше...   )Производство: студия MADHOUSEЖанр: фантастика, фэнтези, приключенияРежиссер: Отомо КацухироЯзык озвучки: Японский, русскийЯзык субтитров: Русский, АнглийскийПродолжительность: короткометражный фильм, 50 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D17F2528B00DDA9446CDE903985128C2B2EA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 775189   (823123) от 09.04.2014
-
-Ergo Proxy | Эрго Прокси [2006, TV, 23 эп.] BDrip 1080p Hi10P raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823123.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пустынном обезлюдевшем мире выжить можно лишь в городе-куполе, и Ромдо – одно из немногих мест, где сохранилась цивилизация. Но для поддержания порядка нужна крепкая рука, поэтому властью в Ромдо распоряжается не дряхлый наместник Донов Мейер, а четыре Советника-робота. Однако даже роботам нельзя доверять – с тех пор, как загадочный вирус Когито начал превращать (   Читать дальше...   )Жанр: приключения, фантастика, драма, детектив, киберпанкРежиссер: Мурасэ СюкоСубтитры: •Продолжительность: 23 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B3EDC4E73B1A2F46E916AD7DF65F5E91674CB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382077   (822088) от 09.05.2020
-
-Altered Carbon: Resleeved | Видоизменённый углерод: Восстановленный [2020, Movie] WEB-DL 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хронологически события фильма происходят между событиями первого и второго сезонов сериала. Это история пребывания Такеши Ковача на планете Латимер и его вынужденного сотрудничества с якудзой. Ковача наняли и предоставили ему новое, хорошо тренированное тело, чтобы он внедрился в мафиозный синдикат накануне церемонии передачи власти от босса к его наследнику. Появились (   Читать дальше...   )Производство: Япония, США / Studio Anima, NetFlixЖанр: 3D анимация, приключения, фантастикаРежиссер: Такэхиро Накадзима, Окуда ЁсиюкиПеревод: NetFlixЯзык озвучки: Русский многоголосый закадровый, AlexFilmСубтитры: Русские (надписи/полные), Английские, ЯпонскиеПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69ED57626F6177B9FCBB18E0F404A2CC6235078C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503270   (820817) от 18.10.2021
-
-Ni no Kuni | Вторая страна [2019, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820817.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре повествования талантливый старшеклассник Ю, прикованный к инвалидному креслу, его лучший друг Хару, надежда школьной баскетбольной команды, и их подруга детства Котона, в которую Ю тайно влюблён и которая встречается при этом с Хару. Волей случая эти трое получают способность путешествовать между нашей реальностью и другим миром. Когда жизнь Котоны оказывается (   Читать дальше...   )Производство: Япония, OLMЖанр: Приключения, фэнтезиРежиссер: Ёсиюки МомосэЯзык озвучки: Русский, японскийПродолжительность: 01:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E601C7246FCC822ABC663B9B810A4EC769688A
 ```
 
 https://mybot314.ru/tekegram_catalog/

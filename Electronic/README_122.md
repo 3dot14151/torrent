@@ -1,3 +1,61 @@
+###  Публикация: 1198267   (806372) от 12.01.2018
+
+VA - Supermoon Chilling Tunes (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lo-Fi>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sweetadelic  -  Figures Of Repetition  5:51
+02.  PNP  -  Falling  4:00
+03.  Alberto Margheriti  -  Blue Away  3:49
+04.  Oliver Russ  -  Galaxy (Relex Version)  7:00(   Читать дальше...   )Жанр: Downtempo, Chillout, Lo-FiПродолжительность: 03:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955E519F0DA1AD116561592B5DEC9EA3044A6C8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198530   (806368) от 12.01.2018
+
+Chronos - Inner Darkness (2017) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Darkness
+02. I’m Not Pretty
+03. NESK (Mother Healing Version)
+04. Anatomy Of The Fear(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 01:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D749510C75C9A3AEA164F30210122C04A38AE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875184   (806366) от 12.01.2018
 
 VNDL - Discography 6 Releases (2011-2015) Hymen Records, Abstrakt Reflections, etc. [FLAC|Lossless|WEB-DL]<IDM, Glitch, Abstract, Experimental, Ambient>
@@ -6,7 +64,7 @@ VNDL - Discography 6 Releases (2011-2015) Hymen Records, Abstrakt Reflections, e
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806366.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Max de Wardener - Where I Am Today (2004) Accidental Records [FLAC|Lossless|WEB-
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806354.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Zero Degree - Discography 5 Releases (2005-2014) Audiophob, Ant-Zen [FLAC|Lossle
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806283.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Bigtime EDM Vol.8 (2016) [MP3|320 кб/с] <House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806213.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Low Budget Aliens - Junk DNA (2020) XPQ? [FLAC 2.0|44.1/24|tracks|WEB-DL] <Exper
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806168.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Dom & Roland - Parasite / Homicide / Paradrenasite (2020) Hive Remaster [FLAC 2.
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806161.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ VA - Cafe Luna (Chillout and Lounge Edition) (2016) [MP3|320 кб/с] <Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806110.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806038.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ Thomas Lemmer - Discography 69 Releases (2009-2021) [MP3|320 Kbps] <Chillout, Am
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805861.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ VA - Buddha World Bar 2017   [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805744.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - OTB-EDM Records Miami (WMC) (2017) [MP3|320 Kbps] <House, Progressive, Funk
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805618.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - Chillout Raising (Lounge Drama) (2018) [MP3|320 Kbps] <Downtempo, Chillout,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804513.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - Coffee Lounge Tunes Vol.1 (Lean Back & Relax With Wonderful Electronic Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804505.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Lounge Vanilla (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804504.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ VA - A State Of Trance Top 20: January (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804503.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - Free Floating: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804452.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Chilled Coffee Vol.1 (Amazing Backround Music For Cafe, Restaurant Or Home)
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804415.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Lounge Vanilla (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804409.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Best Of LW Trance II (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804407.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Flyance Records - Label-Pack 10 Releases (2014-2017) [FLAC|Lossless|WEB-DL|track
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804406.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - Venera Music Vol.9 (2016) [MP3|320 кб/с] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804394.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Vocal EDM Party (2016) [MP3|320 кб/с] <House, Electro House, Vocal House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804391.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - Venera Music Vol.10 (2016) [MP3|320 кб/с] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804389.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Yota - Lucid Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, N
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804368.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Yota - Lucid Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0293CFEFD89F6CDDA16139DB919E122B3C1B3296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505479   (804350) от 27.10.2021
-
-Purple Disco Machine - Exotica (2021) [MP3|320 Kbps] <Electronic, House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Get Enough (Feat. Sahara Beck) (4:21)
-02. At The Disko (With Lorenz Rhode) (4:32)
-03. Fireworks (Feat. Moss Kena & The Knocks) (3:20)
-04. Don't Stop (4:09)(   Читать дальше...   )Жанр: Electronic, House, Nu DiscoПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BF5C8298C9C489CA23BE753CEA995AA96BCF59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009807   (804293) от 24.04.2016
-
-VA - Big City Beats Vol. 24 (World Club Dome 2016 Edition) (2016) [MP3|256 кб/с] <House, Progressive, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big City Beats - Take off Vol. 24 (Intro) 02:15
-02. Dimitri Vegas & Like Mike & W&W - Arcade 05:17
-03. Hardwell - Run Wild (feat. Jake Reese) (Extended Mix) 05:09
-04. David Guetta - Bang My Head (feat. Sia) (Glowinthedark Remix) 03:49(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 08:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB28E4A6561607DF17CA423AF971304C6E20ED67
 ```
 
 https://mybot314.ru/tekegram_catalog/

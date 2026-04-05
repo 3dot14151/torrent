@@ -1,55 +1,3 @@
-###  Публикация: 1130764   (712364) от 03.05.2017
-
-Дина Рубина | Холодная весна в Провансе (2009) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дина Рубина приехала в Израиль уже состоявшимся серьезным прозаиком. Именно трудности вхождения в новую реальность и связанное с этим одиночество человека там, где даже «камни сохранили величие», стали темами ее творчества на несколько лет... «Солнце склонялось к вечеру, когда он вышел из дома с мольбертом и ушел в поля. Там, прислонив мольберт к стогу сена, достал (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 08:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333A909333F77B15F39262932197C13F49444A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024930   (712197) от 11.06.2016
-
-Евгений Шишкин | Правда и блаженство (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпопея «Правда и блаженство» охватывает полвека российской истории — от хрущевской «оттепели» до путинской России. Главные герои книги: генерал, монах и «вечный любовник» — проходят жестокую и радостную юность, армию, локальные войны, вербовку спецслужбами. Они проходят испытание годами перелома в 1991-м и 1993-м. И всех их ждет безумно счастливая и оглушительно (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 27:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E639D47EA29DE81AD478091BAD63DB8DD5F3557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219618   (711910) от 15.04.2018
 
 Саша Соколов | Между собакой и волком (2018) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711910.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711462.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710942.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710789.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710782.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709962.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709831.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709289.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708991.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708874.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707524.jpg" />
 </div>
 
 
@@ -348,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707162.jpg" />
 </div>
 
 
@@ -374,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707118.jpg" />
 </div>
 
 
@@ -400,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707100.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706952.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706181.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705365.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704072.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702545.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702509.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701559.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701550.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701383.jpg" />
 </div>
 
 
@@ -664,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701240.jpg" />
 </div>
 
 
@@ -676,6 +624,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48A48A9F03E1819C4BDE094CCDAEF75B1AD6C8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132520   (701130) от 09.05.2017
+
+Эммануил Казакевич | Дом на площади (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть дилогии (продолжение «Весны на Одере»). Главный автобиографический герой - майор Лубенцов: начальник дивизионной разведки в первом романе и комендант немецкого городка – во втором, где рассказ о буднях советской комендатуры в послевоенной провинциальной Германии, о смятении и неуверенных надеждах простого немца перемежается острыми и гневными главами, (   Читать дальше...   )Жанр: Военная прозаПродолжительность: 19:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D316754FB3F37A51CCD6B95B8CD13949874ECF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132523   (701123) от 09.05.2017
+
+Эммануил Казакевич | Весна на Одере (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман Э. Казакевича «Весна на Одере» известен многим читателям как развернутый многоплановый рассказ о последних месяцах Великой Отечественной войны.
+Эммануил Казакевич родился 11 (24) февраля 1913 года в Кременчуге (ныне Полтавская область, Украина) в семье еврейского публициста и литературного критика Генеха Казакевича (1883—1935) и его жены (и двоюродной сестры), (   Читать дальше...   )Жанр: Военная прозаПродолжительность: 20:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7501D58EF79D5BF7724A1AB182D46056C105498B
 ```
 
 https://mybot314.ru/tekegram_catalog/

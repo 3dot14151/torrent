@@ -1,135 +1,3 @@
-###  Публикация: 1536773   (250302) от 13.03.2022
-
-Э.Г. Галиаскаров, А.С. Воробьев | Анализ и проектирование систем с использованием UML (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие представляет собой практическое руководство по использованию UML для разработки программных систем. Оно позволит научиться выявлять основные понятия предметной области и разрабатывать красивые диаграммы классов, описывать функциональные требования в виде спецификаций вариантов использования и превращать их в правильные проектные решения.
-Дополнительно (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7C1A0C93AB329AD4580063FFD525C703E70E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562843   (250266) от 11.07.2022
-
-Michael Dobrzycki | Искусство рисования драконов, мифологических зверей и фантастических существ/The Art of Drawing Dragons, Mythological Beasts, and Fantasy Creatures (2020) [PDF] [EN]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Искусство рисования драконов, мифологических зверей и фантастических существ», наполненная пошаговыми проектами и полезными советами и техниками рисования, рассказывает, как создавать реалистичные рисунки драконов, фей, единорогов, гоблинов и других животных.Жанр: Рисование, РуководстваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21AF6E3FC650D3FAEEA648965BFEC3E4B2B3E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562847   (250258) от 11.07.2022
-
-М.А. Аль Аккад | Периферийные устройства и системное программирование (2022) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскрыты базовые понятия, систематизирован терминологический аппарат, рассмотрены основы аппаратного обеспечения ввода-вывода, принципы создания программного обеспечения ввода-вывода, представлен банк заданий, актуальных для аудиторной и самостоятельной работы обучающихся. К каждому разделу представлены вопросы и задания. Предназначено для аудиторной и самостоятельной (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77633F17D52818CACAE36F44313F9D46593EAB6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562947   (250255) от 11.07.2022
-
-Колин Таккер | Как управлять ядерным реактором (2022) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга объясняет, как устроен и как действует ядерный реактор и что нужно знать его оператору для обеспечения стабильной и безопасной работы. Коротко изложена история развития ядерных реакторов, представлены различные их типы и подробно рассмотрен один из них – водо-водяной реактор (PWR), начиная с конструкции и заканчивая особенностями управления. Автор книги, (   Читать дальше...   )Жанр: ЭнергетикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C4D303B0A72FD1D3FEFC420F9B6A3F0387916B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617774   (250241) от 08.03.2023
-
-Г.Я. Мякишев | Динамические и статистические закономерности в физике (1973) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250241.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге на основе конкретного фактического материала детально анализируется соотношение между динамическими и статистическими закономерностями в физике.
- Показывается, что динамические законы представляют собой первый, низший этап в процессе познания окружающего нас мира, статистические же законы являются более совершенным отображением объективных связей в природе, (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370D10ACDF7CF0B84DFF88AA06EFEB35BD49FD1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536960   (250226) от 14.03.2022
 
 Е.И. Рогов (ред.) | Психология управления персоналом (2022) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250226.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250221.jpg" />
 </div>
 
 
@@ -192,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250125.jpg" />
 </div>
 
 
@@ -220,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250113.jpg" />
 </div>
 
 
@@ -247,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250079.jpg" />
 </div>
 
 
@@ -273,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250054.jpg" />
 </div>
 
 
@@ -299,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250042.jpg" />
 </div>
 
 
@@ -325,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249997.jpg" />
 </div>
 
 
@@ -351,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249985.jpg" />
 </div>
 
 
@@ -377,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249982.jpg" />
 </div>
 
 
@@ -403,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249906.jpg" />
 </div>
 
 
@@ -429,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249868.jpg" />
 </div>
 
 
@@ -457,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249856.jpg" />
 </div>
 
 
@@ -483,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249840.jpg" />
 </div>
 
 
@@ -510,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249808.jpg" />
 </div>
 
 
@@ -536,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249747.jpg" />
 </div>
 
 
@@ -563,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249676.jpg" />
 </div>
 
 
@@ -589,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249666.jpg" />
 </div>
 
 
@@ -616,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249611.jpg" />
 </div>
 
 
@@ -642,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249608.jpg" />
 </div>
 
 
@@ -668,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249607.jpg" />
 </div>
 
 
@@ -679,6 +547,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD1891E5D8C09D4DE3D7DE4E4E1F1269349DD5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619546   (249601) от 17.03.2023
+
+В.И. Иверонова (ред.) | Физический практикум. Механика и молекулярная физика (1967) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное и интереснейшее издание в котором можно изучить и практически "пощупать" начиная от НОНИУСа до распределения Максвелла.
+Учебное пособие по экспериментальной физике составлено в соответствии с программами по общему курсу физики и по физическому практикуму для физических и физико-математических факультетов университетов и педагогических институтов. (   Читать дальше...   )Жанр: Учебное пособие по экспериментальной физикеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E2A5059BEE6288DF6FA0039773E1048A42FE4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619295   (249596) от 17.03.2023
+
+ЛУЗИН Николай Николаевич | Дифференциальное исчисление (1961) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкий в понимании, замечательно изложенный материал.
+Классический курс дифференциального исчисления, автор которого --- выдающийся советский математик, академик АН СССР Н.Н.Лузин. Этот курс успешно выдержал несколько изданий и стал настольной книгой не одного поколения советских математиков, инженеров и педагогов. В книге рассмотрен широкий круг понятий и определений, (   Читать дальше...   )Жанр: Учебное пособие, математикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C825D302484221D0B6FAAC8AD03F4E32072A427F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619723   (249570) от 17.03.2023
+
+Дмитрий Боровков | «Игры престолов» средневековой Руси и Западной Европы (2019) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Династические войны, многолетние противостояния целых правящих родов – почти норма Средневековья. Деньги, власть, влияние… интриги всех уровней… Порою кажется, что вся история того времени это история междоусобиц. Русь в таком конфликте обрела первых святых, Бориса и Глеба, но аналогичные события происходили здесь с другими личностями, а также известны в государствах (   Читать дальше...   )Жанр: История России, Популярно об историиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A213638A1C7C48E5711F29EF354A8E6B4BDAB4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619559   (249566) от 17.03.2023
+
+В.И. Иверонова (ред.) | Физический практикум (1962) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это пособие весьма интересно тем, что позволяет понять, как с помощью простых приспособлений и приборов можно проводить измерение физических величин, что даёт возможность разобраться в физической сущности предмета.
+Учебное пособие по разделам электричества и оптики экспериментальной физики составлено в соответствии с программой по общему курсу физики и по физическому (   Читать дальше...   )Жанр: Учебное пособие по экспериментальной физикеИздательство: ГИ ФИЗИКО-МАТЕМАТИЧЕСКОЙ ЛИТЕРАТУРЫФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC04A23F8FE6DA8771988DB17C8BAD41DD8A1C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619303   (249562) от 17.03.2023
+
+Лузин Н.Н | Интегральное исчисление (1961) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкий в понимании, замечательно изложенный материал.
+Классический курс интегрального исчисления, написанный выдающимся советским математиком, академиком АН СССР Н.Н.Лузиным. Данный курс успешно выдержал несколько изданий и стал настольной книгой не одного поколения советских математиков, инженеров и педагогов. В книге рассмотрен широкий круг понятий и определений, (   Читать дальше...   )Жанр: Учебное пособие, математикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C5E8E73EBABD379FF8ABB550B91F1F13EC45BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

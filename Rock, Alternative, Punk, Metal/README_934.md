@@ -1,3 +1,32 @@
+###  Публикация: 1651212   (223473) от 05.08.2023
+
+Owlbear - Chaos To The Realm (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fiend of Fire [00:03:51]
+02. Bastard Sons [00:05:13]
+03. The Night Below [00:03:41]
+04. Cult of the Serpent [00:04:26](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8FEED79D2F3C75801E0BDC34361C4AC43B215B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651160   (223463) от 05.08.2023
 
 The Ocean - Holocene (2023) 3 x CD, BOX Set [FLAC|Lossless|tracks + .cue] <Progressive Metal, Ambient>
@@ -6,7 +35,7 @@ The Ocean - Holocene (2023) 3 x CD, BOX Set [FLAC|Lossless|tracks + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223463.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Any Given Sin - War Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223455.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Dark Sky - Signs Of The Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223447.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Aidan Moffat & RM Hubbert - Ghost Stories For Christmas (2018) [FLAC|Lossless|WE
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223436.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ AMH (Adam and The Metal Hawks) - Hurry Up And Wait (2023) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223432.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Istvan Alapi - L.A. On My Mind (feat. Gergo Borlai) (2018) [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223429.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Roosterz - Brutal Nuggetz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223428.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Induction - The Power Of Power (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223421.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ R3D LEAD3R 3 - Synchronistic Smiles (2022) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223414.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Edward Reekers - The Liberty Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223399.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Teenage Wrist - Still Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Gar
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223383.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Cats In Boots - Kicked & Klawed (1989) Unofficial Release, EMI USA [MP3|320 Kbps
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223379.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Screammet - Десять Жизней (2023) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223375.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Sleep Token - Take Me Back To Eden (2023) [FLAC|Lossless|tracks + .cue] <Alterna
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223365.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Queen - A Night At The Opera (1975) remastered 2011, reissue 2021 [FLAC 2.0|96/2
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223347.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Amon Amarth - Heidrun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223299.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Snow Patrol - Final Straw (2004) 2CD, 20th Anniversary Edition, 2023, UMC [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223260.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Trivium - 5 альбомов (2005-2011) Дискография [FLAC|image+.cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223095.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Skindred - Smile (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Ragga-Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223025.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Renaud Hantson s Furious Zoo - Fishnet - Furioso X (2023) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223017.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Sahg - Born Demon (2022) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223001.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Follow The Sunrise - 2 Albums (2019-2022) [MP3|320 Kbps] <Metalcore, Hardcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222993.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Diggeth - Zero Hour in Doomtown (2022) [MP3|320 Kbps] <Heavy Rock, Southern Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222984.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Goatroach - 3 Albums (2019-2022) [MP3|320 Kbps] <Sludge Metal, Doom Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222975.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Battalions - King of a Dead World (2022) [MP3|320 Kbps] <Sludge, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222966.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Battalions - King of a Dead World (2022) [MP3|320 Kbps] <Sludge, Stoner>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75DAFE2C2C383A69B455D10E82A2A7823571D34A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585337   (222922) от 21.10.2022
-
-Diggeth - Zero Hour in Doomtown (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freak Flag
-02. Soultwister
-03. Last Man Standing
-04. Acardiac(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E210A553A60D4BD3FE452FA5AAB1E95DDD4C14B
 ```
 
 https://mybot314.ru/tekegram_catalog/

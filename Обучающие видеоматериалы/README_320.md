@@ -1,3 +1,31 @@
+###  Публикация: 1816582   (4197) от 06.09.2025
+
+Николай Сенин | Создание личной ИИ-экосистемы (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4197.jpg" />
+</div>
+
+
+###  Подробнее
+
+В это воскресенье проведу закрытый стрим, где расскажу, как специалист может (и скоро будет вынужден) использовать LLM в своей деятельности.
+
+Рассмотрим детально, какие классы интеллектуальных задач уже сейчас может помочь выполнять ИИ. Расскажу, какие встроенные ограничения есть у LLM (не только галлюцинации) и как их обойти. Поделюсь пятью принципами создания личной (   Читать дальше...   )Жанр: ВебинарЯзык озвучки: РусскийПродолжительность: 3:45:19Реклама: присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648C3D0B1A1FBDC3CB07E58EC0449736AC2F1A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816750   (4194) от 06.09.2025
 
 Ольга Назина (Киселёва) | Charles Proxy как инструмент тестировщика (2025) WEB-DL [AD] [RU]
@@ -6,7 +34,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4194.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4136.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ VlaDeFi, Владислав Былинкин | Полный обучающий �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3957.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Vugar Rustamov | Приватный канал Американский YouTube.
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3934.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ Content Punks, Саша Чернышев | Хевирайтинг. Челлен�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3911.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3905.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3662.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ Udemy, YouAccel Training | Learn to Host Multiple Domains on one Virtual Server 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3373.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3065.jpg" />
 </div>
 
 
@@ -250,7 +278,7 @@ Stepik, Вера Атан | 10 шагов к красивой речи (2025) WE
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3045.jpg" />
 </div>
 
 
@@ -277,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3034.jpg" />
 </div>
 
 
@@ -303,7 +331,7 @@ Galina Miami, Галина Шувалова | Мастер-класс по по�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3025.jpg" />
 </div>
 
 
@@ -329,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3021.jpg" />
 </div>
 
 
@@ -355,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2969.jpg" />
 </div>
 
 
@@ -381,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2878.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2844.jpg" />
 </div>
 
 
@@ -436,7 +464,7 @@ Stepik, Даниил Беликов | Первая работа в IT. Стра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2827.jpg" />
 </div>
 
 
@@ -462,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2809.jpg" />
 </div>
 
 
@@ -491,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2804.jpg" />
 </div>
 
 
@@ -517,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2803.jpg" />
 </div>
 
 
@@ -543,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2790.jpg" />
 </div>
 
 
@@ -569,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2781.jpg" />
 </div>
 
 
@@ -595,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2394.jpg" />
 </div>
 
 
@@ -621,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2218.jpg" />
 </div>
 
 
@@ -650,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2103.jpg" />
 </div>
 
 
@@ -664,35 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B5BD533244167D103C274ED6C0C50248E1BB3BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814272   (1923) от 20.09.2025
-
-Международная школа Л.Л. Васильевой, Лидия Васильева | Критическое мышление (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1923.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе лекции вы узнаете:
-Что такое критическое мышление и как его развить.
-Какие области мозга отвечают за развитие критического мышления.
-Какие упражнения помогут улучшить критическое мышление.(   Читать дальше...   )Производство: Международная школа Л.Л. ВасильевойЖанр: Лекция, психология, саморазвитиеЯзык озвучки: русскийПродолжительность: 00:58:42Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F7B72C6622BBAD221D2305D1036253C5109963
 ```
 
 https://mybot314.ru/tekegram_catalog/

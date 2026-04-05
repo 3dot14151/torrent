@@ -1,3 +1,32 @@
+###  Публикация: 1634156   (242814) от 19.05.2023
+
+Neal Schon - Journey Through Time (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Leave You (8:10)
+02. Look into the Future (8:35)
+03. Kohoutek (7:50)
+04. Daydream (5:44)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 02:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F89F20E8C03DC577836A214B3677381729A5ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457311   (242812) от 26.03.2021
 
 As Everything Unfolds - Within Each Lies the Other (2021) [MP3|320 Kbps] <Post-Hardcore, Female Vocal>
@@ -6,7 +35,7 @@ As Everything Unfolds - Within Each Lies the Other (2021) [MP3|320 Kbps] <Post-H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242812.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Cinderheart - I Want To Feel Okay (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychede
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242810.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Toot Farangi - Stingchasers (2023) [MP3|320 Kbps] <Progressive Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242807.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Band of Spice - By the Corner of Tomorrow (2021) [MP3|320 Kbps] <Hard Rock, Ston
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242803.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Catana Cat - Харакири (2023) [MP3|320 Kbps] <Alternative Metal, Female v
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242799.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Fish - Vigil’s End (UK Tour 2021) (2022) [MP3|320 Kbps] <Progressive Rock, Neo
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242789.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Wheel - Resident Human (2021) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242780.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Wythersake - Antiquity (2021) [MP3|320 Kbps] <Symphonic Black, Melodic Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242772.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ George Tsalikis - Return To Power (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242763.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Smoulder - Violent Creed Of Vengeance (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242752.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Kreator - Hate Uber Alles (2022) 2xCD, Japanese Edition, Limited Edition [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242750.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242749.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Drakkar - Chaos Lord (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242741.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242739.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Immerse - The Weight That Holds Me Here (2021) [MP3|320 Kbps] <Post-Hardcore, Me
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242731.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Slung From A Tree - Voyage Into Cosmos (2023) [FLAC|Lossless|WEB-DL|tracks] <Slu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242728.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Beyond The Touch - Strange Illusions (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242721.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Greenleaf - Echoes from a Mass (2021) [MP3|320 Kbps] <Stoner, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242715.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Big City - Sunwind Sails (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242714.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Stormnatt - Omega Therion (2014) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242711.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Drakkar - Chaos Lord (2021) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242705.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Signum Regis - Through The Storm (2015) EP [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242703.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Enter Shikari - A Kiss for the Whole World (2023) [MP3|320 Kbps] <Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242702.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Steel Panther - On the Prowl (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Hard, Glam-R
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242701.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Imperia - The Last Horizon (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242688.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Imperia - The Last Horizon (2021) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37D7401AACEF31DB200120069432744A8F831F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627699   (242686) от 20.04.2023
-
-VA - The Rock Collection - Forever Rock (1993) 2CD Compilation [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242686.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Wham! - I'm Your Man (4:07)
-02. Wilson Phillips - Release Me (3:52)
-03. Pretenders - Hymn To Her (4:31)(   Читать дальше...   )Жанр: RockПродолжительность: 01:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459D5B7D0D4D1B95F2E45C9D9617358D8D14902D
 ```
 
 https://mybot314.ru/tekegram_catalog/

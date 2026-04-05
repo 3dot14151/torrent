@@ -1,160 +1,3 @@
-###  Публикация: 942912   (450668) от 02.10.2015
-
-Н.Б. Культин | Основы программирования в Embarcadero Delphi (2015) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой практическое руководство по программированию в Embarcadero Delphi. В ней представлена технология визуального проектирования и событийного программирования, подробно рассмотрен процесс создания VCL приложений, показано назначение базовых компонентов, рассмотрены вопросы программирования графики, работа с базами данных Microsoft Access. Уделено (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B010F9D43223DF58315A6E72927C8676BB2F9842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942915   (450664) от 02.10.2015
-
-Бен Форта | Освой самостоятельно SQL за 10 минут (2014) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое 4-е издание популярной книги. В книге предлагаются простые и практичные решения для тех, кто хочет быстро получить результат. Проработав все 22 урока, на каждый из которых придется затратить не более 10 минут, вы узнаете обо всем, что необходимо для практического применения SQL. Данная книга поможет вам в кратчайшие сроки освоить SQL — самый популярный язык (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C45E00B62F777A60CB239986FF13413E50E31DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321276   (450010) от 28.08.2019
-
-Тони Гэддис | Начинаем программировать на Python, 4-е издание (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены принципы программирования, с помощью которых читатель приобретет навыки алгоритмического решения задач на языке Python, даже не имея опыта программирования. Дано краткое введение в компьютеры и программирование. Рассмотрен ввод, обработка и вывод данных, управляющие структуры и булева логика, структуры с повторением, функции, файлы и исключения, списки и (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C5BEAEC4EE5CF59F00DDA8E5A2CF16B8FC1FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827132   (448685) от 02.10.2014
-
-Р. Прокди и др. | Фотошопчик. Photoshop на практике. Создание фотомонтажа и обработка цифровых фотографий (2014) [DJVU]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448685.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью данной книги вы достаточно быстро и легко освоитесь с работой в графическом редакторе Adobe Photoshop. Буквально с первых же шагов вы сможете получать реальные результаты. Достичь такого эффекта позволяет большое количество практических примеров, встречающихся в книге на каждом шагу, а также пошаговые инструкции по выполнению тех или иных действий. При (   Читать дальше...   )Жанр: ГрафикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4008812F35A8D7E5EB4DA58C09F5665E84012C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060872   (448496) от 10.10.2016
-
-Дж. Макаллистер | Искусственный интеллект и Пролог на микроЭВМ (1990) [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448496.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге английского автора рассматривается использование наиболее популярного языка логического программирования для построения баз данных, баз знаний и экспертных систем. Книга содержит сравнительно мало теоретического материала и ориентирована в основном на практическое использование Пролога. Достаточно подробно описаны возможности этого языка.
-Для программистов (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E509CE0BA38765642CE9B49AAE91385D6CCD3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322440   (448190) от 29.08.2019
-
-Холден Карау, Рейчел Уоррен | Эффективный Spark. Масштабирование и оптимизация (2018) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если у вас уже есть положительный опыт использования Spark для решения небольших задач, но вы по-прежнему ломаете голову – где та самая непревзойденная производительность Spark, позволяющая перемалывать колоссальные объемы данных – то эта книга для вас. Она расскажет, как эффективно использовать Spark для укрощения больших данных и вырасти из новичка в специалиста. (   Читать дальше...   )Жанр: : Анализ данных, Обработка данныхФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202D9CD0976055F111F6C96BC81A7BACA5D5CF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322477   (448019) от 29.08.2019
 
 Кэти О'Нил, Рэйчел Шатт | Data Science. Инсайдерская информация для новичков. Включая язык R (2019) [PDF]
@@ -163,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448019.jpg" />
 </div>
 
 
@@ -189,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447776.jpg" />
 </div>
 
 
@@ -215,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447677.jpg" />
 </div>
 
 
@@ -241,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447532.jpg" />
 </div>
 
 
@@ -267,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446932.jpg" />
 </div>
 
 
@@ -293,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446930.jpg" />
 </div>
 
 
@@ -319,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446719.jpg" />
 </div>
 
 
@@ -345,7 +188,7 @@ Jeff Carlson | The OS X Mountain Lion Pocket Guide [2012] [PDF] [En]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445760.jpg" />
 </div>
 
 
@@ -372,7 +215,7 @@ V.Jokk | Обработка текста и использование MS Office
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445600.jpg" />
 </div>
 
 
@@ -398,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444219.jpg" />
 </div>
 
 
@@ -424,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444165.jpg" />
 </div>
 
 
@@ -450,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443830.jpg" />
 </div>
 
 
@@ -478,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443762.jpg" />
 </div>
 
 
@@ -505,7 +348,7 @@ Adobe Press | Adobe Dreamweaver CS6 Classroom in a Book [2012] [PDF] [En]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442974.jpg" />
 </div>
 
 
@@ -532,7 +375,7 @@ Adobe Press | Adobe After Effects CS6 Classroom in a Book [2012] [PDF] [En]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442823.jpg" />
 </div>
 
 
@@ -559,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442345.jpg" />
 </div>
 
 
@@ -585,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442335.jpg" />
 </div>
 
 
@@ -611,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442185.jpg" />
 </div>
 
 
@@ -640,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441819.jpg" />
 </div>
 
 
@@ -666,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441816.jpg" />
 </div>
 
 
@@ -677,6 +520,163 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:859DFAC0FDEFECDC95DF0DDE7804B56D9284A71B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323014   (441618) от 01.09.2019
+
+Ганс-Юрген Шениг | PostgreSQL 11. Мастерство разработки (2019) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прочитав эту книгу, вы научитесь создавать динамичные корпоративные приложения на основе последней версии СУБД PostgreSQL, которая позволяет аналитикам без труда проектировать физические и технические аспекты системной архитектуры. Приводится введение в новые функциональные возможности PostgreSQL, благодаря которым можно разрабатывать эффективные и отказоустойчивые (   Читать дальше...   )Жанр: Базы данныхФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4723BCBC1B7E5AE6A224FEB40F2AF764501AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570697   (439655) от 18.08.2022
+
+Фелиция Хэсс | Практическое пособие. Blender 3.0 для любителей и профессионалов. Моделинг, анимация, VFX, видеомонтаж (2022) [PDF]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blender 3.0 – один из лучших на сегодняшний день бесплатных пакетов трехмерной графики и анимации. В настоящее время он успешно используется художниками, дизайнерами, режиссерами и программистами игр, активно развивается в индустрии кинопроизводства, а также для создания различных спецэффектов. Третья версия редактора Blender  по своим инструментам и юзабилити приблизилась, (   Читать дальше...   )Жанр: 3D моделирование, Анимация, VFX, ВидеомонтажФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80E3BB8F455F7B7CDCDD3B1096D518E8D5EE5E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323119   (439339) от 02.09.2019
+
+Кен Коузен | Современный Java. Рецепты программирования (2018) [PDF, DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга состоит из рецептов программирования на языке Java, иллюстриружщих нововведения версий 8 и 9. В книге вы найдете массу примеров кода, демонстрирующих почти все обсуждаемые языковые и библиотечные средства. Эти примеры специально сделаны как можно более простыми, чтобы можно было сосредоточиться на основных отличительных моментах. Все они могут послужить (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C67F586B42F0CEC36AF6B074753AEFECF543A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121331   (438762) от 10.09.2017
+
+Том Кристиансен и др. | Программирование на Perl [4-е издание] (2014) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вскоре после выхода первого издания в 1991 году книга "Программирование на Perl" стала считаться неоспоримой библией по языку Perl и продолжает оставаться основным руководством по этому весьма практичному языку.
+Язык Perl начал жизнь в роли мощного средства обработки текста, но быстро превратился в универсальный язык программирования, который помогает сотням (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFE303DF8B995C2B3D85675D1CD78CA11BB72DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552788   (437770) от 30.09.2012
+
+Подборка книг по технологиям PHP, MySQL, SQL [2005-2012] [PDF]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437770.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Сборник включены книги, в которых рассмотрен язык WEB-программирования PHP, база данных MySQL, язык запросов SQL. Книги будут полезны при разрабатывании динамических сайтов с применением серверных технологийФормат: PDF, djvu, chm
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB85A1B90030AAF3883B1E18108E9F7A6C6C123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570976   (437495) от 19.08.2022
+
+Андрей Попов | Современный PowerShell (2022) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматривается объектно-ориентированная оболочка командной строки Microsoft PowerShell и ее возможности для автоматизации повседневных задач пользователей и администраторов. Описываются основные элементы и конструкции языка PowerShell, инструменты для написания и отладки сценариев. Приведена информация о работе с файловой системой и структурированными данными (CSV, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD65EFEFCE20E385D6B14B739FC52174A18A911E
 ```
 
 https://mybot314.ru/tekegram_catalog/

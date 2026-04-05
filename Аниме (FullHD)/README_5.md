@@ -6,7 +6,7 @@ Soukou Kihei Votoms: Red Shoulder Document - Yabou no Roots | Armored Trooper Vo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011335.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soukou Kihei Votoms: The Last Red Shoulder | Armored Trooper Votoms: The Last Re
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011333.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Soukou Kihei Votoms: Pailsen Files | Armored Trooper Votoms: Pailsen Files | Б�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011331.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Soukou Kihei Votoms: Gen-ei Hen | Armored Trooper Votoms: Phantom Arc | Брон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011328.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Soukou Kihei Votoms: Big Battle | Armored Trooper Votoms: Big Battle | Брон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011325.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Soukou Kihei Votoms | Armored Trooper Votoms | Бронированные вои
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011315.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011140.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Pop Team Epic | Попсовый эпос [2018, TV, 12 эп.] BDRip 1080p 10-bi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010674.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Uchuu Enban Dai-Sensou | The Great Battle of the Flying Saucers | Великая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010333.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Wandering; 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010286.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Devilman: Crybaby | Devilman Crybaby | Человек-дьявол: Плач [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010165.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Yowamushi Pedal: Glory Line | Трусливый велосипедист [ТВ-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009574.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Yowamushi Pedal: New Generation | Трусливый велосипедист [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009449.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ On-Gaku: Our Sound | Ongaku | Музыка [2020, Movie] BDRip 1080p HEVC 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009438.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Godzilla: Singular Point | Годзилла: Точка сингулярност
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009409.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Kengan Ashura | Кэнган Асура [2019, Web, 24 эп.] BDRip 1080p HEVC 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009263.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Hataraku Saibou!! | Клетки за работой! [ТВ-2] [2021, TV, 8 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008711.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Senyoku no Sigrdrifa | Warlords of Sigrdrifa | Полководцы Сигрдр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008365.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu You na M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008108.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Non Non Biyori: Nonstop | Деревенская глубинка [ТВ-3] [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008107.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Hanyou no Yashahime: Sengoku Otogizoushi | Yashahime: Princess Half-Demon | Пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007282.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Gleipnir | Глейпнир [2020, TV, 13 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006885.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Regalia: The Three Sacred Stars | Регалия: Три священные зв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005277.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ TO-Y | Той [1987, OVA] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004752.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Akudama Drive | Акудама Драйв [2020, TV, 12 из 12] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004690.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Go-Toubun no Hanayome 2 | The Quintessential Quintuplets 2 | Пять невес
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004689.jpg" />
 </div>
 
 

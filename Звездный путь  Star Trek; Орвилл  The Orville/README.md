@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1863452   (1063987) от 
+
+Звездный путь: Академия Звездного флота / Star Trek: Starfleet Academy (2026) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-10 из 10) NewComers, Кириллица, LostFilm, HDrezka, WStudio, Дуб ...
+
+>>Зарубежные сериалы
+>>Звездный путь / Star Trek; Орвилл / The Orville
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фантастического сериала из вселенной «Звездного пути» происходит в XXXII веке. Сюжет фокусируется на первом наборе кадетов Академии за 120 лет, которым предстоит возрождать идеалы Звездного флота. Новобранцы Звездного флота проходят через дружбу, соперничество и первую любовь, готовясь стать офицерами. Они сталкиваются с новой угрозой, которая угрожает Академии (   Читать дальше...   )Производство: США / Amblin Television, CBS Studios, Roddenberry EntertainmentЖанр: фантастика, боевик, приключенияРежиссер: Алекс КуртцманАктеры: Стивен Колбер, Холли Хантер, Белла Шепард, Керрис Брукс, Джордж Хоукинс, Karim Diane, Sandro Rosta, Katie Ready-Walters, Одед Фер, Пол ДжаматтиПеревод: Многоголосый (NewComers, Кириллица, LostFilm, HDrezka, WStudio, Дубляжная, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CD9D3AD25124BEAD751DEE2735C985B7332524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863459   (1063982) от 
+
+Звездный путь: Академия Звездного флота / Star Trek: Starfleet Academy (2026) WEB-DL [H.265/2160p] [4K, HDR10+, DV 8.1, 10-bit] (сезон 1, серии 1-10 из 10) LostFilm
+
+>>Зарубежные сериалы
+>>Звездный путь / Star Trek; Орвилл / The Orville
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фантастического сериала из вселенной «Звездного пути» происходит в XXXII веке. Сюжет фокусируется на первом наборе кадетов Академии за 120 лет, которым предстоит возрождать идеалы Звездного флота. Новобранцы Звездного флота проходят через дружбу, соперничество и первую любовь, готовясь стать офицерами. Они сталкиваются с новой угрозой, которая угрожает Академии (   Читать дальше...   )Производство: США / Amblin Television, CBS Studios, Roddenberry EntertainmentЖанр: фантастика, боевик, приключенияРежиссер: Алекс КуртцманАктеры: Стивен Колбер, Холли Хантер, Белла Шепард, Керрис Брукс, Джордж Хоукинс, Karim Diane, Sandro Rosta, Katie Ready-Walters, Одед Фер, Пол ДжаматтиПеревод: Многоголосый (LostFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F981771AA6136D8CC4E35E568BE5E9AD6BF8DBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 40982   (1061589) от 
 
 Звездный путь: Энтерпрайз / Enterprise (2003-2004) DVDRip (сезон 3, серии 1-24 из 24) СТС
@@ -7,7 +59,7 @@ https://t.me/izofen
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061589.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060952.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060162.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055956.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055820.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055009.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054839.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053890.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053834.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048492.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040697.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040404.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034521.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034325.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034317.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030553.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023972.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023967.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023954.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023941.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023747.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023735.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892978.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865063.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02254660CD0B3252C1F8FE1B00AE6C23AFDC309D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179029   (781536) от 15.02.2018
-
-Звездный путь: Дискавери / Star Trek: Discovery (2017) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-15 из 15) LostFilm
-
->>След.
->>Звездный путь / Star Trek; Орвилл / The Orville
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781536.jpg" />
-</div>
-
-
-###  Подробнее
-
-За десять лет до начала первой миссии капитана Кирка исследовать новые миры и формы жизни отправляется экипаж корабля «Шэньчжоу». На борту находятся капитан Филиппа Георгиу, а также несколько представителей нечеловеческих видов. Вместе они движутся навстречу мечте о мире, в котором любые существа смогут найти общий язык. Но оказывается, что далеко не все инопланетные (   Читать дальше...   )Производство: США / CBS Television StudiosЖанр: фантастикаРежиссер: Дэвид Семел, Адам Кейн, Акива Голдсман и др.Актеры: Сонекуа Мартин-Грин, Даг Джонс, Шазад Латиф, Энтони Рэпп, Джейсон Айзекс, Эмили Куттс, Сара Митич, Кеннет Митчелл и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmСубтитры: русские (форсированные на непереведенные фрагменты)Продолжительность: ~00:43:00 серияРеклама: присутствует заставка и логотип LostFilm
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074DF798A96D42E33FAEB4088E0F95D7DA03DFAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281206   (605995) от 20.04.2019
-
-Звёздный путь: Дискавери / Star Trek: Discovery (2019) WEB-DLRip (сезон 2, серии 1-14 из 14) SDI Media
-
->>Зарубежные сериалы
->>Звездный путь / Star Trek; Орвилл / The Orville
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие второй главы развернется за десять лет до событий оригинального «Звездного пути» и заполнит пробелы между знаменитой пилотной серией под названием "Клетка", которая стилистически отличается от шоу, и всеми любимым сериалом. Возможно, аудитория увидит, как Спок трансформируется из более человечного и расслабленного персонажа в рассудительного и (   Читать дальше...   )Производство: США / CBS Television Studios, Living Dead Guy Productions, RoddenberryЖанр: фантастика, боевик, драма, приключенияРежиссер: Олатунде Осунсанми, Дуглас Арниокоски, Джонатан ФрейксАктеры: Сонекуа Мартин-Грин, Даг Джонс, Энтони Рэпп, Мэри Вайсман, Шазад Латиф, Эмили Куттс, Джейсон Айзекс, Энсон Маунт, Джулианна Гроссман и др.Перевод: Многоголосый закадровый профессиональный (SDI Media)Субтитры: русские (форсированные, полные), английскиеПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39078CE2BC6661A297AD2A0C07F639DC33B94CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

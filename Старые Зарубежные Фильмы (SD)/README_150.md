@@ -1,3 +1,133 @@
+###  Публикация: 544179   (276075) от 26.11.2018
+
+Скромное обаяние буржуазии / Le charme discret de la bourgeoisie (1972) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Насмешливая, сюрреалистическая зарисовка никчемной жизни буржуа. Респектабельные герои фильма собираются на обед, но их чинному времяпрепровождению с завидным постоянством препятствуют непредвиденные обстоятельства. Компания собралась как будто вполне благопристойная (есть даже посол из южноамериканской страны). Но постепенно со злой иронией и беспощадностью Бунюэль (   Читать дальше...   )Производство: Франция, Италия, Испания / Dean Film, Greenwich Film Productions, Jet Films S.A.Жанр: Драма, Комедия, ФэнтезиРежиссер: Луис БунюэльАктеры: Фернандо Рей, Стефан Одран, Дельфин Сейриг, Булль Ожье, Стефан Одран, Жан-Пьер Кассель, Жюльен Берто, Милена Вукотич, Мария Габриелла Майоне, Клод ПьеплюПеревод: ДублированныйПродолжительность: 01:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B1D650EE5B2367335FE05B68B5812D5479113A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337106   (275880) от 09.11.2019
+
+Раздетая для убийства / Stripped to Kill (1987) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто-то убивает исполнительниц стриптиза из ночного клуба в Лос-Анджелесе. Женщина-детектив должна раскрыть эти преступления и потому внедряется в клуб.Производство: США / Concorde-New HorizonsЖанр: Ужасы, Триллер, Драма, Криминал, ДетективРежиссер: Кэтт ШиАктеры: Кэй Ленц, Грег Эвиган, Норман Фелл, Пиа Камакахи, Трэйси Краудер, Дэбби Нассар, Люсия Лексингтон, Карли Байрон, Афина Уорси, Мишель ФорменПеревод: Авторский, Андрей ДольскийСубтитры: ОтсутствуютПродолжительность: 01:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE54EB9C6F63053BF11757388C30AF215829926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264653   (275170) от 27.11.2018
+
+Возвращение Мартина Герра / Le retour de Martin Guerre (1982) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275170.jpg" />
+</div>
+
+
+###  Подробнее
+
+В родную деревню после многолетнего отсутствия возвращается Мартин Герр, юношей сбежавший в армию. За прошедшие годы Мартин сильно изменился, и постепенно это начинает вызывать подозрения у соседей: действительно ли вернувшийся человек — Мартин Герр? Хотя Мартина признает его жена, недоверие к нему растет.Производство: Франция, S.F.P.C., Production Marcel Dassault, France 3 (FR 3)Жанр: драма, мелодрама, криминал, детектив, биография, историяРежиссер: Даниэль ВиньАктеры: Жерар Депардье, Натали Бай, Морис Барье, Бернар-Пьер Доннадье, Изабель Садоян, Роз Тьерри, Шанталь Дерюаз, Морис Жакмон, Роже Планшон, Френсис АрноПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1994139B1C8BFACA56F83F561E96D98EA0CDA337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082951   (274747) от 15.12.2016
+
+Счастливая годовщина и разлука / Happy Anniversary and Goodbye (1974) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274747.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета - пожилая семейная пара: Норма и Малькольм, которая только что выдала замуж единственную дочь. Дочь, как семейная скрепа вылетела из дома, словно пробка из под шампанского, поскольку не выносила дрязг между матерью и отцом, предпочтя им мастера по педикюру в мужья. Малькольм - старый дентист и скряга с кучей болячек в организме, решается уйти от своей (   Читать дальше...   )Производство: США | Lucille Ball ProductionsЖанр: КомедияРежиссер: Джек ДонохьюАктеры: Люсиль Болл, Арт Карни, Нанетт Фабрэй, Питер Маршалл, Дон Портер, Патриция Блэр, Дория Кук-Нельсон, Конни Гаррисон, Сид Гулд, Флоренс Лэйк, Луиза Мориц, Родс Ризон, Арнольд ШварценеггерПеревод: Одноголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33665C27961DDCFCD561EF4D1B671408A3B3FC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082988   (274703) от 15.12.2016
+
+Мусорная охота / Scavenger Hunt (1979) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый мистер Паркер придумал миллионы изобретений и игр. Он умирает, и его родственники собираются для прочтения завещания. Однако старый мистер Паркер был игроком до последнего, и его завещание ставит условием получения денег родственником Охоту на мусор. Победитель Охоты на мусор получит все деньги, проигравший не получит ничего. Родственники делятся на пять команд (   Читать дальше...   )Производство: США | 20th Century Fox Film CorporationЖанр: КомедияРежиссер: Майкл ШульцАктеры: Ричард Бенджамин, Джеймс Коко, Скэтмэн Крозерс, Рут Гордон, Клорис Личмен, Кливон Литтл, Родди МакДауэлл, Роберт Морли, Ричард Маллиган, Тони Рэндалл, Арнольд ШварценеггерПеревод: Одноголосый закадровый
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644D22A450661A34F4F10FABCC5B0D296D079E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337379   (274533) от 10.11.2019
 
 Малибу-экспресс / Malibu Express (1985) BDRip [H.264] [AVO]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274533.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273459.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272964.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272125.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271952.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271477.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271437.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271122.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271059.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271002.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270855.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270523.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270350.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270239.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269998.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269966.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269950.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269797.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269426.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269146.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269138.jpg" />
 </div>
 
 
@@ -538,137 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E725B8884CDAC973CCD1709E50FEB166144169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266681   (269075) от 03.12.2018
-
-Совершеннолетие / Age of Consent (1969) HDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брэдли Морахэн — знаменитый австралийский художник, выплачивающий большие алименты, готовится к отъезду на родину. Он направляется на Большой Барьерный Риф, чтобы поселиться в полуразрушенной хижине на острове своей мечты недалеко от материка. Живут на этом острове еще только пропитанная джином старуха, похожая на ведьму, ее внучка Кора и Изабель Марли изголодавшаяся (   Читать дальше...   )Производство: Австралия / Nautilus ProductionsЖанр: Драма, Мелодрама, КомедияРежиссер: Майкл ПауэллАктеры: Джеймс Мэйсон, Хелен Миррен, Джек МакГоурэн, Нева Кар-Глэн, Андония Катсарос, Майкл Бодди, Харольд Хопкинс, Слим ДеГрей, Макс Мелдрам, Фрэнк ТрингПеревод: Любительский одноголосый (Гундос)Продолжительность: 01:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4C0BF23D4116CA58E1E654C293BBE8A2912626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338739   (268748) от 16.11.2019
-
-Война мутантов / Mutant War (1988) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой сражается против злодея, создающего мутантов с целью захвата мира. Но, увы, все мутанты мужского пола, так что для размножения им требуются обычные девушки, которых они похищают и утаскивают к себе на базу. Спасать похищенных и отправляется наш герой.
-Продолжение фильма Бретта Пайпера "Битва за потерянную планету".Производство: США / Cinevest Entertainment GroupЖанр: Боевик, ФантастикаРежиссер: Бретт ПайперАктеры: Кэмерон Митчелл, Мэтт Митлер, Дебора Квейл, Кристин ВатерманПеревод: Авторский, Вячеслав КотовСубтитры: Английские (Full, SDH)Продолжительность: 01:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830F0A0C4A3A2D0E1E10DB5A36D6E9841939A189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190227   (268730) от 08.12.2017
-
-Глазастые существа / Eye Creatures (1965) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока одни военные гоняются за летающими тарелками, другие военные тратят время на подглядывания за подростками, обжимающимися в машинах поздней ночью. В одну из таких ночей злобные инопланетяне и высаживаются в деревенской глуши…Производство: Azalea PicturesЖанр: Фантастика, Приключения, КомедияРежиссер: Ларри БьюкэнэнАктеры: Джон Эшли, Синтия Халл, Чет Дэвис, Билл Пек, Этан Аллен, Нэйтан Уайл, Боб Кауэн, Тони ХьюстонПеревод: Одноголосый закадровый
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6203917645041AC2FE7C85D02B5CD64CA650C5C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338720   (268713) от 16.11.2019
-
-Аллан Куотермейн и потерянный город золота / Allan Quatermain and the Lost City of Gold (1986) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фильма «Копи царя Соломона». Герой возвращается в Африку в поисках своего брата, идущего по следам затерянного белого племени.Производство: США, Израиль / Golan-Globus Productions Ltd.Жанр: Боевик, Комедия, ПриключенияРежиссер: Гэри НельсонАктеры: Ричард Чемберлен, Шэрон Стоун, Джеймс Эрл Джонс, Генри Сильва, Роберт Доннер, Догми Ларби, Эйлин Марсон, Кассандра Петерсон, Мартин Раббетт, Рори КилалеаПеревод: Многоголосый профессиональный, двуголосый профессиональный, авторскийСубтитры: АнглийскиеПродолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D57E3F92F0A6EC20FAAF9E9BCD6BA7CD74F542F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189588   (268517) от 08.12.2017
-
-Путешествие на Китеру / Taxidi sta Kythira (1984) BDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268517.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета одна из самых траги­ческих страниц новейшей истории Греции — гражданская война конца сороковых годов и судьбы сотен ты­сяч греков, вынужденных бежать от преследования в СССР и другие страны «социалистического лагеря».Производство: Греция, Италия, Великобритания, Германия (ФРГ) / Channel 4 Television Corporation, Greek Film Center, Greek Television ET-1Жанр: ДрамаРежиссер: Тео АнгелопулосАктеры: Манос Катракис, Маири Хронопулу, Дионисис Пападжианнопулос, Дора Воланаки, Джулио Броджи, Гиоргос Нецос, Атинодорос Прусалис, Майкл Яннатос, Василис Цаглос, Деспоина ГерулануПеревод: Одноголосый закадровый, авторский (Антон Алексеев)Субтитры: отсутствуютПродолжительность: 02:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A394BB170F2169B56C79606FB2273B00203009
 ```
 
 https://mybot314.ru/tekegram_catalog/

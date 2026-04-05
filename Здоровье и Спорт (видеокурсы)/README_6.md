@@ -6,7 +6,7 @@ NSA, Владимир Дадали | Образовательный курс п�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429308.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Louis Van Amstel | LaBlast (2017) HDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428015.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Cathe Friedrich | XTrain (2016) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428010.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Chalene Johnson | PiYo (2014) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427640.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jillian Michaels | Yoga Inferno (2015) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423605.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Jillian Michaels | Yoga Meltdown (2010) DVDRip
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423597.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Gray Cook | Home Study Course (2011) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421101.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sean Fagan | The  Heavy Bag Blueprint (2015) WEBRip [H.264/720p] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416167.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ BodyRock | Beginner Challenge (2016) WEBRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416011.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415646.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Gilad | Fé Fit Women's Workout Program (2016) WEBRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411530.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Tony Horton | THF (2014) WEBRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408019.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jillian Michaels | Shred-It With Weights (2010) DVDRip [RU, EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407945.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389730.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383143.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Megan Davies | Clean Week (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378319.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Daily Burn | DB10 (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367232.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Cathe Friedrich | Cross Fire (2012) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366272.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362551.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Chris Downing | Shift Shop (2017) HDTVRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358330.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358321.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358312.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358127.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355773.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355772.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Mark Cheng | Tai Cheng Workout [Master Kit] (2012) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355485.jpg" />
 </div>
 
 

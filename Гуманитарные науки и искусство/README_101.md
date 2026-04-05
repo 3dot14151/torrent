@@ -1,83 +1,3 @@
-###  Публикация: 1339368   (266148) от 19.11.2019
-
-П. М. Керженцев | Принципы организации (1968) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266148.jpg" />
-</div>
-
-
-###  Подробнее
-
-В однотомнике избранных произведений Платона Михайловича Керженцева, посвященных научной организации труда и управления, помещено с некоторыми сокращениями пять работ: «Принципы организации», «НОТ — научная организация труда», «Борьба за время», «Памятка организатора», «Организуй самого себя!».Жанр: История, психология, социология, искусство, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587DA078EFA035D4982E8973DA69DDDE4DCBC3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339363   (266068) от 19.11.2019
-
-Ж. Г. Тард | Законы подражания (2011) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический труд основателя социальной психологии Г. Тарда посвящен социально-коммуникативной деятельности индивидов в форме подражания (имитации), которая выступает как основа развития общества. Под процессом подражания понимается элементарное копирование и повторение одними людьми поведения других. Процессы копирования и повторения касаются существующих практик, (   Читать дальше...   )Жанр: История, психология, социологияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19B4C66C4DD5CB1453DCEA1C6443F8A98231029
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267309   (265131) от 08.12.2018
-
-Е. С. Варга | Изменения в экономике капитализма в итоге второй мировой войны (1946) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга представляет собой результат шестилетнего труда.
-
-С начала второй мировой войны я занялся наблюдением и анализом новых экономических явлений, выдвинутых войной. Я поставил перед собой вопрос: какие из этих новых явлений носят преходящий и какие — длительный характер? Иначе говоря, как будет развиваться капиталистическое хозяйство после войны? Таким (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA5A50E042E4D59CB5F7847FE2B42E8840D35FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267232   (265017) от 08.12.2018
 
 Чарльз Монтгомери | Счастливый город. Как городское планирование меняет нашу жизнь (2018) [PDF, FB2]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265017.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264441.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264438.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264436.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264435.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264434.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264129.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263878.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263850.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263304.jpg" />
 </div>
 
 
@@ -352,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263244.jpg" />
 </div>
 
 
@@ -378,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263241.jpg" />
 </div>
 
 
@@ -406,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263228.jpg" />
 </div>
 
 
@@ -432,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263216.jpg" />
 </div>
 
 
@@ -458,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262834.jpg" />
 </div>
 
 
@@ -484,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262805.jpg" />
 </div>
 
 
@@ -510,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262802.jpg" />
 </div>
 
 
@@ -536,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262799.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262751.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262739.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262179.jpg" />
 </div>
 
 
@@ -642,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261777.jpg" />
 </div>
 
 
@@ -668,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261619.jpg" />
 </div>
 
 
@@ -679,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E34B7CBCB1B0B79322973D28AE3C979432F33F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505194   (260975) от 03.06.2012
+
+Книжная серия | История Востока в 6 томах [2002-2008] [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260975.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Востока в 6 томах - фундаментальный шеститомный труд по истории Востока с древнейших время до наших дней.2002-2008Жанр: ИсторияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432F23BD3C3BF545ABA317DBEA95E9C749514FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838646   (260596) от 23.11.2025
+
+Майкл Рабигер | Режиссура документального кино (2006) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Режиссура документального кино» Майкла Рабигера рассказывает о главных принципах работы режиссера документалиста. Книга затрагивает все стадии производства — от подготовки к съемкам до процесса монтажа. Вы узнаете о том, как возникает и разрабатывается идея документального фильма, как формируется съемочная группа и как работает режиссер во время съемок. Автор (   Читать дальше...   )Жанр: Образование, искусство, кинорежиссураИздательство: ГИТРФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DA1F830DD1C552656DCA05074EAF32F3647D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502248   (258950) от 27.05.2012
+
+Петр Гнедич | История искусств с древнейших времен [1885] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание представляет собой первую попытку дать на русском языке в живом и сжатом изложении картину общего хода развития искусств с древнейших времен до начала ХХ века. Все книги, изданные в России до тех пор, являлись переводом иностранных трудов скорее справочного характера. Автор настоящего издания стремился представить доступное изложение, его труд нельзя (   Читать дальше...   )Жанр: Раритеты, история, искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56490C124812ADF4715271CD7F04012F47CF1814
 ```
 
 https://mybot314.ru/tekegram_catalog/

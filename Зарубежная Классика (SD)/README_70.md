@@ -1,3 +1,55 @@
+###  Публикация: 933448   (497277) от 10.09.2015
+
+Сабата / Ehi amico... c'е Sabata. Hai chiuso! (1969) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько преступников грабят банк на сто тысяч долларов, они думают, что все уже позади, но по их следу пускается бесстрашный ковбой Сабата, мастер оружия, который преподнесет бандитам хороший урок.Производство: Италия / Produzioni Europee Associati (PEA)Жанр: ВестернРежиссер: Джанфранко ПаролиниАктеры: Ли Ван Клиф, Вильям Бергер, Игнацио Спалла, Альдо Канти, Франко Рессель, Антонио Градоли, Линда Верас, Клаудио Ундари, Джанни Риццо, Спартако КонверсиПеревод: Двуголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F93399F5EA85195B66C0DADEAFE32581621E2B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933403   (497211) от 10.09.2015
+
+Новые центурионы / The New Centurions (1972) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новичок Рой Фехлер приходит в полицию и принимается за работу с рвением, приводящим к развалу собственной семьи. В напарники ему достается опытный и принципиальный коп — настоящий матерый волк. Каждый раз, выезжая на дежурство, они балансируют на грани жизни и смерти, строго придерживаясь в своей деятельности главного лозунга: «Защищать и служить».Производство: США / Chartoff-Winkler ProductionsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Ричард ФлайшерАктеры: Джордж К. Скотт, Стейси Кич, Джейн Александр, Скотт Уилсон, Розалинд Кэш, Эрик Эстрада, Клифтон Джеймс, Ричард Е. Кальк, Джеймс Сиккинг, Беверли Хоуп ЭткинсонПеревод: Дублированный, двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9ED35F8793F27EE4F90E81F71D4A2B99D32FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607588   (496193) от 05.08.2019
 
 Окно напротив / La Finestra di fronte (2003) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496193.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495776.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495726.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495228.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494993.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494087.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493959.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493865.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493849.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493401.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491846.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491685.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491640.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491227.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490909.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490399.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490062.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489715.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488635.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487790.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487747.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487627.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486909.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486841.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:421B2526C9B950100D70A57BE694CB1CEA4DCF30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707503   (486780) от 28.08.2020
-
-Создание из Черной лагуны / Creature from the Black Lagoon (1954) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486780.jpg" />
-</div>
-
-
-###  Подробнее
-
-В глубоких амазонских дебрях, что-то ищет в земле палеонтологическая экспедиция. Не найдя того, чего искали, ученые мужи решили проверить - а может быть то, что они искали отнесло течением в зловещую Черную лагуну!? Надо проверить и искать там. Забрались, начали искать... дальше, понятно: на сцене появляется главный герой фильма и последовательно кушает (вернее, (   Читать дальше...   )Производство: США, Universal International PicturesЖанр: Ужасы, фантастика, приключенияРежиссер: Джек АрнольдАктеры: Ричард Карлсон, Джули Адамс, Ричард Дэннинг, Антонио Морено, Нестор Пайва, Уит Бисселл, Рику Браунинг, Бен ЧэпманПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7141ED21822575E6D033001A18329863DECA65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317506   (486442) от 10.08.2019
-
-Короли Солнца / Kings of the Sun (1963) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Индейцы из племени майя во главе с молодым королем Баламом решают перебраться через Мексиканский залив и осесть на североамериканских землях. На новой земле они сталкиваются с племенем коренных американцев, предводителем которых является вождь по имени Черный Орел. Конфликт двух племен осложняется еще и тем, что и король Балам, и Черный Орел влюбляются в прекрасную (   Читать дальше...   )Производство: США / The Mirisch CorporationЖанр: Триллер, Драма, Приключения, ИсторияРежиссер: Дж. Ли ТомпсонАктеры: Юл Бриннер, Джордж Чакирис, Ширли Энн Филд, Ричард Бейсхарт, Брэд Декстер, Бэрри Морс, Армандо Сильвестре, Лео Гордон, Виктория Ветри, Руди СолариПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602C6FE6F590F51CF473350D1D4E945DB46D97DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

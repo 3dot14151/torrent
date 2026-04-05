@@ -6,7 +6,7 @@ Viasat History: Карты убийства / Murder Maps (2015) SATRip [H.264] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634761.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DV: Невероятное вокруг нас. Волны, которые гр�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634700.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DV: Невероятное вокруг нас. Рождение и жизнь �
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634699.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Прирождённые монстры. Тигровая змея / Natura
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634016.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Прирождённые монстры. Бразильский паук / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633923.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Без промаха / Gunslingers (2007) HDTVRip [Сезон 1, С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633765.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery: Без промаха / Gunslingers (2007) HDTV [H.264/720p-LQ] [Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633760.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery. Самый разрушительный тайфун / Megastorm: Wor
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633759.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery. Экстремальные коллекционеры / Extreme Colle
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633755.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633528.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery: Подлинная жизнь Тутанхамона / King Tut Unwra
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633496.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC: Код / The Code (2011) WEB-DL [H.264/1080p-LQ] (серии 1-3 из 3)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633346.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633301.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Animal Planet: Дикая (Суровая) Арктика [4 из 4] / Wildest A
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632864.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ National Geographic: Острова. Исландия / Islands. Island (2011) S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632163.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ National Geographic: Острова. Занзибар / Islands. Zanzibar (2011)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632158.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ National Geographic: Острова. Куба / Islands. Cuba (2011) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632155.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Discovery. Экстремальные коллекционеры / Extreme Colle
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632009.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NG. Секреты Шамбалы. В поисках священных пеще
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631724.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ BBC: Большие птицы с Дэвидом Аттенборо / BBC Natura
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631694.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Discovery. Билли скупает Бруклин / Billy Buys Brooklyn (2021)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631222.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631106.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ NGW: Дикая Турция / Turkey's Harsh Paradise (2015) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629964.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ NGW: Гигантские плотоядные летучие мыши / Giant C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629959.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ NG. Дикая Канада: У кромки льда / Wild Canada. Ice Edge (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629623.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Animal Planet. Суровая Арктика / Wildest Arctic (2012) HDTVRip [H.
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629466.jpg" />
 </div>
 
 

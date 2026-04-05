@@ -1,3 +1,108 @@
+###  Публикация: 1081755   (282800) от 10.12.2016
+
+TrustGo Antivirus & Mobile Security 2.4.5.487 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатное комплексное решение для защиты приватных данных и анализа угроз на Вашем смартфоне.Тип издания: FreeРелиз состоялся: 07.12.2016Разработчик: TrustGo, Inc.Поддерживаемая ОС: Android 4.0+Жанр: AntivirusЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BE2C1C143F38C802E628818E6A60FC002A23F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964788   (280298) от 12.12.2015
+
+Garmin: Vietnam Map 2.07.1015 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорожная карта Вьетнама для навигаторов ГарминТип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: декабрь 2015Разработчик: GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98DBF8F17D736179F70B70F4E10D52162EB87F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077474   (280022) от 11.12.2016
+
+CatchaAll v1.2 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280022.jpg" />
+</div>
+
+
+###  Подробнее
+
+CatchaAll - игра сделанная по мотивам легендарной "Волк ловит яйца". В игре содержится набор различных уровней-заданий, 8 бесконечных игр, в которых присутствует множество как хороших так и вредных бонусов.Релиз состоялся: 25.11.2016Разработчик: Вячеслав ЗубикПоддерживаемая ОС: Android 2.3+Жанр: Arcade (Аркада)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BC053EB3993359D8E2789C99926F051933ECED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082490   (278515) от 12.12.2016
+
+Английский язык с Emister 1.13 [Ru] Premium
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтаете бесплатно совершенствовать и проверять свои знания без скучных тестов и учебников? Если Вам интересен такой результат, добро пожаловать в мир изучения английского языка с Emister. Emister - новое бесплатное приложение для изучения английского языка для молодых, активных и предприимчивых людей, любящих приключения, веселье и путешествия.
+Вы изучаете только (   Читать дальше...   )Тип издания: Пиратка/UnlockedРелиз состоялся: 8 декабря 2016 гРазработчик: Virtual Education OUПоддерживаемая ОС: Android 4.0.3 +Жанр: ОбразованиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89FDF575BB51A1427B84668940BFBDC3279F641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336033   (278336) от 07.11.2019
 
 Locus Map Pro 3.40.2 [Ru/Multi]
@@ -6,7 +111,7 @@ Locus Map Pro 3.40.2 [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278336.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Online Radio  Box Pro v1.0.175 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277502.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ KMPlayer 2.3.0 [Ad Free] [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276843.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ Automatic Call Recorder Pro 1.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276827.jpg" />
 </div>
 
 
@@ -116,7 +221,7 @@ Root Call SMS Manager 1.8.1 [Ru] Full
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276746.jpg" />
 </div>
 
 
@@ -145,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276683.jpg" />
 </div>
 
 
@@ -174,7 +279,7 @@ AnExplorer PRO File Manager v4.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276269.jpg" />
 </div>
 
 
@@ -200,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275685.jpg" />
 </div>
 
 
@@ -226,7 +331,7 @@ GSM Spy Finder 16.01 (AdFree) [Ru-Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275483.jpg" />
 </div>
 
 
@@ -252,7 +357,7 @@ Digital clock & world weather 2.00.01 [Multi]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274393.jpg" />
 </div>
 
 
@@ -278,7 +383,7 @@ AnTuTu Benchmark 6.3.1 [Rus]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274183.jpg" />
 </div>
 
 
@@ -304,7 +409,7 @@ mPro.Скорая помощь v2.2.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273010.jpg" />
 </div>
 
 
@@ -330,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272314.jpg" />
 </div>
 
 
@@ -357,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272241.jpg" />
 </div>
 
 
@@ -385,7 +490,7 @@ WordBit v1.3.5 [Ru/En] - Английский язык (на блокировк�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271343.jpg" />
 </div>
 
 
@@ -411,7 +516,7 @@ FreeFlix TV Pro v1.0.3 Mod [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271118.jpg" />
 </div>
 
 
@@ -437,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269044.jpg" />
 </div>
 
 
@@ -463,7 +568,7 @@ VIP MP3 Player (ZK.FM Player) v4.1 (96) Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268612.jpg" />
 </div>
 
 
@@ -489,7 +594,7 @@ Tacticool v0.945 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267429.jpg" />
 </div>
 
 
@@ -517,7 +622,7 @@ Zoiper v1.53 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266586.jpg" />
 </div>
 
 
@@ -543,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265309.jpg" />
 </div>
 
 
@@ -569,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262048.jpg" />
 </div>
 
 
@@ -580,110 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53BC21BEEEF29E9D984D9184098C56F11A93CDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193402   (262035) от 21.12.2017
-
-Электроника Это просто 2 v2.1 Full [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улучшенная и дополненная версия приложения.Еще более полное и постоянно обновляемое приложение для Электронщиков и Электриков.В приложении еще более подробно рассматриваются все темы касательно электроники и электрики.Физические законы, радиофизика, Закон Джоуля-Ленца, закон Ома, эффект Холла, Диоды и триоды и другие полезные вещи.Справочники Электриков,Вопросы и (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 22 октября 2017 г.Разработчик: Progressiv Digital Inc.Поддерживаемая ОС: Android 3.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0564F5DE92984BCA4CB05D70751812124D3538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839055   (261722) от 26.11.2025
-
-ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v3.1.38 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261722.jpg" />
-</div>
-
-
-###  Подробнее
-
-ToonApp карикатура фоторедактор лучшее приложение для превращения вашей картинки в мультфильм. Создатель мультфильмов предлагает удивительные фильтры AI для изображений, чтобы превратить фотографию в мультфильм. Вы даже можете сделать из фотографий карикатуры, чтобы превратить их в персонажей аниме. Чтобы завершить редактирование фотографий, добавьте впечатляющий (   Читать дальше...   )Тип издания: ProРелиз состоялся: 25.11.2025Разработчик: Lyrebird StudiosПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B67FC982B57781CD223FBCE508E1331971F8037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839058   (261721) от 26.11.2025
-
-ProShot v8.32.3 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в ProShot, полное решение для фото- и видеосъемки на Android. Являетесь ли вы опытным профессионалом или только начинаете, в ProShot есть что-то для вас. Его обширный набор функций и уникальный интерфейс открывают неограниченные возможности, гарантируя, что вы никогда не пропустите идеальный снимок.Тип издания: Pro / PatchedРелиз состоялся: 25.11.2025Разработчик: Rise Up GamesПоддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9DB622851B136356EA41405D30D8D6A5C593967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839056   (261720) от 26.11.2025
-
-Smart AudioBook Player Pro v11.6.2 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 26.11.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0294A94277BB6BE8D31C7AA46E82AE5720D96A5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

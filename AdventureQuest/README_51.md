@@ -1,3 +1,81 @@
+###  Публикация: 1191350   (264344) от 13.12.2017
+
+Sherlock Holmes: The Case of the Silver Earring / Шерлок Холмс. Загадка серебряной сережки (2004) [Ru/Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264344.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Шерлок Холмс: Загадка серебряной сережки» – оригинальный квест, разработанный компанией Frogwares и озвученный «лучшим Холмсом современности», актером Василием Ливановым. Действие игры начинается с загадочного убийства. Устроив торжественный прием в честь возвращения любимой дочери Лавинии, сэр Бромсби и не подозревал, что этот ужин окажется для него последним. (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Приключение, Квест, ДетективЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06054824574DFE95AFEC8B274861789A815B3897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339969   (264194) от 22.11.2019
+
+Brukel (2019) [Ru/Multi] (1.0.2) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы проникли в заброшенный дом детства вашей 92-летней бабушки. Вы были очарованы историями о ее юношеских годах на протяжении большей части своей жизни, но прошлым летом вы наконец решили записать ее воспоминания, чтобы поделиться этими историями с миром онлайн. Теперь все что вам нужно, это несколько фотографий дома и, возможно, некоторые предметы, которые все еще (   Читать дальше...   )Тип издания: RepackРазработчик: Bob De SchutterЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4964430258A36757A98474DB7CB65DD0B0DCBC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191606   (264053) от 14.12.2017
+
+Sherlock Holmes: Nemesis / Шерлок Холмс против Арсена Люпена (2010) [Ru/Multi] (1.0) License GOG [Remastered]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_264053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Битва умов: два знаменитых героя популярной литературы сходятся в бескомпромиссном поединке. Шерлок Холмс возвращается к расследованию дела джентльмена-вора в переработанной версии квеста "Шерлок Холмс против Арсена Люпена"! Классическое приключение стало еще интереснее благодаря инновациям из позднейших игр серии: камеры с видом от третьего лица и умной (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Приключение, Квест, ДетективЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18D2DD9A95801F5BF22495E0F978767A32A5DAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155274   (263646) от 15.12.2017
 
 Tacoma (2017) [Ru/Multi] (121417) License GOG
@@ -6,7 +84,7 @@ Tacoma (2017) [Ru/Multi] (121417) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263646.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Heavy Rain (2019) [Ru/Multi] (build 362) License CPY
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263431.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Asterix & Obelix XXL 3 - The Crystal Menhir (2019) [Ru/Multi] (1.15) Repack Othe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263419.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Lift (2018) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263181.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Heavy Rain (2019) [Ru/Multi] (1.0/build 362) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262781.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Mind: Path to Thalamus (2015) [Ru/Multi] (1.1) License PLAZA [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262198.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Black Mirror (2017) [Ru/Multi] (1.1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262154.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack xatab [Episode
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262010.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Granny Remake (2023) [Ru/Multi] (3.6.3) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261694.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Phoenix Wright Ace Attorney Trilogy (2019) [Ru/Multi] (Build 20282248) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261553.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Radiolight (2025) [Multi] (0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261515.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261511.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Nostradamus: The Last Prophecy / Нострадамус: Последнее пр
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261502.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Adventures of Maddog Williams in the Dungeons of Duridian [En] (RePack) 1992 | P
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261442.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Syberia / Сибирь (2002) [Ru/Multi] (1.0.0hf4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260759.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ TimeQuest [En] (RePack) 1991 | RG Games (Pilotus)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259905.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Still Life 1, 2 (2005-2009) [Ru/En] (1.00) Repack R.G. Catalyst [Dilogy / Дил
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259509.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Nancy Drew: Legend of the Crystal Skull / Нэнси Дрю: Легенда о �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258408.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Escape from Duckov (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257932.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Escape from Duckov (2025) [Ru/Multi] (1.2.5) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257746.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ INDIKA (2024) [Ru/Multi] (1.0.3) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257626.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Entomorph: Plague of the Darkfall [En] (RePack) 1995 | RG Games
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257272.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Shenmue III (3) (2020) [Multi] (1.06.01/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256796.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ Shenmue III (3) (2020) [Multi] (1.06.01/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F15158197A6AEE2017080CF1E41E4AB6A6BB6E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837327   (256787) от 15.11.2025
-
-DE-EXIT - Eternal Matters (2023) [Ru/Multi] (1.0.23.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256787.jpg" />
-</div>
-
-
-###  Подробнее
-
-DE-EXIT - Eternal Matters - приключение, в котором предстоит исследовать потусторонний мир, пытаясь раскрыть тайны утерянной памяти. Игра наполнена юмором и мистикой. Графический стиль представлен необычным воксельным дизайном. Управлять протагонистом потребуется от третьего лица. Иногда игра может менять перспективу, переворачивая геймплей с ног на голову. Вместе (   Читать дальше...   )Тип издания: LicenseРазработчик: SandBloom StudioЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271A8611309A88E104F522884DD5F4DF55FC267D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837368   (256766) от 16.11.2025
-
-Agatha Christie - Death on the Nile / Агата Кристи - Смерть на Ниле (2025) [Ru/Multi] (1.2.0) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256766.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре «Смерть на Ниле» мирный круиз по Нилу прерывается из-за ужасного преступления. К счастью, на борту находится знаменитый детектив Эркюль Пуаро. Тем временем другой детектив выслеживает убийцу, следы которого тянутся из Лондона на Майорку, затем в Нью-Йорк и, наконец, тоже ведут в Египет. Два расследования пересекаются в Абу-Симбеле, где непохожим друг на друга (   Читать дальше...   )Тип издания: RepackРазработчик: Microids Studio LyonЖанр: Приключенческие игрыЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79911EB3E3626FB3807AA422C15ED14C2CB898DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837384   (256755) от 16.11.2025
-
-Sushi Ben (2025) [Ru/Multi] (1.5.250918.5) Repack FitGirl [VR]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Котобуки‑таун - уютное приморское местечко, которое бездушные дельцы из большого города покоряют участок за участком. Это ещё и твой новый дом. Сумеешь ли ты сплотить местных и спасти их любимый суши‑бар? Вдохновленная повседневными аниме, Sushi Ben - это добрая, смешная и взрывная сюжетная приключенческая игра о том, как найти себя (   Читать дальше...   )Тип издания: RepackРазработчик: Big Brane Studios, Inc.Жанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Японский, Французский и другиеЯзык интерфейса: Русский, Английский, Японский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6CE2E634EA48430DB67A21EE9E4BB4AF59FFF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

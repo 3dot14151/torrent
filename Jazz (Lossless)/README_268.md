@@ -6,7 +6,7 @@ VA - Lluvia JAZZ (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211761.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - After Dark Warm Summer Nights Sensual Smooth Jazz (2023) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211759.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - That's What We Call SMOOTH JAZZ (33 Tunes) (2023) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211747.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Hit - List Vol 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211734.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Ultimate Jazz Chillout Sweet Instrumentals on the Beach (2023) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211726.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Blues & Jazz 101 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211720.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Stanley Turrentine - The Look Of Love (1968) 1982, Applause Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211341.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Stanley Turrentine - La Place (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211335.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Stanley Turrentine - New Time Shuffle (1967) 2012, Toshiba-EMI [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211331.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Stanley Turrentine - The Best of Stanley Turrentine: The Blue Note Years (1989) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211312.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dexter Gordon Quartet - Love For Sale (1964) 1990, SteepleChase [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210808.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jackie McLean & Dexter Gordon - The Meeting, Vol. 1 (1973) 1990, SteepleChase [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210608.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dexter Gordon - More Power! (1969) 1994, Original Jazz Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210470.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Sunday Family Brunch Lounge Soothing (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210408.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dexter Gordon Quartet - Swiss Nights, Vol.2 (1975) 1987, SteepleChase [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210381.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dexter Gordon Quartet - Swiss Nights, Vol. 1 (1975) 1987, SteepleChase [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210371.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Sax & Romance (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210350.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dexter Gordon Quartet - Swiss Nights, Vol.3 (1975) 1987, SteepleChase [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210243.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Andrews Sisters - The Absolutely Essential (1938 - 1948) 3CD, 2018, Big3 [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209805.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Daniel Zimmermann - Bone Machine (2013) [FLAC (tracks+.cue)]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207963.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ De-Phazz - Reduced (Remixes) (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Acid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207336.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Romantic Beats for Lovers - Sensual Bubble Bath : Slow Romantic Jazz for Pleasur
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206664.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Nina Simone - Great Women Of Song: Nina Simone (2023) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206210.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Katie Melua - Album No.8 (2020) Deluxe Edition [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205821.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Roaring Halloween (Electro Swing 4) (2025) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205783.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jackie McLean & John Jenkins - Alto Madness (1957) 1991, Original Jazz Classics 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205515.jpg" />
 </div>
 
 

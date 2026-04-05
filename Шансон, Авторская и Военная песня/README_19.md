@@ -1,3 +1,32 @@
+###  Публикация: 1531640   (699418) от 27.02.2022
+
+Ольга Стельмах - Звезды безумной любви! (2022) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звезды безумной любви
+02. День без тебя
+03. Мелодия дождя
+04. Настоящего(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDBD20B8CCA01D8385D9D1C5CA80F0DA5BA3DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132559   (698487) от 10.05.2017
 
 VA - Песни военных лет (2008) [MP3|320 Kbps] <Ретро,Военные песни>
@@ -6,7 +35,7 @@ VA - Песни военных лет (2008) [MP3|320 Kbps] <Ретро,Воен
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698487.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697702.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Серия «Блатная  Дискотека» (6) (2008) [FLAC|Lossless
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696869.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696866.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696790.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Мурка - 4 18 жиганских хитов русского шансо
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696781.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696094.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695121.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695058.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694699.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693900.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692973.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692972.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692868.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692771.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Charles Aznavour/Шарль Азнавур - Du last dich geh`n (1979) [MP3|320 
 >>Зарубежный Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692613.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691925.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691917.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688758.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688511.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687295.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686500.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Clea Vincent - Nuits sans sommeil (2019) [MP3|320 Kbps] <French Pop, Chanson>
 >>Зарубежный Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685664.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684547.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684300.jpg" />
 </div>
 
 
@@ -714,32 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C4DE81A2993FA8D2DF42DAE3A1281FA12CAAB24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 79251   (681828) от 26.06.2016
-
-Владимир Высоцкий - Концерт в НИКФИ (1968) [FLAC]<Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681828.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Выступление В. Высоцкого в Научно-Исследовательском Кино-Фото Институте (НИКФИ) в Москве состоялось 26 января 1968 года. По свидетельству звукорежисера А. Самоварова, в первые же секунды концерта лопнули две струны на гитаре. Пока искали замену, около 40 минут, В. Высоцкий рассказывал публике о своей работе в театре, кино, отвечал на вопросы. Поэтому вторую (   Читать дальше...   )Жанр: Авторская песняПродолжительность: 53:49
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

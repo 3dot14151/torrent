@@ -6,7 +6,7 @@ The Last Renegades - Valley of the Kings (2020) [MP3|320 Kbps] <Heavy Metal, Har
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760607.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Operus - Score Of Nightmares (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760606.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ergus - Insomnium (2020) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760605.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ancient Bards - Origine (The Black Crystal Sword Saga Part 2) (2019) Japanese Ed
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760538.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Moonlight Haze - Lunaris (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal, Fe
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760516.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The King Must Die - Murder All Doubt (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759381.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Beatray - A Ship's Call (2016) [MP3|320 кб/с] <Power Metal ,Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759376.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Evil Masquerade - The Outcast Hall of Fame (2016) [MP3|320 кб/с] <Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759375.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dakesis - The New Dawn (2016) [MP3|320 кб/с] <Progressive, Power Metal, Femal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759288.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Haken - Virus (2020) [MP3|320 Kbps] <Progressive Metal, Prog Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758855.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ventana - Discography 6 Releases (2008-2021) [MP3|320 Kbps] <Industrial Metal, N
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758661.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Absence - A Gift for the Obsessed (2018) [MP3|320 Kbps] <Melodic Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758106.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Eldritch - Cracksleep (2018) [MP3|320 Kbps] <Progressive Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758105.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Stormzone - Lucifer's Factory (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758097.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Godslave - Welcome To The Green Zone (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757745.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Aftershok - Detonate (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757737.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Agonizer - Visions Of The Blind (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757736.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Stairway - Power and Glory (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757734.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Assassin - Combat Cathedral (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757641.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lonewolf - The Heathen Dawn (2016) [MP3|320 кб/с] <Speed Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757637.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Suidakra - Realms Of Odoric (2016) [MP3|320 кб/с] <Epic Metal, MDM, Viking Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757632.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sentinel - The Black of the Sun (2020) [MP3|320 Kbps] <Progressive Metal, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757269.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Navighator - Navighator (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757264.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Flotsam and Jetsam - Flotsam and Jetsam (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755928.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ ToxicRose - Total Tranquility (2016) [MP3|320 кб/с] <Heavy Metal, Arena Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755826.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Iron Savior - Titancraft (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755812.jpg" />
 </div>
 
 

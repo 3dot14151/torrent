@@ -1,3 +1,133 @@
+###  Публикация: 731683   (298039) от 07.12.2013
+
+Журнал | Цветок №23 (233) (декабрь 2013) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический журнал для цветоводов и дачников, рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D5531E6AF3811F6FFD08062CE17939F06A11FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422925   (297965) от 14.11.2020
+
+Журнал | The English Garden [UK] №12 (декабрь 2020) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297965.jpg" />
+</div>
+
+
+###  Подробнее
+
+The English Garden - журнал для всех, кто любит красивые сады. Каждый выпуск оживляет лучшие сады Великобритании благодаря великолепным фотографиям и увлекательным историям, поддерживаемым опытными советами по посадке растений и вдохновляющими дизайнерскими идеями опытных садоводов.Жанр: СадоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA45A04C18A6C7C93C0ADB8D4738B6097D5C4875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419830   (297954) от 14.11.2020
+
+Журнал | Делаем сами №13 (2020) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297954.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FA1BB46E9D6AEF202BF22A8E0C49903D1BBAE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420024   (297953) от 14.11.2020
+
+Журнал | Делаем сами №15 (2020) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297953.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D450D7B31AFFB26513EE4D70749249DA427888E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419855   (297948) от 14.11.2020
+
+Журнал | Делаем сами №14 (2020) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297948.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FFEDA841B1215DC3E94DD538BF89E65340A6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420037   (297944) от 14.11.2020
 
 Журнал | Делаем сами №16 (2020) [PDF]
@@ -6,7 +136,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297944.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297935.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297860.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297813.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297562.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297453.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297226.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297211.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297103.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297102.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297101.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296984.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296982.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296812.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296385.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296250.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296245.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296235.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296234.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296138.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296130.jpg" />
 </div>
 
 
@@ -538,138 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EECC8BB78BD8DC5713F858B39580D9BBE7DB286E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079354   (296128) от 03.12.2016
-
-Журнал | Усадьба №4. Ягодное царство (ноябрь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето радует нас изобилием ягод. Они приносят огромную пользу организму, поэтому все, кто имеет заветные сотки, стремятся побаловать себя и своих близких витаминной продукцией — выращивают малину, клубнику, смородину, крыжовник, голубику и т.д. При этом ягодные культуры хороши тем, что они не только быстро созревают, но и в основном дают большую урожайность. Главное, (   Читать дальше...   )Жанр: Дом, сад, огород, дачаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF9ECCF66ADD7B7FDF4577F949A20CDFE665FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 731991   (296060) от 08.12.2013
-
-Журнал | Любимая дача. Спецвыпуск №1 (январь 2014) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные выпуски журнала «Любимая дача» — это красочные издания, полные интересных идей и практических советов. Они охватывают круг тем, близких разным поколениям дачников, отвечают на животрепещущие вопросы подробно, с практической точки зрения. Каждый специальный выпуск посвящен конкретной теме, касающейся строительства, благоустройства дачи или участка. Материалы (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FE8AF34BDFA0D0B117D853DA10AA1F2D0621F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 847521   (296002) от 05.12.2014
-
-Подшивка журналов | Vacuum Tube Valley. Issue 1-20 (1995-2002) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vacuum Tube Valley является высококачественным ежеквартальным изданием, посвященом прошлому, настоящему и будущему аудиоэлектроникиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6068E9421D86CDF15AD88998AF4129DF7E56C52B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 847405   (295891) от 05.12.2014
-
-Журнал | Любимая дача. Спецвыпуск №11 (ноябрь 2014) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные выпуски журнала «Любимая дача» — это красочные издания, полные интересных идей и практических советов. Они охватывают круг тем, близких разным поколениям дачников, отвечают на животрепещущие вопросы подробно, с практической точки зрения. Каждый специальный выпуск посвящен конкретной теме, касающейся строительства, благоустройства дачи или участка. Материалы (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5FEFC0C0C90641B6FFA629B544C46B752B8816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079306   (295881) от 03.12.2016
-
-Газета | Кулинарная энциклопедия новогодних блюд №1 (4) (2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снова в доме ёлка, мандарины, смех!
-Стол, накрытый щедро - для друзей для всех!
-В газете собраны популярные рецепты новогодних блюд.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6B490725AC8A51A4DD1555BCCD42D9F5BC6910
 ```
 
 https://mybot314.ru/tekegram_catalog/

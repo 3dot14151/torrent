@@ -6,7 +6,7 @@ Coolio - Greatest Hits (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hip-Hop, Rap,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69418.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Wrath of the Machines - Blood and Oil (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69402.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jon Anderson - Perpetual Change (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69354.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Karen Cheryl - Etonnamment Romantique  Best Of (2025) Remastered [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69342.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Manntra - Titans (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks] <Industrial
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69341.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Hot Rod Gang - Can U Dig It? (40th Anniversary) (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69338.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Streetlight - Night Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69334.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Confidence Man - 4AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Te
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69333.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ David Rose - My Only One (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69328.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ ZZ Ward - Liberation (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69322.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Yuridia - Sin Llorar (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69321.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ David Rose - Sun Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69319.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Overdrivers - Glory or Nothing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69316.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Pvris - White Noise (2014) 10 Year Anniversary Edition, 2025, Rise Records[FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69314.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ D'OR - Antiheroes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69313.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Goo Goo Dolls - A Boy Named Goo (1995) 30th Anniversary Deluxe Edition, 2025, Wa
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69310.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Shawn Pittman - My Journey (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69309.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Steve Postell - Walking Through These Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69308.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Temperance - From Hermitage To Europe (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69307.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Nomy - House of Diane (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69305.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bluesadelix - Neptune Beach (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69303.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Motorizer - Lemmyversary Markthalle Hamburg '23 (Live at Markthalle Hamburg '23)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69299.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Wise - Wisdom Lost (Remastered) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69298.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Tiktaalika (Charlie Griffiths) - Gods of Pangaea (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69295.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Black Spiders - Cvrses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69292.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Daniel Simmons - Delta (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69290.jpg" />
 </div>
 
 

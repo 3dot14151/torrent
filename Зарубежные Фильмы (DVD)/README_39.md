@@ -1,81 +1,3 @@
-###  Публикация: 1249372   (432646) от 24.09.2018
-
-Призрак в доспехах / Ghost in the Shell (2017) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кибер-технологии подчинили себе все сферы жизни, а самые опасные преступники переместились в виртуальное пространство. Киборг-гибрид, стоящий во главе элитного подразделения полиции, идет по следу могущественного хакера.Производство: Великобритания, Китай, Индия, Гонконг, США / Paramount Pictures, DreamWorks SKG, Reliance Entertainment, Shanghai Film Group, Huahua Media, Arad ProductionsЖанр: Фантастика, боевик, триллер, драма, криминал, детективРежиссер: Руперт СандерсАктеры: Скарлетт Йоханссон, Йохан Филип Асбек, Такеши Китано, Жюльетт Бинош, Майкл Питт, Чин Хань, Дануся Самал, Ласарус Ратуэре, Ютака Идзумихара, Таванда МаниймоПеревод: Дублированный (лицензия)Субтитры: Русские, английские, украинскиеПродолжительность: 01:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E4B799D34F20C4225AD4A283624A16BD8AE105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707962   (432593) от 07.10.2013
-
-Доказательство / Proof (2005) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блестящий математик в последние годы утрачивает связь с действительностью, продолжая упорно работать дома, окруженный заботой своей дочери Кэтрин. И только его бывший студент Хал все еще верит в него. Но вскоре, уже после того, как между молодыми людьми зародилось чувство, Хал должен разобраться: какое из неординарных свойств профессора воплотилось в дочери?...Производство: США, Miramax Films, Hart-Sharp Entertainment, Endgame EntertainmentЖанр: Драма, детективРежиссер: Джон МэдденАктеры: Гвинет Пэлтроу, Энтони Хопкинс, Джейк Джилленхол, Дэнни МакКарти, Хоуп Дэвис, Тобиаш Дашкивич, Гэри Хьюстон, Энн Уиттман, Ли Зиммерман, Колин Стинтон, Лелэнд Барнетт, Джон Киф, Чипо Чанг, С. Джерод Харрис, Рошан Сет и др.Перевод: ДублированныйЯзык субтитров: Русский, украинскийФормат: DVD9Продолжительность: 01:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF840FF906091A1A3F4B007767B3476C1382554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 393472   (432272) от 28.09.2011
-
-Джейн Эйр / Jane Eyre (2011) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_432272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Викторианская Англия. После восьми лет, проведенных в пансионе для бедных девочек, сирота Джейн Эйр получает место гувернантки в Торнфилде — вотчине Эдварда Ферфакса Рочестера. Хозяин поместья редко наведывается в родные края, а в его отсутствие Джейн должна присматривать за восьмилетней Адель Варанс — воспитанницей аристократа. И вот однажды Рочестер возвращается. (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Драма, МелодрамаРежиссер: Кэри ФукунагаАктеры: Миа Васиковска, Майкл Фассбендер, Джейми Белл, Су Эллиот, Холли Грэйнджер, Тэмзин Мерчант, Амелия Кларксон, Крэйг Робертс, Салли Хокинс, Элизабет ХоплиПеревод: ДублированныйСубтитры: нетПродолжительность: 01:55:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063803   (431898) от 17.10.2016
 
 Люди Икс: Апокалипсис / X-Men: Apocalypse (2016) DVD9 [BD -> DVD]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431898.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431808.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_430876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430876.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_430708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430708.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430701.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_430570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430570.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430530.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430528.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_429048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_429048.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_428894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428894.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_428872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428872.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_428709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428709.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428605.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428401.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428393.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428248.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428233.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428075.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426756.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426753.jpg" />
 </div>
 
 
@@ -608,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426488.jpg" />
 </div>
 
 
@@ -634,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426291.jpg" />
 </div>
 
 
@@ -660,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426043.jpg" />
 </div>
 
 
@@ -671,6 +593,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 556146   (426041) от 05.10.2012
+
+Молодые сердца / Love and Honor (2012) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой парень Дэлтон решает тайком сбежать на несколько дней в самоволку, чтобы увидеться с любимой девушкой. К нему присоединяется его друг Микки. В компании беспечных молодых студентов Микки знакомится с соблазнительной, красивой и свободолюбивой Кэндис. Ради нескольких дней с ней Микки готов поставить на карту свою военную карьеру и даже жизнь. Герои никогда (   Читать дальше...   )Производство: Red 56 / Deep Blue PicturesЖанр: Драма, мелодрама, военныйРежиссер: Дэнни МуниАктеры: Лиам Хемсворт, Тереза Палмер, Эйми Тигарден, Крис Лоуэлл, Рики Уэйн, Уайатт Расселл, Макс Адлер, Остин Стоуэлл, Лоурен Мэй Шафер, Гордон МайклсПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:31:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 556328   (424658) от 06.10.2012
+
+Сдохни! / ExTerminators (2009) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_424658.jpg" />
+</div>
+
+
+###  Подробнее
+
+На курсах по управлению гневом волей случая встретились три женщины: скромный бухгалтер Алекс, зубной техник Никки и служащая компании по уничтожению грызунов Стелла. Так формируется бригада «терминаторш», мстящих мужчинам-обидчикам.Жанр: Комедия, ДрамаРежиссер: Джон ИнвудАктеры: Хэзер Грэм, Дженнифер Кулидж, Мэттью Сеттл, Эмбер Хёрд, Джои Лорен Эдамс, Сэм Ллойд, Фара Уайт, Дрена Де Ниро, Гленн Моршауэр, Кэти ЛамкинПеревод: Двуголосый закадровый профессиональныйЯзык субтитров: русскийПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250414   (422256) от 29.09.2018
+
+Тоня против всех / I, Tonya (2017) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американской фигуристке Тоне Хардинг пришлось нелегко: сначала тяжелое детство с грозной матерью, потом тяжелая юность, ранний брак с проходимцем и неудачи на соревнованиях из-за заниженных судьями оценок. А потом случился скандал: во время важнейших соревнований идея запугать конкурентку идёт не по плану…Производство: США / Al Film, Sierra/Affinity, Clubhouse Pictures (II), LuckyChap EntertainmentЖанр: Комедия, драма, биография, спортРежиссер: Крэйг ГиллеспиАктеры: Марго Робби, Себастьян Стэн, Эллисон Дженни, Джулианна Николсон, Пол Уолтер Хаузер, Бобби Каннавале, Бояна Новакович, Кэйтлин Карвер, Мэйзи Смит, МакКенна ГрейсПеревод: Дублированный (лицензия)Субтитры: РусскиеПродолжительность: 01:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1658B0CFCC6AED321EDC8BB2B9951D1D4177857F
 ```
 
 https://mybot314.ru/tekegram_catalog/

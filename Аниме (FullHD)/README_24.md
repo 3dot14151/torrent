@@ -6,7 +6,7 @@ B-Project: Kodou Ambitious | Проект Б: Амбициозное биени�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699706.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ B-Project: Zecchou Emotion | B-Project: Zeccho*Emotion | Проект Б: Кул
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699704.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699159.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698026.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и та
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697696.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696895.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Gakusen Toshi Asterisk | The Asterisk War | Войны Астериска [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696587.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Crusher Joe / Крушила Джо - Фильм [1983, Movie] BDRip 1080p HEVC 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694954.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Hotarubi no Mori e / To the Forest of Firefly Lights / В лес, где мер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693345.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders - Egypt Hen | Невероятны�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692093.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Kenpuu Denki Berserk | Berserk | Берсерк [1997, TV, 25 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691920.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kowarekake no Orgel | Half-Broken Music Box | Полусломанная муз�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691731.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Steins;Gate: Kyoukaimenjou no Missing Link - Divide By Zero / Врата Ште�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691123.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Kuusen Madoushi Kouhosei no Kyoukan / Sky Wizards Academy / Инструктор
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691076.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Show by Rock!! | Рок-шоу! [2015, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690539.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Весё�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686440.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Chikyuugai Shounen Shoujo | The Orbital Children | Дети на орбите | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686433.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Kuroshitsuji: Book of Circus | Black Butler: Book of Circus | Демон-дво�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684181.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Gunslinger Stratos The Animation | Небесные стрелки [2015, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682502.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Kanojo ga Flag o Oraretara | Gaworare | If Her Flag Breaks | Если бы я о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682126.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Kangoku Gakuen | Prison School | Школа-тюрьма [2015, TV, 12] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681760.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Chitose Get You!! | Читосе добьется тебя! [2012, TV, 26] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680254.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Denki-gai no Hon`ya-san | Denki-Gai no Honya-san | Книжный магазин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679120.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Uchiage Hanabi, Shita kara Miru ka? Yoko kara Miru ka? | Откуда лучше
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678988.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Rokujouma no Shinryakusha!? | Invaders of the Rokujyoma!? | Захватчики
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678731.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Mangaka-san to Assistant-san to The Animation | The Comic Artist and His Assista
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678727.jpg" />
 </div>
 
 

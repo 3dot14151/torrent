@@ -1,3 +1,159 @@
+###  Публикация: 706932   (736977) от 16.05.2014
+
+Агенты «Щ.И.Т.» / Agents of S.H.I.E.L.D. (2013-2014) WEB-DLRip [H.264/720p-LQ] (Сезон 1, Серии 1-22 из 22) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действия сериала разворачиваются после событий фильма «Мстители». Агент Фил Колсон возвращается в правоохранительную организацию под названием Щ. И. Т., собрав небольшую команду профессионалов, он начинает работу над новыми делами, которые порой бывают очень страннымиЖанр: фантастика, боевик, драмаРежиссер: Дэвид Стрейтон, Джосс УидонАктеры: Кларк Грегг, Минг-На, Бретт Далтон, Хлоя Беннет, Йен де Кестекер, Элизабет Хенстридж, Рон Гласс, Шеннон Лучио, Дж. Аугуст Ричардс, Дэн Сачофф и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmФормат: MKVПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077BAAE287FF44604163648B4A282C02A4AEDE28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397843   (736962) от 23.07.2020
+
+Госдума признала биткоин и запретила платить им
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Госдума приняла в третьем окончательном чтении законопроект о цифровых финансовых активах и цифровой валюте, который признает криптовалюту, в том числе биткоин, платежным средством, однако запрещает расплачиваться им. Это следует из текста документа, опубликованного на сайте нижней палаты российского парламента.Согласно закону, цифровой валютой является совокупность (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526985   (736769) от 28.01.2022
+
+Microsoft заканчивает работу над первым обновлением функций для Windows 11?
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласно утекшей в сеть информации релиз работа над новыми функциями для Windows 11, версия 22H2 завершится в марте 2022 годаИзначально ожидалось, что Windows 11, версия 22H выйдет не раньше осени 2022 года. Тем не менее, как выясняется, Microsoft уже завершает разработку обновления. Данную информацию косвенно подтверждает файл скрипта, который просочился в Интернет. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526957   (736753) от 28.01.2022
+
+Российскую операционную систему «Фантом» довели до тестирования после 12 лет разработки с нуля
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основная версия операционной системы «Фантом» готова для пробных проектов, а полноценный релиз запланирован на конец 2022 года. Об этом главный разработчик системы Дмитрий Завалишин сообщил   в интервью изданию CNews. Завалишин работает над системой с 2010 года вместе с сотрудниками холдинга DZ Systems, первую компанию которого он основал в 2005 году.Система «Фантом» (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397845   (736494) от 24.07.2020
+
+Госдума нанесла  удар по кальянам и вейпам
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Госдума приняла в третьем, окончательном чтении закон, который вводит для кальянов, электронных сигарет и вейпов те же ограничения, что и для традиционных табачных изделий. И такие же штрафы за нарушение этих ограничений. Кальянные исчезнут, а с электронными сигаретами придется выходить в курилку.В частности, напоминает «Интерфакс», речь идет о запрете курить в том (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707253   (736456) от 17.05.2014
+
+Дневники Вампира / The Vampire Diaries (2013) HDTVRip (Сезон 5, Серии 01-22 из 22) [Кубик в Кубе]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные убийства в Мистик Фоллс напоминают Дэймону о схожих преступлениях, происходивших сто лет назад. Во флешбэках из 1912го года Дэймон вспоминает прекрасную вампиршу Сэйдж, которая показала ему, что жить можно совсем по-другому. Шериф Форбс предупреждает Дэймона, чтобы он не ввязывался в расследование, но он уверен, что она подозревает не того. Елена с Мэттом (   Читать дальше...   )Производство: США, Reveille Productions, NBC Universal Television, Deedle-Dee Productions, Universal Media Studios (UMS), Universal TVЖанр: Драма, Мелодрама, УжасыРежиссер: Маркос Сига, Крис Грисмер, Дж. Миллер ТобинАктеры: Нина Добрев, Пол Уэсли, Йен Сомерхалдер, Стивен Р. МакКуин, Катерина Грэхэм, Кендес Аккола, Зак Рериг, Майкл Тревино, Сара Каннинг, Кайла ЮэллПеревод: Двуголосый закадровый, профессиональныйОзвучка / Автор перевода: Кубик в КубеЯзык субтитров: Английский, русскийПродолжительность: 22 x ~ 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC70894633F0AED87458852BE93DF13382F3268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531910   (736455) от 17.05.2014
 
 Анатолий Зайцев | Астропроцессор Zet 9 Geo [2011] [ISO]
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736455.jpg" />
 </div>
 
 
@@ -34,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736451.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_736292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736292.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_736256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736256.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736243.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 01.20
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736242.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ Acronis True Image 2021 Build 39287 (25.10.1.39287) RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736239.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735954.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735939.jpg" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735903.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735901.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735759.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (Build 610302) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735752.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735281.jpg" />
 </div>
 
 
@@ -373,7 +529,7 @@ Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (01.2022) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735275.jpg" />
 </div>
 
 
@@ -399,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735044.jpg" />
 </div>
 
 
@@ -425,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>18
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735042.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ Kaspersky Free 21.5.11.384 Repack by LcHNextGen (01.02.2022) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734822.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2021 by Eagle123 (01.2022) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734821.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ ACE COMBAT 7: SKIES UNKNOWN (2019) [Ru/Multi] (1.9.1.10/dlc) Repack Other s [Del
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734813.jpg" />
 </div>
 
 
@@ -514,164 +670,6 @@ ACE COMBAT 7: SKIES UNKNOWN (2019) [Ru/Multi] (1.9.1.10/dlc) Repack Other s [Del
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F175D48C6E68573D1C3069979C790EC39F1538C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398403   (734601) от 28.07.2020
-
-Оригинальный Doom запустили в Minecraft
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_734601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Doom вышла более 25 лет назад, и с тех пор на чём только её не запускали: компьютерах, смартфонах, часах, принтерах, айподах, платёжных терминалах, кассах и даже пылесосах.Пользователь Reddit с ником DeltaTwoForce умудрился создать в Minecraft компьютер, на котором можно тоже играть в Doom.DeltaTwoForce использовал не обычную версию Minecraft, а прокачанный (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398656   (734553) от 28.07.2020
-
-Microsoft принудительно обновит старые версии Windows
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_734553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Microsoft подтвердила переход на новый этап распространения последнего крупного обновления Windows 10. В результате, Windows 10 May 2020 Update начало распространяться для гораздо более широкого круга устройств, включая более старые компьютеры.Кроме того, Microsoft начала переводить пользователей старых версий Windows 10 на Windows 10 версии 2004. Специальная (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399001   (734549) от 28.07.2020
-
-Космос / Cosmos (2019) BDRip [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три астронома случайно перехватывают сигнал, который они принимают за сигнал далекой инопланетной цивилизации, но истина еще более невероятна, чем любой из них может себе представить.Производство: Великобритания / Gravitas Yentures, Elliander PicturesЖанр: Фантастика, детектив, приключенияРежиссер: Эллиот Уивер, Зандер УиверАктеры: Том Инглэнд, Джошуа Форд, Arjun Singh Panam, Бен Варди, Марк Бейлис, Майк Колетта, Саймон ВортингтонПеревод: Многоголосый закадровый, любительский (Mallorn Studio)Субтитры: ОтсутствуютПродолжительность: 02:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0406E85F20C655CA29959225E58D65E5136504DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788509   (734488) от 21.05.2014
-
-ESET NOD32 Antivirus 7.0.317.4 RePack by SmokieBlahBlah (x86/x64) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734488.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET NOD32 7 гарантирует вашему  высокий уровень антивирусной безопасности. Простой и надежный вариант для базовой защиты ПК от вирусов, червей, троянских программ, шпионского, рекламного и потенциально опасного ПО, руткитов и фишинг-атак.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99F5466B7AFD3D851E55318E687A9ED2A5E58FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708790   (734486) от 21.05.2014
-
-Сверхъестественное / Supernatural (2013) HDTVRip [сезон 9, серия 1-23 из 23] Kerob
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о приключениях братьев Сэма и Дина Винчестеров, которые путешествуют по Соединённым Штатам на чёрном автомобиле Chevrolet Impala 1967 года, расследуют паранормальные явления, многие из которых основаны на американских городских легендах и фольклоре, и сражаются с порождениями зла, такими как демоны и призраки. Как братья Винчестеры в очередной (   Читать дальше...   )Жанр: Ужасы, Фэнтези, ДетективРежиссер: Филип Сгриккиа, Джеймс Л. Конуэй, Питер ЭллисАктеры: Джаред Падалеки, Дженсен Эклс, Джим Бивер, Миша Коллинз, Марк Шеппард, Джеффри Дин Морган, Женевьев Падалеки, Синди Сэмпсон, Саманта Феррис, Митч ПиледжиПеревод: Одноголосый закадровый, любительский - KerobПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D7961A61170D0F27FB7BEEFB2DF34A444F0715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788555   (734485) от 21.05.2014
-
-ESET Smart Security + NOD32 Antivirus 7.0.317.4 RePack by SmokieBlahBlah [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734485.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET NOD32 Antivirus 7 гарантирует вашему высокий уровень антивирусной безопасности. Простой и надежный вариант для базовой защиты ПК от вирусов, червей, троянских программ, шпионского, рекламного и потенциально опасного ПО, руткитов и фишинг-атак.
-
-ESET Smart Security 7 поможет сделать работу в интернете максимально защищенной и безопасной. Надежное распознавание (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912784850C2BD60BA70A6AE48D1078C927B28CF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

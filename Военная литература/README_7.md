@@ -1,137 +1,3 @@
-###  Публикация: 990209   (913297) от 24.02.2016
-
-Евгений Примаков (ред.)  | Очерки истории российской внешней разведки. Том 2 (2014) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй том шеститомного издания  "Очерки истории российской внешней разведки" 
-
-Во втором томе освещаются становление и укрепление советской внешней разведки (1917–1933 годы) как части политической системы качественно иного государства, которая, однако, сохранила приоритетные задачи и направления деятельности российской внешней разведки — охрану национальных (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72140F4FE20BE5CC6F7A30782092B673EB527475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990214   (913270) от 24.02.2016
-
-Евгений Примаков (ред.) | Очерки истории российской внешней разведки. Том 3 (2014) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий том шеститомного издания  "Очерки истории российской внешней разведки" 
-
-Третий том знакомит читателей с работой «легальных» и нелегальных резидентур, крупными операциями и судьбами выдающихся разведчиков в 1933–1941 годах. Деятельность СВР в этот период определяли два фактора: угроза новой мировой войны и попытка советского государства предотвратить (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF45C4ED11BDD72569C52EFED0A0E41C65094FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990565   (911622) от 25.02.2016
-
-Михаил Барятинский | «Трехэтажный» американец Сталина. Танк М3 «Генерал Ли» / «Генерал Грант» (2011) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот танк принято ругать почем зря. Как только его ни обзывают – «клепаным уродом», «трехэтажным переростком» (вооружение на нем действительно располагалось в три яруса) и даже «позором американского танкостроения».«Эм три эс» – американский средний танк М3, известный на Западе под двумя именами: «Генерал Ли» и «Генерал Грант», – в Красной Армии не понравился и не (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAEB177E303344B1772E5D22E5BA15D9105B799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368211   (911047) от 19.03.2020
-
-Владимир Зоберн | Небесный полк Победы (2020) [EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911047.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Небесный полк Победы» – книга о судьбах верующих людей, жизнь которых разделилась на до и после войны. В первой части даны рассказы очевидцев, ветеранов Великой Отечественной, приведены документы из Журнала Московской Патриархии военного времени. Читатель познакомится с такими авторами, как митрополит Николай (Ярушевич), святитель Лука (Войно-Ясенецкий), Святейший (   Читать дальше...   )Жанр: Книги о войнеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCF651F07598E61D46D9C771673682EF1A1E310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368214   (911037) от 19.03.2020
-
-Владимир Зоберн | Бог и Победа. Верующие в битвах за Россию (2020) [EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена 75-летию Победы в Великой Отечественной войне. Ее темы – три великие войны, пережитые Россией, и роль, которую сыграла в них Русская Православная Церковь. Охватывая время от Отечественной войны 1812 года до Великой Отечественной 1941–1945 годов, книга напоминает читателю о мужестве и подвигах наших предков, отстоявших родную землю. Герои книги (   Читать дальше...   )Жанр: Книги о войнеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1715C0A8E615AFDBA3DE88236215FB02AC90688D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368640   (909082) от 20.03.2020
 
 Марио де Арканжелис | Радиоэлектронная война: От Цусимы до Ливана и Фолклендских островов (2000) [DJVU]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909082.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908284.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907827.jpg" />
 </div>
 
 
@@ -218,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907781.jpg" />
 </div>
 
 
@@ -246,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907777.jpg" />
 </div>
 
 
@@ -272,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907452.jpg" />
 </div>
 
 
@@ -298,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906075.jpg" />
 </div>
 
 
@@ -325,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903667.jpg" />
 </div>
 
 
@@ -351,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903652.jpg" />
 </div>
 
 
@@ -377,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903387.jpg" />
 </div>
 
 
@@ -404,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903251.jpg" />
 </div>
 
 
@@ -430,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902436.jpg" />
 </div>
 
 
@@ -456,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902055.jpg" />
 </div>
 
 
@@ -482,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901096.jpg" />
 </div>
 
 
@@ -508,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900882.jpg" />
 </div>
 
 
@@ -534,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900565.jpg" />
 </div>
 
 
@@ -560,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900509.jpg" />
 </div>
 
 
@@ -586,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900319.jpg" />
 </div>
 
 
@@ -612,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899911.jpg" />
 </div>
 
 
@@ -640,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899046.jpg" />
 </div>
 
 
@@ -666,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898941.jpg" />
 </div>
 
 
@@ -677,6 +543,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9832D9B254AAF0505AD293276AE5D5BFD43C839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370265   (898399) от 26.03.2020
+
+Михаил Зефиров | Бриллианты на шее: Элита истребительной авиации Люфтваффе (2011) [PDF, FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена судьбам девяти из асов Люфтваффе, награжденных Рыцарскими Крестами с Дубовыми Листьями, Мечами и Бриллиантами. Все они были незаурядными, талантливыми летчиками-истребителями, вписавшими свои имена в мировую военную историю. Книга основана на архивных материалах и будет интересна как специалистам, так и любителям военной истории.Жанр: Военная историяФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FC2239D809720EBE90FCCEAB0A054AA78DCCE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100602   (897550) от 05.02.2017
+
+Геннадий Кудий | Русская Атлантида. Великое княжество Литовское, Русское и Жемойтское в истории и русской государственности. Факты, мифы и размышления (2012) [PDF, DJVU, FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_897550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга самобытного автора Г. Н. Кудия посвящена интересной, полной динамики и драматизма истории и культуре Великого княжества Литовского, Русского и Жемойтского (ВКЛ) — крупнейшего государства Европы периода позднего Средневековья. Она в яркой и доходчивой форме позволяет восстановить, прежде всего для российского читателя, историческую правду о месте и роли Русской (   Читать дальше...   )Жанр: История средних веков. Эпоха ВозрожденияФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C019766A27EDCDF4902CEBE9A86CE39FCDEAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 272965   (896822) от 02.09.2021
+
+Т-во И.Д.Сытина | Военная энциклопедия  [1911-1915] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая 18-томная "Военная энциклопедия", выпущенная в начале ХХ в. т-вом Сытина и остающаяся непревзойденным справочником по военной истории.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F356CA0B8CA489FA3872AE980B1259D03359E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082789   (895838) от 06.02.2017
+
+Андрей Чаплыгин | Все китайские танки (2016) [PDF, FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возникшая в 1950-е годы танковая промышленность КНР на первых порах адаптировала под местные условия советские разработки, а после разрыва с СССР сотрудничала с Израилем, США, Германией и Францией. Кроме того, китайцы жадно копировали все, что могли заполучить в ходе боевых действий или в результате операций спецслужб. Значительный рывок китайское танкостроение совершило (   Читать дальше...   )Жанр: Военная история, бронетехникаФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C2C0D167C0E9D071D7248A6F5E24766DF116F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988400   (894288) от 07.02.2017
+
+Михаил Барятинский | "Зверобои". Убийцы "Тигров" (2008) [PDF, FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые образцы тяжелых самоходно-артиллерийских установок были созданы в Советском Союзе еще до начала Второй мировой. Однако до их серийного производства дело тогда не дошло. Реалии войны, появление в рядах гитлеровских Панцерваффе новых тяжелых танков, заставили советских конструкторов вернуться к разработке тяжелых самоходок.
+Вооруженные мощными 152-мм орудиями, (   Читать дальше...   )Жанр: военная историяФормат: True PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A237EEDF6825A6F3A7AF971C7CA07BE135F0B15
 ```
 
 https://mybot314.ru/tekegram_catalog/

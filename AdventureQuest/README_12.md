@@ -1,3 +1,81 @@
+###  Публикация: 986932   (928435) от 15.02.2016
+
+Zheros (2016) [En/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zheros - это аркадный двухмерный экшен для "любителей классических игр старой школы", где двое героев противостоят злобному ученому, который пытается обратить весь мир в скопище мутантов. Игроки вольны играть как поодиночке, так и в кооперативе.Тип издания: LicenseРазработчик: Rimlight StudiosЖанр: Adventure, 3DЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9017A06E8B0FD75AC0EDE2C834C5BA636B944A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986802   (927182) от 16.02.2016
+
+Pesadelo Regressao (2016) [En] (1.4.2) Repack bosenok
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кладбище наполнено враждебными существами. Церковь, которая не в состоянии спасти. Сложные головоломки. Возвращение в школу, где все начиналось. И хрупкая, интеллигентная девушка с жаждой мести. Оживите темные воспоминания Алекса, как он пытается уйти от противника, что-бы вернутся еще сильнее.Это еще одна мечта, или голая правда?Тип издания: RepackРазработчик: Skyjaz GamesЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74B6B35D7A795C317F9ACC73D1E03742ECB963D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951489   (927170) от 16.02.2016
+
+Life Is Strange™ (2015) [Ru/Multi] (1.0.0.397647/dlc) SteamRip Let'sРlay [Episodes 1-5]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Life is Strange – эпизодическое приключение, события которого развиваются в вымышленном городе Аркадия Бэй, что в Орегоне. История о дружбе, которая могла быстро закончиться если бы не внезапно открытый талант Мэкс. Она нашла в себе дар - возможность перематывать время. Но еще неясно, как это точно работает и к чему может привести. Все начнется со спасения подружки (   Читать дальше...   )Тип издания: SteamRipРазработчик: DONTNOD EntertainmentЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710232082396A8086D5D76C373781E4A36EE4F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489195   (926750) от 15.08.2021
 
 Else Heart.Break() / elseHeartBreak (2015) [Multi] (1.0.9) License GOG
@@ -6,7 +84,7 @@ Else Heart.Break() / elseHeartBreak (2015) [Multi] (1.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926750.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Seed of Life (2021) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926642.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Game of Thrones: A Telltale Games Series (2014-2015) [Ru/En] (1.0.0.1) Repack R.
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925440.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Fragile (2020) [Ru/Multi] (5896114) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925159.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Fragile (2020) [Ru/Multi] (Build 5896114) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925080.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u7) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923993.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Devotion (2019) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921603.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Uncertain: Episode 1 - The Last Quiet Day / The Uncertain: Эпизод 1 - 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920210.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919901.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0/upd4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919776.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Dreamfall: The Longest Journey / Dreamfall: Бесконечное путеше�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919571.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/upd7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_916689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_916689.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ STELA (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916685.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ CAYNE (2017) [Ru/Multi] (1.24) SteamRip Let'sPlay [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915004.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ CAYNE (2017) [Ru/Multi] (1.24) Repack Other s [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914993.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ The Blind Prophet (2020) [Multi] (1.20) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914967.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Magdalena / Магдалина (2016) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914594.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Valley (2016) [En] (1.05) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913641.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Valley (2016) [En] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913373.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Shenmue III (3) (2019) [Multi] (1.05.03) License CODEX (обновляемая)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913323.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd15) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912913.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ The Book of Unwritten Tales 2 (2015) [Ru/Multi] (1.0.3.132) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912910.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Drizzlepath: Genie (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912902.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Drizzlepath: Genie - это приключенческая игра, в кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4675B13244AEDD8B4C52599009DE348D4E32C155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097812   (911914) от 28.01.2017
-
-Daryl F. Gates' Police Quest: SWAT (1995) [En] (1.0c) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разящие наповал белые буквы на форменной куртке цвета хмурого неба, обтягивающей накачанную спину. Заветная мечта американских детей, искренне верящих в справедливость и в то, что их страна - самая лучшая, а их "ребята" - самые хорошие и самые правые. И если вдруг - хотя вообще такого быть не должно, но мало ли, - не где-нибудь на Востоке независимо от (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: Adventure, ArcadeЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617012D0E3EB033318C52191474FF1385C6687E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226608   (911775) от 18.03.2020
-
-AntVentor (2018) [Ru/Multi] (1.1) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911775.jpg" />
-</div>
-
-
-###  Подробнее
-
-AntVentor - это первая короткая глава из серии игр «AntTrilogy» о муравье и его необычных приключениях в фотореалистичном макромире. Главный герой – муравей-изобретатель, который, несмотря на свой крошечный размер, стремится к большой мечте. Он жил простой и размеренной жизнью, пока не появился ты, и не сломал его механизм, тем самым нарушив его планы. Теперь тебе (   Читать дальше...   )Тип издания: RepackРазработчик: LoopyMoodЖанр: Adventure (Casual)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47F09179C7483B845F00DA23A5EE68B6E9E5658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491611   (910331) от 25.08.2021
-
-Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (1.1.0_02) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте движениями кисти и решайте разнообразные головоломки, чтобы помочь талантливой художнице завершить её шедевр. И пусть Вас не смутит даже её грубоватый сосед со своим вредным котом! Когда картина начнёт обретать форму, Вам раскроется эмоциональная история о творчестве, судьбе и памяти.Тип издания: LicenseРазработчик: Silver Lining StudioЖанр: Adventure, Puzzle, AnimeЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2804BC4C2AA519C5FF002AF8198FE00FD30E4B01
 ```
 
 https://mybot314.ru/tekegram_catalog/

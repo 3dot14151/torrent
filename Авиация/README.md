@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Авиация
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060168.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PBS. Пионеры авиации. Лунная гонка / Pioneers in Aviati
 >>Авиация
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054975.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035974.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034882.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BBC. Реактивные двигатели холодной войны / Cold 
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027858.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027704.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027688.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007814.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999309.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992948.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991681.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987093.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987079.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983880.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970467.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960577.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959701.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957338.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942822.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935456.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922533.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913505.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911619.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901200.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901091.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899352.jpg" />
 </div>
 
 

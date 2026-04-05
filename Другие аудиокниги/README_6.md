@@ -1,3 +1,56 @@
+###  Публикация: 1368656   (908969) от 20.03.2020
+
+Леонид Зорин | Мужчина и женщины (1978) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет пьесы: ее единственный герой Ананий Семенович Гарунский обратился в психоневрологический диспансер с единственной просьбой: выдать справку, что он не состоит здесь на учете. Казалось бы, какая проблема? Но все оказывается не так-то просто…Жанр: Комедия. РадиоспектакльВ ролях: Александр Менакер, Мария МироноваПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B6696B150B5436D16AEBDF3D5FE88A9C733C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368505   (908809) от 20.03.2020
+
+Кэролин Ларрингтон | Скандинавские мифы. От Тора и Локи до Толкина и «Игры престолов» (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающее знакомство с ярким, жестоким и шумным миром скандинавских мифов и их наследием – от Толкина до «Игры престолов».
+В скандинавских мифах представлены печально известные боги викингов – от могущественного Асира во главе с Эинном и таинственного Ванира до Тора и мифологического космоса, в котором они обитают. Отрывки из легенд оживляют этот мир мифов – (   Читать дальше...   )Жанр: Популярно об историиПродолжительность: 05:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F28B40DB37EBBCD2F116B980840E6B4B1CF7B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368833   (907407) от 21.03.2020
 
 Рональд Митчелл | Жена за полкроны (1959) [MP3]
@@ -6,7 +59,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907407.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905551.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903381.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902805.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902646.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901537.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901525.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900785.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899376.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899273.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899255.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898354.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896837.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896270.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895806.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894746.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891752.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891071.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889832.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888433.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888313.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884705.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884621.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884241.jpg" />
 </div>
 
 
@@ -625,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:533E6671A2EEC42A740898AA86272AEF452A7148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641889   (881391) от 10.04.2013
-
-Александр Вампилов | Дом окнами в поле [2011] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одноактная пьеса. Написана в 1963 г. Впервые опубликована в журнале «Театр» (1964). С этой пьесы начинался для читателей Вампилов-драматург.
-
- Учитель Третьяков, возвращающийся в город после трех лет работы в деревне, приходит попрощаться к Лидии Васильевне Астафьевой. Постепенно выясняется, что герои испытывают взаимную симпатию, тщательно скрываемую друг от друга...Жанр: Одноактная пьеса
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567EC187111C252E23360556B987A2F5CA641B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641941   (881121) от 10.04.2013
-
-Джеймс Оливер Кервуд | Бродяги севера [2008] [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подружиться с медведем совсем непросто, даже если он всего-навсего медвежонок. Но для щенка Микки не было другого пути. И вот два малыша-звереныша в дикой американской тайге стали верными друзьями. Теперь ни злобная волчица, ни ночные убийцы совы, ни свирепая воронья стая - никто не мог одолеть их. А когда пришли холода и медвежонок Неева забрался в берлогу, Микки (   Читать дальше...   )Жанр: романИздательство: Нигде не купишь
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0391FD60E939957E29A9441999B258A89BFF08
 ```
 
 https://mybot314.ru/tekegram_catalog/

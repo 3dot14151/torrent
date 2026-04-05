@@ -1,3 +1,119 @@
+###  Публикация: 1240088   (531284) от 09.08.2018
+
+VA - Heartwarming Beats - Mood Uplifting & Emotional Tracks (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick Williams - In The Breeze (Original Mix)
+ 02. Michael Musco - Longing Something (Original Mix)
+03. Ben Harris - Cryin For You (Original Mix)
+ 04. Eric Bode - Going Home (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99291E9403E6A6836F1692C2B626E4A4565FDF37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312602   (530960) от 05.07.2019
+
+Ed Lynam - Live @ Infected, Odense, Denmark 2019-06-22 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Summer - I Feel Love (Nicholson Remix)
+02. Sash! - Mysterious Times (Nicholson Remix)
+03. Michael Splint Feat. Sasja - You Set Me Free (DJ Choose & F's Remix)
+04. Walt - Let The Music Play (David Rust Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E63E4CBA4623138432713A2C90CB2F784D90072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312596   (530957) от 05.07.2019
+
+Daniel Lesden - Live @ Night Terrace, Aglomerat Moscow, Russia 2019-06-28 [MP3|320 Kbps] <Trance, Progressive House. Psy Trance>>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Cell – Mute The Silence (Pacco & Rudy B Remix)
+02. Ewan Rill, K Loveski – Elau (Subandrio Remix)
+03. Ivanshee – Serpantine (Luciano Scheffer Remix)
+04. San – Ultima Thule (Matan Caspi Remix)(   Читать дальше...   )Жанр: Trance, Progressive House. Psy TranceПродолжительность: 02:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5E02588A8DE4E3F6A5D7D316E60457D818AFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312708   (530952) от 05.07.2019
+
+Richard Clayderman - When Love Songs Were Love Songs (1992) [MP3|320 Kbps] <Easy Listening, Instrumental Pop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bewitched (3:36)
+02. Embraceable You (2:34)
+03. Stardust (3:59)
+04. Night & Day (2:48)(   Читать дальше...   )Жанр: Easy Listening, Instrumental PopПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51081B13FDD8C602360DD3423EC35633DF28D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312654   (530819) от 05.07.2019
 
 VA - Uplifting Trance Top 50 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +122,7 @@ VA - Uplifting Trance Top 50 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530819.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Aly And Fila Vs Roger Shah Feat Adrina Thorpe - Perfect Love (2012) [MP3|320 к�
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530757.jpg" />
 </div>
 
 
@@ -62,7 +178,7 @@ Anton Belov (of Kauan) - Piano Works I (2018) [FLAC|Lossless|Web-DL|tracks] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530720.jpg" />
 </div>
 
 
@@ -91,7 +207,7 @@ Chase & Status - RTRN II JUNGLE (2019) Virgin EMI Records [FLAC|Lossless|tracks+
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530698.jpg" />
 </div>
 
 
@@ -120,7 +236,7 @@ Sayer - Collection 8 Releases (2013-2019) New Territory Records [FLAC|Lossless|W
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530625.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ VA - Vocal Trance Gems - Summer (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530624.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ VA - Dream Dance Vol.87 (2019) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530538.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530184.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ David Guetta - Capital FM Summertime Ball, Wembley Stadium London (2022-06-12) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530081.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Melanohelios - Дискография (9 альбомов) (2017-2021) [FLAC 2.0
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530074.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ VA - Clubbing On Sunshine (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529892.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ Alan Fitzpatrick - System Addict (2018) Unknown To The Unknown [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529859.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ VA - Freudentanz - Ibiza Party (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529790.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ VA - BBQ Chilling Vol.1 (Smooth Summer Dinner & BBQ Tunes) (2017) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529789.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ VA - Deep House Seduction, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529787.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ VA - Vitamin Sea Vol.1 (Ibiza Chillout Downbeat And Lounge Moments) (2017) [MP3|
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529780.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ VA - OHM (2018) Ambidextrous Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529770.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ VA - Top 50 Drops Summer '18 (2018) [MP3|320 Kbps] <House, Future House, Groove,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529769.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ VA - Realm Of Consciousness Pt. III (2018) Afterlife [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529768.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ VA - Ibiza Summer 2018: Deep & Tropical House (2018) [MP3|320 Kbps] <Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529765.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Way Out West - Tuesday Maybe (Remixed) (2018) Extended Edition [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529764.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ VA - Warmth (Compiled by Alex Vilator) (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529689.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ VA - Warmth (Compiled by Alex Vilator) (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFF8C1B11D772738403297DD44F368A31B59B9C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156067   (529688) от 05.08.2017
-
-Moon Boots - First Landing (2017) [MP3|320 Kbps] <Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fortune Teller (feat. King Kona)  4:27
-02.  Keep The Faith (feat. Nic Hanson)  4:18
-03.  First Landing  4:57
-04.  Never Get To You (feat. Antony & Cleopatra)  4:51(   Читать дальше...   )Жанр: Deep House, ProgressiveПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C3E45290EBF12A460B9FDCB2B368E35411C5B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155717   (529673) от 05.08.2017
-
-VA - Goa Culture Vol.25 (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kiraz - The Upside Down  6:54
-02.  Ritmo - All At Once (Rocky Tilbor Remix)  8:16
-03.  Cosmic Tone & Cosmic Flow - Boombay  8:08
-04.  Kristallklar - Extrasensory  7:27(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F1F91378E84637C8927787B22218B750985B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155823   (529550) от 05.08.2017
-
-Liquid Bloom - ReGen (AtYyA Remixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <PsyChill, Downtempo, Psydub>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529550.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fire Gathering (AtYyA Remix) 07:15
-2. Numatik - Ensename (Liquid Bloom + AtYyA Remix) 06:48
-3. Resonant Migration feat. Deya Dova (AtYyA Remix) 05:35
-4. Jaguar Dreaming (AtYyA Remix) 07:39(   Читать дальше...   )Жанр: PsyChill, Downtempo, PsydubПродолжительность: 00:047:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1590033ABEBCF0C398D9BFAF6CEDBC938ECE071C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312849   (529016) от 06.07.2019
-
-VA - Lucid Sounds, Vol. 32 (A Fine and Deep Sonic Flow of Club House, Electro, Minimal and Techno) (2019) [MP3|320 Kbps] <Techno, Minimal, Deep House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mrs. Robot - Lucid Sounds, Vol. Thirty Two Deep Flow (Original Mix)
-02. dreamAwaken - Trilithon (Original Mix)
-03. D. Diggler & Nadja Lind - Kahuna (Helmut Ebritsch Remix)
-04. Dennis Allen - A61v3 (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 04:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02623060E96D543D6ACE8C9F07D40E0E3FDF8CAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

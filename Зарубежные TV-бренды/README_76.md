@@ -6,7 +6,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTV [H.264/108
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503207.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503205.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503204.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Кошка будущего / Future Cat (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503119.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Animal Planet. Земля зверей. Тигры-убийцы / Beast Lands. K
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502228.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501994.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Animal Planet: Вторжение паразитов (Нашествие). Па�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501917.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501442.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ History Channel. Рейхсканцелярия Гитлера / Inside Hitler's
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501082.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Animal Planet: В дебрях Латинской Америки [ 5 из 5] / W
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499918.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip (1-5 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499343.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip  [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499092.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498847.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498112.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NG: Враждебная планета / Hostile Planet (2019) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497352.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NGW: Бойцовский клуб для животных / Animal Fight Club (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497207.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Discovery. Ржавая империя / Junkyard Empire (2015) HDTVRip (1-4 с�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496994.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495538.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494893.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494890.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ NGW: Рожденные в Африке. Круг жизни / Born in Africa (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494595.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NGW: Земля хищника / Predator Land (2019) HDTV [H.264/1080i-LQ] (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494483.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery Science: Встреча с инопланетянами: Кванто�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494256.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ BBC: Еда будущего / Tomorrow's Food (2015) HDTVRip [H.264/720p-LQ] (3
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494200.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ BBC:Стюарты в изгнании / BBC:The Stuarts in Exile (2015) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494199.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494106.jpg" />
 </div>
 
 

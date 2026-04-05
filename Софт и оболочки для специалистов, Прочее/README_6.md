@@ -1,3 +1,108 @@
+###  Публикация: 1484050   (1006195) от 18.07.2021
+
+LiraLand LIRA-SAPR + SAPFIR (ЛИРА-САПР + САПФИР) 2015 R4 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многофункциональный программный комплекс ЛИРА-САПР, предназначен для проектирования и расчета строительных и машиностроительных конструкций различного назначения (программа расчета конструкций). Расчет выполняется на статические (силовые и деформационные) и динамические воздействия. Выполняется подбор или проверка сечений стальных и(или) железобетонных конструкций. (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550E43AA209F50FE6E8177576957300662D4BB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485596   (1005294) от 26.07.2021
+
+Java SE Development Kit 16.0.2 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
+Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3755F105525A37BD7F28516953BC5E1A4A460F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599324   (999015) от 07.01.2013
+
+Драйверы для ноутбуков ASUS K45A/K45VM/K45VG/K45VS/K45VD/K75A/K75VM/K75VD/K95VM Driver & Utility Ver 8.0 [Rus/Eng]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Драйверы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999015.jpg" />
+</div>
+
+
+###  Подробнее
+
+К вашему вниманию предлагаю образ оригинального диска идущего в комплекте с ноутбуком ASUS K75VM. Диск включает в себя все необходимые программы/драйвера для работы ноутбука. Windows 7 отлично воспринимает все программы, все проверено, все работает.Название программы: Драйвера для ноутбуков ASUS K45A/K45VM/K45VG/K45VS/K45VD/K75A/K75VM/K75VD/K95VM Driver & Utility Ver 8.0Язык интерфейса: Rus/Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602630   (997350) от 13.01.2013
+
+Advanced Find and Replace 7.8.1 [Multi/Русский]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это быстрая, легкая в использовании утилита, которая является превосходным помощником для программистов или веб мастеров в особенности. Эта мощная утилита позволяет Вам выполнять текстовый поиск на Вашем локальном компьютере также, как если бы Вы использовали поисковик по интернету. Ее язык запросов позволяет указывать в поиске фразы, слова, которые должны обязательно присутствовать (+) или обязательно отсутствовать (-). Вы также можете легко применять фильтры по типам файлов, дате или размеру. Программа позволяет Вам заменять однострочный или многострочный текст. Выберите пары текста для поиска и замены, затем выберите действие, которое Вы хотите предпринять: удалить строку поиска, вставить текст до или после заданного текста, или просто заменить текст. Вы даже можете применить групповые замены к большой группе файлов за одну операцию или делать замену только в выбранных файлах, если Вам это потребуется.Название программы: Advanced Find and ReplaceЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604117   (996553) от 16.01.2013
 
 PlayMemories Home 2.0 [Русский / Английский]
@@ -6,7 +111,7 @@ PlayMemories Home 2.0 [Русский / Английский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996553.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ ZOC Terminal 6.41 [English]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993823.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ Blue Marble Global Mapper 17.0.5.123015 (x64) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988212.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ JGSoft RegexBuddy 4.10 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986872.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ DesktopEarth 3.2.42 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982804.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ ArtMoney SE 7.40.4 [Мульти / Русский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980458.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ Brocade FabricOS (версии с v5.1.0 по v8.2.1a)[En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977447.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ Altera Quartus II 7.2 Build 175 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968252.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ Microsoft Exchange Server 2016 (Cumulative Update 15) [Multi/Ru]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956607.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ Sim Aquarium 3.8 Build 63 Platinum RePack by Trovel [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949374.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946820.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ Detwinner 2.04.002 (& Portable) [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946433.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945491.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ ProgeCAD Professional 2016 7.2 (16.0.10.23) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943345.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ Alternate Calculator 3.480 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942061.jpg" />
 </div>
 
 
@@ -401,7 +506,7 @@ ESD Toolkit 1.4 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940939.jpg" />
 </div>
 
 
@@ -427,7 +532,7 @@ Construct 2 Business Edition r239 Stable [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938092.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ Cityinfo 3.0.7.3 (карта города Минска) [Ru/En]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936370.jpg" />
 </div>
 
 
@@ -479,7 +584,7 @@ EasyUEFI Enterprise 2.8 Release 1 [Multi]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933120.jpg" />
 </div>
 
 
@@ -505,7 +610,7 @@ JetBrains ReSharper Ultimate 2019.3.4 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928572.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ ChemDraw Ultra 12.0.2 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918654.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ JGSoft RegexMagic 2.3.1 Retail [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913249.jpg" />
 </div>
 
 
@@ -573,113 +678,6 @@ RegexMagic делает процесс создания регулярных в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71530166AB5D64B7BB1C7F471E593C181E7DF1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097782   (911508) от 28.01.2017
-
-WinTariff 2.9.9 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911508.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinTariff - это программа для учета телефонных разговоров. Программа получает из станции данные о каждом звонке (набранный номер, длительность, время т.д.) и по ним определяет направление (для межгорода) и стоимость разговора. Пользователями программы стали тысячи государственных и коммерческих организации, как в России, так и в СНГ и дальнем зарубежье.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBA95079E4BC58B1F876DBC408E9381D4ED45ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368341   (910550) от 19.03.2020
-
-Absoft Fortran 2016 + Gino Graphics 8.0 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Absoft Fortran Compilers - это набор компиляторов Fortran для Microsoft Windows, Apple Macintosh и Linux, выпускаемый Absoft Corporation.
-
-Absoft Pro Fortran на 64-битных платформах поддерживает как 32-битные, так и 64-битные исполняемые файлы; пользователь выбирает, какой формат будет генерировать компилятор.
-Также включены графический отладчик и интегрированная (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AF49AF4F87D75A63AA383D600EE359E32233CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368439   (910403) от 19.03.2020
-
-PowerSim Professional 9.0.3.464 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910403.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerSIM это мощное программное обеспечение для проектирования, анализа и моделирования электронных схем. С помощью этой программы инженеры-электронщики могут выбирать из огромной библиотеки электронных компонентов и схем. PowerSIM - это электронная лаборатория, в которой виртуальные устройства такие как различные датчики и измерительные устройства, анализаторы сигналов, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9EC6A9AB0A1FFF1FF117B6A8F59A75316F2DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368588   (908720) от 20.03.2020
-
-Simply Fortran 3.2.2976 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среда разработки для компилятора GNU Fortran. Поддерживается подсветка синтаксиса, отладка, автодополнение и др.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C22555920E820252B71BA03B30BFDBD9610619
 ```
 
 https://mybot314.ru/tekegram_catalog/

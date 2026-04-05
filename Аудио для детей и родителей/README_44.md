@@ -1,3 +1,29 @@
+###  Публикация: 918358   (584837) от 17.07.2015
+
+Отфрид Пройслер, Мэри Стюарт | Маленькая Баба-Яга и другие сказки (2000) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584837.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Маленький водяной», «Маленькая Баба-Яга», «Маленькое привидение»— построены на шутке про традиционные образы немецких сказок. В этих произведениях по определению злые герои выступают в ролях положительных. Из-под сказочной маски всякий раз здесь выглядывает лукавое и ничуть не страшное лицо современного ребенка. В сказках О. Пройслера столько же волшебства, сколько (   Читать дальше...   )Жанр: СказкиПродолжительность: 09:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3B4A52D2C4BD8EAF5AC085B7B2221413AC10A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359135   (583986) от 04.07.2011
 
 Юрий Лигун | Железный Булкин [2008] [MP3]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583986.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583979.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583836.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583775.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ VA - Песни про маму для детей (2015) [MP3|96 kbps]<Детс�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583733.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583377.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583317.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582359.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581880.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580255.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579791.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579532.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579008.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ VA - Lullabies From the Axis of Evil (2004) [MP3|192 kbps]<Колыбельны�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577105.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576865.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ VA - "UltraSound". Music For The Unborn Child (2003) [MP3|192 kbps]<Детска
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576572.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576205.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574736.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572842.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572663.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568705.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568585.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567673.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566982.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566358.jpg" />
 </div>
 
 
@@ -662,35 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42EEB388FC0BCF2B636B8599C94EEF7E4DCD30B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364120   (565242) от 16.07.2011
-
-Григорий Гладков - Песни для детей и их родителей (песни из мультфильмов) (1995) [MP3|320 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Будильник
-02. Если видишь на картине
-03. Закрывать и открывать глаза
-04. А может, а может...(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFDD4FB7B1EFAB1FC5DDE8ACA97CC57D3D81973
 ```
 
 https://mybot314.ru/tekegram_catalog/

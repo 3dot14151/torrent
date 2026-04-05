@@ -1,3 +1,32 @@
+###  Публикация: 1567495   (472470) от 03.08.2022
+
+Acanthosis - Scriptures of the Accursed (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Thirst of Knowledge (00:04:05)
+02 - Deep Scarlet, Chapter I - Impertinent Worship (00:03:35)
+03 - Deep Scarlet, Chapter II - Terraria now resides basking in red (00:02:58)
+04 - The Deep Beckons (00:04:15)(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4877F851F39A40B99394E5C830CE8BDF7E4E883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567498   (472390) от 03.08.2022
 
 Schandmaul - Knuppel Aus Dem Sack (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
@@ -6,7 +35,7 @@ Schandmaul - Knuppel Aus Dem Sack (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472390.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Clif Magness - Road To Gold (2022) 4xCD, Compilation, Official Collection Of Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472250.jpg" />
 </div>
 
 
@@ -66,7 +95,7 @@ Abigail - Intercourse & Lust (1996) Reissue, 2018, Fallen-Angels Productions [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472232.jpg" />
 </div>
 
 
@@ -95,7 +124,7 @@ Bryan Adams - Classic Pt. II (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Pop Rock, So
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472110.jpg" />
 </div>
 
 
@@ -124,7 +153,7 @@ Detritus - If But for One (1993) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472002.jpg" />
 </div>
 
 
@@ -153,7 +182,7 @@ DoomSword - DoomSword (1999) [APE|Lossless|image + .cue] <Heavy, Epic Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472000.jpg" />
 </div>
 
 
@@ -182,7 +211,7 @@ Last Days of Eden - Ride the World (2015) [FLAC|Lossless|image + .cue] <Epic Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471984.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ VA - Absolute Rock Classics 3 (2003) [FLAC|Lossless|tracks + .cue] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471911.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ Hellion - Hellion (1983) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471886.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471849.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ The Doors - Absolutely Live (1970) [FLAC|Lossless|image + .cue] <Psychedelic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471755.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ Sweet - The Best Of... (1997) [MP3|320 кб/с]<Classic Rock & Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471740.jpg" />
 </div>
 
 
@@ -368,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471627.jpg" />
 </div>
 
 
@@ -396,7 +425,7 @@ Rosie Valland - Partir Avant (2015) [MP3|320 кб/с]<Pop Rock, Indie-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471626.jpg" />
 </div>
 
 
@@ -425,7 +454,7 @@ Whitesnake - 12 Альбомов (1978-2006) [FLAC,WV|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471598.jpg" />
 </div>
 
 
@@ -460,7 +489,7 @@ Tyranny - Aeons In Tectonic Interment (2015) [MP3|320 кб/с]<Funeral Doom Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471546.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ Ugly Kid Joe - Uglier Than They Used Ta Be (2015) [MP3|320 кб/с]<Hard Rock, A
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471347.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ Modern Day Babylon - The Ocean Atlas (2015) EP [MP3|320 кб/с]<Progressive Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471324.jpg" />
 </div>
 
 
@@ -547,7 +576,7 @@ Jimmy Barnes - My Criminal Records (2019) [FLAC|Lossless|image + .cue] <Classic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471239.jpg" />
 </div>
 
 
@@ -576,7 +605,7 @@ Taake - Nattestid Ser Porten Vid (1999) [APE|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471176.jpg" />
 </div>
 
 
@@ -605,7 +634,7 @@ Onslaught - Generation Antichrist (2020) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471002.jpg" />
 </div>
 
 
@@ -634,7 +663,7 @@ The Allman Betts Band - Bless Your Heart (2020) [FLAC|Lossless|tracks + .cue] <S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471001.jpg" />
 </div>
 
 
@@ -663,7 +692,7 @@ The Hawkins - Silence is a Bomb (2020) [MP3|320 Kbps] <Hard Rock, Rock & Roll, P
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470990.jpg" />
 </div>
 
 
@@ -692,7 +721,7 @@ VA - A Tribute To Slayer (2016) [FLAC|Lossless|image + .cue] <Deathcore, Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470944.jpg" />
 </div>
 
 
@@ -721,7 +750,7 @@ Devilfire - Black Soul Vendetta (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470858.jpg" />
 </div>
 
 
@@ -735,35 +764,6 @@ Devilfire - Black Soul Vendetta (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010F19305DA88F3E5817CBE05B89D18F4B408ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058286   (470829) от 30.09.2016
-
-Eric Clapton - Live in San Diego (with Special Guest JJ Cale) (2016) Live [MP3|320 Kbps] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell the Truth
-02. Key to the Highway
-03. Got To Get Better in a Little While
-04. Little Wing(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F309CE75F58CAD64553B0337698D9CCDF73E1581
 ```
 
 https://mybot314.ru/tekegram_catalog/

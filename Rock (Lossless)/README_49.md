@@ -1,3 +1,120 @@
+###  Публикация: 1125910   (767146) от 16.04.2017
+
+Кеnnу Сhеsnеу - Соsmiс Наllеlujаh (2016) [FLAC|Lossless|image + .cue] <Country, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trip Around The Sun (2:55)
+02. All The Pretty Girls (3:33)
+03. Setting The World On Fire (With Pink) (3:39)
+04. Noise (3:26)(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858725FEC22B816791191CCB3EF94DB5D36008EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279136   (766917) от 28.01.2019
+
+Little Richard - Greatest Hit (1993) [FLAC|Lossless|image + .cue] <Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Golly, Miss Molly
+02. Lucille
+03. Long Tall Sally
+04. Tutti Frutti(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4346723C7C610D2DDFC423846363586ABB5BF485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279145   (766644) от 28.01.2019
+
+Pink Floyd - Animals, The High Resolution Remasters (2017) The Archives Records & Tapes [FLAC|Lossless|tracks+.cue] <Psychedelic Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sheep (11:15)
+ 02. Pigs On The Wing Part 1 (02:14)
+ 03. Dogs (18:31)
+ 04. Pigs On The Wing Part 2 (02:27)(   Читать дальше...   )Жанр: Psychedelic Rock, Prog Rock •Продолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA8A285511D2A8A6EA8295A6349AE0DB44728D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126012   (766284) от 17.04.2017
+
+Retrospective - Re:Search (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа была образована в 2005 году Robert Kusik (ударные) и Maciej Klimek (гитара) и вначале называлась “Hollow”.
+В 2006 году еще четверо музыкантов присоединились к Hollow: Alan Szczepaniak (гитара), Łukasz Marszałek (бас), Beata Łagoda (клавишные) and Jakub Roszak (вокал). В том же году они записали свое первое демо, в котором прослеживалась склонность (   Читать дальше...   )01. Rest Another Time (5:04)
+02. Right Way (4:51)
+03. The End Of Their World (4:49)
+04. Roller Coaster (5:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886AA2D968089375C55D930500EB002A91747C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126398   (765485) от 18.04.2017
 
 The Ryszard Kramarski Project - Music Inspired By The Little Prince (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
@@ -6,7 +123,7 @@ The Ryszard Kramarski Project - Music Inspired By The Little Prince (2017) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765485.jpg" />
 </div>
 
 
@@ -35,7 +152,7 @@ Jon English - Beating The Boards (1982) Remastered 2016 [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765437.jpg" />
 </div>
 
 
@@ -61,7 +178,7 @@ Free - All Right Now: The Essential (2018) 3CD [FLAC|Lossless|tracks] <Rock, Har
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764899.jpg" />
 </div>
 
 
@@ -90,7 +207,7 @@ Artificial Silence - Negative Space (2018) [FLAC|Lossless|tracks + .cue] <Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764594.jpg" />
 </div>
 
 
@@ -119,7 +236,7 @@ Soft Machine - Hidden Details (2018) Japanese Edition [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764538.jpg" />
 </div>
 
 
@@ -148,7 +265,7 @@ Simple Minds - Walk Between Worlds (2018) Deluxe Edition [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764531.jpg" />
 </div>
 
 
@@ -177,7 +294,7 @@ VA - Rock Milestones (2020) Box Set, 2 CD [FLAC|Lossless|tracks + .cue] <Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763710.jpg" />
 </div>
 
 
@@ -206,7 +323,7 @@ Bear Hands - You'll Pay For This (2016) [FLAC|Lossless|tracks] <Experimental Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763258.jpg" />
 </div>
 
 
@@ -235,7 +352,7 @@ Hotei - Strangers (2015) [FLAC|Lossless|image + .cue] <Rock, Alternative Rock, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763035.jpg" />
 </div>
 
 
@@ -264,7 +381,7 @@ Joe Cocker - Heart & Soul (2004) US Version [FLAC|Lossless|image + .cue] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762952.jpg" />
 </div>
 
 
@@ -293,7 +410,7 @@ Middle Of The Road - The Collection (1996) Unofficial Release [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762136.jpg" />
 </div>
 
 
@@ -322,7 +439,7 @@ The Alan Parsons Project  - Eye In The Sky (1982) 1983, Arista Records [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761378.jpg" />
 </div>
 
 
@@ -351,7 +468,7 @@ Arena - 10 albums, 13 CD (1995-2018) [FLAC|Lossless|image + .cue | tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760334.jpg" />
 </div>
 
 
@@ -380,7 +497,7 @@ Buddy Holly - Memorial Collection - (2008)3CD [FLAC|Lossless]<Rock'n'roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759815.jpg" />
 </div>
 
 
@@ -406,7 +523,7 @@ Jack White - Boarding House Reach (2018) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759718.jpg" />
 </div>
 
 
@@ -435,7 +552,7 @@ Percewood's Onagram - Collection (4CD) (1969-1974) [FLAC|Lossless]<Psychedelic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759058.jpg" />
 </div>
 
 
@@ -464,7 +581,7 @@ VA - Rock 'n' Roll Party - The Absolutely Essential (2015) [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757466.jpg" />
 </div>
 
 
@@ -493,7 +610,7 @@ Zakk Wylde - Book Of Shadows II (2016) [FLAC|Lossless|image + .cue] <Southerh Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757455.jpg" />
 </div>
 
 
@@ -522,7 +639,7 @@ David Gilmour - Live In Gdansk (2006) 2 CD, 2008, Warner Music [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757313.jpg" />
 </div>
 
 
@@ -551,7 +668,7 @@ Gregg Allman - Laid Back (1973) Reissue, 1987, Polydor [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756903.jpg" />
 </div>
 
 
@@ -580,7 +697,7 @@ VA - Classic Rock Only (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock, Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754938.jpg" />
 </div>
 
 
@@ -609,7 +726,7 @@ Cross & Quinn - Cold Sky Blue (2016) [FLAC|Lossless|image + .cue] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754096.jpg" />
 </div>
 
 
@@ -623,122 +740,6 @@ Cross & Quinn - Cold Sky Blue (2016) [FLAC|Lossless|image + .cue] <Progressive R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0A6766976926D2F2A9A2E3E796EC573EDD2BDBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018769   (754087) от 21.05.2016
-
-Brian Wilson And Friends - A Sound Stage Special Event (2016) [FLAC|Lossless|image + .cue] <Soft Rock, Pop, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Prayer
-02. Heroes And Villains
-03. Sloop John B
-04. Dance Dance Dance(   Читать дальше...   )Жанр: Soft Rock, Pop, Pop RockПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D9B42BD67F863BC43312DA0F4C57B83CEFD8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018686   (753941) от 21.05.2016
-
-Joe Cocker - Across From Midnight (1997) [APE|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight
-02. Could You Be Loved
-03. That's All I Need to Know
-04. N'oubliez Jamais(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24347C8B5485CD80FDEB646C5EF65DCB4C454129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018863   (753725) от 21.05.2016
-
-Bob Dylan - Fallen Angels (2016) [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young At Heart
-02. Maybe You'll Be There
-03. Polka Dots And Moonbeams
-04. All The Way(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30DBB15301256FC4103E0A65F9221807A8169E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019104   (752251) от 22.05.2016
-
-Joe Cocker - Hymn For My Soul (2007) [APE|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Haven't Done Nothin'
-02. One Word (Peace)
-03. Love Is For Me
-04. Don't Give Up On Me(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688715113F48DB7C2778ACA6F8C0A8C743863B1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

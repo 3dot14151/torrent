@@ -1,3 +1,55 @@
+###  Публикация: 984101   (919850) от 20.02.2016
+
+XCOM 2 (2016) [Ru/Multi] (1.0.0.33124/dlc) SteamRip Let'sРlay [Digital Deluxe]
+
+>>След.
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля изменилась. Двадцать лет прошло с тех пор как мировые лидеры подписали безоговорочную капитуляцию перед пришельцами. Последний рубеж обороны Земли, организация XCOM, уничтожена, а её остатки рассеяны по миру. Пришельцы правят планетой, застраивая её сверкающими городами, которые обещают безоблачное будущее для человечества. Однако за этим пышным фасадом чужие (   Читать дальше...   )Тип издания: SteamRipРазработчик: Firaxis, Feral Interactive (Mac), Feral Interactive (Linux)Жанр: Strategy (Real-time, Turn-based, Tactical), 3DЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3EC2CB0485E8BE7CDAF0970AA39FB17BFDD448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367000   (918482) от 14.03.2020
+
+Fantasy General II (2019) [Ru/Multi] (01.01.09312/dlc) Repack Other s
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fantasy General II — это переработка классической стратегии 90-х! В основе Fantasy General II, в соответствии с традициями оригинальной игры, лежат пошаговые битвы. Возглавьте армию из более чем 75 различных видов отрядов, включая могущественных героев. Принимайте во внимание рельеф местности, оружие и доспехи, магические эффекты, боевой дух и баланс сил. Разработайте (   Читать дальше...   )Тип издания: RepackРазработчик: Owned by GravityЖанр: Strategy (TBS), FantasyЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68CB4EF2DA517224CFEC66C6F631D3B27AFC7029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 741624   (917874) от 30.01.2015
 
 7.62 Hard Life / 7.62 Тяжёлая Жизнь (2009) [Ru/En] (1.11) Mod/Repack R.G. Механики
@@ -6,7 +58,7 @@
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917874.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Spellcrafter (2015) [Ru/Multi] (1.0) License PROPHET
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916350.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ XCOM 2 (2016) [Ru/En/Pl] (1.0.0.33124/dlc) Repack R.G. Origami [Digital Deluxe E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916340.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Command: Modern Air / Naval Operations (2014) [En] (1.11 SR6 b870.4/dlc) License
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907880.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Dungeons 2 (2015) [Ru] (1.5.2.4-ae89b35a3232/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901852.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901155.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Frontline Zed (2019) [Ru/Multi] (1.30) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899429.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888922.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ StarСraft II: Legacy of the Void (2015) [Ru/En] (3.1.4.41219) Battle.Net-Rip OR
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885535.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Warhammer 40,000: Armageddon (2014) [Ru/Multi] (1.10/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885517.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882659.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.6.0/dlc) License GOG (обнов�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880251.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Halfway (2014) [En] (1.2.9) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879268.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Syrian Warfare (2017) [En] (1.0.0.0) License HI2U
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869024.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ XCOM 2 (2016) [Ru/Multi] (374751/dlc) License GOG [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866782.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Panzer Corps (2010) [Ru/Multi] (1.30/dlc) License GOG [Gold]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865151.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ XCOM 2 (2016) [Ru/En] (374751/dlc) Repack xatab [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857975.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Ceres (2015) [Ru/Multi] (1.2.0) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853377.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Expeditions: Conquistador (2013) [Ru/Multi] (1.6.5) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853230.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Atlantic Fleet (2016) [En] (1.0) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851708.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Panzer Corps: Soviet Corps (2016) [Ru/Multi] (1.25/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851616.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23391/dlc) SteamRip =nemos= [Master Co
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847532.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ The Fleets of Sol (2016) [En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846207.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Warhammer 40,000: Dawn of War II (2009-2010) [Ru/Multi] (2.6.10236) SteamRip Let
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838481.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Warhammer 40,000: Dawn of War II. Разработанная отмеченно�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B1A30CDF77F01B61A46AF7774ACA8E21EB06677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380604   (832530) от 03.05.2020
-
-Gears Tactics (2020) [Ru/Multi] (1.0) License CODEX
-
->>След.
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gears Tactics - динамичная пошаговая стратегия, события которой разворачиваются за 12 лет до первой части Gears of War. Возникшая из-под земли чудовищная орда Саранчи уничтожает города на планете Сера. Власти охвачены паникой, и судьба человечества теперь зависит от действий небольшой группы выживших. Играя за Гейба Диаза, вы нанимаете, развиваете и отправляете в (   Читать дальше...   )Тип издания: LicenseРазработчик: Splash Damage, The CoalitionЖанр: СтратегииЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9238D7623EBC08AFEA951810C40C2CC51FD48B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005890   (830192) от 10.04.2016
-
-Rabiez: Epidemic (2016) [Ru/Multi] (1.01) Repack ALiAS
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rabiez-Epidemic - это тактическая реал-тайм игра в сеттинге зомби-апокалипсиса, где группа выживших, в неравной схватке противостоит ордам зараженных. На стороне (пока еще) людей ваш тактический гений и огнестрельное оружие. Зомби (справедливости ради, это не совсем зомби, а зараженные по типу фильма "28 Дней Спустя"), как повелось, берут количеством и (   Читать дальше...   )Тип издания: RepackРазработчик: Sekerin ProductionsЖанр: Strategy, Indie, 3DЯзык озвучки: Русский, Английский, УкраинскийЯзык субтитров: Русский, Английский, УкраинскийЯзык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B3931EB02E6EE2CCF8AA1B8A7E9DEFEA290F85
 ```
 
 https://mybot314.ru/tekegram_catalog/

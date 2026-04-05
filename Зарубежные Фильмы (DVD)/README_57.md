@@ -1,81 +1,3 @@
-###  Публикация: 1516056   (167327) от 09.12.2021
-
-Дюна / Dune: Part One (2021) DVD9 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наследник знаменитого дома Атрейдесов Пол отправляется вместе с семьей на одну из самых опасных планет во Вселенной — Арракис. Здесь нет ничего, кроме песка, палящего солнца, гигантских чудовищ и основной причины межгалактических конфликтов — невероятно ценного ресурса, который называется меланж. В результате захвата власти Пол вынужден бежать и скрываться, и это (   Читать дальше...   )Производство: США, Канада, Венгрия / Warner Bros., Legendary Pictures, Villeneuve FilmЖанр: Фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Ребекка Фергюсон, Оскар Айзек, Джош Бролин, Джейсон Момоа, Зендея, Стеллан Скарсгард, Хавьер Бардем, Дэйв Батиста, Шарлотта РэмплингПеревод: Дублированный, многоголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 02:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22C2E7A6B70962360EF909D226A16DED035B75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345629   (166100) от 15.12.2019
-
-Yesterday / Yesterday (2019) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще месяц назад Джек был обычным неудачником. Теперь он суперзвезда, миллионы людей слушают его песни, билеты на концерты раскупаются за секунду. В чем секрет? Все просто. Джек — единственный человек в мире, кто помнит о существовании The Beatles.Производство: Великобритания, Россия, Китай, Япония / Universal Pictures, Perfect World Pictures, Working Title FilmsЖанр: Музыка, мелодрама, фэнтези, комедияРежиссер: Дэнни БойлАктеры: Химеш Патель, Лили Джеймс, Джоэль Фрай, Эд Ширан, Кейт Маккиннон, Мира Сайал, Санджив Бхаскар, Софи Ди Мартино, Эллиз Шаппелль, Гарри МишельПеревод: Дублированный (лицензия)Субтитры: Русские, английские, испанские, португальские, эстонские, латышские, литовскиеПродолжительность: 01:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C9576C031411848E6CD0EE6658760F2946932A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345798   (165461) от 16.12.2019
-
-Yesterday / Yesterday (2019) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще месяц назад Джек был обычным неудачником. Теперь он суперзвезда, миллионы людей слушают его песни, билеты на концерты раскупаются за секунду. В чем секрет? Все просто. Джек — единственный человек в мире, кто помнит о существовании The Beatles.Производство: Великобритания, Россия, Китай, Япония / Universal Pictures, Perfect World Pictures, Working Title FilmsЖанр: Музыка, мелодрама, фэнтези, комедияРежиссер: Дэнни БойлАктеры: Химеш Патель, Лили Джеймс, Джоэль Фрай, Эд Ширан, Кейт Маккиннон, Мира Сайал, Санджив Бхаскар, Софи Ди Мартино, Эллиз Шаппелль, Гарри МишельПеревод: Дублированный (лицензия)Субтитры: Русские, английские, испанские, португальские, эстонские, латышские, литовскиеПродолжительность: 01:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51F19C00ED7C60B1BADD6BA94544003C4455FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673378   (165195) от 01.11.2023
 
 Зелимо / Zelimo (2001) DVD5 [AVO]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165195.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164153.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163958.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163885.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163296.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163230.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163205.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163114.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163102.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162959.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161345.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161274.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161256.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160802.jpg" />
 </div>
 
 
@@ -448,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160795.jpg" />
 </div>
 
 
@@ -474,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158609.jpg" />
 </div>
 
 
@@ -501,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158589.jpg" />
 </div>
 
 
@@ -527,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158580.jpg" />
 </div>
 
 
@@ -553,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158575.jpg" />
 </div>
 
 
@@ -579,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158564.jpg" />
 </div>
 
 
@@ -605,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158561.jpg" />
 </div>
 
 
@@ -632,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158054.jpg" />
 </div>
 
 
@@ -658,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157894.jpg" />
 </div>
 
 
@@ -669,6 +591,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B8B030D1AF8DAF7625373CC2C61FE6B9DADAA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517973   (157055) от 18.12.2021
+
+Не время умирать / No Time to Die (2021) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Бонд оставил оперативную службу и наслаждается спокойной жизнью на Ямайке. Все меняется, когда на острове появляется его старый друг Феликс Лейтер из ЦРУ с просьбой о помощи. Миссия по спасению похищенного ученого оказывается опаснее, чем предполагалось изначально. Бонд попадает в ловушку таинственного злодея, вооруженного опасным биологическим оружием.Производство: Великобритания, США / Universal Pictures, Metro-Goldwyn-Mayer (MGM), Eon Productions Ltd.Жанр: Боевик, триллер, приключенияРежиссер: Кэри Дзёдзи ФукунагаАктеры: Дэниэл Крэйг, Рами Малек, Леа Сейду, Лашана Линч, Бен Уишоу, Наоми Харрис, Билли Магнуссен, Ана де Армас, Кристоф Вальц, Рэйф ФайнсПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D3820017DD9A7CDAFDE312BDA69C6C5C1331AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517965   (156846) от 18.12.2021
+
+Дюна / Dune: Part One (2021) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наследник знаменитого дома Атрейдесов Пол отправляется вместе с семьей на одну из самых опасных планет во Вселенной — Арракис. Здесь нет ничего, кроме песка, палящего солнца, гигантских чудовищ и основной причины межгалактических конфликтов — невероятно ценного ресурса, который называется меланж. В результате захвата власти Пол вынужден бежать и скрываться, и это (   Читать дальше...   )Производство: США, Канада, Венгрия / Warner Bros., Legendary Pictures, Villeneuve FilmЖанр: Фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Ребекка Фергюсон, Оскар Айзек, Джош Бролин, Джейсон Момоа, Зендея, Стеллан Скарсгард, Хавьер Бардем, Дэйв Батиста, Шарлотта РэмплингПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66EF8329E79DF24664E7C8409CEAB32BA2AC37BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852919   (155567) от 27.12.2014
+
+Особо опасны / Savages (2012) DVD5 [UNRATED]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодые миллионеры Бен и Чон ведут дела на побережье Калифорнии. Бен — выдающийся ботаник и талантливый бизнесмен, Чон — мастер возвращения долгов и борьбы с конкурентами. В их работе много сложных моментов, ведь они выращивают лучшую в мире траву. Особо серьезные проблемы решает знакомый агент ФБР.Но с одной не сможет помочь даже он. Сверхприбыльным бизнесом заинтересовался (   Читать дальше...   )Жанр: Триллер, Драма, КриминалРежиссер: Оливер СтоунАктеры: Тейлор Китч, Блейк Лайвли, Аарон Тейлор-Джонсон, Джон Траволта, Бенисио Дель Торо, Сальма Хайек, Эмиль Хирш, Демиан Бишир, Антонио Джарамилло, Хоакин КосиоПеревод: Одноголосый закадровыйЯзык субтитров: Английские, русскиеПродолжительность: 02:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C9B945AAEB7722067523AAF423473563344996
 ```
 
 https://mybot314.ru/tekegram_catalog/

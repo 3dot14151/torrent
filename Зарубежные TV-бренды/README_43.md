@@ -6,7 +6,7 @@ NG: Фото-ковчег / Photo Ark (2017) HDTVRip (3 серии из 3) [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713772.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC. Horizon. Миссия на Марс / Horizon. Mission To Mars (2012) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713535.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712991.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC. Как вырастить планету / How to Grow a Planet (2012) BDRe
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712862.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ History Channel. Реальный Запад: Ковбои и бандиты / T
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712609.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ History Channel. Реальный Запад: Ковбои и бандиты / T
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712605.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712462.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC. Замки: История укреплений Британии / Castles:
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712282.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712054.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710532.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709953.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NGW: Самые опасные убийцы. Опасная зона / World's d
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709948.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NGW: Глубоководные убийцы / Deep sea killers (2017) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709859.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NGW: Дикая река Конго / Wild Congo (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709850.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708969.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NG: Разобрать до основания. Суперджеты (Больш
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708968.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NGW: Смертоносная Африка. Степи / Africa's Deadly Kingdom
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708855.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG: Возрождение морского шелкового пути / Mariti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708619.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NGW: Самые странные в мире питомцы / World's weirdest p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708105.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Discovery: Разрушители легенд / MythBusters (2016) SATRip (Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707722.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Animal Planet. Чернобыль - Жизнь в смертельной зон�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707634.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ BBC. Horizon. Почему мы говорим? / Horizon. Why Do We Talk? (2009
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707631.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NGW: Смертоносная Африка. Калахари / Africa's Deadly K
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706973.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ BBC: Horizon. Закат Солнечной системы / The End of The Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706595.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706234.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706233.jpg" />
 </div>
 
 

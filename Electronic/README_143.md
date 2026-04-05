@@ -1,3 +1,61 @@
+###  Публикация: 1101938   (786985) от 19.01.2019
+
+Cactus Island Recordings - Label-Pack 34 Releases (2002-2010) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Downtempo, Glitch, Leftfield, Abstract>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bury & Disinter - Parting Way (04:35)
+ 02. Bury & Disinter - Duffle (03:29)
+ 03. Bury & Disinter - Moments After A Yawn (03:15)
+ 04. Bury & Disinter - Yuki (03:56)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Ambient, Glitch, Downtempo, Experimental, Leftfield, Abstract •Продолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7CB90A9ECBEFAF3A005F7CC4FB830BECE280D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388324   (786879) от 05.06.2020
+
+Sixsense - Feeling Strong (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786879.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sultan (8:29)
+2. Oriental Nights (6:53)
+3. Multi Time (7:24)
+4. Feeling Strong (6:34)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA71EC98AA20C3437E63265DC8E137539CE1F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388327   (786876) от 05.06.2020
 
 Phanatic - Back Catalog, Vol.4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -6,7 +64,7 @@ Phanatic - Back Catalog, Vol.4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tra
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786876.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Solaris Time Sexy Summer (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786756.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Meute - Puls (2020) [FLAC|Lossless|tracks + .cue] <Deep House, Nu-Jazz, Broken B
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786736.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Craig Connelly - A Sharper Edge (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786569.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VNV Nation - Noire (2018) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro, Ambient>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786566.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Neuroq - Discography 6 Releases (2016-2020) Muz-Flame, Mystic Sound Records [FLA
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786541.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Telefon Tel Aviv - Discography 19 Releases (2001-2020) Hefty Records, BPitch Con
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786522.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Martin Buttrich - Collaborator Vol.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786389.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Infrasonic Spring Selection (2017) [MP3|320 Kbps] <Trance, Uplifting Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786220.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Ori Uplift - Uplifting Only 217 (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786208.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Blank & Jones - Milchbar: Seaside Season 9 (2017) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786106.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Future Core Vol.1 (2017) [MP3|320 Kbps] <House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785986.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Quintessence 1st Elixir (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785984.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Health Regeneration 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785983.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Miami 2017: The Club Deluxe Edition (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785982.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Sunset Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785981.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Sin of Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785980.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Armada Deep Top 10 April (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785979.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Deep Progressive, Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785978.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Waves Vol.5 (Sunset House And Deep Groove) (2017) [MP3|320 Kbps] <House, De
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785977.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Get Down Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785975.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Central Agency Of Sound (2017) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785972.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Armada Miami 2017 (The Club Edition) (2017) [MP3|320 Kbps] <House, Electro 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785971.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Spring Break 2017: Dance Hits Selection (2017) [MP3|320 Kbps] <House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785969.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Spring Break 2017: Dance Hits Selection (2017) [MP3|320 Kbps] <House, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB2BA0EB6C532021251C5E7D1C494B9A1ACCFB62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123859   (785967) от 10.04.2017
-
-VA - New York Night Tales: The Best Of Urban Chillout Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dragonfly - Downtime In Battery Park  3:29
-02.  The Great Calm - Scraping The Sky  4:50
-03.  Skye Dream - Above Strawberry Fields  4:38
-04.  Henry Kent - Lost On Broadway  6:14(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC16CAB1DFBE42B37F8246EA6531DCE99070385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124324   (785964) от 10.04.2017
-
-VA - Ultimate Chill Out: 01 The Best Downtempo Tracks and Mixes (2017) [MP3|320 Kbps] <Chill Out, Downtempo, Balearic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keyzero 1 - Blue
-02. The "K" - Break Pants
-03. Cyclopedia - Heaven
-04. Sandstorm - In The Waiting Line(   Читать дальше...   )Жанр: Chill Out, Downtempo, BalearicПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9283B26F87FE61427374D3FA8581480FDA5EEDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

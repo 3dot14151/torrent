@@ -1,3 +1,55 @@
+###  Публикация: 1527227   (737400) от 27.01.2022
+
+Image Tricks Pro 3.9.5 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Image Tricks Pro — это мощное приложение для редактирования фотографий, которое использует фильтры Mac OS X Core Image и композиции Quartz для преобразования ваших любимых фото. Image Tricks Pro также содержит мощный генератор изображений для создания случайных картинок, а также фоторамки для дальнейшего украшения ваших изображений.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: ©2003–2022 BeLight Software Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43D4674FD96F7865ABF4141D9E51704AF919BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527254   (737392) от 27.01.2022
+
+aText 2.40.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737392.jpg" />
+</div>
+
+
+###  Подробнее
+
+AText ускоряет вашу запись, заменяя сокращения на часто используемые фразы, которые вы определяете: например, сделайте аббревиатуру «myname», чтобы вставить свое имя «First Middle Last» в любом приложении.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2020 Trần Kỳ NamПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D364F566733E54800F275D5FD5D264C1DBD47BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527121   (737361) от 27.01.2022
 
 OmniGraffle Pro 7 v7.19.4 [Multi/Ru]
@@ -6,7 +58,7 @@ OmniGraffle Pro 7 v7.19.4 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737361.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Mirror for Panasonic TV 3.7.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736936.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Project Office Pro 9.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736915.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Cleaner-App Pro 8.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736912.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Dependency Walker 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736888.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Mirror for Chromecast 2.9.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736430.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Acon 1.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736423.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Easy Screen Recorder 4.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736420.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Navicat Premium 16.0.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736398.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Nuclear 0.6.17 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736289.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Native Instruments Komplete 12 Ultimate Collector’s Edition v1.06 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736065.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ LaunchControl 1.52.4 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735872.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ AnyDrop 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735403.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ RSS Button for Safari 1.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735399.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Storyspace 3 v3.9.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735396.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Kiosc 1.13.7 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735395.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Mirror for Sony TV 3.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735389.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ VoodooPad 6 v6.0.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734977.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ DSSW Power Manager 5.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734858.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ MediaHuman Youtube Downloader 3.9.9.41 (build 2807) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734770.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ Serial Box & SerialSeeker 2022 - 02 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734424.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ Winclone Pro 10 v10.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734398.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ Mitch for Twitch 1.8.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734313.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ Deliver 2.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734026.jpg" />
 </div>
 
 
@@ -630,61 +682,6 @@ Deliver - это комплексное решение для отправки �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E922276CE94007D267709AF0C331CCDFF0E77E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399216   (733690) от 30.07.2020
-
-JetBrains PhpStorm 2020.1 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733690.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код,
-поддерживает PHP 7.2,7.1,7.0, 5.6, 5.5, 5.4 и 5.3 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание языков.
-Сотни инспекций заботятся о (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.05.2020Разработчик: JetBrainsПоддерживаемая ОС: macOS 10.13 или более поздняя версияЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8244C0C72392BED5A182EE5252FD598DCF73B717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399585   (732912) от 01.08.2020
-
-Native Instruments Reaktor 6 v6.4.0 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_732912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основным отличием версии 6 модульного виртуального инструмента Reaktor от предыдущих версий является использование новой технология Reaktor Core Technology, позволяющей визуальное создание собственных модулей.
-В NI REAKTOR 6 реализовано множество новых возможностей и улучшений. 23 качественно новых инструмента REAKTOR позволяют создать бесчисленное множество ни на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.07.2020Разработчик: Native InstrumentsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00973525B0ACD0D392B2D229BBE826D9D6CF1280
 ```
 
 https://mybot314.ru/tekegram_catalog/

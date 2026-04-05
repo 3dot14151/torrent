@@ -1,167 +1,3 @@
-###  Публикация: 1416393   (367046) от 16.10.2020
-
-Конрад Кокоса | Управление памятью в .NET для профессионалов. Написание более качественного, производительного и масштабируемого кода (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя в .NET управление памятью осуществляется автоматически, понимание того, как именно это делается, сулит немало преимуществ. Вы сможете писать более качественные программы, эффективно взаимодействующие с памятью.
-Книга, проверенная командой разработки .NET из «Майкрософт», содержит 25 сценариев поиска и устранения неисправностей, призванных помочь в диагностике (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433EA630E3DABF87C45786851BC12F87C6D9ABD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416586   (366856) от 16.10.2020
-
-Lee Vaughan | Real-World Python: A Hacker's Guide to Solving Problems with Code / Реальный Python: руководство для хакеров по решению проблем с кодом (2020) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проектный подход к изучению программирования на Python для начинающих. Интригующие проекты научат вас решать сложные проблемы с помощью кода.
-Real World Python делает упор на проектную практику и мгновенно переводит вас от игры с синтаксисом к написанию полных программ. Вы будете проводить эксперименты, изучать статистические концепции и решать новые задачи, которые (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBAF235ADD9DC77C027F58E935C57E71442BBC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576506   (365651) от 14.09.2022
-
-Татьяна Кучаева | Android Studio. Полезные шпаргалки для начинающих (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программирование и разработка мобильных приложений на Android уже давно покорила весь мир. С каждым годом всё больше людей хотят научиться создавать приложения и игры на планшет или смартфон. В этой книге есть всё необходимое для того, чтобы научиться самостоятельно разрабатывать приложения, как самые элементарные, так и более функциональные. Скорее всего Вам уже (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9317A68E1CFEF53918ABBD2330DF8ABFF27970B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950485   (365638) от 28.10.2015
-
-А.Ю. Гришенцев, А.Г. Коробейников | Методы и модели цифровой обработки изображений (2014) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена некоторым методам и моделям обработки функциональных изображений, научным основам построения средств компьютерной графики, методов геометрического моделирования проектируемых объектов и синтеза виртуальной реальности. Наряду с фундаментальными методами рассмотрены авторские, нашедшие успешное применение в практике. В работе приведено значительное (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D759EE62B2D6DD2ECAC0D35E9B2FEE68948EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576173   (365443) от 16.11.2012
-
-Chris Smith | Programming F# 3.0, 2nd Edition [2012 October] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зачем изучать F #? С помощью этого руководства вы узнаете, как это мульти-парадигмы языка не только предлагает Вам огромное повышение производительности посредством функционального программирования, но и позволяет разрабатывать приложения, используя существующие объектно-ориентированного и императивного навыков программирования. Вы быстро обнаружите много преимуществ языка, в том числе доступ ко всем великим инструментам и библиотекам. NET платформы.
-
-Воспользуйтесь функциональным программированием для вашего следующего проекта, будь вы пишете параллельный код, или построением данных или математические ресурсоёмкие приложения. С этой всеобъемлющей книги, бывший F # член команды Крис Смит дает вам фору по основам и проведет вас через передовые концепции языка F #.
-
-Узнать F # с уникальными характеристиками для создания приложений
-Усиление твердое понимание синтаксиса основных F # , в том числе объектно-ориентированного и императивного стилей
-Сделать свой объектно-ориентированный код лучше, применяя функциональную (   Читать дальше...   )Формат: PDF/ePub
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFA1986921F11CEB7FC60EE38A31B2B643055CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328280   (365080) от 29.09.2019
-
-С.Л. Макаров | Arduino Uno и Raspberry Pi 3: oт схемотехники к интернету вещей (+code) (2018) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное руководство описывает построение и программирование приложений для интернета вещей (IoT). Первая часть книги посвящена экспериментам на популярной платформе Arduino с целью научить читателя основным принципам схемотехники, вторая часть посвящена примерам практической реализации проектов для IoT на базе Raspberry Pi 3, где затрагиваются как сервисы для приложения (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DF792079A844D769AE0AED7C82D6D61A4C6540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576185   (364976) от 16.11.2012
 
 Н.А. Прохоренок | Python 3 и PyQt. Разработка приложений [2012] [PDF]
@@ -170,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364976.jpg" />
 </div>
 
 
@@ -196,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363282.jpg" />
 </div>
 
 
@@ -222,7 +58,7 @@ Shelley Powers / Шейли Пауерс | JavaScript Cookbook [2010] [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362724.jpg" />
 </div>
 
 
@@ -249,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362574.jpg" />
 </div>
 
 
@@ -275,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362562.jpg" />
 </div>
 
 
@@ -302,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362559.jpg" />
 </div>
 
 
@@ -328,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362558.jpg" />
 </div>
 
 
@@ -355,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361054.jpg" />
 </div>
 
 
@@ -381,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360241.jpg" />
 </div>
 
 
@@ -407,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360134.jpg" />
 </div>
 
 
@@ -433,7 +269,7 @@ Steven Levy/Стивен Левай | Хакеры : Герои Компьюте
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360087.jpg" />
 </div>
 
 
@@ -462,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359993.jpg" />
 </div>
 
 
@@ -489,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359882.jpg" />
 </div>
 
 
@@ -517,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359872.jpg" />
 </div>
 
 
@@ -543,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359678.jpg" />
 </div>
 
 
@@ -569,7 +405,7 @@ Matthew MacDonald | HTML5. The Missing Manual| HTML5. Исчерпывающее
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359659.jpg" />
 </div>
 
 
@@ -603,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359554.jpg" />
 </div>
 
 
@@ -629,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358323.jpg" />
 </div>
 
 
@@ -656,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358128.jpg" />
 </div>
 
 
@@ -683,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357949.jpg" />
 </div>
 
 
@@ -694,6 +530,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57802EDF5D8742BEAD7D0F4F3649771B72151422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178125   (357745) от 27.10.2017
+
+Elaiya Iswera Lallan | Этическое хакерство и обеспечение компьютерной безопасности для начинающих / Ethical Hacking and Computer Securities for Beginners (2015) [PDF] [En]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга написана на основе практического использования и исследований в области компьютерной безопасности и сетей. В основном каждый человек сильно обеспокоен сетями компьютерной безопасности, где может контролироваться бизнес и операции. И будет хуже, если все бизнес-операции будут выполняться на веб-сайте или в веб-хостинговой компании.
+Рассматриваются некоторые (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6C29F674BA809008EE112014332B64AD420505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952112   (357707) от 31.10.2015
+
+С.В. Бондаренко, М.Ю. Бондаренко | Microsoft Word 2007 для начинающих (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс поможет вам разобраться с тонкостями работы Microsoft Word 2007. Курс станет вам верным помощником в освоении программы и позволит изучить ее, начиная от самых элементарных понятий и заканчивая выполнением сложных заданийЖанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CF914D515355FDCF6D01A839D8158F25ADF500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952087   (357700) от 31.10.2015
+
+А.В. Белоцерковский, Л.И. Ямпольская | Microsoft Windows Azure (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс содержит обзор концепций, трендов и истории облачных вычислений, особое внимание посвящено подробному описанию архитектуры, функциональности современной облачной платформы Microsoft Windows Azure. Для иллюстрации функциональности и практического закрепления навыков используются реальные примеры и сценарии, посвященные различным аспектам проектирования и создания (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E38ECD00DF75FF0BAA62C812244852774F961C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952130   (357569) от 31.10.2015
+
+Г.И. Пожарская, Д.М. Назаров | MathCad 14: основные сервисы и технологии (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357569.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге описана структура программы ее основные сервисы и приемы работы в среде с различными структурами данных. Рассмотрены различные технологические возможности выполнения символьных вычислений. Представлены методы построения графиков функций а также инструменты их редактирования, форматирования и настройки. Продемонстрированы приемы численного решения уравнений (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEEEE9420F7D4BEE332280ABF21656DB5287762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952077   (357557) от 31.10.2015
+
+В.П. Молочков | Microsoft PowerPoint 2010 (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс обучает созданию презентаций с помощью PowerPoint 2010. Изучив данный материал, вы сможете без посторонней помощи создавать эффектные анимированные презентации профессионального качества.Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1CCE2D6C62BE78F6BC30A85847966CB4D4BBA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952143   (357421) от 31.10.2015
+
+А.А. Заика | VBA в MS Office 2007 (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357421.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге подробно рассматриваются основы VBA и особенности программирования для MS Word и MS Excel. Издание рассчитано на опытного пользователя Office, который хочет научиться программировать для этой среды, но не занимался программированием раньше. Одна из главных целей — научить читателя думать и действовать самостоятельно, а не по чьей-либо указке.
+ После изучения (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E08A7EC4DC13FDF2EB4E103F083F882709434F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

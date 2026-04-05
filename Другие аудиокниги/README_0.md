@@ -1,3 +1,55 @@
+###  Публикация: 1847106   (1051993) от 10.01.2026
+
+Федор Конюхов | Одиночное повествование. Дневники путешественника (2025) [MP3, Юрий Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждому человеку хотя бы раз в жизни приходится переживать ситуацию, которую можно назвать «на грани выживания» или «между жизнью и смертью». Неоценимой поддержкой и опорой в этом пути преодоления обстоятельств, себя, судьбы к воскрешению и возрождению станет издание «Одиночное повествование» – сборник книг странника-пилигрима, писателя и священника Федора Конюхова. (   Читать дальше...   )Жанр: Биографии, Мемуары, ПутешествияИздательство: ЭксмоПродолжительность: 12:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F08800DFFFC7AC95730CFA4E3A5F2B0E1309067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846669   (1051701) от 08.01.2026
+
+Фицджеральд Фрэнсис Скотт, Сергей Есенин и др. | Сборник радиоспектаклей №20 (1953 - 2006) [MP3, Исполняет театральный коллектив]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свои люди сочтемся - (первоначальные названия «Несостоятельный должник», «Банкрот» и «Банкрут, или Свои люди — сочтёмся») — комедия в 4-х действиях Александра Островского 1849 года. Пьеса имела огромный успех у читателей после публикации в журнале «Москвитянин» в 1850 году. Но постановка была запрещена по указанию Николая I. Цензурный запрет продержался одиннадцать (   Читать дальше...   )Жанр: радиотеатрИздательство: CDCOMФормат: MP3, 320kbpsПродолжительность: 02:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92ED640DD090AF35CCFD31407799F1F200C49AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846356   (1051678) от 08.01.2026
 
 Владимир Тихомиров (пер.) | Беовульф (2024) [MP3, Александр Аравушкин]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051678.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051547.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051516.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051404.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051160.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051159.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051120.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050581.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050479.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050391.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050309.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050236.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049875.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049763.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049684.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049677.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049262.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048945.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048904.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048710.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048695.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048666.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048414.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048413.jpg" />
 </div>
 
 
@@ -638,58 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCE63696B6F61242E4CB2DA047EDE772846A6687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842012   (1048367) от 14.12.2025
-
-Антон Павлович Чехов, Николай Васильевич Гоголь, и др. | Сборник радиоспектаклей №4 (1953-2010) [MP3, Исполняет театральный коллектив]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастическая повесть Н.В. Гоголя "Нос" хорошо известна российскому читателю. Наверное, все помнят историю, приключившуюся в Санкт-Петербурге с коллежским асессором Ковалевым (предпочитавшим именоваться майором): мало того, что пропавший с его лица Нос загадочным образом оказался в свежевыпеченном хлебе, - так он еще в роли статского советника важно разъезжал (   Читать дальше...   )Жанр: аудиоспектакльИздательство: Радио «Петербург»Формат: аудиоспектакль, MP3, 192kbpsПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:850E91E06F4DFA8F7BBE701968F8FE5F8D717C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841450   (1048183) от 19.12.2025
-
-Аркадий и Георгий Вайнеры, Гилберт Кийт Честертон, и др. | Сборник радиоспектаклей №1 (2005-2012) [MP3, Коллектив исполнителей театров]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патер Браун, благодаря своим незаурядным способностям сыщика успешно расследует преступления.Жанр: Детектив, радиоспектакльИздательство: Студия «Звуковая книга»Формат: аудиоспектакль, MP3, 192kbpsПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2124DBBDAA57607E27F645A6CED28BE41196298
 ```
 
 https://mybot314.ru/tekegram_catalog/

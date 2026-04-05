@@ -1,3 +1,32 @@
+###  Публикация: 1681215   (133116) от 02.12.2023
+
+Dwa Plus Jeden - Bez Limitu (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133116.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Krach
+A2 Gorace Telefony
+A3 China Boy
+Music By – C. Szlazak(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F77F0378226E9E6B0BD4D19E76C21B47C29B5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681651   (132742) от 03.12.2023
 
 Nuclear - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
@@ -6,7 +35,7 @@ Nuclear - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132742.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Modus - Friends (1987) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132720.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132568.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Pyramaze - Studio Albums (7 releases) (2004-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131508.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131186.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Arjen Anthony Lucassen - Lost in the New Real (2012) [FLAC|24/96|tracks|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131167.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Ayreon - Into the Electric Castle (A Space Opera) (1998) [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131165.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130690.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Cher - Cher's Greatest Hits 1965-1992. Volume 1 (1993) Compilation, Unofficial R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129862.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Suburban Tribe - Дискография (10 Albums) (1994 - 2011) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129209.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ VA - Балкантон – Танцова Музика (1965) [FLAC|Lossless|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128872.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Ihsahn - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128871.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Bloodywood - Studio Albums (2 releases) (2022-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128870.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ The Hu - Studio Albums (2 releases) (2020-2022) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128807.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Trivium (& Ibaraki) - Studio Albums (12 releases) (2003-2022) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128583.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128547.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128544.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ System Of A Down - System Of A Down (1998)[FLAC|24/192|image + .cue|Vinyl-Rip]  
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128247.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Ayreon - 01011001 (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128220.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Ayreon - The Human Equation (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progres
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128215.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ System Of A Down - Steal This Album! (2002) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128097.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Mario Lanza/Марио Ланца - Голос и ночь, Всё это ты, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127986.jpg" />
 </div>
 
 
@@ -635,7 +664,7 @@ Semblant - Studio Albums (5 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127971.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ Ayreon - The Theory of Everything (2013) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127952.jpg" />
 </div>
 
 
@@ -693,7 +722,7 @@ Anubis Gate - Studio Albums (10 releases) (2004-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127947.jpg" />
 </div>
 
 
@@ -707,35 +736,6 @@ Anubis Gate - датская пауэр/прог-метал группа, обр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87D186EB2DC9A10893E8AE7E60C77204867E4890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684124   (127946) от 14.12.2023
-
-System Of A Down - Hypnotize (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Alternative Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127946.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Attack
-A2 Dreaming
-A3 Kill Rock 'N Roll
-A4 Hypnotize(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEE197496430259FD16FE6ACF11D960F15C7B6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

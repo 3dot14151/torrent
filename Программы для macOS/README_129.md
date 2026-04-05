@@ -1,3 +1,55 @@
+###  Публикация: 1643755   (232406) от 03.07.2023
+
+Tipard Blu-ray Converter for Mac 10.0.56 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой и удобный конвертер Blu-ray и DVD в популярные форматы, с поддержкой мощных функций редактирования, которые помогут вам создавать персонализированные видео для просмотра практически на любых мобильных устройствах - iPhone, iPad, Samsung Galaxy и многие др. Приятный дизайн, удобный и интуитивно понятный интерфейс, высокая скорость преобразования - что еще (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.05.2023Разработчик: © 2021 Tipard StudioПоддерживаемая ОС: Mac OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C489DB098947BFE6C9E20BF96DEBB5C20DA2972D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643744   (232399) от 03.07.2023
+
+AnyMP4 Blu-ray Ripper for Mac 9.0.36 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232399.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 Blu-ray Ripper разработан с наиболее эффективными решениями для копирования дисков Blu-ray в любой популярный видеоформат, такой, как MP4, TS, MKV, MOV, M4V, AVI, WMV, VOB, DivX, XviD, MPEG, F4V, WebM. и даже больше, и даже конвертировать Blu-ray в HD-видео 4K и 1080p с кодеком H.265, H.264, MPEG4, XviD, VP8, VP9 и другими. Он также извлекает фоновую музыку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.05.2023Разработчик: © 2023 AnyMP4 StudioПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский,  Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB4D1867F9B55D0D40F97BB87EA20D0DF3447DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640561   (232379) от 18.06.2023
 
 FastScripts 3.2.7 [En]
@@ -6,7 +58,7 @@ FastScripts 3.2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232379.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Tipard DVD Ripper for Mac 10.0.52 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232357.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ AnyMP4 DVD Ripper for Mac 9.0.58 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232349.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Exhibeo 2 v.2.0.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232301.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Recordia 2.6.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232163.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ NCH Crescendo Masters Pro 9.59 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232060.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Wallpaper Wizard 2 v.2.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231902.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Topaz Video Enhance AI for Mac 2.6.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231884.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Millumin 4 v.4.16.f [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231752.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Rogue Amoeba Farrago 2.0.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231641.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ HitPaw Photo Object Remover for Mac 1.1.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231533.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Path Finder 2158 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231501.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Aiseesoft DVD Creator 5.2.38 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231454.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Sound Siphon 3.5.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231304.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ BatchPhoto Pro for Mac 5.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231300.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Invisor - Media File Inspector 3.23 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231182.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Photo Image Editor Pixelstyle 4.1.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231169.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ DuplicateViewer Pro 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231153.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ DiskSlim - Disk Cleanup Pro 9.8.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231015.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Focus Professional 1.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230991.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ PopClip 2023.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230985.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ HitPaw Video Object Remover for Mac 1.2.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230934.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ HitPaw Video Converter for Mac 3.0.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230925.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Sloth 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230860.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ Sloth — это нативное приложение для Mac, которо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C44EF145F346A3FD91D70FA63271910F94937213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649003   (230741) от 25.07.2023
-
-Task Office 8.15 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подключите все свои календари к Task Office. Двусторонняя синхронизация работает с Apple iCal, Google Calendar, Exchange, Yahoo, Outlook и другими. После того как вы настроите соединение, все будет обновляться автоматически.Тип издания: macOS SoftwareРелиз состоялся: 24.07.2023Разработчик: © 2015 – 2023 by DK ConsultingПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:137F0C6A6FFFE776278AFBF1A629D65D4FAA7EEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648713   (230732) от 24.07.2023
-
-LaunchControl 2.4 U2B [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230732.jpg" />
-</div>
-
-
-###  Подробнее
-
-LaunchControl — это полнофункциональный графический интерфейс запуска, позволяющий создавать, управлять и отлаживать системные и пользовательские службы на вашем Mac.
-С LaunchControl вы сразу видите все службы и их соответствующий статус. Недействительные службы выделяются, и предоставляется описание проблемы. Вы можете включить или отключить услуги одним щелчком (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.05.2023Разработчик: © 2009–2022 soma-zoneПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACDD0EF6E78E5A64D17A368C8DF574EC6EF6084
 ```
 
 https://mybot314.ru/tekegram_catalog/

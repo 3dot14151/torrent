@@ -1,3 +1,55 @@
+###  Публикация: 1309101   (552682) от 17.06.2019
+
+S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Multi] (1.5.10) Steam-Rip ORiGiNS
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет «S.T.A.L.K.E.R.: Чистое Небо» переносит игроков за год до событий оригинальной игры S.T.A.L.K.E.R. в 2011 год. Группа сталкеров впервые подобралась к самому сердцу Зоны - Чернобыльской АЭС, спровоцировав катаклизм, который едва не привел к катастрофе. Грандиозный Выброс аномальной энергии изменяет Зону. Проверенных и относительно безопасных дорог больше нет. (   Читать дальше...   )Тип издания: Steam-RipРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Украинский, Английский, Немецкий и другиеЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD23EA2A0EAE59F2582646FDCA2E91A44FDB3E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309261   (551827) от 18.06.2019
+
+Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551827.jpg" />
+</div>
+
+
+###  Подробнее
+
+У него зеленая кожа в красную крапинку, присоски вместо ладоней и неправильный прикус. Зовут его Космо, он – юный инопланетянин, которого родители везут в известный на всю галактику парк аттракционов. Все идет хорошо, покуда в космический корабль семьи Космо не попадает шальная комета. Приходится совершить аварийную посадку на неизученной планете.Тип издания: LicenseРазработчик: Apogee Software, Ltd.Жанр: Экшн, Аркада, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C151339DAECF402A200B8C8CB61AA625C93A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046283   (551628) от 27.08.2016
 
 Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV (2005) [Ru/En] (1.01/1.0) [Mod] Unofficial
@@ -6,7 +58,7 @@ Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV (2005) [Ru/En] (1.01/1.0) 
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551628.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Krush Kill ‘N Destroy 2: Krossfire (1998) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550862.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Ghost Master / Повелитель ужаса (2003) [Ru/En] (1.0/upd1) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550730.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ MTX Mototrax (2004) [Ru/En] (1.0) Rip NeoGame
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550723.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Strategic Command: European Theater / Вторая мировая: Страте�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546261.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546099.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Giants: Citizen Kabuto (2000) [Multi] (1.400) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545402.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Star Wars: Galactic Battlegrounds Saga (2002) [Ru/Multi] (1.10/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543378.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sudden Strike: Resource War / Sudden Strike: Битва за ресурсы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542208.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Battle Chess (1994) [En] (1.0) License GOG [Special Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542087.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540418.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Descent: Freespace (1998) [En] (1.06/dlc) License GOG [Battle Pack]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540331.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Prehistorik 2 (1993) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540323.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Prehistorik (1991) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540318.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Speed Busters: American Highways (1998) [En] (1.0.0.1) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537883.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Star Wars: Shadows of the Empire (1997) [En] (2.2.0.11 GOG) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537771.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Nascar Racing + Nascar Racing 2 (1994-1996) [En] Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537023.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Undercroft (2006) [En] (1.2) Repack dark_elf2
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536816.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Army Men 3: Toys in Space (1999) [En/Multi] (1.0.0.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536088.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534688.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Star Wars: Jedi Knight - Jedi Academy (2003) [Ru/En] (1.01) Rip R.G. Механ�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534677.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ MX vs. ATV Unleashed (2006) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534069.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Imperialism 2: The Age of Exploration (1999) [En] (1.03) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533842.jpg" />
 </div>
 
 
@@ -604,65 +656,13 @@ Airlines 2 [Ru] (RePack) 2002 | RG Games\Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532310.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Стратегическая игра. Вам предстоит управлять авиакомпанией(   Читать дальше...   )Тип издания: RePackРазработчик: InterActive Vision GamesЖанр: Экономический симулятор, бизнес стратегияЯзык озвучки: -\-Язык интерфейса: Русский (7 волк)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533382   (532303) от 10.08.2012
-
-State of Emergency [Ru] (RePack) 2002 | RG Games/Pilotus
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аркадный и в чём-то близкий к beat-em’up’у action от третьего лица, портированный с приставок, посвящённый вечной теме – борьбе против «Системы». Действие происходит в Америке недалёкого будущего, где вся власть находится в руках деспотичной торговой мегакорпорации (тем не менее, никаких элементов киберпанка в частности или фантастики вообще в игре нет). Игрок выступает в роли «отброса общества», присоединившегося к обязательно существующему в подобных случаях движению Сопротивления с целью свержения режима.(   Читать дальше...   )Тип издания: RePackЖанр: Экшен от третьего лица, Beat 'em upЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533360   (532191) от 10.08.2012
-
-Bedlam [Ru] (RePack) 1996 | RG Games/Pilotus
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практически полностью забытая первая часть дилогии изометрических action'ов про боевых роботов. Сюжет – роботы восстали против своих хозяев-людей, и мы – ура! – играем за команду роботов, вооружённых здоровенными пушками и сражающихся с угнетателями из плоти и крови. Чаще всего в миссиях нашей главной целью является разрушение какого-либо важного человеческого объекта. Как правило, под нашим руководством находится отряд из трёх роботов.(   Читать дальше...   )Тип издания: RePackЖанр: Изометрический экшен от третьего лицаЯзык озвучки: -\-Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash

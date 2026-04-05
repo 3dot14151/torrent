@@ -1,3 +1,61 @@
+###  Публикация: 1205603   (782955) от 12.02.2018
+
+VA - Vocal Trance 2k18 Vol.2 (2018) [MP3|320 Kbps] <Trance, Hard Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Solosizer  -  Now (Original Mix)  5:04
+02.  Sublimity  -  Angels (Original Mix)  3:18
+03.  Chris Spring  -  Now (Trance Cut)  3:03
+04.  DJ Rosso  -  Make Me Wonder (Trancephonic Radio Edit)  3:32(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 03:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400C5972588F90DFB84B2693942F1DE358CA3100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206252   (782560) от 13.02.2018
+
+VA - Trance In Space 3 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sun Liquide  -  Celebrate The Light (Rene Ablaze Radio Edit)  3:57
+02.  TrancEye  -  Skylight (Radio Edit)  3:21
+03.  Opt-In  -  Zura (Radio Cut)  4:00
+04.  Maximal  -  Subject Lost (Radio Cut)  3:20(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B5EC6C21885EB8F791A354F2C11A4A6D47050E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206243   (782543) от 13.02.2018
 
 VA - Cold Rush - Collected (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
@@ -6,7 +64,7 @@ VA - Cold Rush - Collected (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782543.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Ferry Corsten - Blueprint (Remixed) (2018) [MP3|320 Kbps] <Trance, Progressive T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782535.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Progressive Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782158.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Global DJ Broadcast - Top 20 February (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780602.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Melodic Trance Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance, Melodic Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780427.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Black Hole Trance Music 02-18 (2018) [MP3|320 Kbps] <Trance, Progressive Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780423.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Future Vocal Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780418.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Nothing But... The Future Of Trance Vol.06 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780313.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Manuel Rocca - The Soul Healer (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780303.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Best Of Trance 2018 Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780101.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Subculture (Mixed By John O'Callaghan & Cold Blue) (2018) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779533.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Black Hole Presents Best Of Vocal Trance 2018 Vol 1 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779525.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Vocal Hits Vol.4 (2018) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779524.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Future Trance Vol.83 (2018) [MP3|320 Kbps] <Trance, Progressive House, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779133.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Suanda Music Radio Top 15 March (2018) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778268.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Redux Presents: The Uplifting Selection Vol.1 (2018) [MP3|320 Kbps] <Uplift
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778242.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Total Trance Selections Vol.09 (2018) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778236.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Soul Contact Vol.1 (Mixed by Sam Laxton) (2018) [MP3|320 Kbps] <Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778234.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Future Sound of Egypt 500 (2018) [MP3|320 Kbps] <Trance,Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778193.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Dark Miami (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777592.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Progressive Trance Vol.2 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777282.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Vocal Anthems Miami (2018) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777247.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Festival Anthems Vol.3 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776554.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Recoverworld Radio 006 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775859.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Recoverworld Radio 006 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90FD43A8CAEB2A9D0F7369E8E8BCE62A7B84A920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212517   (775221) от 13.03.2018
-
-VA - Amsterdam Trance Sessions Vol.15 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Digital Rush  -  There Is Love (Radio Mix)  4:04
-02.  Alphadelta  -  All Your Words (Original Mix)  4:37
-03.  Erika K  -  Equus (Original Mix)  6:31
-04.  Denis Sender & Tycoos  -  Collabro 2.0 (Original Mix)  3:37(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0352EAA7965E8BDAD6B27AAECD6387C02925C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277798   (775160) от 22.01.2019
-
-VA - D.MAX Recordings: Best of 2018 (Mixed by Bryan Summerville & Dave Cold) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novan Aery - Quasar (Original Mix)
-02. D4souL - Mario (Original Mix)
-03. AC - Gale (Original Mix)
-04. Age&Why - Don't send Me Away (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A634EA4CB3E502AB105588DFA7C204EE26F6A261
 ```
 
 https://mybot314.ru/tekegram_catalog/

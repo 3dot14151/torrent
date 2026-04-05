@@ -6,7 +6,7 @@ Konstantin Klashtorni - Smooth Essence (The Best Of) (2022) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179900.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ George Freeman - Rebellion (1995) Southport Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179714.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ George Freeman - George Burns! (1999) Southport Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179704.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ John Coltrane With Eric Dolphy - Evenings At The Village Gate (1961) 2023, Impul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179682.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Yussef Dayes - Black Classical Music (2023) [FLAC|Lossless|tracks + .cue] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179665.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ George Freeman - The Good Life (2023) [FLAC|Lossless|tracks + .cue] <Hard Bop, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179656.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Scherzoo - 05 (2020) [FLAC|Lossless|image + .cue] <Zeuhl, Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179381.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Clark Terry - Live At The Village Gate (1991) Chesky Records [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179365.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lee Wiley - Sings the Songs of George & Ira Gershwin & Cole Porter (1939 - 1940)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179361.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Herb Geller - Plays The Arthur Schwartz Songbook (2005) Hep Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179013.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ J.C. Heard & Bill Perkins Quintet - Live At The Lighthouse (1964) 2018, Fresh So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178983.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Kenton Presents Bob Cooper, Bill Holman & Frank Rosolino (1954 - 1961) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178811.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sonny Clark Trio - Complete Studio Recordings (1954 - 1960) 3CD, 2007, Gambit Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178465.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ George Shearing - Easy To Love (1953, 1954) 2014, Sounds Of Yester Year [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178436.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jukkis Uotila & The Stockholm Jazz Orchestra - The Music Of Jukkis Uotila (2012)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178169.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Bud Powell - Birdland (1953) 3CD, 2013, ESP Disk' [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177710.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jack McDuff - The Concert McDuff (1963 - 1966) 2002, Prestige [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177625.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mike Wofford - Live At Maybeck Recital Hall, Vol. 18 (1992) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177442.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Ellis Marsalis Trio - Twelve's It (1998) Columbia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177434.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Sonny Rollins & Heikki Sarmanto Trio - Live at Finlandia Hall Helsinki (1972) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177038.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Charlie Parker - Jazz Giants (1994) Universe [FLAC|Lossless|image + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176872.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Illinois Jacquet - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176862.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Joey Alexander - Warna (2020) Verve Records [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176854.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Quarantine Doom Jazz vol. 3 (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176847.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Headin' For The Christmas Ball (2020) [FLAC|Lossless|image + .cue] <Jazz, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176784.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ron Carter - Finding The Right Notes (2022) In+Out Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176260.jpg" />
 </div>
 
 

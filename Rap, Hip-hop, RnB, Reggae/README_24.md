@@ -1,32 +1,3 @@
-###  Публикация: 1184167   (301074) от 17.11.2017
-
-ATL - Дисторшн [EP] (2017) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ангелы
-02. Не беда
-03. Сплин
-04. Хелта Скелта(   Читать дальше...   )Жанр: RapПродолжительность: 00:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3896BA3A333B35F74234151E8E2C32225FD643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961218   (301031) от 01.12.2015
 
 Nana - Father (1998) [FLAC|tracks+.cue]<RnB, Swing, Pop Rap>
@@ -35,7 +6,7 @@ Nana - Father (1998) [FLAC|tracks+.cue]<RnB, Swing, Pop Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301031.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Jubilee - Меланхолия Drive 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300251.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Bumble Beezy - Nosebleed (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300089.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ ST1M, СД - Аггро 2.0 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299940.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Kizaru - BORN TO TRAP (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299800.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299668.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299654.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299638.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Guf & Slim - GUSLI II (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298613.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Napoleon Solo - Open Channel D (2018) [MP3|320 Kbps] <Jamaican Ska, Reggae, Rhyt
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298588.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Lenin & Карандаш - После шоу (2016) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295768.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294083.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ The 27 Bridges Of Kaya - UNDAJAZZBIT (2017) [MP3|320 Kbps] <Jazzy Hop, Instrumen
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293309.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Rick Rock - Rocket The Album (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293151.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Schnitt - Die Nacht der langen Messer (2011) [MP3|320 Kbps] <German Hip-Hop, Rap
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291522.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Boogie Funk Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, RnB>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290970.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ The Chemodan - Абсурд и аллегория (2015) [MP3|320 кб/с]<Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290618.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Noize MC - *кустик* (2015) Live [MP3|320 кб/с]<Acoustic, Rap, Alternati
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290608.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Apollo Brown - Sincerely, Detroit (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289575.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ The 27 Bridges Of Kaya - UNDAJAZZBIT (2017) [FLAC|Lossless|Web-DL|tracks] <Jazzy
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285849.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285745.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Shaggy - Boombastic (1995) [FLAC|tracks+.cue]<Ragga HipHop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285464.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Guf (Гуф) - Ещё (2015) [FLAC|Lossless|tracks + .cue] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283292.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281896.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ KillaGram - Возвращение легенды (2019) [MP3|192 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278961.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ KillaGram - Возвращение легенды (2019) [MP3|192 Kbps] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:247AB3D85F6E68AD10FC2555AB62B23B256F2284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265153   (276418) от 26.11.2018
+
+Вася В. (Кирпичи) - Триумф (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Йоу, православные (feat. DJ-108)
+02. Один за всех (feat. Стас Сытник)
+03. Миру мир (feat. Дмитрий «Фео» Порубов, Маша Макарова и Децл aka Le Truk)
+04. Созерцатель (feat. Nos MC и MC DannyBoy)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7066B4F8CEAA42E76B24E2720BE0006D67F4614
 ```
 
 https://mybot314.ru/tekegram_catalog/

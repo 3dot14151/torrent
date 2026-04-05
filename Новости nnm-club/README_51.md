@@ -1,3 +1,29 @@
+###  Публикация: 996132   (880265) от 13.03.2016
+
+Pinnacle Studio Ultimate 19.1.3 + Bonus Content [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоредактор Pinnacle Studio 19 Ultimate очень популярен среди пользователей, которые занимаются созданием и редактированием видеоконтента. Представляем обновленную версию этой программы от мирового лидера в сфере профессиональных видео- и аудиотехнологий - компании Corel. Скорость просчета в новой версии возросла до 10-ти раз благодаря обновленному «движку» и поддержке (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDE1FD564A2D9754517A8BA4492DE53DE3A026E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996189   (880262) от 13.03.2016
 
 Труп Анны Фритц / El cadaver de Anna Fritz (2015) BDRip [AVO]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880262.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880258.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Never Alone (2014) [Ru/Multi] (1.7.0/dlc) SteamRip  Let'sPlay
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880253.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880242.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879591.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879134.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879131.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878984.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878595.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ ViNTERA.TV v3.1.457 [Ru/En] - просмотр сотен телевизионн
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878592.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ CyberLink PowerDirector Ultimate 14.0.2707.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878447.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878441.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878420.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878357.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878179.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Acronis True Image 2020 Build 25700 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877927.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Rollback Rx Professional 10.5 Build 2702327820 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877543.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ SolidWorks Premium Edition 2017 SP 2.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877531.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_877067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_877067.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877052.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Life is Strange: True Colors (2021) [Ru/Multi] (1.1.190.624221) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876952.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876857.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876653.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ V-Ray 3.30.04 for 3ds Max 2016 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876575.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876571.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7948ED9DF18E0415E553269F32655675EFE5B4A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 136594   (876502) от 28.03.2010
-
-Светлячок / Firefly (2002) DVDRip [H.264] (сезон 1, серии 1-14 из 14) Tycoon
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Малькольм Рейнольдс — закаленный в боях ветеран галактической гражданской войны, сражавшийся не на той (проигравшей) стороне, зарабатывает на жизнь мелкими преступлениями и перевозит грузы на своем корабле «Серенити».Он возглавляет небольшую разношерстную команду, которая порядком смахивает на самую обычную семью — ее члены вечно ссорятся, не соблюдают дисциплину, (   Читать дальше...   )Производство: США | Mutant Enemy,20th Century Fox TelevisionЖанр: Фантастика, ПриключенияРежиссер: Джосс Уидон, Верн Джиллам, Тим МайнирАктеры: Натан Филлион, Джина Торрес, Алан Тьюдик, Морена Баккарин, Адам Болдуин, Джевел Стэйт, Шон Мехер, Саммер Гло, Рон Гласс, Кристина ХендриксПеревод: Двуголосый профессиональный (Tycoon)Продолжительность: ~01:27:00 (1-я серия), ~ 00:44:00 (2-14 серии)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

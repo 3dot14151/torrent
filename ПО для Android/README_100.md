@@ -1,3 +1,110 @@
+###  Публикация: 1681444   (132588) от 03.12.2023
+
+AR Ruler App: Линейка Рулетка v2.7.4 Mod by Timozai [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132588.jpg" />
+</div>
+
+
+###  Подробнее
+
+ARuler - лучшее и бесплатное приложение на Android для измерений, использующее технологию дополненной реальности (Augmented reality или кратко AR)! Приложение AR Ruler использует технологию дополненной реальности (AR) для измерения различных предметов с помощью камеры вашего смартфона. Просто нацельтесь на обнаруженную горизонтальную плоскость и начните измерять!Тип издания: ProРелиз состоялся: 22.11.2023Разработчик: GrymalaПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196828EA7BB82A2B01FB87A8C427A37647B3FEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667415   (132545) от 03.12.2023
+
+OBDeleven VAG car diagnostics v0.76 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение OBDeleven VAG в сочетании с устройством OBDeleven NextGen предназначено для того, чтобы дать всем энтузиастам и профессионалам Volkswagen Group (VAG) больший контроль над своими автомобилями. Благодаря простому в использовании и интуитивно понятному интерфейсу вы сможете вносить расширенные изменения, модификации и индивидуальные настройки вашего автомобиля.Тип издания: ProРелиз состоялся: 24.11.2023Разработчик: Voltas IT, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F02386C694E65DFCC90CF22DCE45B031B715F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681474   (132505) от 03.12.2023
+
+Planner 5D - дизайн интерьера v2.8.8 Mod by App_modz [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте дизайн интерьера для вашего дома в 3d в вашем любимом стиле. Постройте дом с Planner 5D, создавая план комнат и этажей. Вы можете легко воплотить любой интерьер или архитектурный дизайн дома, использовать готовые проекты и добавить к ним свой дизайн, мебель, декор, полы и т.д. В Planner 5D вы можете без ограничений выбирать дизайна этажа, создавать план (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 02.12.2023Разработчик: Planner 5DПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A318C9DB91710EAF19D7503EA9A5B31761D9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682172   (131780) от 06.12.2023
+
+Melon VPN - Secure Proxy VPN 7.9.633 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Melon VPN - это быстрый, неограниченный, стабильный и полезный VPN (виртуальная частная сеть).
+Обходите ограничения местоположения на сверхбыстрых скоростях.
+Обходите географические ограничения и интернет-фильтры, пока вы на работе или в школе.
+Наслаждайтесь несколькими прокси-серверами и несколькими режимами VPN, чтобы обойти заблокированные веб-сайты и приложения, (   Читать дальше...   )Тип издания: ModРазработчик: Inf Security StudioПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBE9E3A0F4FADE9ECF944EE6EAD7AEEACE600CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633007   (131616) от 06.12.2023
 
 Радионет (радио онлайн) v2.03 [Ru/En]
@@ -6,7 +113,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131616.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131479.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Melon VPN - Secure Proxy VPN 7.9.633 Mod By ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131336.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ VPN Inf - Security Fast VPN 7.6.301 Mod by ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131333.jpg" />
 </div>
 
 
@@ -115,7 +222,7 @@ XY VPN - Security Proxy VPN 4.7.329 Mod by ModdingUnited [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131315.jpg" />
 </div>
 
 
@@ -141,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131253.jpg" />
 </div>
 
 
@@ -167,7 +274,7 @@ Speedtest от Ookla 5.2.4 Mod by LEEAPK [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131104.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ Powerful RAM Monitor Pro v10.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131014.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ UPlayer Pro v2.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130458.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ UPlayer Pro v2.0.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130442.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ Numia: Астрология и Гороскопы v2.0.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130115.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ eWeather HDF погода и барометр v8.5.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129745.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ Tap To Translate Screen v1.41 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129723.jpg" />
 </div>
 
 
@@ -353,7 +460,7 @@ Wheel Size v2.10.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129711.jpg" />
 </div>
 
 
@@ -382,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129679.jpg" />
 </div>
 
 
@@ -409,7 +516,7 @@ Bluetooth Printer, USB, Receipt v4.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129654.jpg" />
 </div>
 
 
@@ -435,7 +542,7 @@ Jillian Michaels | Fitness App v4.4.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129651.jpg" />
 </div>
 
 
@@ -461,7 +568,7 @@ MyFuelLog2 v1.8.12 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129649.jpg" />
 </div>
 
 
@@ -490,7 +597,7 @@ SKRWT Pro v1.5.1 [Ru/Multi]  (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129455.jpg" />
 </div>
 
 
@@ -516,7 +623,7 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129432.jpg" />
 </div>
 
 
@@ -543,7 +650,7 @@ FamilyGo v4.2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129345.jpg" />
 </div>
 
 
@@ -569,7 +676,7 @@ Photo Sherlock v1.130 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128953.jpg" />
 </div>
 
 
@@ -580,110 +687,6 @@ Photo Sherlock v1.130 Mod by Mixroot  [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E7201DF2C247BB2C39250C7D62E2D01B8E8CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824258   (128951) от 14.10.2025
-
-BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как часто Вы что-либо забываете сделать? С помощью этой напоминалки Вы можете ПРОСТО ПОМНИТЬ ВСЁ И ВСЕГДА! Вы можете легко контролировать все задачи, находящиеся в Вашем списке дел, и быть уверенным что Вы их сделаете. Удобное и функциональное приложение для создания, использования и управления напоминаниями. В наличии возможность поделиться напоминаниями.Тип издания: ProРелиз состоялся: 14.10.2025Разработчик: Atlas ProfitПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59C94798D01A1E92E6A2E44FFDA47EA8F47BAB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824253   (128942) от 14.10.2025
-
-График смен v8.5.4 Mod by AlexStrannik [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128942.jpg" />
-</div>
-
-
-###  Подробнее
-
-График смен - удобный и простой календарь, позволяющий рассчитывать и просматривать рабочие смены.Тип издания: PremiumРелиз состоялся: 14.10.2025Разработчик: Lili PetrikПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A23DD6E89A14EEA76B346DD65EF73BDCFEADA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683375   (128767) от 10.12.2023
-
-МДС | Модель для Сборки - аудиокниги v19.10 Mod by viktorovich31 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128767.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Модель для сборки» (сокращённо МДС) - культовая российская радиопередача. Одно из самых известных радиошоу в сегменте авторских программ. Впервые начала выходить на радио в 1995 году. МДС - радиопостановки произведений современной прозы в сопровождении электронной музыки. Приложение является каталогом крупнешего архива МДС mds-club.ru от фанатов с расширенными возможностями: (   Читать дальше...   )Тип издания: Free + ModРелиз состоялся: 08.10.2023Разработчик: Anton BalashovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED8EE9A578DF459359858F0B4803AE52FEC53DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682938   (128752) от 10.12.2023
-
-PaperColor v2.8.7 Mod by TryRoom [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128752.jpg" />
-</div>
-
-
-###  Подробнее
-
-PaperColor - превосходное приложение для рисования, которое имитирует рисование кисти и рисование граффити. Легко рисовать, учиться рисовать! У нас разные стили кисти и цветовая библиотека. Помочь вам в создании идеальных произведений искусства. Если вы в путешествии, остаетесь один, на вечеринке или просто хотите тратить время на самолет ， Это лучшее приложение, (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 08.12.2023Разработчик: ColorfitПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDFB705C3CCECA92C611B8FF4B65BBE9EC6A727
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1036756   (613569) от 24.07.2016
-
-Ларри Гастингс | Убирая ГБИ из Питона: Гилектомия (2016) HDTV
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613569.jpg" />
-</div>
-
-
-###  Подробнее
-
-На сколько реально избавиться от ГБИ (GIL) в Питоне, чего это будет стоить и как это можно сделать. Обо всём этом, а также о проекте «Гилектомия» в подробностях рассказывает один из разработчиков интерпретатора CPython.Жанр: ПрограммированиеПродолжительность: 00:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3D6D55562233A8C2CE574F1845812F0B183A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036749   (613565) от 24.07.2016
 
 Дэвид Бизли | Познавая ГБИ Питона (2010) WEBRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613565.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ google | Сборник видеоуроков по Python [2006-2008] [EN] CamR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611935.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611291.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610995.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ Udemy | Фундаментальный курс по основам C# .NET (201
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609801.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ Convert Monster | Эффективный Яндекс.Директ 2.0 (2015) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608180.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ Udemy | Игры со спрайтами на C# (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608058.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607272.jpg" />
 </div>
 
 
@@ -248,7 +222,7 @@ Lynda.com | Использование регулярных выражений (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607261.jpg" />
 </div>
 
 
@@ -274,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607182.jpg" />
 </div>
 
 
@@ -303,7 +277,7 @@ Udemy | Java. Клиент-серверное приложение. Многоп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605997.jpg" />
 </div>
 
 
@@ -329,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605041.jpg" />
 </div>
 
 
@@ -355,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604622.jpg" />
 </div>
 
 
@@ -382,7 +356,7 @@ Udemy, Serhii K | Practical OpenGL and GLSL shaders fundamentals with C++ (2019)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604240.jpg" />
 </div>
 
 
@@ -410,7 +384,7 @@ Geekbrains | PHP. Уровень 1 Основы веб-разработки (201
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599251.jpg" />
 </div>
 
 
@@ -436,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597295.jpg" />
 </div>
 
 
@@ -465,7 +439,7 @@ Javascript.Ninja | Базовый React (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593589.jpg" />
 </div>
 
 
@@ -491,7 +465,7 @@ Udemy, Михаил Непомнящий | Компетенция Верстал
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593099.jpg" />
 </div>
 
 
@@ -517,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592823.jpg" />
 </div>
 
 
@@ -543,7 +517,7 @@ Udemy, YouRa Allakhverdov | Современный JavaScript - с Нуля до
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592719.jpg" />
 </div>
 
 
@@ -572,7 +546,7 @@ Udemy, Basar Buyukkahraman | Spring Boot and React with Test Driven Development 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592566.jpg" />
 </div>
 
 
@@ -598,7 +572,7 @@ Udemy, Михаил Непомнящий | Redux для управления с�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592555.jpg" />
 </div>
 
 
@@ -625,7 +599,7 @@ Udemy, Михаил Непомнящий | React с нуля для начина
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592551.jpg" />
 </div>
 
 
@@ -651,7 +625,7 @@ Udemy, Alex Marshal | Автоматизация тестирования Java +
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592550.jpg" />
 </div>
 
 
@@ -678,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592167.jpg" />
 </div>
 
 
@@ -692,6 +666,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:938E09494BB1E74B6D8472046D0AFCF40E2BA1A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550499   (592027) от 11.05.2022
+
+Udemy, Oleksandr Kocherhin | Практический курс по Lodash (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592027.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы научимся писать на Javascript используя популярную библиотеку для транформации данных - Lodash. Javascript не имеет достаточно функций и не все из них гибкие, чтобы покрыть все наши потребности, поэтому нам необходим Lodash, чтобы писать эффективный и кроссбраузерный код. Весь код будет написан с помощью небольших чистых функций, которые легко поддерживать, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 04:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385D55CA38A5B9AE075FFDAB2F4D19A9D289C84E
 ```
 
 https://mybot314.ru/tekegram_catalog/

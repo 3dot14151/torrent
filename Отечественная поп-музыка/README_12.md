@@ -1,32 +1,3 @@
-###  Публикация: 1032171   (647526) от 06.07.2016
-
-Guru Groove Foundation - Over You (2016) EP [MP3|320 Kbps] <Dancepop, Funk, Neo Soul>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bomb
-02. Over You
-03. As Much As You Say
-04. When HeЖанр: Dancepop, Funk, Neo SoulПродолжительность: 00:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423727F6458B7D8B3CEA82BF18836B14461E94CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516946   (647145) от 01.07.2012
 
 Ранетки - Верните Ранеток!!! (2012) [MP3|320 kbps] <Pop>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647145.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646860.jpg" />
 </div>
 
 
@@ -99,7 +70,7 @@ Mad Show Boys - Чудо из ниоткуда (2020) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646857.jpg" />
 </div>
 
 
@@ -128,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646698.jpg" />
 </div>
 
 
@@ -157,7 +128,7 @@ Artik & Asti - 7 (Part 1) (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646542.jpg" />
 </div>
 
 
@@ -186,7 +157,7 @@ Mad Show Boys - Включите улыбальнички (2011) [MP3|320 Kbps] 
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645035.jpg" />
 </div>
 
 
@@ -215,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644994.jpg" />
 </div>
 
 
@@ -241,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643557.jpg" />
 </div>
 
 
@@ -270,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642753.jpg" />
 </div>
 
 
@@ -305,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642710.jpg" />
 </div>
 
 
@@ -334,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642579.jpg" />
 </div>
 
 
@@ -363,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642437.jpg" />
 </div>
 
 
@@ -392,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641698.jpg" />
 </div>
 
 
@@ -421,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641619.jpg" />
 </div>
 
 
@@ -450,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641175.jpg" />
 </div>
 
 
@@ -479,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639737.jpg" />
 </div>
 
 
@@ -508,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639083.jpg" />
 </div>
 
 
@@ -537,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638927.jpg" />
 </div>
 
 
@@ -566,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637872.jpg" />
 </div>
 
 
@@ -595,7 +566,7 @@ Natasha Morozova (Наташа Морозова) - Перелётные птиц
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637117.jpg" />
 </div>
 
 
@@ -624,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636916.jpg" />
 </div>
 
 
@@ -659,7 +630,7 @@ MOLLY - Косатка в небе (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635363.jpg" />
 </div>
 
 
@@ -688,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632857.jpg" />
 </div>
 
 
@@ -723,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631491.jpg" />
 </div>
 
 
@@ -752,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628666.jpg" />
 </div>
 
 
@@ -772,6 +743,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530B92DF2AF51AE9A9D5F78E0326F14013EB7EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909445   (628350) от 17.06.2015
+
+Банума - По венам моим - океаны (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По венам моим - океаны (04:22)
+02. With u (При уч. Кот Балу) (03:45)
+03. Стоп мысли (04:38)
+04. Не хватает фраз (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E024F049A05968AD3BF7B31B9D372F8DF235A7B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

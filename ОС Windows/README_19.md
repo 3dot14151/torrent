@@ -1,3 +1,29 @@
+###  Публикация: 1252211   (410578) от 04.10.2018
+
+Microsoft Windows Server 2019 RTM, Version 1809 Build 10.0.17763.1 - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2019 - это операционная система, которая объединяет локальные среды с услугами Azure, позволяя гибридные сценарии и максимизируя существующие инвестиции. Windows Server 2019 был разработан, чтобы позволить Разработчикам и ИТ-профессионалам создавать облачные среды и модернизировать свои традиционные приложения, используя контейнеры и микросервисы. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188D441BCF6FAC56F9FDC5BD53330E6BA38FF399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252170   (410574) от 04.10.2018
 
 Microsoft Windows Server 2019 RTM, Version 1809 Build 10.0.17763.1 - Оригинальные образы от Microsoft MSDN [Ru]
@@ -6,7 +32,7 @@ Microsoft Windows Server 2019 RTM, Version 1809 Build 10.0.17763.1 - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410574.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Microsoft Windows 10.0.17763.1 Enterprise LTSC Version 1809 - Оригиналь
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410573.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Recovery Partition for Samsung RC720 / Windows 7 Home Premium (х64)
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_403320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_403320.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Recovery DVD for Toshiba Satellite L730 / Windows 7 Home Premium (х64) SP1
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398658.jpg" />
 </div>
 
 
@@ -121,7 +147,7 @@ Microsoft Windows Server 2012 Storage Server and Foundation (x64) [Ru/En]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_394373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_394373.jpg" />
 </div>
 
 
@@ -147,7 +173,7 @@ Windows 10, Version 2004 with Update [19041.546] AIO (x86-x64) by adguard (v20.0
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386693.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_386642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386642.jpg" />
 </div>
 
 
@@ -202,7 +228,7 @@ Microsoft Windows Server 2008 SP2 (x64-x86) VOLUME [RUSSIAN]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_386637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386637.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385105.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ Recovery USB-Flash for Lenovo IdeaPad 300-15IBR / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384163.jpg" />
 </div>
 
 
@@ -283,7 +309,7 @@ Recovery Partition for Samsung 300E5A / Windows 7 Home Basic (х64) SP1
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_377303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_377303.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375697.jpg" />
 </div>
 
 
@@ -337,7 +363,7 @@ Windows 7 Ultimate SP1 x86x64 By Vladios13 v.09.10 [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374485.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ Asus Transformer book trio (Asus TX201LA) usb recovery [Multi/Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372198.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371224.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ Windows x64 Plus Office Release by StartSoft 03-2020 [Ru]
 >>Сборки Windows - всё в одном
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371174.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ Microsoft Windows 10.0.18362.356 Version 1903 (September 2019 Update) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367391.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ Microsoft Windows 10.0.18362.356 Version 1903 (September 2019 Update) - Ориг
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365078.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ Windows 10 Домашняя 1709 x64 NVDA для незрячих. 2017.10.3 [Ru
 >>Сборки Windows для незрячих
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364791.jpg" />
 </div>
 
 
@@ -524,7 +550,7 @@ Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364686.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Windows 10 1803 Pro x86x64 By Vladios13 v.09.10 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362893.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362289.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Windows 10 Pro x64 2004.19041.572 2in1 Ост 2020 by Generation2 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362084.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357407.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ Windows 8 х64 для одного языка (OEM) [Русский]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_356835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_356835.jpg" />
 </div>
 
 
@@ -670,33 +696,6 @@ Windows 8 - Это операционная система Windows, переос
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417555   (355212) от 21.10.2020
-
-Microsoft Windows 10.0.19042.508 Version 20H2 - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.508.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542D1BA74DACA698CB9FFCD0194B33E832EB03AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

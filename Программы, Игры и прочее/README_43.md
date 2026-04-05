@@ -1,3 +1,107 @@
+###  Публикация: 1101110   (895700) от 06.02.2017
+
+Garmin: City Navigator Thailand 2016.40 (Dual) [En/Th]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карта Таиланда для навигаторов Гармин.Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: октябрь 2016Разработчик: Garmin / ESRI / NostraПоддерживаемая ОС: GarminЯзык интерфейса: Английский, Тайский (см. "Дополнительная информация")Формат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701A8ECAB1EBABB75EC426A0991F9F593CA5C69B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101772   (893985) от 07.02.2017
+
+YouTube Детям 2.07.1 [En]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальное приложение YouTube для детей.Тип издания: FreeРелиз состоялся: 07.02.2017Разработчик: Google IncПоддерживаемая ОС: Android: 4.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBFA149A2FD41F7FE570BAE6A47BAF540EAE0F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993837   (893117) от 06.03.2016
+
+PortraitPro v15.0 [En] - редактор портретных фотографий
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893117.jpg" />
+</div>
+
+
+###  Подробнее
+
+PortraitPro позволяет любому с легкостью улучшить портретные фотографии . Все аспекты фотографии могут быть улучшены с помощью простого и интуитивно понятного управления. Эксклюзивная технология Clearskin4 ™ автоматически распознает и исправляет дефекты кожи, с ручной подкраски кистью, позволяющей тщательно контролировать, где это необходимо. Применить фото-реалистичный (   Читать дальше...   )Тип издания: Пиратка (Full с Маркета)Релиз состоялся: 16.02.2016Разработчик: Anthropics TechnologyПоддерживаемая ОС: Android 4.2+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F8E70AD6B58939D89135590C86B207ED94431A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371149   (891663) от 30.03.2020
+
+Equalizer FX Pro 1.3.2 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любите слушать музыку? Так почему бы не насладиться ее отличным качеством? Приложение Equalizer FX Pro можно использовать для любого медиаплеера и даже на Вашем Android для регулирования громкости и улучшения качества звука, чтобы насладиться песнями различных исполнителей самых популярных жанров. Также оно визуализирует спектры и даёт возможность выбрать 1 из 6 (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.03.2020Разработчик: HowarJranПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A6C9AB3A07607D41CE0863829ACD26697CF7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102813   (888773) от 10.02.2017
 
 LocalAPK 2.0 Repack by Alex Zaguzin [Ru]
@@ -6,7 +110,7 @@ LocalAPK 2.0 Repack by Alex Zaguzin [Ru]
 >>Вспомогательное ПО для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888773.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888733.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ TextGrabber Офлайн Распознавание Текста + Перево�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_887245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_887245.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ ESET Mobile Security & Antivirus v6.3.66.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887043.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ Fallout Shelter 1.10 + Mod [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886853.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ Mapcam.info Radar detector v3.83.1107 [Ru/En]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885570.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884263.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884104.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ Adblocker Browser v80.0.2016123424 [Ru/Multi] - Adblock & блокировка �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883766.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883577.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883257.jpg" />
 </div>
 
 
@@ -300,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882248.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ Trigonometry. Unit circle / Тригонометрический круг v3.22 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881708.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880745.jpg" />
 </div>
 
 
@@ -380,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880551.jpg" />
 </div>
 
 
@@ -406,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879088.jpg" />
 </div>
 
 
@@ -432,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879079.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878759.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ MT File Manager 13.03.16 (Mod) [Ru] - Файловый менеджер с ра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878539.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ Snipback - Lifehacker smart voice recorder PRO HD 1.00 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878428.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ Password Depot For Android 14.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878421.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877075.jpg" />
 </div>
 
 
@@ -573,111 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAFCE0560423A355229F57B94491207E38B7B25A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997120   (876850) от 15.03.2016
-
-АлФа Шарики v1.0 Ad-Free [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучающее приложение для детей от 3х лет.  В игре ребенок изучает цвет. На игровом поле движутся изображения разноцветных надувных шариков. При нажатии на шарик произносится название цвета и шарик лопается. По шарикам можно стрелять, нажимая на кнопку на экране. Если шарик прошла экран и ребенок не нажал, уровень повторяется. В игре через каждые пять шариков и после (   Читать дальше...   )Тип издания: Free и Ad-Free (удалена реклама)Релиз состоялся: 15.03.2016Разработчик: Ltd InovatorПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB43391BF42D777C39628B320E6B238169AE790A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105443   (875984) от 17.02.2017
-
-Chess King - Шахматные курсы v 0.9.6 - 0.9.7 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полные курсы из серии Chess King, для обучения шахматам. В серию включены курсы по тактике, стратегии, дебютам, миттельшпилям и эндшпилям, которые разделены на уровни от начинающих до опытных шахматистов.
-"С помощью этих курсов вы сможете улучшить свои шахматные навыки, узнать новые тактические приемы и комбинации, а также закрепить полученные знания на практике. (   Читать дальше...   )Релиз состоялся: 01.01.2016Разработчик: Chess KingПоддерживаемая ОС: Android 2.3+Жанр: Настольные игрыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB94620EE65001C0D262B0651BB5194D9707A4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104970   (875865) от 17.02.2017
-
-Карты для iGO 8.3+ Europe HERE 2016.Q4
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карты для навигационного ПО NNG iGO и PNA/PDA на его основе (Becker, Blaupunkt, Pioneer, штатная навигация на многих автомибилях и т.д.) от HERE версии 2016.Q4Релиз состоялся: 2017Разработчик: HEREПоддерживаемая ОС: WinCE/Android/iOS (зависит от версии используемого навигационного ПО iGO)Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C423EA88A237DA121B3EF47CEF3A8EAB6C9F26F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104966   (875858) от 17.02.2017
-
-Карты для iGO 8.3+ (Primo, NextGen, Becker и т.д.) [Ru/Multi]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актуальные карты для навигационного ПО NNG iGO и PNA/PDA на его основе (Becker, BLAUPUNKT, Pioneer, штатная навигация на многих автомибилях и т.д.)Релиз состоялся: 2009-2017Разработчик: HERE, TomTom и другиеПоддерживаемая ОС: WinCE/Android/iOS (зависит от версии используемого навигационного ПО iGO)Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B641E62AEB6F98A96BC7CA3B8F5447C2DE45226
 ```
 
 https://mybot314.ru/tekegram_catalog/

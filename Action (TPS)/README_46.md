@@ -6,7 +6,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0.0.15) Repack Let'sР
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35892.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack dixen18 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35172.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Thing: Remastered (2024) [Multi] (1.0) Scene Skidrow
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34987.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.36/dlc) Repack seleZen [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34968.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.36/dlc) Repack FitGirl [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34639.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Legacy of Kain Soul Reaver 1-2 Remastered (2024) [Ru/Multi] (Build 16541638) Sce
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34559.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34479.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sifu (2023) [Ru/Multi] (1.28.6.720/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34453.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.07) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34448.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.07) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34438.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Legacy of Kain Soul Reaver 1&2 Remastered (2024) [Ru/Multi] (Build 16541638) Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34235.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ State of Decay 2 (2020) [Ru/Multi] (38/dlc) Repack FitGirl [Juggernaut Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34113.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ State of Decay 2 (2020) [Ru/Multi] (38.2/dlc) Repack Pioneer [Juggernaut Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33744.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Syphon Filter 2 (2000) [Ru/En] (1.0.0.1) Repack Ma2012ks
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33526.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Line's Guarder (2023) [Ru/Multi] (Update 10) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33509.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ SIFU (2022) [Ru/Multi] (1.28/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33422.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack se
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33201.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.42.46611/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32788.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (1.0.0.11/dlc) Repack seleZen [Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32481.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (1.0.0.11/dlc) Repack Let'sРlay [Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32455.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Wanterlude [Master 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32378.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ MediEvil: Trilogy (1998-2005) [Ru/Multi] (1.0.0.2/1.0.0.2/1.0.0.0) Repack Ma2012
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32366.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Cowboy 3030 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32222.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (1.1 patch 2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32164.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Grand Theft Auto IV (2020) [Ru/Multi] (1.2.0.59/dlc) Repack dixen18 [The Complet
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31863.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Project Tower (2025) [Ru/Multi] (1.0) Repack R.G. Freedom
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31768.jpg" />
 </div>
 
 

@@ -1,4 +1,144 @@
 https://t.me/izofen
+###  Публикация: 1861923   (1063821) от 
+
+Rebrain | PostgreSQL онлайн-практикум [Rebrain] (2023) [RU] (2023) WEB-DL
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа PostgreSQL by Rebrain охватывает основные аспекты работы с этой базой данных.Жанр: Онлайн-практикумЯзык озвучки: Русский, 1 chПродолжительность: 15:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EC6B0B8FFCD3BD80EAEDA77BE9162CAE413120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863081   (1063654) от 
+
+1С Учебный центр №1, Алексей Прокуровский | Разработка на технологии 1С:Предприятие.Элемент [базовый и профильный блоки] (2024) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063654.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1С:Предприятие.Элемент» — это совершенно новая технология разработки приложений, расширяющая границы применения системы «1С:Предприятие». Она позволяет создавать приложения, ориентированные как на бизнес, так и на обычных людей:
+Витрины (например: галерея-портфолио фотографов)
+Фронт-офисы, B2B- и B2C-кабинеты (личный кабинет)
+Headless-сервисы (сервис сборки мобильных (   Читать дальше...   )Производство: 1С Учебный центр №1Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 28:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE1C73241662578BE9B76D16BE60D79AF329208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863079   (1063652) от 
+
+OTUS, Евгений Волосатов | Алгоритмы и структуры данных [часть 1-5] (2022) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы расширите кругозор и получите опыт реализации классических алгоритмов, который поможет вам при создании собственных алгоритмов для решения бизнес-задач. Именно понимание принципов работы алгоритмов и структур данных позволяет повысить производительность программ и улучшить качество кода.
+В программу входят самые известные прикладные алгоритмы, знание которых, (   Читать дальше...   )Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 55:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313F31E328BD2EAC2CD19360CB1CA0D5D20BADAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862299   (1063156) от 
+
+Rebrain, Василий Озеров, Ольга Яновская, Fevlake | Networks сетевые технологии. Практикум (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знание сетевых технологий — это "букварь" в мире ИТ. Каждую секунду в мире передаются сотни террабайт трафика.
+Люди заказывают такси, покупают продукты, считают финансы и делают что-то в сети интернет.
+Если вы работаете в IT - ваша святая обязанность понимать как работают сети,
+хотя бы на начальном уровне, поскольку вы будете встречаться с ними на работе (   Читать дальше...   )Производство: RebrainЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 294:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BD3E88324AA0179DF429895D9A2FD09E95B118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862391   (1063128) от 
+
+Balun.Courses, Владимир Балун | System Design (2026) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подготовишься к трудоустройству в топовую IT-компанию на позицию middle+ - поймешь, из чего состоит system design интервью и научишься проходить его на реальной практике
+Узнаешь, как проектируются большие отказоустойчивые высоконагруженные системы
+Познакомишься с огромным количеством паттернов и приемов проектирования
+Узнаешь, как работают репликация, шардирование, (   Читать дальше...   )Производство: Balun.CoursesЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 17:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65467F0688AC663D790893165C508203221575A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861184   (1062649) от 
 
 OTUS, Виталий Юшкевич | Архитектор высоких нагрузок. Highload Architect (2025) PCRec [RU]
@@ -7,7 +147,7 @@ OTUS, Виталий Юшкевич | Архитектор высоких наг
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062649.jpg" />
 </div>
 
 
@@ -33,7 +173,7 @@ UBICODERS, Elliot Lee | Master the First Principles of Robotics/Базовый �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062343.jpg" />
 </div>
 
 
@@ -61,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062285.jpg" />
 </div>
 
 
@@ -88,7 +228,7 @@ javascript.ninja, Илья Климов | Эффективный TypeScript (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062168.jpg" />
 </div>
 
 
@@ -115,7 +255,7 @@ Gigaschool, Кристина Желтова и др. | LLM-инженер (2026)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061882.jpg" />
 </div>
 
 
@@ -141,7 +281,7 @@ Balun.Courses, Дмитрий Сафонов | Курс по Data Science дл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061265.jpg" />
 </div>
 
 
@@ -170,7 +310,7 @@ OTUS, Андрей Буранов, Алексей Цыкунов | Administrator
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061030.jpg" />
 </div>
 
 
@@ -197,7 +337,7 @@ karpov.courses, Ярослав Шуваев | RAG-боты и агенты LLM [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059894.jpg" />
 </div>
 
 
@@ -223,7 +363,7 @@ TutorPlace, Кирилл Калужских | Нейросети в HR (2025) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059891.jpg" />
 </div>
 
 
@@ -249,7 +389,7 @@ Balun.Courses, Даниил Булыкин | Паттерны отказоуст
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059366.jpg" />
 </div>
 
 
@@ -278,7 +418,7 @@ TutorPlace, Кирилл Калужских | Нейросети для марк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059315.jpg" />
 </div>
 
 
@@ -304,7 +444,7 @@ TutorPlace, Кирилл Калужских | Нейросети для эксп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059314.jpg" />
 </div>
 
 
@@ -330,7 +470,7 @@ Hot Walls Academy, Михаил Шапошников | Нейромейкер с
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059268.jpg" />
 </div>
 
 
@@ -356,7 +496,7 @@ TutorPlace, Кирилл Калужских | Нейросети в SMM (2025) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059266.jpg" />
 </div>
 
 
@@ -382,7 +522,7 @@ R&D-лаборатория Devhands, Николай Ихалайнен | Postgre
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059179.jpg" />
 </div>
 
 
@@ -408,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059167.jpg" />
 </div>
 
 
@@ -437,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058917.jpg" />
 </div>
 
 
@@ -463,7 +603,7 @@ LiveClasses, Антон Мартынов | Обзор возможностей K
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058915.jpg" />
 </div>
 
 
@@ -489,7 +629,7 @@ Sorokin School, Павел Сорокин | Многопоточность в Ja
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058881.jpg" />
 </div>
 
 
@@ -518,7 +658,7 @@ infostart, Александр Кунташов | Автоматизирован�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058050.jpg" />
 </div>
 
 
@@ -546,7 +686,7 @@ OTUS, Иван Федоров | Observability: мониторинг, логир�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057895.jpg" />
 </div>
 
 
@@ -559,138 +699,6 @@ OTUS, Иван Федоров | Observability: мониторинг, логир�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D46B7DB5800FF3C95D1A6312B0163E0FCF5AED89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854948   (1057894) от 20.02.2026
-
-Kobezzza, Андрей Кобец | Rust во Frontend (2026) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практический курс о том, как использовать Rust во фронтенде через WebAssembly. Вы научитесь писать программы и библиотеки на Rust, интегрировать их с JavaScript и Node.js, ускорять реальные фронтенд-проекты и раскрывать весь потенциал WebAssembly.Производство: KobezzzaЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 52:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6CE664AA5DF2CAC8D0DBA8588E66A44DB49436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854655   (1057740) от 19.02.2026
-
-Purpleschool, Антон Ларичев | Продвинутый Python (2026) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начнем с изучения объектно-ориентированного программирования на Python: исследуем такие темы, как классы, экземпляры, атрибуты и методы, а также важные концепции self и init, статические и классовые методы, property и dataclass. Одновременно вы освоите декораторы – от простейших декораторов-функций до декораторов с параметрами, углубитесь в декораторы методов и классов, (   Читать дальше...   )Производство: PurpleschoolЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 13:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705891976C36089CF1F44B8FD7B0F4B33887DD28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854550   (1057565) от 18.02.2026
-
-Kobezzza, Дмитрий Холстинин | Инфраструктура Frontend (2026) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы уже уверенно пишете на JavaScript и хотите понимать, что происходит с вашим кодом после коммита, этот курс — именно то, что нужно.
-
-Вы научитесь выстраивать инфраструктуру фронтенда: от статических проверок и автоматизации тестов до развёртывания приложения в Docker и Kubernetes.Производство: KobezzzaЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 34:17:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D539C41A540063C9F51FC544B0E9DA986E16ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853000   (1056499) от 13.02.2026
-
-Специалист, Владимир Щелов | Программирование на Visual С++. Многопоточность (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная задача данного курса — снабдить участников знаниями о многопоточности и нюансах её применения в C++, а также помочь развить навыки владения современными инструментами.Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D34936487436B05D126E21BBE4972D0A8EDEA9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852997   (1056494) от 13.02.2026
-
-Специалист, Алексей Давышин | KL 002.12.1 Kaspersky Endpoint Security and Management (2025) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс предназначен для подготовки специалистов, которые будут заниматься проектированием, внедрением и поддержкой систем защиты сетей на базе Kaspersky Endpoint Security, управляемых через Kaspersky Security Center. Он охватывает продукты, позволяющие обеспечить защиту сетевой инфраструктуры до 1000 узлов, расположенных в одном месте. Под узлами подразумеваются (   Читать дальше...   )Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 12:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EFA8C0EE9A01F949EAA6BFABD41D9A48A45428
 ```
 
 https://mybot314.ru/tekegram_catalog/

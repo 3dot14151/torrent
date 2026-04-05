@@ -1,29 +1,3 @@
-###  Публикация: 1017329   (763126) от 16.05.2016
-
-Юрий Гальперин | Русский вариант (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Гальперин, один из самых интересных русских прозаиков второй половины XX века, почти не известен в России. Три главные его вещи — «Играем блюз», «Мост через Лету» и «Русский вариант» — не могли быть опубликованы в Советской России. Широкому читателю на родине они стали доступны только в середине девяностых, однако потонули в потоке «возвращенной литературы». (   Читать дальше...   )Жанр: Проза, повестьПродолжительность: 07:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D46EE8AC3B976DF61584A28BB65C7AF93C58DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214802   (763076) от 23.03.2018
 
 Рубен Давид Гонсалес Гальего | Белое на черном (2018) [MP3]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763076.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763034.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763022.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762941.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762213.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761678.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761114.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760625.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760431.jpg" />
 </div>
 
 
@@ -263,37 +237,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 204687   (759514) от 27.05.2010
-
-Борис Васильев | Век необычайный [Борис Плотников, Борис Васильев] [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_759514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель–фронтовик Борис Васильев получил широкое признание и любовь многих поколений читателей за свою яркую и пронзительную прозу о войне. Его книги «А зори здесь тихие...», «В списках не значился», «Иванов катер», «Не стреляйте в белых лебедей», «Были и небыли» стали свидетельством сурового времени войны, а его герои – сильные, мужественные люди, для которых честь, совесть и долг – не пустые слова, а смысл жизни, стали символом бескорыстного служения родине.
-Мальчишкам, родившимся в год смерти Ленина, суждено было почти всем сложить свои головы в Великой Отечественной войне. В живых их осталось только 3 процента, и Борис Васильев чудом оказался среди них.
-Он ушел на фронт добровольцем после окончания 9-го класса. Во время боевого сброса в 1943 году попал на минную растяжку и с тяжелой контузией был доставлен в госпиталь.
-Воспоминания о детстве, о войне, размышления о своем месте в жизни и гражданском долге и составили основу автобиографической книги Бориса Васильева «Век необычайный».
-
-Премьера на Радио Культура (   Читать дальше...   )Жанр: Военная проза, Мемуары
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394989   (758849) от 08.07.2020
 
 Алевтина Корчик | Край, где поселились люди (2020) [MP3]
@@ -302,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758849.jpg" />
 </div>
 
 
@@ -328,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758780.jpg" />
 </div>
 
 
@@ -354,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758667.jpg" />
 </div>
 
 
@@ -380,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758665.jpg" />
 </div>
 
 
@@ -406,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758662.jpg" />
 </div>
 
 
@@ -434,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758100.jpg" />
 </div>
 
 
@@ -460,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757930.jpg" />
 </div>
 
 
@@ -486,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757633.jpg" />
 </div>
 
 
@@ -512,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757557.jpg" />
 </div>
 
 
@@ -538,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757447.jpg" />
 </div>
 
 
@@ -565,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757187.jpg" />
 </div>
 
 
@@ -591,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755742.jpg" />
 </div>
 
 
@@ -617,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755581.jpg" />
 </div>
 
 
@@ -644,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755311.jpg" />
 </div>
 
 
@@ -672,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755307.jpg" />
 </div>
 
 
@@ -685,6 +628,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4D49DC73CB248919DCE33684145F4B4873273FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395388   (755297) от 10.07.2020
+
+Ян Таксюр | Конец москальских шпионов (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детство в Незалежной. Восьмилетний Тарасик никак не может заснуть, ему страшно...НЕдетский рассказ.Жанр: РеализмПродолжительность: 09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE62E6C3A559CBA4ED758F7259D86C2B77708A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522988   (755185) от 09.01.2022
+
+Висенте Рива Паласио | Пираты Карибских Морей (2013) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь пирата коротка, но полна особой романтики – с солоноватым привкусом морского ветра и человеческой крови. В жизни пирата драки и погони, рваные паруса, борьба со всеми штормами и тень виселицы на берегу – повседневная реальность. А вот сундуки с несметными сокровищами и сладкая жизнь с роскошной красоткой – чаще всего лишь мечта, столь же манящая, сколь и недосягаемая.Жанр: Зарубежные приключения, Морские приключенияПродолжительность: 09:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36373922BD0724656BDF12DE9376466AEA305348
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,3 @@
-###  Публикация: 989993   (911421) от 25.02.2016
-
-Эрик Шлоссер | Нация фастфуда (2016) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовое исследование того, как устроена индустрия фастфуда.
-
-В 2001 году Эрик Шлоссер впервые опубликовал эту книгу, которая быстро стала международным бестселлером. В ней он показал, как индустрия фастфуда породила эпидемию ожирения, увеличивала разрыв между бедными и богатыми и изменила рынок продовольствия во всем мире. Эта книга изменила взгляды миллионов людей (   Читать дальше...   )Жанр: Здоровье, ПитаниеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBB7CC8DCCD775D77C37C148CA42C0280FEE325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368156   (910668) от 19.03.2020
 
 Стивен Бэттерсби (ред.) | Космос. От Солнца до границ неизвестного (2020) [EPUB]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910668.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910577.jpg" />
 </div>
 
 
@@ -87,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910531.jpg" />
 </div>
 
 
@@ -113,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910436.jpg" />
 </div>
 
 
@@ -139,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909796.jpg" />
 </div>
 
 
@@ -165,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906972.jpg" />
 </div>
 
 
@@ -191,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905191.jpg" />
 </div>
 
 
@@ -218,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905100.jpg" />
 </div>
 
 
@@ -244,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905063.jpg" />
 </div>
 
 
@@ -270,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903437.jpg" />
 </div>
 
 
@@ -296,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898574.jpg" />
 </div>
 
 
@@ -322,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898329.jpg" />
 </div>
 
 
@@ -349,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895554.jpg" />
 </div>
 
 
@@ -377,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895081.jpg" />
 </div>
 
 
@@ -403,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895072.jpg" />
 </div>
 
 
@@ -429,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895058.jpg" />
 </div>
 
 
@@ -455,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895048.jpg" />
 </div>
 
 
@@ -482,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895037.jpg" />
 </div>
 
 
@@ -508,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895023.jpg" />
 </div>
 
 
@@ -534,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895008.jpg" />
 </div>
 
 
@@ -560,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895006.jpg" />
 </div>
 
 
@@ -586,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894826.jpg" />
 </div>
 
 
@@ -612,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893923.jpg" />
 </div>
 
 
@@ -641,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893356.jpg" />
 </div>
 
 
@@ -670,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892166.jpg" />
 </div>
 
 
@@ -681,6 +653,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF1D38154BDCD0A7B8B4745454AF22A10A1715C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371296   (891740) от 30.03.2020
+
+Гай Лешцинер | Мозг, ты спишь? 14 историй, которые приоткроют дверь в ночную жизнь нашего самого загадочного органа (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задумывались ли вы когда-нибудь, сколько тайн скрыто за таким простым действием, как засыпание в уютной постели после рабочего или учебного дня? Стремясь разгадать загадку сна, доктор Гай Лешцинер отправляется в 14 удивительных путешествий вместе со своими пациентами.
+Все они – обычные люди, но с необычными способностями: у одного из них 25 часов в сутках, другой, (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно о медицинеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0765CDC99771F6875335A0D1D3EB7AC6A56DFFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

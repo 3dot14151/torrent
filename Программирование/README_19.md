@@ -1,82 +1,3 @@
-###  Публикация: 1223271   (677013) от 03.05.2018
-
-Василий Усов | Swift. Основы разработки приложений под iOS и macOS [3-е издание] (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swift — быстрый, современный, безопасныйSwift — быстрый, современный, безопасный и удобный язык программирования. Если вы когда-либо писали приложения на Objective-C, то после изучения Swift с его многообразием возможностей вы, вероятно, захотите переписать приложения на новом языке программирования.
-Мир Swift очень и очень молод, людей со значительным багажом знаний (   Читать дальше...   )Жанр: ПрогаммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49D05A164705E6080CA252BF5C3575D19BE65BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030513   (672165) от 01.07.2016
-
-Ю.А. Семёнов | Программирование на языке Форт (1991) [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описан язык Форт, эффективный при решении задач управления, диагностики и отладки аппаратуры в реальном масштабе времени, а также при создании компактных баз данных на мини- и микро ЭВМ. Анализируются особенности автономной и многозадачной версии языка Форт. Рассмотрена технология написания трансляторов для Форта. Приведены тексты программы, наиболее употребительные (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCFE5DE9378697247B3AF4985A707F57AD4E13E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030510   (672156) от 01.07.2016
-
-М. Келли, H. Спайс | Язык программирования Форт (1993) [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672156.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге американских авторов описаны основные версии языка Форт, включая стандарты 1979 и 1983 гг., а также версию MMSFORTH для персональной ЭВМ типа IBM PC. Рассмотрены процедуры для работы с файлами и последовательностями символов, техника расширения списка стандартных операторов, а также возможность включения программ, написанных на языке ассемблера. Приведено (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795494A472DD8FB217F9DAF70ED1A9EAB63A3A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291431   (670117) от 24.03.2019
 
 Джозеф Хокинг | Unity в действии. Мультиплатформенная разработка на C# (2019) [PDF]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670117.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668688.jpg" />
 </div>
 
 
@@ -140,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668416.jpg" />
 </div>
 
 
@@ -166,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668302.jpg" />
 </div>
 
 
@@ -193,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668173.jpg" />
 </div>
 
 
@@ -219,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668088.jpg" />
 </div>
 
 
@@ -246,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667523.jpg" />
 </div>
 
 
@@ -274,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667515.jpg" />
 </div>
 
 
@@ -300,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667436.jpg" />
 </div>
 
 
@@ -328,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666975.jpg" />
 </div>
 
 
@@ -354,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665204.jpg" />
 </div>
 
 
@@ -381,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664658.jpg" />
 </div>
 
 
@@ -408,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664585.jpg" />
 </div>
 
 
@@ -435,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663505.jpg" />
 </div>
 
 
@@ -461,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658437.jpg" />
 </div>
 
 
@@ -487,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656388.jpg" />
 </div>
 
 
@@ -513,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655536.jpg" />
 </div>
 
 
@@ -540,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655494.jpg" />
 </div>
 
 
@@ -566,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655253.jpg" />
 </div>
 
 
@@ -592,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655076.jpg" />
 </div>
 
 
@@ -618,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651780.jpg" />
 </div>
 
 
@@ -645,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650010.jpg" />
 </div>
 
 
@@ -671,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649792.jpg" />
 </div>
 
 
@@ -683,6 +604,90 @@ Unity является самодостаточным, интегрирован�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91297A35BCCC50C7714A2C0B7053F3A904BE3710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292186   (648192) от 28.03.2019
+
+Эрик Хэнчетт, Бенджамин Листуон | Vue.js в действии (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vue.js – это популярная библиотека для создания пользовательских интерфейсов. В ней значительно переосмыслены реактивные идеи, впервые появившиеся в React.js. Книга «Vue.js в действии» рассказывает о создании быстрых и эластичных пользовательских интерфейсов для Интернета. Освоив ее, вы напишете полноценное приложение для интернет-магазина, где будут присутствовать (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF32A0212BEFD12A749D2F3E462D1089AA43F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292294   (648170) от 28.03.2019
+
+Павел Орленко, Петр Евдокимов | C++ на примерах. Практика, практика и только практика (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга является превосходным учебным пособием для изучения языка программирования C++ на примерах.
+В книге рассмотрена базовая теоретическая часть языка C++, позволяющая ориентироваться в языке и создавать свои программы: типы, функции, операторы, логический конструкции, массивы, указатели, структуры, работа с файлами, объектно-ориентированное программирование. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08AC5865AD93921BEB76940140B81BE36E1FCCA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517743   (646638) от 01.07.2012
+
+Робин Никсон | Создаем динамические веб-сайты с помощью PHP, MySQL и JavaScript [2011] [DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если у вас есть базовые навыки работы с HTML, то с помощью книги Робина Никсона, опытнейшего разработчика и автора многочисленных бестселлеров по веб-мастерингу, вы без особого труда научитесь создавать динамические сайты, характеризующиеся высоким уровнем взаимодействия с пользователями.
+Откройте для себя сочетание PHP и MySQL, узнайте, как они облегчают создание современных веб-сайтов, научитесь добавлять к этим технологиям возможности javascript, позволяющего создавать высокотехнологичные приложения.
+В данном руководстве каждая технология рассматривается отдельно, показывается, как объединить PHP, MySQL и javascript в единое целое, дается представление о самых современных концепциях веб-программирования. С помощью подробно разобранных примеров и контрольных вопросов, приводимых в каждой главе, вы сможете закрепить изученный материал на практике.
+Данное руководство поможет вам:
+- освоить основы PHP и объектно-ориентированного программирования;
+- основательно изучить MySQL, начиная со структуры баз данных и заканчивая (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4047EF019649C88823D2AA0E49BD6C7DABC30C82
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 862078   (201789) от 31.08.2023
+
+Бесстыжие / Бесстыдники / Shameless (US) (2011–2015) BDRip, HDTVRip [H.264/720p-LQ] (сезон 1-5, серии 1-60 из 60)  (AlexFilm)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ремейк одноименного британского сериала, транслируемого по каналу ShowTime. Он повествует о семействе Галахеров. Мать бросила их, а отец редко бывает настолько трезв, чтобы признать своих шестерых детей. В результате, все заботы о куче разновозрастных недорослей ложатся на плечи старшей дочери.
+Пытаясь выжить в этом суровом мире они постоянно попадают во всевозможные (   Читать дальше...   )Производство: СШАЖанр: драма, комедияРежиссер: Марк Майлод, Джон Уэллс, Мими Ледер, Санаа Хамри, Питер СигалАктеры: Уильям Х. Мэйси, Эмми Россам, Камерон Монахэн, Джереми Аллен Уайт, Эмма Кинни, Итэн Каткоски, Блейк Александр Джонсон, Бреннан Кэйн Джонсон, Шанола Хэмптон, Стив Хоуи, Джоан Кьюсак, Ноэль Фишер, Эмма Гринвелл, Джэйк Макдорман и др.Перевод: многоголосый закадровый, профессиональный - AlexFilmЯзык субтитров: русский, английский, 3 сезон - только английскийФормат: MKVПродолжительность: ~ 00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625DB4AB388805FDD12A09E3479A6BA7322451D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619660   (201023) от 19.03.2023
+
+Учёные стали ближе к реализации настоящей квантовой телепортации данных — мгновенной связи через червоточины без передачи энергии
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классическая квантовая телепортация — это условность, которая требует параллельной передачи данных по обычным каналам связи. Телепортацией она называется потому, что квантовая информация разрушается в одном месте и как бы мгновенно возникает в другом: одна из двух спутанных частиц исчезает, а её квантовое состояние с помощью обычной связи воспроизводится в другой (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620072   (200973) от 20.03.2023
 
 Открыт эффект аномальной вторичной электронной фотоэмиссии — это бросает вызов общепринятой фотоэлектрической теории Эйнштейна
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200973.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Hyouken no Majutsushi ga Sekai o Suberu | The Iceblade Sorcerer Shall Rule the W
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200838.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ ChatGPT получил доступ в интернет и сторонние п
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200664.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200584.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200567.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Microsoft готовит суперлегкую замену Windows 11 и Chrom
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200463.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200197.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200156.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200084.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199598.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199547.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199439.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199302.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ Microsoft вывела из строя важную функцию Chrome для
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_198817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_198817.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_198709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_198709.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ Cозданы самые эффективные перовскитные сол�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_198696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_198696.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_198494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_198494.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_198356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_198356.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_198212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_198212.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_197923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_197923.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ Microsoft анонсировала Windows Copilot — встроенный в W
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_197858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_197858.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_197848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_197848.jpg" />
 </div>
 
 
@@ -580,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_197798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_197798.jpg" />
 </div>
 
 
@@ -606,66 +659,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_197599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_197599.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Создатели исторического ролевого экшена «Смута» из новосибирской студии Cyberia Nova ни с того ни с сего открыли официальное сообщество игры в соцсети «ВКонтакте» и представили первый дневник разработки.Напомним, «Смута» основывается на романе «Юрий Милославский, или Русские в 1612 году». По сюжету Милославский участвует в Битве за Москву и других важных событиях, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637311   (197377) от 06.06.2023
-
-Американцы первыми в мире передали собранную в космосе солнечную энергию на Землю
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_197377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учёные из Калтеха сообщили о первой в мире успешной передаче солнечной энергии из космоса на Землю. Опытная орбитальная платформа передала микроволновое излучение на приёмник на крыше инженерной лаборатории в кампусе Калтеха в Пасадене, что доказало возможность получения чистой энергии из космоса.Модуль MAPLE изнутри. Разнесённые пустым пространством приёмник и
-передатчик (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637896   (197336) от 07.06.2023
-
-Китай проведёт эксперимент по полному запрету продаж машин с ДВС на острове Хайнань
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_197336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китайский рынок электромобилей является крупнейшим в мире и довольно бурно развивающимся, но власти КНР не спешат по примеру европейских и американских коллег ставить глобальные цели по отказу от использования машин с ДВС. Вместо этого они в качестве пилотного проекта обкатают концепцию на примере острова Хайнань, на котором продажи новых машин с ДВС будут запрещены (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

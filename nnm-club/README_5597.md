@@ -1,22 +1,25 @@
-###  Публикация: 1005550   (830720) от 10.04.2016
+###  Публикация: 1380686   (831583) от 04.05.2020
 
-Юрий Сушко | Высоцкий. На краю (2016) [PDF]
+Lord Vigo - Danse De Noir (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Epic Metal, NWOBHM>
 
->>Разное (категория книг)
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кем же был Владимир Высоцкий? Гениальный поэт, хулиган, бабник, экзальтированный циник, нежный романтик, великий исполнитель, алкоголик и наркоман, блестящий артист - кто он? Творческие взлеты и падения, невероятная популярность, безумная любовь, агрессия - все этапы его жизни до сих пор вызывают множество споров. Каковы на самом деле были отношения с Мариной Влади? (   Читать дальше...   )Жанр: БиографияФормат: PDF
+01. The Voight Kampff Situation (0:38)
+02. Danse De Noir (6:20)
+03. Are You Human (0:58)
+04. The Verge Of Time (6:10)(   Читать дальше...   )Жанр: Doom Metal, Epic Metal, NWOBHMПродолжительность: 00:44:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EF3EDEBEBA0C136A9A8FF4F4A6BE812707F7126
+magnet:?xt=urn:btih:FC470897FE0C8E0AC4973E8A5C40B807356E9AB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005827   (830719) от 10.04.2016
+###  Публикация: 1380803   (831582) от 04.05.2020
 
-VA - Country Music Ballads (2016) [MP3|320 кб/с] <Country, Folk Rock, Rock Blues>
+Кэтрин Хьюз | Ключ (2020) [EPUB]
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831582.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chris Lane - Fix
-02. Dustin Lynch - Mind Reader
-03. Chris Stapleton - Tennessee Whiskey
-04. Jon Pardi - Head Over Boots(   Читать дальше...   )Жанр: Country, Folk Rock, Rock BluesПродолжительность: 01:27:53
+Из-за непонимания и предубеждения врачей Эми оказалась заперта в психиатрической лечебнице «Эмбергейт». Ей кажется, что жизнь кончена, ведь из больницы не так-то просто выйти: бесчеловечное устройство подобных организаций направлено лишь на то, чтобы сломить волю человека любыми законными и незаконными методами.
+Но в истории Эми оказывается тот, кто готов ее спасти, (   Читать дальше...   )Жанр: Современная зарубежная прозаПеревод: Светлана ХатуеваФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F75CEA602B9FDAB609C528A8EB41839A2B940DBF
+magnet:?xt=urn:btih:E09D88AF63090AB9D3176C56AAC51D390FE3B73A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,54 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005612   (830717) от 10.04.2016
+###  Публикация: 1380944   (831581) от 04.05.2020
 
-С.В. Кузнецов | Классическая термодинамика в понятиях, определениях и терминах (2016) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами словарь-справочник по термодинамике, преимущественно равновесной, составленный из упорядоченных в алфавитном порядке статей. Этим данный словарь отличается от систематических руководств аналогичной тематики. Круг вопросов, входящих в сферу интересов автора, достаточно узок; соответственно и набор статей, вошедших в предлагаемую вашему вниманию книгу, далёк (   Читать дальше...   )Жанр: ФизикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BBEAFC0B50433D1E521DC977DA848161FEE8AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 195803   (830714) от 25.04.2010
-
-Журнал | Хакер №5 [май 2010] [PDF]
+Pete Rock - Return Of The SP1200 (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Instrumental Hip-Hop>
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обходим DEP+ASLR и пишем собственный JIT-эксплойт для IE8
-Ускорение компиляции приложений с помощью ccache и distcc
-Зарабатываем на приложениях для мобильной платформы Google Android
-Разбираемся с технологией Comet для построения real-time приложений в вебе(   Читать дальше...   )Формат: PDF
+01. Dreamer (3:48)
+02. Harps Of Heaven (2:34)
+03. Round Midnight (3:10)
+04. Hope The World Don't Stop (Before I Get Mines) (5:32)(   Читать дальше...   )Производство: Tru Soul Records – TRU-1001CDЖанр: Hip-Hop, Instrumental Hip-HopПродолжительность: 00:54:07
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:16BC32BCEE99864DD4B8E67615DE7A562E1B8446
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +83,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005739   (830712) от 10.04.2016
+###  Публикация: 1380732   (831580) от 04.05.2020
 
-Frank Sinatra - A Jolly Christmas From Frank Sinatra (1957) remastered 1987 [FLAC|Lossless|image + .cue] <Jazz, Vocal>
+Игорь Савельев | Как тебе такое, Iron Mask? (2020) [EPUB]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831580.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Jingle Bells  2:01
-02.  The Christmas Song  3:29
-03.  Mistletoe And Holly  2:18
-04.  I'll Be Home For Christmas  3:12(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:38:23
+Главный герой нового романа Игоря Савельева, студент Кембриджа Алекс (Алексей Николаев) не афиширует, что он сын могущественного российского чиновника. Но вдруг его срочно вызывают на родину. Желание отца, наконец, поговорить и расставить все точки над «i»? Шанс для Алекса разобраться с подростковыми травмами? Или всё это – грязная игра спецслужб?
+«Фантасмагоричная (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C05FCB9308D893FF75F22BC162EB47BB57896CD5
+magnet:?xt=urn:btih:60DAFF83FC693AA9DB04C2FC99E55536A8FAA997
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +110,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005922   (830711) от 10.04.2016
+###  Публикация: 1380772   (831579) от 04.05.2020
 
-Punto Switcher 4.2.3 Build 1106 Beta [Ru]
+VA - SUB-07 To SUB-11 - The A-Sides (2009) Drone Records [FLAC|Lossless|tracks+.cue] <Dark Ambient, Drone>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Punto Switcher — автоматический переключатель раскладки клавиатуры. Иногда Вы забываете переключить раскладку с русской на английскую и получаете, например, «Цштвщцы» вместо «Windows» и, наоборот, не переключив раскладку клавиатуры с английского на русский, Вы получаете «Hjccbz» вместо «Россия». Теперь о переключателе клавиатуры можно просто забыть, переключение (   Читать дальше...   )Язык интерфейса: Русский
+01. Oöphoi - Potala Pt.1 (12:32)
+ 02. Hum - The Spectral Ship (12:13)
+ 03. Voice Of Eye - Virya (19:00)
+ 04. Michael Northam - Through (11:58)(   Читать дальше...   )Жанр: Dark Ambient, DroneПродолжительность: 01:07:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8169FD0C27247860D044566122C6A4E4D6FDFE95
+magnet:?xt=urn:btih:828900BF2B2DC8E83B3C9F46B537E684985B07AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,105 +139,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005917   (830707) от 10.04.2016
+###  Публикация: 1380922   (831578) от 04.05.2020
 
-Роберт Кеннеди | Крутой культуризм (2000) [PDF]
+Архимандрит Андрей (Конанос) | Источник радости. Беседы о Церкви и священстве (2019) [FB2, EPUB]
 
 >>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Методика тренировок, правильного питания для достижения успеха в профессиональном бодибилдинге. Книга известного американского специалиста по бодибилдингу, адресована профессионалам этого вида спорта. Дается методика тренировок ведущих бодибилдеров мира, как мужчин, так и женщин, приведены их тренировочные комплексы, рабочие дневники, мысли и наблюдения, связанные (   Читать дальше...   )Жанр: СпортФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C91A5ED416486D52B21D3258B6C620ADBEB4F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005947   (830706) от 10.04.2016
-
-Все, что дозволено небесам / All That Heaven Allows (1955) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда респектабельная вдова из высшего общества влюбляется в садовника, ей приходится столкнуться с непониманием окружающих и сделать непростой выбор.Производство: США / Universal International Pictures (UI or U-I)Жанр: Драма, МелодрамаРежиссер: Дуглас СеркАктеры: Джейн Уаймен, Рок Хадсон, Агнес Мурхед, Конрад Нэйджел, Вирджиния Грей, Глория Тэлботт, Уильям Рейнольдс, Чарльз Дрэйк, Хейден Рорк, Жаклин деВитПеревод: Одноголосый закадровый (Ю. Медведев)Язык субтитров: РусскийПродолжительность: 01:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C653785DB1CDBE57FD03CAB4966AFA324F90D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653315   (830700) от 07.05.2013
-
-Барни Стинсон, Мэтт Кун | Кодекс Братана (2011) [MP3, Денис Колесников]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830700.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Кодекс Братана" - это настольная книга каждого уважающего себя мужчины. Испокон веков заповеди этой священной книги передавались из поколения в поколение, из уст в уста. В нем изложены не просто секреты настоящих мужчин и крепкой мужской дружбы, а представлен свод правил поведения, которые должен, нет - просто обязан соблюдать каждый Братан. Следуя правилам (   Читать дальше...   )Жанр: Комедия, юмор
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047F4733B867CEF99CB62167433015F37A77A763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653148   (830698) от 07.05.2013
-
-Talking Heads: Stop Making Sense (1984) BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высокие оценки критиков получил и четвёртый альбом Talking Head Remain in Light (1980), в биографии Музея Залы слава рок-н-ролла названный «шедевром». Диск, записанный группой и Брайаном Ино при участии известных сессионных музыкантов (в частности, гитариста Эдриана Белью), продолжил начатое в третьем альбоме и положил начало экспериментам самого Бирна с афробитом и полиритмией, однако многие сочли заданное им направление совершенно новым, от прежнего отличавшимся радикально. В частности, расширение состава привнесло в аранжировки новую черту: если прежде песни Talking Heads были монологами Бирна, то здесь «две-три вокальных секции предлагали словно бы противоположные взгляды на один и тот же вопрос». Первый сингл из альбома, «Once in a Lifetime», стал хитом в Британии (#14, 1981), но в США первоначально даже не вошёл в чарты и лишь впоследствии стал известен благодаря видео. Для концертного исполнения усложнённых композиций альбома Talking Heads пригласили в турне дополнительных музыкантов, представив материал (   Читать дальше...   )Жанр: Документальный, Музыка
+В книге известного греческого проповедника архимандрита Андрея (Конаноса) «Источник радости» собраны беседы о Церкви и священстве, о том, как относиться к таинствам, о Божественной Литургии и её значении в жизни каждого человека.
 
-«Why stop making sense? Why a movie? Why a big suit? Where do the odd movements come from? What will the band do next?»Режиссер: Джонатан ДеммеАктеры: Bernie Worrell, Алекс Вейр, Стивен Скейлс, Линн Мэбри, Ednah Holt, Tina Weymouth, Джерри Харрисон, Крис Франц, Дэвид БирнПеревод: ОтсутствуетПродолжительность: 01:27:47
+«Наше спасение очень близко, рядом с нашим домом, и ехать никуда не надо. Для этого нужно только одно чудо: чтобы Господь коснулся нашей (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:222BA9CDE01DF69D7DC00ED24252A3C99E8D941F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -269,25 +167,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 774062   (830677) от 05.04.2014
+###  Публикация: 1380844   (831577) от 04.05.2020
 
-Картинки - New Mixed HD Pack (05.04.14) [JPG]
+Atrox - Orgasm (2003) [FLAC|Lossless|image + .cue] <Melodic Doom Metal, Avant-garde Gothic, Progressive>
 
->>Графика, Арт, Разное
->>Картинки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831577.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Замечательные фото дикой природы, редкие кадры забавных животных, дорогие автомобили, креативные работы малоизвестных художников и многое другое ожидает вас в этом свежем сборнике.Формат: JPGРазрешение файлов: от 1680x1050 до 5000x3333
+01. Methods of Survival
+02. Flesh City
+03. Heartquake
+04. Burning Bridges(   Читать дальше...   )Жанр: Melodic Doom Metal, Avant-garde Gothic, ProgressiveПродолжительность: 00:51:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80E2B7FF134243906BF189260F88F497D4BF35C7
+magnet:?xt=urn:btih:BAF8C1A531DC2B4ABB035326F726E630E33C36A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,77 +196,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 773881   (830673) от 05.04.2014
+###  Публикация: 1380711   (831576) от 04.05.2020
 
-Спецагенты на отдыхе / Mais qui a re-tue Pamela Rose? (2012) BDRip [720p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дуглас Риппер когда-то служил в ФБР, но сейчас полностью отошел от дел. Однажды ему сообщают, что в деле, которое он давно расследовал, появились новые обстоятельства. У агента в отставке появляется хороший повод тряхнуть стариной, а заодно и повидаться со своим бывшим напарником Буллитом, которого он давно не видел. И хотя у этой непредсказуемой и чудаковатой парочки (   Читать дальше...   )Жанр: КомедияРежиссер: Оливье БарруАктеры: Кад Мерад, Оливье Барру, Омар Си, Лоран Лафитт, Одри Флеро, Гай Леклюиз, Филипп Лефевр, Лоуренс Арни, Ксавьер Летурнер, Ален ДутеПеревод: Профессиональный (двухголосый) НТВ+Продолжительность: 01:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5AF58A457BEB21DEB3E7841EE30421FD021019C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774044   (830667) от 05.04.2014
-
-Детки / Kids (1995) DVDRip (H.264)
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830667.jpg" />
-</div>
-
-
-###  Подробнее
-
-День из жизни тинэйджеров, болтающихся на задворках Манхэттена. Секс и наркотики, грязная брань и трогательная незащищенность… Все комплексы и амбиции подростков, вся красота и трагедия неприкаянной юности, все безумие 90-х.Жанр: Драма, КриминалРежиссер: Ларри КларкАктеры: Лео Фицпатрик, Джастин Пирс, Клоэ Севиньи, Розарио Доусон, Харольд Хантер, Якира Пегеро, Саджан Бхагат, Билли Вальдес, Билли Уолдмен, Хавьер НуньесПеревод: Двуголосый закадровый, Двуголосый закадровый (Премьер видео)Язык субтитров: РусскиеПродолжительность: 01:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9C6890F0ED3E4621CD2CC8EE775631F531D9C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774176   (830666) от 05.04.2014
-
-Юрий Бурносов | Армагеддон. Книга 2. Зона 51 (Проект "Этногенез") (2014) [MP3]
+Тананарив  Дью | Коллективный иммунитет (2020) [MP3]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2014 год. Пораженные эпидемией вируса «Армагеддон» североамериканские штаты надежно изолированы от мира. Их называют Закрытой территорией. К ее исследованию приступает команда ученых, возглавляемая Андреем Гумилевым. Главная цель миссии — поиск вакцины от чудовищного вируса, но у нее есть и другое секретное задание — обнаружить таинственную «Зону 51», где американские (   Читать дальше...   )Жанр: Фантастика
+Китайский трехдневный грипп в считанные месяцы уничтожил практически все человечество. Немногие оставшиеся в живых разобщены. Наима, отчаявшаяся от одиночества, замечает на горизонте мужчину. Она стремится догнать его, но он не спешит идти на контакт. Почему? Ведь вместе выживать легче. Тем более, если у тебя естественный иммунитет...Жанр: ФантастикаПродолжительность: 00:46:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C61EF7EF22116D67349D01BECF04D814C34D0F7C
+magnet:?xt=urn:btih:3E9E556EE796341B8A88DE985C5BF66C2379B270
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499429   (830664) от 13.10.2021
+###  Публикация: 1380479   (831575) от 04.05.2020
 
-VA - Toolroom Vaults Vol. 1 (2021) [AAC|~339 Kbps] <House>
+Александр Кузнецов - 4 Альбома (2000 - 2006) [FLAC|Lossless|tracks + .cue]<Шансон>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Martin Ikin - LaTanya (Extended Mix) (6:41)
-02. Eli Brown - Get Down (Extended Mix) (7:32)
-03. Tiger Stripes - UFO (Extended Mix) (6:27)
-04. Low Steppa, Skapes - Reactor (Extended Mix) (4:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:27:06
+01. Грошик
+02. Беленькая
+03. Атаман
+04. Поезд(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:53:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7792F45A7911D29FD0CF6D99201EF3710EA2C5B2
+magnet:?xt=urn:btih:0AF1B240A5CCA73B981D668DFD767BB356B176EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +251,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498712   (830663) от 13.10.2021
+###  Публикация: 1380872   (831574) от 04.05.2020
 
-VA - Vanlife Chill, Vol. 4 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
+Santa no Yama: Yousei no Mori | В горах у Санты: Эльфийский лес [1996, OVA, 2 эп.] VHSRip 576p raw
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Аниме с субтитрами
+>>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Brockman, Basti M - Everywhere We Go (Chillout Edit) (3:24)
-02. Roberto Bronco, Chris Brauer - Dolphins (Radio Edit) (4:25)
-03. Artur Bayramgalin - Toronto' Lights (Original Mix) (4:03)
-04. Mo'jardo, Tim Gelo - East Ave (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:52
+Небольшая история о повседневной жизни Йоулупукки (более известного, как Санта Клаус) и его гномов-помощников.Жанр: повседневность, фентезиРежиссер: Кудзуока ХиросиПеревод: World_Houp & Аццкий КритегЯзык озвучки: ЯпонскийСубтитры: Русские; ФинскиеПродолжительность: 2 эп. по 35 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:074D0463112B9AB85F3623FE762EAF8A99DC620B
+magnet:?xt=urn:btih:DCE6F52F3C87247A68D0A97DEBE8572B03E239E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,28 +277,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495741   (830662) от 13.10.2021
+###  Публикация: 1380742   (831573) от 04.05.2020
 
-VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 2 (2021) [AAC|~332 Kbps] <Lounge, Downtempo, Chillout>
+Милдред Эбботт | Корги-детектив: Коварные игрушки (2020) [EPUB]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Elkeland - Hallo (Original Mix) (4:42)
-02. Johannes Huppertz - By the Way (Original Mix) (5:15)
-03. Dreamhunter - Getaway Pilot (Original Mix) (4:04)
-04. Agua Loca - Laguna Guitarra (Original Mix) (2:30)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:12:48
+Уинифред Пейдж и ее корги Ватсон уже обустроились в уютном городке Эстес-Парк. Предвкушая теплые вечера у камина, они бегают по магазинам в поисках подарков, но вместо этого находят…очередное приключение.
+Но все не так просто, когда речь идет об убийстве. Тем более что главной подозреваемой оказывается лучшая подруга Уинифред.Жанр: Современные детективыПеревод: А.С. ПеховаФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D52D97CCCA5BA341041281D11A67BB5208535F23
+magnet:?xt=urn:btih:AC5B86F9947805DBF79790907C446FD82301EFAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,28 +304,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497208   (830661) от 13.10.2021
+###  Публикация: 1380275   (831572) от 04.05.2020
 
-Chillhop Guitar - Relax Beat & Smooth Guitar (2020) [AAC|~298 Kbps] <Chill Out, Smooth Jazz, Downtempo>
+Salvador Candel - Caminante Del Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831572.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The river (3:08)
-02. Romantic Sofa (5:15)
-03. Promenade (3:06)
-04. Trip in Lisbon (3:03)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 00:59:50
+1. Namaste 04:10
+2. Evocación 06:21
+3. Caminante del cielo 05:20
+4. Sámba 04:09(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C971E8F1D9AD4C47A956248EF04F02CB6BF237E
+magnet:?xt=urn:btih:A2E7C2B377BD20F00C4111572F7687691FF3EBD0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,28 +333,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497415   (830660) от 13.10.2021
+###  Публикация: 1380736   (831571) от 04.05.2020
 
-VA - Beautiful Metamorphosis, Vol. 3 (2021) [AAC|~309 Kbps] <Downtempo, Lounge, Chill Out>
+RegCool 1.118 + Portable [Multi/Ru]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831571.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Slow World - Undiscovered World (3:43)
-02. Premnaj - Meridian 21 (3:21)
-03. Anemine - Adams (3:51)
-04. Ensemble Ethnique - Pax (3:53)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:44:35
+программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее  выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:256B7511DA95AAEDCAB5774BECE69C2C86484BF6
+magnet:?xt=urn:btih:7FBB231328C100308F3F67F07FFDA2217D425D27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,28 +359,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500024   (830659) от 13.10.2021
+###  Публикация: 1380689   (831570) от 04.05.2020
 
-VA - Luxury Kingsize Lounge, Vol. 2 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Popular Folk Sound (2020) [MP3|320 Kbps] <Pop, Dance, Folk>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831570.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 351 Lake Shore Drive, Genius Jane - Forever (4:57)
-02. Giorgio Moroder - The Chase (Marat Taturas Coctail Pool Remix Radio Edit) (4:10)
-03. Inventors Of The Sun - Agua of Life (5:41)
-04. Lounge Deluxe, Jeela - Beautiful Man (6:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:27
+001. Djeely - La Seule
+002. Dimitris Zacharioudakis - Imeros Theos
+003. Mylson - Reconcilié
+004. Harmonik - Respè(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 07:39:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A24D9B50E8CD6CF0E0BA3552D3939611CFD5F23
+magnet:?xt=urn:btih:C9D56A081503FE220BE0C20BDFC2BCAE695CB831
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,28 +388,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498523   (830658) от 13.10.2021
+###  Публикация: 1380629   (831569) от 04.05.2020
 
-VA - Fireplace Chill, Vol. 6 (2020) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Danger: Hardcore Review (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Alternative>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marc Hartman - Natural Elements (Original Mix) (3:17)
-02. VST - Awakeing (Original Mix) (4:47)
-03. Chambre 11 - Overwhelming Life (Original Mix) (5:38)
-04. Owen Krishnamurti - Spread Love (Original Mix) (5:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:30:28
+001. Sector - End Of The World 86
+002. Worn - Suspect
+003. Kruelty - Desire
+004. Visitantes - Inflamables(   Читать дальше...   )Жанр: Hardcore, Hard Rock, AlternativeПродолжительность: 08:57:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:546B4E3F3835F44C5C359323A4FAD7E3FFCCD5E8
+magnet:?xt=urn:btih:29D66B8657567E01C60783331509266FFC82CCC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -576,28 +417,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497637   (830657) от 13.10.2021
+###  Публикация: 1380636   (831568) от 04.05.2020
 
-VA - Autumn House Workout Vol.1 (2021) [AAC|~323 Kbps] <House, Deep House, Tech House>
+VA - Green Paradise (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cris Roberts - Overview (Long Classic Mix) (2:43)
-02. Connections - Legato (Planned Mix) (3:08)
-03. Black Jag - Metropolis (Love Deep Mix) (3:31)
-04. Black People - Mental Healt (London House Mix) (2:48)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 01:11:19
+001. Chill Doctor Berlin - Cool Cats
+002. Jack Cutter - Serpent Strut
+003. Steve Hauschildt - Subtractive Skies
+004. Mofobeatz - Renaissance(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 08:39:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A41F9AEDB665FA7DBD378ABC60E9948D6DF1F88
+magnet:?xt=urn:btih:309A511DCCE09D4914DF2BEA3E659CE556040E3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,28 +446,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498883   (830656) от 13.10.2021
+###  Публикация: 1380592   (831567) от 04.05.2020
 
-Magneto - Requiem pour Satana (2021) [AAC|~326 Kbps] <Cocktail Nation, Space Age Pop, Easy Listening>
+Inon Zur - Syberia 3 (Original Soundtrack) (2017) [MP3|320 Kbps] <Soundtrack>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Other Styles
+>>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Magneto, Joanna Halszka Sokołowska, Igor Nikiforow - Pama Rum Kwan (5:03)
-02. La Rumbia en Blanco y Negro (3:14)
-03. Magneto, Joanna Halszka Sokołowska - Temptation of Stingray (6:19)
-04. Mambolero (5:40)(   Читать дальше...   )Жанр: Cocktail Nation, Space Age Pop, Easy ListeningПродолжительность: 00:47:59
+01. Syberia 3 Main Theme
+02. Thrill of Nature
+03. Dark Force in Motion
+04. Call of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02EA2A32FB1B8796518BA4CD1371AC26120C9D3B
+magnet:?xt=urn:btih:DB15EBE195C1F66A3DEFAD103C82DD55B50D8134
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,28 +475,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497639   (830655) от 13.10.2021
+###  Публикация: 1380735   (831566) от 04.05.2020
 
-VA - Autumn House Workout Vol.2 (2021) [AAC|~312 Kbps] <House, Deep House, Tech House>
+Елена Колина | Посмотри, на кого ты похожа [сборник] (2020) [EPUB]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blue Avenue - Over Right (Night Emotions Mix) (3:11)
-02. Chrisopher Torres - You See Man (Deep Style Mix) (3:34)
-03. FRANK WASSER - Rock This (Natural Mind's Club Mix) (3:57)
-04. Fantasy - On the Strength (5:07)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 01:12:27
+Книги петербургской писательницы Елены Колиной – это, пожалуй, первые женские романы на русском языке, где смеха больше, чем слез, а оптимизма больше, чем горечи. Предупреждаем, читать их в общественных местах не рекомендуется: уморительные сценки из жизни подруг и родных анонимной героини, описания её любовных приключений и всей нашей с вами странной жизни заставят (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:849EDB7B7DCEF35166D0685FB419DCD59EF178FA
+magnet:?xt=urn:btih:1833ABC9C82526C5CD7DCC05E72F7532F89A293D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,28 +501,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498716   (830654) от 13.10.2021
+###  Публикация: 1380722   (831565) от 04.05.2020
 
-VA - Vanlife Chill, Vol. 6 (2021) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
+Рафаэль Абалос | Пелена страха (2019) [EPUB]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roberto Bronco, Chris Brauer - Fountain (4:41)
-02. Marc Hartman - Don't Wanna Loose You (Original Mix) (5:24)
-03. Weathertunes - Flower Fields (Original Mix) (5:04)
-04. Weber & Weber - Fading to the Sky (Original Mix) (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:37
+В Лейпциге у знаменитого памятника Битве народов обнаружены трупы пяти девушек. Сотрудники отдела по расследованию убийств пережили шок, когда увидели место преступления, которое было больше похоже на театральную мизансцену. Тела девушек в эротичном нижнем белье лежали в саркофагах, мастерски изображенных на холстах в трех измерениях, отчего при взгляде сверху у (   Читать дальше...   )Жанр: Исторические детективы, Полицейские детективыПеревод: Л.А. ИгоревскийФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AA29A8EBA1291EF927F8F4D794E481B7B84098F
+magnet:?xt=urn:btih:43FF62395BB463582D6FF19CF50450B7F408E5D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,28 +527,184 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498276   (830653) от 13.10.2021
+###  Публикация: 1380230   (831564) от 04.05.2020
 
-VA - Manchester Orange: Urban Chillout Music (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
+Salvador Candel - Luna (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Living Room - Holy Moly – That's a Groove (3:08)
-02. Dellasollounge - Five to Give (Original Mix) (4:13)
-03. Martin Liege - Baby Come On (Original Mix) (3:39)
-04. Martin Hiska - You're My Thrill (6:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:02
+1. Camelot 05:06
+2. Reflejos de luna 05:14
+3. El ritmo de la luna 05:48
+4. Vientos del alma 05:45(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3ECB0A36C695100A93DC851FDDCFDF47E2CA2E78
+magnet:?xt=urn:btih:4D7E6E5B5E3B03A1362CCE4BFEB49376A6AD624A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502059   (831563) от 12.10.2021
+
+О матерях / Madres (2021) WEB-DL [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоко беременная Диана вместе с мужем-мексиканцем селится в иммигрантской коммуне в Калифорнии. Муж занимается сельским хозяйством и постепенно вливается в коллектив, а неговорящая по-испански Диана чувствует себя изгоем. Проводя дни в одиночестве, женщина находит вещи предыдущих жильцов и начинает замечать, что с их новым домом что-то не так.Производство: США / Amazon Studios, Blumhouse ProductionsЖанр: Ужасы, драмаРежиссер: Райан СарагосаАктеры: Ариана Гуерра, Теноч Уэрта, Джейсон Бэйл, Сарай Боррего, Керри Кехилл, Эльпидия Каррильо, Sam Fisicaro, Джозеф А. Гарсиа, Эвелин Гонзалез, Роберт ЛарривьерПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские, английские, испанские, французские, немецкие, итальянскиеПродолжительность: 01:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB5CA6AB1A15B7D7C639519F978A1CACE658CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501913   (831562) от 12.10.2021
+
+Легенда о Зелёном Рыцаре  / The Green Knight (2021) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Король празднует Рождество в замке в окружении двора и верных рыцарей, куда вдруг заявляется загадочный Зелёный Рыцарь и предлагает принять его вызов. Любой из присутствующих может нанести ему удар, но через год и один день он должен будет встретиться с Зелёным Рыцарем в зелёной часовне в девяти днях пути на север и принять удар в ответ. Молодой сэр Гавейн, племянник (   Читать дальше...   )Производство: Ирландия, Канада, США, Великобритания / Sailor Bear, BRON Studios, A24Жанр: Фэнтези, приключения, драмаРежиссер: Дэвид ЛоуриАктеры: Дев Патель, Алисия Викандер, Джоэл Эдгертон, Сарита Чоудри, Шон Харрис, Кейт Дики, Ралф Айнесон, Барри Кеоган, Эрин Келлиман, Анаис РиццоПеревод: Дублированный, Профессиональный многоголосый, Профессиональный двуголосыйСубтитры: Русские (full, FOCS), Английские (full, SDH)Продолжительность: 02:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3CC7BF45D39A1EB566C27D6EA865FED0FBC3C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501958   (831561) от 12.10.2021
+
+Потерянный парадокс / Paradox Lost (2021) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многожанровая история о путешествиях во времени, конце света и длинной импровизационной комедии.Производство: США / AYC ProductionsЖанр: Фантастика, комедияРежиссер: Dennis CurlettАктеры: Кларисса Тибо, Rachel Chapman, Нина Консепсьон, Dennis Curlett, Дэнни Симбал, Кэти Долль, Мэдисон Ланеси, Chuck Maa, Muriel Montgomery, Sydney SteinbergПеревод: Многоголосый профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:32:45Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96986467FAF49AC82853CF4D39C9428A50FAD72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501825   (831560) от 12.10.2021
+
+До самой смерти (К югу от рая) / South of Heaven (2021) WEB-DL [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осуждённый преступник Джимми выходит на свободу, отсидев 12 лет за вооруженное ограбление. Он клянётся Энни, умирающей от рака возлюбленной детства, сделать лучшим последний год её жизни. Но, как быстро выясняется, сделать это не так просто.Производство: США / Arts District Entertainment, Good Wizard, Media Finance CapitalЖанр: Боевик, триллер, драма, криминалРежиссер: Ахарон КешалесАктеры: Джейсон Судейкис, Эванджелин Лилли, Ши Уигхэм, Майк Колтер, Майкл Паре, Амори Ноласко, Джереми Бобб, Тина Паркер, Бен Хикс, Кристина ГонсалесПеревод: Двухголосый любительский (Pazl Voice)Субтитры: АнглийскиеПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3FDD5A1694A6C0DCF9CE93D05AB7FAFF149AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501880   (831559) от 12.10.2021
+
+CGMA, Niels Prayer | Organic Design in Houdini (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831559.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе, посвященном органическому дизайну, мы используем всю мощь Houdini для эффективной реализации сложных эффектов. В течение 6 недель мы разберем целый набор различных сетапов, которые помогут освоить моушн дизайн на практических примерах с нуля до композитинга. После этого занятия вы сможете экспериментировать с программным обеспечением, имея четкое представлением (   Читать дальше...   )Производство: CGMAЖанр: Создание видеоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 12:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3E73FB35E6DC9D1A58BB21088510FC560C4F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501681   (831558) от 12.10.2021
+
+Несправедливость: Боги среди нас / Injustice (2021) BDRip [H.264/1080p] [MVO] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831558.jpg" />
+</div>
+
+
+###  Подробнее
+
+На альтернативной Земле, Джокер обманом заставляет Супермена убить Лоис Лейн и их нерождённого ребёнка, что вызывает ярость у героя. Супермен решает взять под свой контроль Землю, Бэтмену и его союзникам придется попытаться остановить его.Производство: США / DC Entertainment, Ian Rodgers Productions, Warner Animation Group, Warner Bros., Warner Bros. AnimationЖанр: Мультфильм, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Мэтт ПитерсАктеры: Гиллиан Джейкобс, Энсон Маунт, Оливер Хадсон, Аника Нони Роуз, Лора Бэйли, Кевин Поллак, Джастин Хартли, Джанет Вэрни, Юрий Ловенталь, Фред Таташиор, Рейд Скотт, Дерек Филлипс, Фаран Таир, Эдвин Ходж, Брайан Т. Делани, Зак Каллисон, Брэндон Майкл Холл, Эндрю МоргадоПеревод: Профессиональный многоголосый (NewComers)Язык озвучки: Русский, английскийСубтитры: Английские (full)Продолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B7DCA1DB3CC64302F09C7299BD63958482459D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

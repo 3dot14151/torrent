@@ -1,3 +1,55 @@
+###  Публикация: 1267108   (267533) от 05.12.2018
+
+Б.В. Попов | Учись мастерить (1977) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор дает описания разнообразных конструкций для самостоятельного изготовления. Описания конструкций расположены в последовательности возрастания сложности изготовления. Включены конструкции игрового характера. Предлагаемые автором конструкции полезны для развития технического мышления учащихся, умений и навыков самостоятельной работы. Их изготовление возможно при (   Читать дальше...   )Жанр: Сделай сам, самоделкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BC4D07B25C496991DB9E09C1B754D1EA577BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267156   (267468) от 05.12.2018
+
+Ч.Б. Таунсенд | Самые невероятные головоломки (1998) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267468.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередном сборнике из серии «Знаменитые головоломки мира» вас ожидает встреча с уже полюбившимися героями, а также с новыми персонажами - ведьмой Вильмой, Джорджем Мозиласом по прозвищу Трепло и многими другими. Все они бросают вам вызов, не ответить на который просто невозможно. Поломайте голову над их задачками, разгадайте их хитрые загадки и вы сразу почувствуете (   Читать дальше...   )Жанр: Обучение, развитие, логические задачиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F857CC417E4CA415C5CC654D038CBA16355A47F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339117   (267148) от 18.11.2019
 
 Валерий Доскин и др. | Развитие и воспитание детей в домах ребенка (2007) [FB2]
@@ -6,7 +58,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267148.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267125.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267112.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267111.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267088.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266734.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266647.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266646.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266145.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265732.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265333.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264461.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264439.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264437.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264366.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264284.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264263.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264262.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264261.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264257.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264080.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264007.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_263995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_263995.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263964.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFC5D14261A30766BC8B7C7412A84AAD5F9B7786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340484   (263921) от 23.11.2019
-
-Людмила Пензулаева | Оздоровительная гимнастика для детей 3-7 лет. Комплексы оздоровительной гимнастики (2011) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Подвижные Игры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263921.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии представлены комплексы оздоровительной гимнастики для детей 3-7 лет. Приводятся разнообразные игровые задания и игры малой подвижности. Упражнения подобраны в соответствии с особенностями физического развития дошкольников разных возрастных групп, с учетом специфики условий, места проведения (зал, площадка) и времени года.
-Пособие адресовано воспитателям (   Читать дальше...   )Жанр: Планы, конспекты занятий в детском садуФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6F0C306914629C4260040FD397CAE0E97CDBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340354   (263870) от 23.11.2019
-
-В.А. Державина | Большая энциклопедия по английскому языку для школьников (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на основе базового англо-русского словаря рассматриваются все аспекты английского языка и трудности употребления слов. В энциклопедии представлены: произношение английских звуков, правила грамматики объемом для уровня Upper-Intermediate (выше среднего), употребление слов, в том числе слов со схожими значениями. Все заголовочные слова снабжены современной (   Читать дальше...   )Жанр: Учебное пособие, Энциклопедия, Справочник, СловарьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B5FB7EC80C7215C8FE22FB2408EA8693D8FF0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

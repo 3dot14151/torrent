@@ -1,3 +1,110 @@
+###  Публикация: 958037   (324433) от 20.11.2015
+
+Portable vs MInstAll v.19.11.15 by Stranger47 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>WPI
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный сборник программ, распределённых по категориям,для операционных систем Windows x86-x64.
+Выбирайте необходимые программы и запускайте установку.
+Установку программ желательно проводить на чистую систему.Перед установкой программ,необходимо отключить антивирусное программное обеспечение!
+По завершении работы,обязательно перезагрузите компьютер!(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874AEBF88E31A290C0C1F2BAC6C690EEA4AD9475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420941   (321400) от 03.11.2020
+
+DriverPack Solution 17.10.14 Полная версия (DP 20104) [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Драйверы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321400.jpg" />
+</div>
+
+
+###  Подробнее
+
+DriverPack Solution - это когда-то популярная программа для автоматической установки, обновления и поиска драйверов. Это универсальный менеджер установки драйверов для всех версий Windows. В отличие от встроенной в Windows 7 функции обновления драйверов, этой программой можно пользоваться даже без наличия Интернета и для поиска/установки драйверов не только на устройства (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CFAFC422A01E7D3207F6E7D22FDE1CFBE0510CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075150   (319829) от 22.11.2016
+
+Microsoft SQL Server 2016 13.0.4001.0 (Service Pack 1) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Серверное ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение SQL Server 2016 наконец-то вышло! Это наиболее значительный прорыв в истории платформ данных Microsoft’s: более быстрые транзакции и запросы, ценные сведения на любом устройстве, расширенная аналитика, новые технологии безопасности и новые варианты использования при применении гибридного облака. SQL Server 2016 предоставляет передовые функции (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE49F8E8C728074889AF6B886BE1501BB996742F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421593   (314915) от 06.11.2020
+
+Hex Workshop Hex Editor Pro v.6.8.0.5419 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hex Workshop — необходимая каждому разработчику программа, которая содержит в себе полный набор шестнадцатеричных инструментов. Она объединяет в себе функции редактирования бинарных файлов, простоту и гибкость текстового процессора. С её помощью вы сможете редактировать, вырезать, копировать и вставлять, заполнять и удалять бинарные данные. Вы также сможете работать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3073B579A5630C4F03B19E1DE97CB236890EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260277   (313789) от 06.11.2018
 
 DevelNext 16.7.0 [Ru/En]
@@ -6,7 +113,7 @@ DevelNext 16.7.0 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313789.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ Novicorp WinToFlash Business 1.13.0000 RePack (& Portable) by elchupacabra [Ru/E
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306766.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304955.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ Microsoft SQL Server 2012 11.0.6020.0 (Service Pack 3) - Оригинальны�
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296303.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ Microsoft Visual C++ 2015 Redistributable Package 14.0.23506 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294287.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ Microsoft SQL Server 2012 11.0.6020.0 (Service Pack 3) - Оригинальны�
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285036.jpg" />
 </div>
 
 
@@ -167,7 +274,7 @@ Keyboard Leds 2.7.1 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278276.jpg" />
 </div>
 
 
@@ -194,7 +301,7 @@ Clickermann 4.13.014 Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277284.jpg" />
 </div>
 
 
@@ -220,7 +327,7 @@ Adobe FrameMaker 2015 13.0.5.547 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276733.jpg" />
 </div>
 
 
@@ -246,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273177.jpg" />
 </div>
 
 
@@ -272,7 +379,7 @@ JetBrains GoLand 2019.2.5 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267884.jpg" />
 </div>
 
 
@@ -298,7 +405,7 @@ Windows Style Builder (aka Vista Win7 Style Builder) 1.5.6.3 Beta Portable by Xp
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267494.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ Intel Parallel Studio XE Cluster Edition 2019 Update 1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265571.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ Sybase Advantage Database Server 11.10.0.24 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265569.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ Acme CAD Converter 2019 8.9.8.1503 RePack (& Portable) by TryRooM [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264585.jpg" />
 </div>
 
 
@@ -402,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262515.jpg" />
 </div>
 
 
@@ -429,7 +536,7 @@ Microsoft SQL Server 2025 17.0.1000.7 (RTM) + SSMS 22.0 [Ru/En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261673.jpg" />
 </div>
 
 
@@ -455,7 +562,7 @@ SQL Dynamite 2.5.3.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261659.jpg" />
 </div>
 
 
@@ -481,7 +588,7 @@ Mestrelab MestReNova 16.0.0.39276 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261595.jpg" />
 </div>
 
 
@@ -507,7 +614,7 @@ Microsoft  Visual C++ Runtimes AIO v0.103.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261546.jpg" />
 </div>
 
 
@@ -533,7 +640,7 @@ COMSOL Multiphysics 6.4 Build 293 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261534.jpg" />
 </div>
 
 
@@ -559,7 +666,7 @@ JetBrains dotUltimate 2025.2.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261331.jpg" />
 </div>
 
 
@@ -573,110 +680,6 @@ JetBrains dotUltimate 2025.2.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D4858D244FEFCFD3C780BAC0CE766B04084EBE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504561   (260655) от 02.06.2012
-
-Microsoft Lync 2010 Client RUS x86 4.0.7577.0 [Русский]
-
->>Софт и оболочки для специалистов, Прочее
->>Серверное ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Lync 2010 — клиент поистине объединенных коммуникаций, сочетающий возможности обмена мгновенными сообщениями, организации собраний и голосового общения. Приложение Lync 2010 с обновленным интерфейсом объединяет средства связи, работающие привычным для пользователей образом. В клиенте имеется панель инструментов, на которой очень просто найти и вызвать часто используемые функции, такие как номеронабиратель, визуальная голосовая почта, а также списки контактов и активных бесед.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838269   (259851) от 21.11.2025
-
-Microsoft Visual Studio 2026 Enterprise 18.0.1 (Offline Cache) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встреча Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4192B64C71CE4B22566D70B075AD82B9B10F399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838272   (259840) от 21.11.2025
-
-Microsoft Visual Studio 2022 Enterprise 17.14.21 (Offline Cache) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio — это мощное средство разработчика, которое можно использовать для выполнения всего цикла разработки в одном месте. Это комплексная интегрированная среда разработки (IDE), которую можно использовать для записи, редактирования, отладки и сборки кода, а затем развертывания приложения. Visual Studio включает компиляторы, средства завершения кода, управление (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E6CD7043E60B9D609A1EC9B8A74BAFC77C4C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837966   (257718) от 20.11.2025
-
-WinPE 11-10 Sergei Strelec (x64) 2025.11.19 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11, 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F299C871D415F77C5BBC1E106DEFB862A20A66E
 ```
 
 https://mybot314.ru/tekegram_catalog/

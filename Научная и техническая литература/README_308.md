@@ -1,134 +1,3 @@
-###  Публикация: 1301250   (585179) от 11.05.2019
-
-Сергей Малозёмов | Технология бессмертия (2017) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Малозёмов – дипломированный врач и известный тележурналист, автор и ведущий программ «Чудо техники», «Еда живая и мёртвая», документальных фильмов в цикле «Научное расследование» на канале НТВ.
-В этой книге речь идет о том, стоит ли бояться научно-технического прогресса. В Интернете и в прессе пугают, что современная жизнь убивает нас – радиоволнами, ГМО-продуктами, (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F252B8759F596ACB74E3E5BC69943DC7FFF5718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358651   (585140) от 03.07.2011
-
-Натела Ярошенко (гл. ред.) | 2005 практических советов [2004] [DJVU]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга -Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D9E1D24163265BBB768062DDDC8A0CD80D74C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301321   (585125) от 11.05.2019
-
-М.Ю. Рачков | Физические основы измерений (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585125.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены общие аспекты измерения, основные понятия о метрологическом обеспечении измерений, а также в области наноизмерений. Представлена информация о принципах измерения различных физических величин на примерах измерения параметров автомобильных систем. Отдельная глава содержит практические работы по составлению измерительных схем на базе резистивных, (   Читать дальше...   )Жанр: Учебное пособие, ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7ED1508ACFDD7E2FA560D15D78FB271F8866336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301267   (585124) от 11.05.2019
-
-А.И. Апарнев, Л.И. Афонина | Общая химия. Сборник заданий с примерами решений (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее учебное пособие охватывает основные разделы общей химии: химический эквивалент, окислительно-восстановительные реакции в растворах, энергетика и направление химических процессов, химическое равновесие, растворы, коллоидные системы, электрохимические процессы. Каждый раздел содержит краткое теоретическое введение, примеры решения задач и задания для самостоятельного (   Читать дальше...   )Жанр: Учебное пособие, ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE69AD1956896030DE9343AA39A49C11CDA55D3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301261   (585121) от 11.05.2019
-
-В.И. Бабецкий, О.Н. Третьякова | Механика в примерах и задачах (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585121.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии обсуждаются и разъясняются основные понятия и законы, необходимые для решения проблем в области механики. Их практическое применение проиллюстрировано на сравнительно большом массиве задач. Материалы книги могут быть использованы студентами для самостоятельного ознакомления с методами решения основных типов задач механики. Книга дополнена иллюстрациями, (   Читать дальше...   )Жанр: Учебное пособие, ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8702864DE2F010A26FBC099021000AF7579A9A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301256   (585116) от 11.05.2019
 
 О.Д. Максимова | Основы математического анализа. Числовые ряды (2019) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585116.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585109.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585098.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585031.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585004.jpg" />
 </div>
 
 
@@ -268,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584990.jpg" />
 </div>
 
 
@@ -294,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584959.jpg" />
 </div>
 
 
@@ -320,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584952.jpg" />
 </div>
 
 
@@ -346,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584851.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584523.jpg" />
 </div>
 
 
@@ -402,7 +271,7 @@ Rod Pyle | Heroes of the Space Age (2019) [EPUB] [EN]
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584286.jpg" />
 </div>
 
 
@@ -428,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584214.jpg" />
 </div>
 
 
@@ -457,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584175.jpg" />
 </div>
 
 
@@ -483,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584166.jpg" />
 </div>
 
 
@@ -509,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584165.jpg" />
 </div>
 
 
@@ -535,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584091.jpg" />
 </div>
 
 
@@ -561,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584003.jpg" />
 </div>
 
 
@@ -587,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583855.jpg" />
 </div>
 
 
@@ -613,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583424.jpg" />
 </div>
 
 
@@ -639,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583374.jpg" />
 </div>
 
 
@@ -668,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583371.jpg" />
 </div>
 
 
@@ -679,6 +548,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E10324B11FDFF07F64379B0D0328F7B8E90AFAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041063   (583368) от 08.08.2016
+
+Л. Войтасик | Психология политической пропаганды (1981) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583368.jpg" />
+</div>
+
+
+###  Подробнее
+
+К числу работ, продолжающих традиции марксистских исследований проблем пропагандистского воздействия, следует отнести предлагаемую монографию Леслава Войтасика «Психология политической пропаганды». Автор книги хорошо известен в Польше.
+
+Читатель с большим удовлетворением воспримет книгу Л. Войтасика, значительно обогащающую понятийный аппарат теории пропаганды, формулирующую (   Читать дальше...   )Жанр: История, политология, психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94484C460224ADCCCB19ED94CAA7D464B3DE25D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301974   (583322) от 13.05.2019
+
+Николай Непомнящий | Странники Вселенной (1999) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583322.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматривается история контактов человечества с неопознанными летающими объектами на всем протяжении многотысячелетней истории цивилизаций — с древнейших времен до наших дней. Приводятся свидетельства недавних встреч людей с посланцами «невидимого мира», мнения ученых и исследователей непознанного. Картину дополняют рассекреченные сведения из архивов военных (   Читать дальше...   )Жанр: Научно-популярная литература, УфологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE3CB62547472E8D5919F959F379287EA3B3414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301984   (583273) от 13.05.2019
+
+Николай Непомнящий | Экзотическая зоология (1997) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583273.jpg" />
+</div>
+
+
+###  Подробнее
+
+В античные времена василиском называли маленькую змею с белой меткой на голове, живущую в Ливийской пустыне и известную своим смертоносным ядом и способностью передвигаться с поднятой головой. Изображения василиска украшали головные уборы египетских фараонов и изваяний богов. В «Иероглифике» Гораполло мы находим любопытный отрывок, касающийся отношения древних египтян (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD0799CC0F600E41C2E7E0A6F14AB386B9C4DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301986   (583269) от 13.05.2019
+
+А.С. Кузовкин, Н.Н. Непомнящий | Что случилось с эсминцем "Элдридж"? (1991) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько сказок, научно-фантастических произведений связано с чудесными шапками-невидимками или какими-либо другими ухищрениями, делающими человека невидимым.
+А можно ли добиться невидимости в реальной жизни? Проводились ли какие-нибудь исследования в этом направлении?
+Всем этим вопросам и посвящен наш очередной выпуск, рассказывающий о так называемом Филадельфийском (   Читать дальше...   )Жанр: История, Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA8F204FEFD055673EBD5EA17F7E2952D636C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301747   (583264) от 13.05.2019
+
+Дмитрий Язов | Карибский кризис. 50 лет спустя (2015) [FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Маршала Советского Союза Дмитрия Тимофеевича Язова не нуждается в представлении. Волей судьбы ему суждено было стать последним министром обороны СССР – великой державы великой эпохи. Дмитрий Тимофеевич прошел огненными дорогами Великой Отечественной войны, честно служил Родине на всех постах, которые ему доверялись. В сентябре 1962 года 400-й мотострелковый полк (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F977EDAFC33A7293C7DEBF568E87D497DDA597
 ```
 
 https://mybot314.ru/tekegram_catalog/

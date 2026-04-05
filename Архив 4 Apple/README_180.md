@@ -6,7 +6,7 @@ Audirvana 3.5.35 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800987.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Affinity Designer 1.10.4 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800973.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Affinity Photo 1.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800972.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MAMP PRO 6 v6.6 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800969.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MacDroid Pro 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800929.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wondershare Filmora 9 v9.4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800915.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Default Folder X 5.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800645.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ SimBooster Premiun 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800606.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ MacPilot 9.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800516.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Rogue Amoeba Farrago 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800402.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Movie Thumbnails Maker 2 v3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800399.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Website Watchman 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800398.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Keep It 1.8.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800397.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ TurboCollage 7 v7.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800395.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Music Tag Editor 2 v5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800391.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ BetterZip 4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800354.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ TurboMosaic Pro 3.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800339.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Calendar 366 II v2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800329.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Piezo 1.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800299.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Wondershare Recoverit 8 v8.7.2.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800269.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Metadatics 1.6.6 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800262.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ SyncTime 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800260.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Find Any File (FAF) 2.3.2 b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800257.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Coherence X 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800255.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ UltraCompare 21.00.0.40 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800246.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Dropshare 5.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800241.jpg" />
 </div>
 
 

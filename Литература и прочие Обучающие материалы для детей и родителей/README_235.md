@@ -1,3 +1,56 @@
+###  Публикация: 815435   (552514) от 23.08.2014
+
+Константин Иосифов | Охотники за джихами (1962) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто они такие, эти охотники и эти джихи? Миша Капелюшников а Адгур Джикирба впервые задали себе этот вопрос, когда получили странное письмо, которое начиналось словами: «Если ты можешь видеть кончик собственного носа, умеешь хранить тайну и не боишься темноты…» и завершалось подписью: «Охотник за джихами». Много приключений порешили ребята, пока не нашли ответа на (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7808E57F4996F637A48839E19A85FDEE42693EEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 692003   (552502) от 23.08.2013
+
+А. Ивич | Приключения изобретений [1966] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изобретения рождаются, взрослеют и старятся. Жизнь их полна приключений. Они спорят друг с другом, а то и вступают в битвы. Тысячелетие пробирался из страны в страну секрет изготовления бумаги, а электрический свет за год завоевал Европу и... был побеждён в битве с газовой горелкой — люди думали, что навсегда.
+Чертёж вертолёта появился на пятьсот лет раньше, чем (   Читать дальше...   )Жанр: Познавательные рассказыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F826BACD1617395B914FB313685C7014812C28E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 815552   (552453) от 23.08.2014
 
 Ольга Дзюба и др. | Королева красоты (2014) [FB2]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552453.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552439.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552024.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551941.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551938.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551802.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551722.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551691.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551588.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551546.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551268.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550868.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550804.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550770.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550259.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550252.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550251.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550189.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550109.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549898.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549884.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549674.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549288.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549070.jpg" />
 </div>
 
 
@@ -630,63 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88FA8904B8422228374FEA5E3A10A5A12C9C48E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238078   (548831) от 27.07.2018
-
-Александр Борисович Ткаченко | Житие преподобного Сергия Радонежского в пересказе для детей (2014) [PDF, FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не секрет, что дети растут на примерах взрослых. Но едва ли кто-то из нас захочет, чтобы дети во всём нам подражали, ведь хочется, чтобы они были мудрее, счастливее, талантливее своих родителей!
-
-Так на кого же равняться?
-(   Читать дальше...   )Жанр: Житие в переложении для детейФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497FB39BA6268E21942EAB567F4AA4DAAA4E29AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237921   (548763) от 27.07.2018
-
-И. Л. Никольская, Е. Е. Семенов | Учимся рассуждать и доказывать (1989) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помочь школьнику научиться рассуждать, доказывать, вести аргументированный спор, проводить анализ, обобщение, конкретизацию, использовать индукцию, наблюдение, аналогию — главная цель этой книги.
-
-Материал книги подан в виде небольших рассказов, диалогов, бесед, задач, загадок. Изложение ведется в занимательной форме.Жанр: ЛогикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CCF486C13841C0DCE0A86FCF6FEE8618EA017F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

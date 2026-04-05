@@ -1,3 +1,29 @@
+###  Публикация: 999574   (862842) от 23.03.2016
+
+Джон Грин | Виноваты звезды (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подростки, страдающие от тяжелой болезни, не собираются сдаваться. Они по-прежнему остаются подростками – ядовитыми, неугомонными, взрывными, бунтующими, равно готовыми и к ненависти, и к любви. Хейзел и Огастус бросают вызов судьбе. Они влюблены друг в друга, их терзает не столько нависшая над ними тень смерти, сколько обычная ревность, злость и непонимание. Они (   Читать дальше...   )Жанр: РоманПродолжительность: 07:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4DDD9786E16930C1DD47E68B60F63F78091E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999782   (862542) от 23.03.2016
 
 Сергей Довлатов | Наши (2016) [MP3, Максим Суханов]
@@ -6,7 +32,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862542.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862274.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861358.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861080.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859003.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857553.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857310.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857015.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856899.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855552.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855448.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855397.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854546.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853762.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853737.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853713.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853658.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851942.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849991.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849110.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848750.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848416.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847464.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847203.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846760.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C4DE222172E9AE82F7438BFB5588150D656D896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111839   (845152) от 07.03.2017
-
-Михаил Дубинский | Женщина в жизни великих и знаменитых людей (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга, впервые изданная более века назад, до сих пор представляет большой интерес для любителей исторической и мемуарной литературы. Собранный автором богатейший материал послужил основой для создания галереи женских образов, временные рамки которой охватывают более чем двухтысячелетний период. Читатель узнает о влиянии любимых женщин на жизнь, творчество и поступки (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 24:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB5DC983F72E38ACC98630EF3B8DF3189E8A228
 ```
 
 https://mybot314.ru/tekegram_catalog/

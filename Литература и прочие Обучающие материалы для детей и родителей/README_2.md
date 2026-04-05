@@ -1,3 +1,29 @@
+###  Публикация: 1848581   (1053136) от 18.01.2026
+
+В.Н. Наумчик | Физика. Карманный справочник для подготовки к ЕГЭ, ОГЭ и ВПР. 7-11 классы (2025) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карманный справочник по физике содержит все темы, проверяемые ЕГЭ-2025 и ОГЭ-2025. Информация с 7 по 11 классы школьной программы структурирована и представлена понятным языком. Вы быстро найдете ответы на все интересующие вас вопросы по разделам: «Механика» • «Молекулярная физика. Термодинамика» • «Электродинамика» • «Специальная теория относительности» • «Квантовая (   Читать дальше...   )Жанр: Физика, обучение, справочникИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9839BC6038FFD176BD2F37904F07AA45D710C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848577   (1053133) от 18.01.2026
 
 Мария Львова | Английский язык. Супернаглядный справочник. 1–4 классы (2025) [PDF]
@@ -6,7 +32,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053133.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052901.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052807.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052608.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052450.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052210.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052130.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052122.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051916.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051711.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051233.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050952.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050350.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050109.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050099.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050097.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050062.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050061.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050054.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049768.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049767.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049673.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049672.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049671.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049670.jpg" />
 </div>
 
 
@@ -660,35 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:843E5B4F3C11D103DD05078FC482D825A458B828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843928   (1049669) от 23.12.2025
-
-Л.М. Монастырский, Г.С. Безуглова | Физика. ЕГЭ-2025. Тематический тренинг. Все типы заданий (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049669.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии собран материал, необходимый для качественной подготовки к ЕГЭ по физике.
-
-Книга содержит:
-• около 1500 заданий базового, повышенного и высокого уровней сложности по всем разделам курса физики в формате ЕГЭ;(   Читать дальше...   )Жанр: Учебное пособиеИздательство: ЛегионФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B703D2E430688FEF66A6BE946564E8750C6235
 ```
 
 https://mybot314.ru/tekegram_catalog/

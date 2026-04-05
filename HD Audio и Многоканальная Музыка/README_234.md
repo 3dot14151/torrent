@@ -1,32 +1,3 @@
-###  Публикация: 1761854   (36508) от 22.11.2024
-
-Sexual Music Collection - After Dark Sex Red Room (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bedtime Jazzy Bliss (3:20)
-02. Tango Temptation (3:41)
-03. Love & Lust (3:15)
-04. Midnight Confessions (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9CA58AC177FD5C23AF961D22AA2EFE85FD3FA34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761715   (36506) от 22.11.2024
 
 Pet Shop Boys - Nonetheless (2024) expanded edition, 2024, Parlophone UK [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synth-pop, New Wave>
@@ -35,7 +6,7 @@ Pet Shop Boys - Nonetheless (2024) expanded edition, 2024, Parlophone UK [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36506.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Chicago - Live At 55 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36485.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Die for my Sins - Scream (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36483.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Soft Jazz Mood - Erotic Daydreaming: Romantic Sexy Relaxation (2024) [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36482.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ U2 - How To Dismantle An Atomic Bomb (Re-Assemble Edition) (2004) Remastered, 20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36479.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Mur - Mur (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Progressive 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36471.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Mell Vf - Queen Of My Castle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36470.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Mystery Moon - Shine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36467.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Luminare Christmas! - Mistletoe Madness (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36466.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Van Zant - Always Look Up (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36465.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Viktoria Tolstoy - Stealing Moments (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36464.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Ancient - Studio Albums (9 releases) (1994-2016) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36463.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Storace - Crossfire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36461.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Sunstorm - Restless Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36459.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Tygers Of Pan Tang - Animal Instinct (2008) Reissue, 2024, Mighty Music [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36457.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Black Pumas - Live from Brooklyn Paramount (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36456.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ The Smoothies - It's Christmas Around the World: A Cozy Soulful Christmas (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36452.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Motley Crue - Dr. Feelgood (1989) 35th Anniversary, Remaster, 2024,  BMG Rights 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36451.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Alice Cooper - Muscle Of Love (Expanded) (1973) Reissue, Remastered, 2024, Warne
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36447.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Queen - Greatest Hits II (1991) /2013 SHM-SACD/ [DSD 2.0 1bit/2822,4kHz |SACD-R]
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36429.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Golden Ballads. Лучшие Баллады Последних Десяти
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36294.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36255.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Romantic Collection. Metal Ballads (1999) Compilation, Unofficial Release [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36184.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Suicidal Angels - Studio Albums (9 releases) (2007-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36135.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Keep of Kalessin - Studio Albums (9 releases) (1997-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35841.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Keep of Kalessin — метал-группа из Тронхейма, Норве
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:238CFB97E998C7E3439221401141B8645FE8AAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762941   (35839) от 28.11.2024
+
+Benjamin Croft - We Are Here to Help (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carter Arrington - Age of Magrathea (7:14)
+02. Carter Arrington - We Are Here to Help (5:10)
+03. Mike Stern - You Made Me Miss (6:48)
+04. Lynsey Ward - Caught in the Flypaper (6:15)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60114C3E90476F1C152C1D074F28FE54E09F2032
 ```
 
 https://mybot314.ru/tekegram_catalog/

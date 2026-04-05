@@ -1,3 +1,32 @@
+###  Публикация: 1640403   (237479) от 17.06.2023
+
+Vision Denied - Age Of The Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:41]
+02. Two Worlds Collide [00:03:49]
+03. Age Of The Machine [00:04:10]
+04. Broken Wings [00:05:20](   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CAE5EB399B6DDCB9BFE1BA4750422661A45E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627280   (237462) от 18.04.2023
 
 Your Best Adornment - Инфант (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
@@ -6,7 +35,7 @@ Your Best Adornment - Инфант (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237462.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Moonscape - The Continuum Synergy (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237455.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Convergence - Extinction Level Event (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237454.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Anthemon - Arcanes (2003) [FLAC|Lossless|image + .cue] <Symphonic Gothic, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237453.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Avarice - Avarice (2023) [MP3|320 Kbps] <Melodic Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237445.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Alex Stephens - The Path (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237439.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ NormBreaker (NormBreäker) - The Beginning (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237433.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Michael Morales - Thump (1991) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237430.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Matt Tebow - Premonitions (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237425.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ hManx - No Nails for Jesus (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237422.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Thergothon - Stream From The Heavens (1994) Reissue, 2009, Peaceville [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237421.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Space Paranoids - Badlands Ride (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237417.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Gates of Prophecy - Gates of Prophecy (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237414.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Immortals - No Turning Back (1986) UK 12" Single [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237409.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ LAC - Limbo (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237408.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Phlesh - The Decomposing (2023) [MP3|320 Kbps] <Gothic, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237401.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Hyades - The Wolves Are Getting Hungry (2015) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237400.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Spirit - Le Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237398.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Lindsey Buckingham - Go Insane (1984) Germany 12" Single [MP3|320 Kbps] <Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237391.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Mid Sun - Depreciate (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237390.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Gino Vannelli - In the Name of Money (1987) US 12" Single [MP3|320 Kbps] <Pop Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237384.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ ScreaMachine - ScreaMachine (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237378.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Big City - Sunwind Sails (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237376.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Peter Hammill – Out Of Water (1990) [FLAC|Lossless|tracks + .cue]<Art Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237375.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Suton - Sacrilegious (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237372.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ Suton - Sacrilegious (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94C42D1608621AE008933A8F33D03E989AA98E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502670   (237365) от 16.10.2021
-
-Midnight Phantom - Hollywood Dreams (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forbidden Land (03:21)
-02. Human Race (04:38)
-03. Where I Belong (04:13)
-04. Children Of The 80s (05:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97390A7827959DB19512EB542AE62C8656CC2E24
 ```
 
 https://mybot314.ru/tekegram_catalog/

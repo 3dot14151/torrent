@@ -1,3 +1,82 @@
+###  Публикация: 1463234   (1010056) от 20.06.2021
+
+Exit From (2021) [Ru/Multi] (1.1.1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exit From - это хардкорная хоррор-стелс игра с элементами квеста и упрощенного рогалика от первого лица, в которой вам предстоит выбраться из старого советского дома, изменяющегося каждую новую игру.
+Главный герой просыпается от грозы и не понимает где находится. Все квартиры пусты и никого нет. Вы решаете выбраться, и, со временем, понимаете, что в доме не так уж (   Читать дальше...   )Тип издания: RepackРазработчик: concole_, ElendelyЖанр: Action, Adventure (Horror), 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E572E1D8EA030655431D52D5FEB9679728E5B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203980   (1009734) от 22.06.2021
+
+Sherlock Holmes: The Devil's Daughter (2016) [Ru/Multi] (47726) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sherlock Holmes: The Devil’s Daughter - это захватывающее приключение с уникальным игровым процессом, в котором сочетаются элементы детектива и боевика. Благодаря этой комбинации игра подарит вам совершенно новые ощущения и станет настоящей проверкой ваших дедуктивных способностей. Злу не скрыться от вас - ни в темных переулках Лондона, ни в глубинах человеческой (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Приключение, От первого лица, ДетективЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3CFBBF3190FCCA32BA2D0917533B786C18928ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479638   (1009369) от 25.06.2021
+
+Minute of Islands (2021) [Multi] (1.0) License GOG [Digital Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша героиня Мо – искусная мастерица, живущая со своей семьёй на пасторальном архипелаге, некогда населённом древней расой непостижимых великанов. Их потусторонние, но жизненно важные машины, гноящиеся в недрах самих островов, должны продолжать работать, иначе почти забытая угроза поглотит всё. Мо клянётся вовремя восстановить скрытые двигатели, но нужно ли ей это (   Читать дальше...   )Тип издания: LicenseРазработчик: Studio FizbinЖанр: Action, Adventure, Platformer, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1EB20D22DA3CBD19FCAFE8695BF3F6D7C32FE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475678   (1007662) от 07.07.2021
 
 Overboard! (2021) [En] (1.3.1) License GOG
@@ -6,7 +85,7 @@ Overboard! (2021) [En] (1.3.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007662.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Wonhon: A Vengeful Spirit (2021) [Ru/Multi] (1.0.4r) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006566.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Lona: Realm of Colors (2021) [En] (0.1.23) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006448.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Paper Beast (2020) [Ru/Multi] (1.0) License GOG [Folded Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006238.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ Last Stop (2021) [Ru/Multi] (7027314) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005650.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ Summer of '58 (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005539.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ Creepy Tale 2 (2021) [Ru/Multi] (1.1.7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005034.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ Omno (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004806.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Horror Tales: The Wine (2021) [Ru/Multi] (Build 6722952) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004670.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ HORROR TALES: The Wine (2021) [Ru/Multi] (Build 6722952) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004650.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Night Delivery (2021) [Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004537.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004398.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ Back to the Future: The Game (2010) [Multi] (1.0.0.8) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004186.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ Submerged (2015) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003974.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ Secret Files: Tunguska (2009) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003925.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ A Bird Story (2014) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003752.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003701.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.4.50233) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003386.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18208471) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003361.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ The Great Ace Attorney Chronicles (2021) [En] (Build 6837188) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003210.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.4.240) Repack Mr_Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003100.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.2.0267/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002752.jpg" />
 </div>
 
 
@@ -578,7 +657,7 @@ Almost My Floor (2021) [Ru/En] (1.0.1) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002709.jpg" />
 </div>
 
 
@@ -589,84 +668,6 @@ Almost My Floor (2021) [Ru/En] (1.0.1) License DARKSiDERS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81027D6BE295C65EFE64443CFAA56B03360B6312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488191   (1002251) от 10.08.2021
-
-Lone Survivor: The Director's Cut (2012) [En] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой этой психологической приключенческой игры, человек в маске, должен любым путём покинуть поражённый болезнью город. Голодный и изнурённый, он начинает задаваться вопросом: что из того, что он видит, действительно реально? Новый тип приключенческих игр, где решения зависят только от Вас: пробраться украдкой без единого выстрела или убить всех на своём пути; хорошо (   Читать дальше...   )Тип издания: LicenseРазработчик: Jasper ByrneЖанр: Horror, Psychological, SurvivalЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F52990426EDB708BB7F031B9884C94ECB664B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351412   (1002114) от 10.01.2020
-
-Mythic Ocean (2020) [En] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что бы вы сделали, если бы были друзьями богов и ваше влияние на них могло бы изменить вселенную? Мифический океан-это атмосферное и очаровательное приключение, где вы подружитесь с пантеоном богов под водой, поможете им найти себя и сделаете выбор, который сформирует создание нового мира. Изучите все результаты. Какой бог поднимется выше? Какой мир они создадут? (   Читать дальше...   )Тип издания: LicenseРазработчик: Paralune LLCЖанр: ПриключениеЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1635C79193710E177EFFBD211F5E870F2788E38F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488690   (1001661) от 12.08.2021
-
-Foreclosed (2021) [Ru/Multi] (7174262) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичная приключенческая игра с захватывающим сюжетом, действие которой разворачивается в киберпанковом мире, где нет недостатка в захватывающих интригах и экспериментальных дополнениях. Следите за судьбой Эвана Капноса: его лишили личности, работы, мозговых имплантов и доступа в городскую блок-сеть. Теперь он должен сбежать, пока его личность и импланты не продали (   Читать дальше...   )Тип издания: LicenseРазработчик: Antab StudioЖанр: Cyberpunk, Adventure, Action, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCF3BAA471A49C32ED4E616BFB081FE05A37B2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

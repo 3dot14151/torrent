@@ -1,3 +1,33 @@
+###  Публикация: 253987   (364203) от 04.11.2010
+
+Ленинград - Последний Концерт Ленинграда (2010) [MP3|320 kbps]<Ска>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello, Moscow
+02. МДМ
+03. ИТД
+04. Паганини
+05. Когда нет денегЖанр: СкаПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB8F4BDDC4ADE8BF8F6214224FE452683974BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070808   (364194) от 08.11.2016
 
 VA - Rock Idols (2016) [MP3|320 Kbps] <Rock>
@@ -6,7 +36,7 @@ VA - Rock Idols (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364194.jpg" />
 </div>
 
 
@@ -35,7 +65,7 @@ Ginevra - We Belong To The Stars (2022) [MP3|320 Kbps] <Melodic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364189.jpg" />
 </div>
 
 
@@ -64,7 +94,7 @@ Rocky MTN Roller - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364185.jpg" />
 </div>
 
 
@@ -93,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364167.jpg" />
 </div>
 
 
@@ -122,7 +152,7 @@ Electric Light Orchestra - The Gold Collection (1996) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364164.jpg" />
 </div>
 
 
@@ -151,7 +181,7 @@ Fans Of The Dark - Suburbia (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364156.jpg" />
 </div>
 
 
@@ -180,7 +210,7 @@ Rave The Reqviem - FVNERAL [sic] (2018) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364135.jpg" />
 </div>
 
 
@@ -209,7 +239,7 @@ Behemoth - Opvs Contra Natvram (2022) [MP3|320 Kbps] <Blackened Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364122.jpg" />
 </div>
 
 
@@ -238,7 +268,7 @@ Bad Company - An Introduction To Bad Company (2018) [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364102.jpg" />
 </div>
 
 
@@ -267,7 +297,7 @@ Status Quo - Quo'ing in: The Best of the Noughties (2022) 2xCD, Compilation [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364090.jpg" />
 </div>
 
 
@@ -296,7 +326,7 @@ House Of Lords - Saints And Sinners (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364048.jpg" />
 </div>
 
 
@@ -325,7 +355,7 @@ Black Sabbath - Best Ballads (1996) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364037.jpg" />
 </div>
 
 
@@ -354,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364036.jpg" />
 </div>
 
 
@@ -383,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364032.jpg" />
 </div>
 
 
@@ -412,7 +442,7 @@ Bonfire - Legends (2018) 2CD [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363838.jpg" />
 </div>
 
 
@@ -441,7 +471,7 @@ Soulfly - Ritual (2018) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363836.jpg" />
 </div>
 
 
@@ -470,7 +500,7 @@ Amaranthe - Helix (2018) [MP3|320 Kbps] <Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363821.jpg" />
 </div>
 
 
@@ -499,7 +529,7 @@ Mano Negra - Best Of (1998) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_363719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_363719.jpg" />
 </div>
 
 
@@ -534,7 +564,7 @@ Cosmic Overdose - 4668 (1981) LP [MP3|320 Kbps] <Electronic, Alternative Rock, S
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363717.jpg" />
 </div>
 
 
@@ -563,7 +593,7 @@ Big Red Panda - Voyage (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363715.jpg" />
 </div>
 
 
@@ -592,7 +622,7 @@ The Maine - You Are OK (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363714.jpg" />
 </div>
 
 
@@ -621,7 +651,7 @@ PIG - Mobocracy (2019) EP [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indus
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363711.jpg" />
 </div>
 
 
@@ -650,7 +680,7 @@ Borknagar - True North (2019) [FLAC|Lossless|Web-DL|tracks] <Black Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363592.jpg" />
 </div>
 
 
@@ -679,7 +709,7 @@ Von Wegen Lisbeth - Sweetlilly93@hotmail.com (2019) [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363585.jpg" />
 </div>
 
 
@@ -708,7 +738,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363439.jpg" />
 </div>
 
 
@@ -722,35 +752,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60E4FE38DF54E6EBB1EFC7020B8342407401840C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328512   (363414) от 30.09.2019
-
-Klone - Le Grand Voyage (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Prog Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yonder
-02. Breach
-03. Sealed
-04. Indelible(   Читать дальше...   )Жанр: Progressive Metal, Prog Rock, Alternative RockПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB81462435A30FD1AAAA6B15A961A3D2C3B0004
 ```
 
 https://mybot314.ru/tekegram_catalog/

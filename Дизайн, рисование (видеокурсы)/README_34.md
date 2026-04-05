@@ -1,3 +1,55 @@
+###  Публикация: 1403299   (691911) от 19.08.2020
+
+Nathan Glemboski | Animating a Short Film in Maya and Unreal Engine (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691911.jpg" />
+</div>
+
+
+###  Подробнее
+
+С этими уроками мы научимся использовать Движок Анрил, как рабочий инструмент для рендеринга анимаций вроде короткого фильма, который мы создали в Майя. Приготовление анимаций и Активов для работы в игровом движке происходит иначе, нежели в привычном движке, вроде Mental Ray. Тут есть свои сложности и то, над чем нужно поработать, но сама возможность делать рендер (   Читать дальше...   )Производство: PluralsightЖанр: Создание видеоПродолжительность: 02:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEADAEC9008D732FC1D997804D959009743B3971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403703   (688030) от 21.08.2020
+
+Станислав Демченко и Дмитрий Крипаков | Частицы в Гудини (2019) HDRip
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688030.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Частицы в Гудини" - это оригинальный авторский курс по системе частиц на русском языке. Курс предназначен для моушен-дизайнеров и всех, кто хочет не просто повторять чужие уроки, а глубоко понимать логику поведения частиц.Производство: Houdini по-русскиЖанр: 3DПродолжительность: 07:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0ECF82FD0AF47E30693BB1309E9BDAC8724CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028549   (687967) от 23.06.2016
 
 akmshik | Создание видео в After Effects на основе шаблонов (2016) PCRec [H.264/720p]
@@ -6,7 +58,7 @@ akmshik | Создание видео в After Effects на основе шаб�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687967.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Jakub Krompolc | Exploring Human Muscles Setup in Maya (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686039.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Design+Code | Flutter для дизайнеров / Flutter for Designers (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685898.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684677.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684452.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684448.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Udemy, Nexttut, Arash Arefnia | Creating Next-Gen Environments in UE5 (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680176.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ SideFx, Ari Danesh | Intro to PDG (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676567.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ MZED, Марк Эдвард Льюис | Sound Advice Tour (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674768.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Entagma, Moritz Schwind | PDG for Design in Houdini (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674766.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Digital Tutors, Tim Callaway | Joint-Based Facial Rigging in Maya (2013) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674624.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ FXPHD, Andrew Lowell | Houdini Procedural Spline Modeling (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674473.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Pluralsight, Alex Jerjomin | Game Environment Modeling Fundamentals (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674323.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ Levelup.Digital, Phil Liu | Creating a Fantasy Trim Texture (2020) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674316.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ CGMA, Ben Keeling | Intro to Substance for Environment Art (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674313.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Uartsy, Mike Defeo | Stylized Character Development (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674180.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ Udemy, Daniel Krafft, Design School Online | Make Hyper-Realistic Outdoor Enviro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674179.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ Entagma, Мануэль и Мориц | Patreon Advanced CG Tutorials Part 1-5 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674173.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Gumroad, Michael Pavlovich | ZBrush 2021 & 2021.6 What's New (2020) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674172.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674171.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ CGMA, Gael Kerchenbaum | Sculpting Anatomy from Animal to Creature (2019) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674167.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ Flippednormals, Christian Bull | Fundamental Anatomy for Sculptors (2021) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674165.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Learn Squared, Javier Perez | Substance Designer Essentials from Javier Perez (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674162.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ CGMA, Peyton Varney | Environment Art for Games in UE4 (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674060.jpg" />
 </div>
 
 
@@ -627,60 +679,6 @@ CGMA, Peyton Varney | Environment Art for Games in UE4 (2020) PCRec [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33B196E9413DC3E0B13F8122952CC4BCCF686597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534773   (674058) от 12.03.2022
-
-CGMA, Hannah Kang | Stylized Characters in 3D (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная задача этого курса - научить вас процессу создания стилизованного персонажа. В итоге вы создадите стилизованного персонажа с нуля. Мы начнем со сбора концептов и референсов и на их основе создадим базовую форму персонажа. Проработаем первичные и вторичные формы, создадим более подробную детализацию. Особое внимание будет уделено созданию привлекательности (   Читать дальше...   )Производство: CGMAЖанр: СкульптингЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 07:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215923C188C1E9B9EE9859A6A4ECDE47B47A02C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535713   (674050) от 12.03.2022
-
-Udemy, Rob Tuytel, Erik Selin | Creating 3D environments in Blender (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674050.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе вы получите фундаментальные знания по созданию объемных пейзажей, научитесь получать максимум от программы Blender в создании высококачественных 3D окружений.
-Начнем с нуля.
-Видимая внешняя сложность часто отталкивает многих людей от создания пейзажей и окружения в 3D. Большая часть дизайнеров бросает это занятие на пол-пути, работы остаются незаконченными, (   Читать дальше...   )Производство: UdemyЖанр: Создание 3D окруженияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 28:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686B4E8FB7524C6618AB23EB218741C30B0D1E52
 ```
 
 https://mybot314.ru/tekegram_catalog/

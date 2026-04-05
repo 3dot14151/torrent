@@ -6,7 +6,7 @@ Shoukoku no Altair / Altair: A Record of Battles / Альтаир: На Поро
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154501.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Bishoujo Senshi Sailor Moon Crystal / Pretty Guardian Sailor Moon Crystal / Пр
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152818.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Boruto: Naruto the Movie / Боруто: Фильм Наруто [2015, MV] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152651.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Absolute Duo / Абсолютный Дуэт [2015, TV, 12 ep] BDRip Hi10p 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151923.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cyborg 009 | Киборг 009 [1966, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150184.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ One Punch Man / Ванпанчмен [2015, TV, 12] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149727.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Taimadou Gakuen 35 Shiken Shoutai / Антимагическая академи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146080.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146042.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Occultic;Nine / Оккультная девятка [2016, TV, 12 ep] WEB-DL 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145478.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Subete ga F ni Naru: The Perfect Insider / Everything Becomes F: The Perfect Ins
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144351.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Gekijouban KanColle / Gekijouban Kantai Collection / Fleet Girls Collection KanC
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143655.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Drifters / Скитальцы [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143482.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143304.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12 ep] WEB-DL 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142996.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Kino no Tabi: The Beautiful World / Kino’s Journey -the Beautiful World- / П�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142990.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Dies Irae / Судный День [2017, TV, 11 ep + SP] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142974.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Kekkai Sensen & Beyond / Стражи Барьера и Загранье [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142949.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Owari no Seraph: Nagoya Kessen Hen / Seraph of the End: Battle in Nagoya / По�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142056.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Two Car / Двое за Рулем [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141486.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Bungou Stray Dogs / Бродячие псы литературы [2016, TV, 24 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139594.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ UQ Holder! Mahou Sensei Negima! 2 / Владелец вечности! Волш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139263.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Santa Company / Компания Санты [2014, Movie] BDRip 720 10-bit Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138553.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Himouto! Umaru-chan R / Двуличная сестрёнка Умару [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137453.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Kujira no Kora wa Sajou ni Utau / Children of the Whales / Поющие в Пе�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137359.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Valkyrie Drive: Mermaid / Сила Валькирии: Русалочка [2015,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137314.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Ajin 2 (2016) / Полулюди [ТВ-2] [2016, TV, 13 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137208.jpg" />
 </div>
 
 

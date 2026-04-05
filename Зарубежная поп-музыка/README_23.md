@@ -6,7 +6,7 @@ Emin - Good Love (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766918.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Radio music (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766906.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766745.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Zazu - Captain Starlight (1979) 12'' [MP3|320 Kbps] <Electronic, Pop Rock, Cosmi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766295.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ VA - Sexy Bedroom Songs 2020 (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766292.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Sound Of Music - 2 Albums (1986, 1987) CD [MP3|320 Kbps] <Electronic, Synth-pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765486.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Sign System - Burning Down (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765480.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Espionage - Espionage (1983) Vinyl, LP [MP3|320 Kbps] <Electronic Pop Rock, Synt
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765440.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Bosson - One In A Million (2001) [MP3|320 Kbps] <Pop, Europop, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764970.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Don Bernini - Telepatia (1979) [MP3|320 Kbps] <Electronic, Space Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764964.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Great Disco Bouzouki Band - Disco Bouzouki (1978) LP [MP3|320 Kbps] <Pop, Di
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764605.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - The Best Of Pop Dance 80 Vol.1 (2010) [MP3|320 Kbps] <Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764486.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - NRJ Future Hits (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763988.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - 44 Hits Latino (2018) [MP3|320 Kbps] <Reggae Fusion, Salsa, Bachata, Dembow
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763972.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Bravo Hits,Vol.104 (2019) [MP3|320 Kbps] <Pop, Dance, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763642.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Luis Fonsi - VIDA (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763639.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Bosson - RockStar (2004) [MP3|320 Kbps] <Pop, Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763302.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Max Berlin - 2 Albums, 2 Singles & EPs (1978-1987) Vinyl [MP3|320 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763293.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Fun Club (2018) [MP3|320 Kbps] <Reggae Fusion, Indie Dance, Groove, Nu-Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763181.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Psy’Aviah (feat. Kyoko Baertsoen) - Train of Thought (2020) [MP3|320 Kbps] <Sy
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762305.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Playlist Hits (2019) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762227.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Best Covers (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762203.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - #Hits 2018 #2 (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761538.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Marc De Ville - Don't Smile (1979) LP [MP3|320 Kbps] <Electronic, Power Pop, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760435.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ VA - Deutsche Schlager Hits Deluxe 2018 (80 Discofox Hits) [MP3|320 Kbps] <Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759833.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Dave Edmunds - 2 Albums (1983, 1984) [MP3|320 кб/с] <New Wave, Pop Rock, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759271.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1126472   (1032459) от 10.02.2021
+
+Donato Dozzy | Voices From The Lake - Discography 53 Releases (2004-2020) Spectrum Spools, Further, Spazio Disponibile [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Experimental, Minimal ...
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volo 1 (06:59)
+ 02. Volo 2 (07:22)Тип издания: CD, Web, VinylЖанр: Techno, Ambient, Experimental, Acid, Minimal •Продолжительность: 24:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A4311D429504AF19CCE948B667EE9B28353BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620376   (1032330) от 19.03.2023
 
 Kx5 & deadmau5 & Kaskade - Kx5 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House, Techno>
@@ -6,7 +33,7 @@ Kx5 & deadmau5 & Kaskade - Kx5 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032330.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Deep Blu' - Under The Ocean (2006) [FLAC|Lossless|tracks + .cue] <Deep House, Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032080.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ Haddaway - Best (1993) [FLAC|Lossless|tracks] <House, Europop, Euro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031753.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ Special Request - Discography 24 Releases (2013-2021) Houndstooth [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030417.jpg" />
 </div>
 
 
@@ -122,7 +149,7 @@ VA - Yossi Amoyal Presents Fluere II (2020) Sushitech Records [FLAC|Lossless|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030257.jpg" />
 </div>
 
 
@@ -151,7 +178,7 @@ VA - Spencer Brown Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030230.jpg" />
 </div>
 
 
@@ -180,7 +207,7 @@ VA - Depth Charge - Electro Boogie - Shape Generator (1999) Studio !K7 [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030214.jpg" />
 </div>
 
 
@@ -209,7 +236,7 @@ Planet of Sound & Cider Sky - Together (2014) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029777.jpg" />
 </div>
 
 
@@ -236,7 +263,7 @@ VA - Soul Diary Chapter.1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029579.jpg" />
 </div>
 
 
@@ -265,7 +292,7 @@ The Field - Discography 19 Releases (2005-2018) Kompakt [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029323.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ Orbital - Discography 120 Releases (1989-2019) FFRR, Internal, ACP Recordings [F
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029247.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ VA - Paerels (2017) Nous'klaer Audio [FLAC|Lossless|WEB-DL|tracks] <Electro, Amb
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028559.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ E-Talking - Techno Man's Land (2021) Going Good [FLAC|Lossless|tracks+.cue] <Ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028545.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ VA - Paerels II (2020) Nous'klaer Audio [FLAC|Lossless|WEB-DL|tracks] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028540.jpg" />
 </div>
 
 
@@ -410,7 +437,7 @@ Guy Andrews (iambic, iambic², The Moving Dawn Orchestra) - Discography 20 Relea
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028507.jpg" />
 </div>
 
 
@@ -439,7 +466,7 @@ VA - Heavy Dub Vol. 1-6 (2016-2021) Cold Tear Records [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028451.jpg" />
 </div>
 
 
@@ -468,7 +495,7 @@ Topdown Dialectic - Discography 6 Releases (2014-2019) /\\Aught, Peak Oil [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028235.jpg" />
 </div>
 
 
@@ -497,7 +524,7 @@ Rod Modell (DeepChord, Waveform Transmission, Shorelights, Imax, Global Systems 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027820.jpg" />
 </div>
 
 
@@ -526,7 +553,7 @@ Kaskade - Reset (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive Trance,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027758.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ VA - Oslated 5th Anniversary Compilation (2021) Oslated [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027247.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ Nathan Fake - Discography 29 Releases (2003-2021) Border Community, Ninja Tune [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027018.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ VA - Techno Zone Vol. 4 (2000) [FLAC|Lossless|tracks + .cue] <Techno, Euro House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026435.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ VA - Klubb House 2006. Tribal House 2 (2006) [FLAC|Lossless|image + .cue] <Triba
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026265.jpg" />
 </div>
 
 
@@ -671,7 +698,7 @@ Mono Peninsula - Archangelsk (2021) ROHS! Records [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025995.jpg" />
 </div>
 
 
@@ -700,7 +727,7 @@ VA - Dub Techno (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025992.jpg" />
 </div>
 
 
@@ -714,35 +741,6 @@ VA - Dub Techno (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08FA709FFCF358B89626AE378D0E40239D8C91F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118236   (1025865) от 17.03.2021
-
-Grad_U (Re_Grad) - Discography 32 Releases (2010-2021) Redscale, Greyscale [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biomechanics (06:45)
- 02. Pawasaris Uzh Lango (04:41)
- 03. Earth's Core (06:42)
- 04. Bounce 06 (12:16)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Dub Techno, Ambient, Techno, Minimal •Продолжительность: 21:38:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A2C08DB402A4C8FAE579E82D1C58576C655C78
 ```
 
 https://mybot314.ru/tekegram_catalog/

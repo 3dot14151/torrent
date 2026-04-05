@@ -1,3 +1,29 @@
+###  Публикация: 1278565   (771305) от 25.01.2019
+
+Проекты - VideoHive - The Heart Of The Nature Logo Reveal - 23107712 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771305.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Heart Of The Nature Logo Reveal показывает анимационную природы состоящую из 2-х сцен, с анимацией высококачественных деревьев, бабочек, птиц и демонстрирует в конце ваш логотип.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AE35CFF0A39849D345408C96248A286A05757A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391900   (771188) от 22.06.2020
 
 Проекты - VideoHive - Footprint Opener - 21875928 [AEP]
@@ -6,7 +32,7 @@
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771188.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771066.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771012.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769613.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768457.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768390.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766516.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764286.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764157.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762406.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760772.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759458.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759455.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759079.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758913.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758897.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758833.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757316.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755529.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755426.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755424.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753708.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753630.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753629.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753623.jpg" />
 </div>
 
 
@@ -649,34 +675,6 @@ Rock Vintage Logo - Поместите свой логотип на сцене -
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CD21BF6D94CC0764DF40C9C18305F37DDE3C521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018776   (753572) от 21.05.2016
-
-Проекты - VideoHive - Sci-Fi Hi Tech Micro Electric Wire [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sci-Fi Hi Tech Micro Electric Wire - это фантастический, высокотехнологичный проект для создания логотипа.
-Шаблон настраиваемый. Можно изменить цвет фона, цвет фона частиц, блики, цвет HUD.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0002A2656A368FDCBDB36A69B69F92391D78AEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

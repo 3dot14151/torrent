@@ -1,3 +1,61 @@
+###  Публикация: 1363465   (942410) от 28.02.2020
+
+Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942410.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:38| 01. Enter The Ride
+|03:17| 02. Neon Gray
+|03:31| 03. Time Capsule
+|01:42| 04. Reverse Part(   Читать дальше...   )Жанр: Soundtrack, Score, ElectronicПродолжительность: 01:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9113F33E46582757400EFAAFEEDE1E9200173B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361926   (942400) от 28.02.2020
+
+Paweі Bіaszczak - Dying Light Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harran
+02. Horizon
+03. Passage
+04. Runaway(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4361CBCC654E87534AA1AD381FE2A81504556B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363466   (942325) от 28.02.2020
 
 Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Electronic>
@@ -6,7 +64,7 @@ Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture S
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942325.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942318.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941771.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Tom Holkenborg aka Junkie XL - Дэдпул / Deadpool (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941596.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ R. Carlos Nakai & Will Clipman - Awakening The Fire (2013) [FLAC|Lossless|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941516.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ George Streicher - Howard Lovecraft and the Frozen Kingdom / Говард и З�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941438.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Eric Chiryoku - 3 альбома (2006-2012) [MP3|320 кб/с]<New Age, Easy Lis
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941155.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Dagda - 6 альбомов (1999-2010) [MP3|320 кб/с]<New age, Meditative, Ce
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941153.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ Ruaidhri - Celtic Landscapes (2013) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940270.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ Sarah Harmer - Are You Gone (2020) [FLAC|Lossless|tracks + .cue] <Rock, Pop, Fol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939533.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ Anuvida & Nik Tyndall - Reiki Healing Hands (1995) [FLAC|Lossless|tracks + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939512.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ Clint Mansell & Kronos Quartet - Noah (2014) [FLAC|Lossless|tracks + .cue] <Scor
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938472.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ M83 - Suburra (2015) Original Motion Picture Soundtrack [MP3|320 кб/с]<Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938232.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937962.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Keegan DeWitt - All the Bright Places / Все радостные места (Mu
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937950.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Justin E. Bell - The Outer Worlds (Original Soundtrack) [FLAC|Lossless|WEB-DL|tr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937905.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Keegan DeWitt - All the Bright Places / Все радостные места (Mu
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937901.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Dreamstate Logic - 6 Compilations (2015-2020) [MP3|320 Kbps] <Ambient, Downtempo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937739.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Ylric Illians - Celtic Zen 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celt
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937331.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Ethereal in E - Up. (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937321.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Giorgio Costantini - Dreamers (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937238.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Бильядрная братия / The Rack Pack (Music From The Mition Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937154.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Felix Slovacek - Con amore (1998) [FLAC|Lossless|tracks + .cue] <Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936399.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Max Arnald - Piano Covers (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936391.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Max Arnald - Piano Covers (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCB2DA294991813E5999D5DE705A26CE5B74BEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364289   (936309) от 03.03.2020
-
-Felix Slovacek - World Melodies (2014) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Mio Babbino Caro
-02. Una Furtiva Lagrima
-03. Barcarolla
-04. Ave Maria(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DE0960F1906C5E4336943345A2F619C708DC11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364323   (936259) от 03.03.2020
-
-Felix Slovacek - Classic Essential (1994) [FLAC|Lossless|tracks + .cue] <Classic, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C. Debussy - Svit luny
-02. P. I. Cajkovskij - Andante
-03. C. Saint-Saens - Samson a Dalia
-04. S. Rachmaninov - Vokalisa(   Читать дальше...   )Жанр: Classic, InstrumentalПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C54821FD953F43F04CBF6948634E04BE4829BEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

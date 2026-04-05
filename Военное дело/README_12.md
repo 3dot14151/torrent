@@ -1,3 +1,29 @@
+###  Публикация: 586975   (226163) от 09.12.2012
+
+Полигон / Боевые вертолеты (2012) WEB-DLRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Лебедев изучает основные типы российских ударных вертолетов - Ми-35, Ми-28 и Ка-52. Эти боевые винтокрылые машины созданы, чтобы летать и крушить, но при этом у каждой из них свое предназначение и свои конструктивные особенности. Ведущему довелось не только побывать на боевой стрельбе Ми-28, но даже пройти на специальном тренажере обучение управлению вертолетом.Жанр: ДокументальныйПродолжительность: 00:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257FDA5842A369B1FC3AB2897C33B2AB2556A1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 736532   (224584) от 20.12.2013
 
 Арсенал (4 серии из 4) / Arsenal (1996) IPTVRip
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224584.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223619.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222113.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214596.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214248.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214172.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207552.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204472.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202420.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ RTG. Центральный музей бронетанкового вооруж
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197233.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187360.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177887.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169327.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169232.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169100.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168769.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168585.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163415.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162645.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162090.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160981.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159130.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158473.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158414.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154980.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:745D7B42C7938139AF50EDB9776B6CF8A4641768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968850   (150932) от 25.12.2015
-
-Военная приемка. Сирия. Высоковосточный удар (29.11.2015) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тема специального выпуска программы «Военная приемка» - «На чем воюют российские ВВС в Сирии?» Только зрители телеканала «Звезда» побывают на секретной базе стратегических бомбардировщиков Ту-160 и увидят, как легендарные «Белые лебеди» готовятся к первым в своей истории боевым вылетам. Также боевое крещение в Сирии получил новейший российский истребитель-бомбардировщик (   Читать дальше...   )Еженедельная программа "Военная приемка" расскажет зрителю обо всех новинках российского оборонного комплекса. Задача - показать все достоинства и высокий уровень качества российской военной техники. Кроме этого, особое внимание будет уделено такой важной профессии, как военный представитель - офицер, который несет перед государством ответственность за (   Читать дальше...   )Телекомпания: ЗвездаЖанр: ТелепередачаПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67EEA058414A5BD2413806C805A6217A3D741F1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

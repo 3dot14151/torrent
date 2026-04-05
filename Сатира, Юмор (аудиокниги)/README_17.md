@@ -1,31 +1,3 @@
-###  Публикация: 372086   (119694) от 02.02.2024
-
-Пантелеймон Романов | Лошади английского короля (2008) [MP3, Георгий Столяров]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Архив мировой литературы. Юмор и сатира.
-Произведения Пантелеймона Романова (1884–1938) не печатались в нашей стране с конца тридцатых годов прошлого века. И лишь с начала 70-х годов XX-го века стали появляться публикации его рассказов.
-Настоящее издание представляет собой собрание юмористических и сатирических произведений Пантелеймона Романова.Жанр: Русская литература, классика, рассказИздательство: АрМирПродолжительность: 05:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B686245113EDF829BAC92F230928F8CF9B2DCAAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 372079   (119693) от 02.02.2024
 
 Пантелеймон Романов | Вредный человек (2008) [MP3, Георгий Столяров]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119693.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117909.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114429.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114425.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114424.jpg" />
 </div>
 
 
@@ -169,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114422.jpg" />
 </div>
 
 
@@ -195,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114367.jpg" />
 </div>
 
 
@@ -223,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106122.jpg" />
 </div>
 
 
@@ -250,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105654.jpg" />
 </div>
 
 
@@ -277,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85097.jpg" />
 </div>
 
 
@@ -303,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84310.jpg" />
 </div>
 
 
@@ -329,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78197.jpg" />
 </div>
 
 
@@ -355,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75914.jpg" />
 </div>
 
 
@@ -383,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74864.jpg" />
 </div>
 
 
@@ -409,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74070.jpg" />
 </div>
 
 
@@ -436,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73912.jpg" />
 </div>
 
 
@@ -465,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71093.jpg" />
 </div>
 
 
@@ -491,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70152.jpg" />
 </div>
 
 
@@ -519,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70149.jpg" />
 </div>
 
 
@@ -546,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70148.jpg" />
 </div>
 
 
@@ -573,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70141.jpg" />
 </div>
 
 
@@ -602,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70140.jpg" />
 </div>
 
 
@@ -629,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64507.jpg" />
 </div>
 
 
@@ -655,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64477.jpg" />
 </div>
 
 
@@ -682,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63751.jpg" />
 </div>
 
 
@@ -693,6 +665,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60F0A38C3910C77E08E7EAE10E0027956A2BA9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521331   (63722) от 07.03.2024
+
+Оскар Уайльд | Кентервильское привидение (2021) [MP3, Puffin Cafe]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63722.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Кентервильское привидение уже почти триста лет, искупая грех, исполняло священные обязанности по дому - пугало  потомков Кентервилей. Но вот настала пора фамильному замку перейтити в руки какого-то  посла, куда он незамедлительно заехал со своей семьей...Жанр: ЮморПродолжительность: 01:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BB8FE681C8A1CC70C34A3B485DFB75C30AF969
 ```
 
 https://mybot314.ru/tekegram_catalog/

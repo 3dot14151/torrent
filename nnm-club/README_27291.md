@@ -1,25 +1,25 @@
-###  Публикация: 1819726   (1153) от 24.09.2025
+###  Публикация: 1819207   (1590) от 21.09.2025
 
-VA - Buddha Bar - Premium Playlist {c} (2007-2025) [MP3|320 Kbps] <Lounge, Chill-Out, World Music>
+VA - Tanzlokal-Musik - Premium Playlist (int) [b003, Bonus] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
 
 >>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1590.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cairo Steps - Desert Road (Wahbas Moonlight Remix) {Buddha-Bar - 20, 2018}.mp3
-02. Calavera & Manya - Mir {Buddha-Bar_ Straight to the Heart, 2024}.mp3
-03. Calavera & Manya feat. Maja Aleksic - Seta (Original Mix) {Buddha-Bar Clubbing • In Deep Session, 2017}.mp3
-04. Calm - Space Is My Place (Mark Barrott's Re-Imagination to the Sacred Heart Center) {Buddha-Bar (   Читать дальше...   )Жанр: Lounge, Chill-Out, World MusicПродолжительность: 05:18:52
+001. Bob Marley - Bad Boys (Arefiev Remix) (Radio Edit).mp3
+002. Boba - Redbone (Kvinn Remix).mp3
+003. Bobby Farrell ft. Monica Bay - Gotta Go Home (Original mix).mp3
+004. Bobina - Invisible Touch (Dmitry Glushkov Remix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 08:54:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DE3AF614F56232047D85E500F4286204E27C4F8
+magnet:?xt=urn:btih:DAC2D74636EBB855DDB971F817223D77747D822B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +27,625 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819764   (1152) от 24.09.2025
+###  Публикация: 1819029   (1589) от 21.09.2025
 
-Звуковые библиотеки - OverlayFX - Editing Essentials - SFX Bundle [WAV]
+VA - Tanzlokal-Musik - Premium Playlist (int) [a008, Bonus] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погружайтесь в атмосферу Buddha-Bar: танцуя, лежа на диване с закрытыми глазами, медитируя на полу или слушая фоном.
+P.S. Раздачи из серии Premium Playlist - симбиоз жанров: Chillout/Lounge, Dance, EDM, New Age, Pop, Folk, Alternative/Indie, Ballads, Surf, Classical Crossover (Neoclassical, Operatic Pop), Instrumental, Easy Listening, Retro, Oldies etc.001. At 1980 - Oblivion.mp3
+002. Ata Oztuna - I Feel.mp3
+003. Atakan Celik - Devran (Mustafa Cantekin 8th March International Women's Day Remix).mp3
+004. Atakan Eser - Changing Time.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 08:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFAE2A54A40B4F2F696C671FC45DDC45E431BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819199   (1588) от 21.09.2025
+
+Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы забытых голосов [2011, Movie] DVDRemux 576p raw+rus
+
+>>Аниме разное
+>>Аниме DVD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная Асуна живет с вечно пропадающей на работе матерью и после школы любит забираться на скалу, чтобы послушать радио, доставшееся от умершего отца. Однажды в этом своем секретном месте она знакомится с загадочным юношей Сюном, который говорит, что пришел из далекой страны Агартхи. Эта встреча становится началом полного приключений путешествия в волшебный мир, где (   Читать дальше...   )Производство: CoMix Wave FilmsЖанр: приключeния, фэнтeзи романтикаОзвучка: Original (Commentary)Язык озвучки: Японский и РусскийСубтитры: Русские by Reanimedia (Полные | Надписи | Комментарии)Продолжительность: 111 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBC2899B123718D5EBF6BBD3FE9F294E34C0D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819377   (1587) от 21.09.2025
+
+Шрифты - GGBotNet - Delta Block Font [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Delta Block Font содержит 2 стиля (курсивный и обычный) и 534 глифа.
+Шрифт выполнен в стиле курсива с наклоном влево.
+Этот шрифт лицензирован по лицензии Creative Commons Zero v1.0 Universal.
+Материал раздаётся с официальной документацией.Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A896B7803AAA4E5DC74686928791A23A371374BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819303   (1586) от 21.09.2025
+
+Lolita (Edith "Ditta" Einzinger) - Sailor, Sailor And Lolita's Greatest Hits (1961) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1586.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sailor (Your Home Is The Sea)
+A2 La Luna (The Moon)
+A3 Lieber Jonny, Komm' Doch Wieder (Paper Roses)
+A4 Souvenir D'Amour (Memory Of Love)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDC18F99BB11232D658BE3BA9C7636040F7E81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819365   (1585) от 21.09.2025
+
+Robin Ross - Robin Ross & The Bluesberry Jam (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  High Time (2:44)
+02.  Restless (3:20)
+03.  All Talk (3:51)
+04.  Good Boy (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF96087E408DA4C143129476ED730EBF7C951074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819316   (1584) от 21.09.2025
+
+Damiano David - FUNNY little FEARS (DREAMS) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Talk to Me (feat. Tyla, Nile Rodgers) [3:14]
+02 - Cinnamon (feat. Albert Hammond Jr) [2:25]
+03 - Naked [2:38]
+04 - Mysterious Girl [3:22](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4690E00FAE75D2C829B8582977AC567ADEF1DFB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819364   (1583) от 21.09.2025
+
+Mike Tramp - Songs Of White Lion, Vol. III (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dirty Woman (3:35)
+02.  Warsong (6:06)
+03.  Fight To Survive (5:05)
+04.  She's Got Everything (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142B6E618329D132EAD8EE6FF839BBC34916B0E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819281   (1582) от 21.09.2025
+
+Take it Down - Культ (2025) [MP3|320 Kbps] <technical deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1582.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - В пустоту [00:04:31]
+2 - Культ [00:05:00]
+3 - Один шаг [00:04:39]
+4 - Прибытие [00:04:48](   Читать дальше...   )Жанр: technical deathcoreПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43C7560BED2E605E22561B701BC0DEF9D74D122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819360   (1581) от 21.09.2025
+
+Few Miles On - Mother Lode (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  So Lonely (3:34)
+02.  She Might Be (4:34)
+03.  Mother Lode (4:11)
+04.  Second Hand Blues (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1D6A902387BEA257277B6EC8C1AE5FE1379350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818996   (1580) от 21.09.2025
+
+Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных слов [2013, Movie] DVD9 480p raw+rus
+
+>>Аниме разное
+>>Аниме DVD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1580.jpg" />
+</div>
+
+
+###  Подробнее
+
+15-летний Такао Акидзуки словно бы родился слишком поздно – он не любит токийскую суету, не особо ценит блага цивилизации, а на жизнь мечтает зарабатывать, став обувным мастером. Старшую школу Акидзуки тоже считает бессмысленной, потому не упускает случая пропустить уроки дождливым утром – ведь в парке в это время безлюдно, и можно спокойно насладиться природой, (   Читать дальше...   )Производство: CoMix Wave FilmsЖанр: романтика, драмаОзвучка: Original 2.0Язык озвучки: Японский и РусскийСубтитры: Русские by Reanimedia (Полные и Надписи)Продолжительность: 46 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68EFB10A6A64A7D19C89505241EB9B7218AA4D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819331   (1579) от 21.09.2025
+
+Чудо техники с Сергеем Малозёмовым (21.09.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правда ли, что выгоднее покупать дом-лодку вместо квартиры и насколько безопасно жить на воде.
+ Инноваторы из Калифорнии сделали компактный домашний принтер для еды.
+ Ученые из Японии предложили новый метод борьбы с желтыми пятнами подмышками.
+ 5 сомнительных товаров! Крем с человеческой плацентой, заморозка лишнего жира на диване и уколы красоты: все это обещает заменить (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059E8ACCF3E2FF7DE5CC93590509C16C9B16846D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819368   (1578) от 21.09.2025
+
+Sleepwell Citizen - This Is Only A Test (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro (1:11)
+02.  Thunderheart (2:35)
+03.  Men, Women, and Dogs (5:33)
+04.  Double Helix (4:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAE3BA81F5B03A1533E2EE3183A4F46EA1BB9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819246   (1577) от 21.09.2025
+
+Шрифты - Creative Market - Kinsley - Modern Elegant Sans Serif - 92040958 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт Kinsley отличается чёткими линиями и элегантным дизайном, излучающим уверенность. Он идеально подходит для брендинга высококачественных продуктов и услуг, стремящихся к вневременной и изысканной эстетике.Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C22EC19A18BD3436170AFB650C27CD46ECA46B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819355   (1576) от 21.09.2025
+
+Daisychain - All In A Name (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shadowfax (3:42)
+02.  G String (3:01)
+03.  Eve (2:09)
+04.  Rivers (3:49)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C994CB40A96B8EFF4E201BDAF971E648039D5D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819369   (1575) от 21.09.2025
+
+Jelusick - Apolitical Ecstasy (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaws Of Life [00:04:44]
+02. Power To The People [00:04:01]
+03. Hangman [00:03:53]
+04. Seasons [00:04:35](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FD28F14F4931C99FDE64C2ACC1C8E0A62E1901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819350   (1574) от 21.09.2025
+
+Band Of Friends - Ballroom Of Dreams - Band Of Friends - Ballroom Of Dreams (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  In Too Deep (5:34)
+02.  Stand Your Ground (4:54)
+03.  Under The Gun (4:13)
+04.  When You Lose A Friend (4:22)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E526245EFDBEDF8015442F080A8C7D0D20B5F13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819161   (1573) от 21.09.2025
+
+Sakura - Матрос на стройке (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Загляни в глубину [00:04:24]
+02. Позывные [00:04:16]
+03. Время придет [00:04:34]
+04. Эго в агонии [00:04:43](   Читать дальше...   )Жанр: Indie, Alternative RockПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0707EF2B626C1701F2A605A59CABD2F4837F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819352   (1572) от 21.09.2025
+
+Brandon Isaak - Walkin' With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walkin' With The Blues (4:12)
+02.  Good and Blue (4:14)
+03.  Hold Me Baby (3:22)
+04.  Forever And A Day (4:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A124B10969C9AE647018B4D66F7334399814F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819349   (1571) от 21.09.2025
+
+Bad Wolves - Die About It (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, Alt.Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro (1:04)
+02.  Bad Friend (3:31)
+03.  Die About It (3:31)
+04.  Savior (2:59)(   Читать дальше...   )Жанр: Alt.Metal, Alt.Rock, Hard RockПродолжительность: 01:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE794F9986715206620F4275A2614EF85B20CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819262   (1570) от 21.09.2025
+
+Ui Kits - UI8 - Travela - Travel & Booking Mobile App UI Kit [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Travela — это комплексный набор пользовательского интерфейса, призванный ускорить разработку вашего следующего мобильного приложения для путешествий и бронирования.
+
+Он отличается понятным и удобным интерфейсом и ориентирован на бесперебойную навигацию, охватывая все аспекты пользовательского пути: от поиска пункта назначения и рейсов/отелей до безопасного бронирования (   Читать дальше...   )Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185E5A28B11270F3CCEF96CF370CDCF1D479CB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819321   (1569) от 21.09.2025
+
+Damiano David - FUNNY little FEARS (DREAMS) (2025) [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Talk to Me (feat. Tyla, Nile Rodgers) [3:14]
+02 - Cinnamon (feat. Albert Hammond Jr) [2:25]
+03 - Naked [2:38]
+04 - Mysterious Girl [3:22](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202D78541E07D69C3427EEF34B2B07B5723F9176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819263   (1568) от 21.09.2025
+
+Пресеты - Splice  - Serum 2 Dreampop [SerumPreset]
 
 >>Материалы для мультимедиа и дизайна
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Преобразите свои проекты монтажа с помощью набора Editing Essentials 2024 SFX Bundle Pack, который предлагает более 190 тщательно продуманных звуковых эффектов, призванных улучшить ваши видеопроекты. От фоновых и аналоговых звуков до мощных дронов и ударов - эта обширная коллекция удовлетворит все ваши потребности в аудио-дизайне. Ключевые особенности включают в (   Читать дальше...   )Разработчик: OverlayFXФормат: WAV
+Эти тщательно проработанные пресеты Serum 2 передают неземную привлекательность многослойных и эффектных дрим-поп-ландшафтов. Эти звуки, вдохновлённые шугейзом, пост-панком и инди-попом, отличаются сочными гитарными партиями, варп-басом, тёплым ленточным фуззом, ретро-синтезаторами, а также обилием реверберации и гитар с задержкой. Если вы ищете атмосферную текстуру, (   Читать дальше...   )Формат: SerumPreset
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB7855737AF1AC3E1FF68D51DEEA2F9943306401
+magnet:?xt=urn:btih:7F3A1E06BF8411BDA16E1E50CA35B712A05B1BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +653,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819838   (1151) от 24.09.2025
+###  Публикация: 1818995   (1567) от 21.09.2025
 
-Serif Affinity Publisher 2.6.4.3634 [Multi]
+Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных слов [2013, Movie] DVDRemux 480p raw+rus
 
->>Мультимедиа и Графика
->>Графические редакторы
+>>Аниме разное
+>>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Affinity Publisher - программное обеспечение нового поколения для профессиональных редакционно-издательских работ. Это невероятно плавное, интуитивно понятное приложение позволяет комбинировать изображения, графику и текст для создания прекрасных, готовых к публикации макетов для журналов, книг, брошюр, плакатов, отчетов, бланков и других документов.Язык интерфейса: Английский, Немецкий и другие
+15-летний Такао Акидзуки словно бы родился слишком поздно – он не любит токийскую суету, не особо ценит блага цивилизации, а на жизнь мечтает зарабатывать, став обувным мастером. Старшую школу Акидзуки тоже считает бессмысленной, потому не упускает случая пропустить уроки дождливым утром – ведь в парке в это время безлюдно, и можно спокойно насладиться природой, (   Читать дальше...   )Производство: CoMix Wave FilmsЖанр: романтика, драмаОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: Русские by Reanimedia (Полные и Надписи)Продолжительность: 46 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB13CE6735184A92281EF6A814CD99605C3457AD
+magnet:?xt=urn:btih:759AA18AF77A6F24901A1AABC1EA42D72A096705
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +679,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819843   (1150) от 24.09.2025
+###  Публикация: 1819344   (1566) от 21.09.2025
 
-А.П. Томилов и др. | Электрохимия органических соединений (1968) [PDF]
+7 Names Remain - Malcolm Ave (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Научная и техническая литература
->>Точные и естественные науки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Монография знакомит читателя с современным состоянием электрохимии органических соединений. В ней подробно рассматриваются механизмы электродных реакций, протекающих с участием органических веществ, обсуждаются основные факторы, определяющие кинетику электрохимических реакций.Жанр: ХимияИздательство: ХимияФормат: PDFКачество: Обработанный скан
+01.  Indigo Sky (4:49)
+02.  Peace of Mind (5:08)
+03.  Rescue Me (4:40)
+04.  Let's Run Away (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF78DD1AC59CF6B82246C05C4C9889A596F15C32
+magnet:?xt=urn:btih:8139C8D9F76CD0CBE438C800815F6A08E0225B66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,601 +708,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819732   (1149) от 24.09.2025
+###  Публикация: 1819346   (1565) от 21.09.2025
 
-3D print - Nomnom Figures - Death - Puss in Boots [STL, LYS]
+Alan Arena - Deceived (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Волк по кличке Смерть из мультфильма «Кот в сапогах: Последнее желание», представляющий собой буквальное воплощение смерти, которая преследует Кота в сапогах, чтобы забрать его последнюю жизнь.Формат: STL, LYS
+01.  Raised on Radio (3:05)
+02.  Believe in Yourself (4:35)
+03.  Deceived (3:18)
+04.  Big Black Cat (3:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71EEDA3B3CC97C01369D4B904C70E25A51AC5641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819756   (1148) от 24.09.2025
-
-Промты - SevenUnited LLC - 387 Midjourney Prompts for Sci-fi Characters - 2093175 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1148.jpg" />
-</div>
-
-
-###  Подробнее
-
-387 промтов для ИИ-арта Midjourney для персонажей научной фантастики.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FAF17DCB698D94FBDEAD90D6057853C83385AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819722   (1147) от 24.09.2025
-
-Элина Стоянова | Яды: между жизнью и смертью (2025) [MP3, Екатерина Салова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парадоксально, но с древнейших времен яды — верные спутники человечества. Они осмысляются в мифах, используются в борьбе за власть, без них невозможны и архаические обряды, и медицина будущего. Яды — это источник гибели и спасения. Жизнь и смерть. Ведь все определяет лишь доза.
-Книга биолога Элины Стояновой — настоящая «кругосветка» по миру ядов: от китайской медицины (   Читать дальше...   )Жанр: Биология и химия, Занимательная химия, ЯдыИздательство: МИФПродолжительность: 05:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D45C316E38FE3461CA9E817409207A40A76673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819801   (1145) от 24.09.2025
-
-3D print - Toon Studios - Mulan [STL, LYS]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы рады представить детализированную 3D-модель Мулан, созданную специально для высококачественной 3D-печати. Эта модель идеально подойдёт для фанатов коллекционеров и тех, кто хочет порадовать себя яркой фигуркой для покраски.Формат: STL, LYS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66DD32027C47FA6B05E285D9450F5709039CF27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819734   (1144) от 24.09.2025
-
-Шрифты - Creative Market - Signora Classica - 291130161 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Signora — это изысканное семейство шрифтов с вариативными особенностями, гармонично сочетающее в себе стили с засечками и без засечек, предлагая идеальный баланс между традициями и современностью. Разработанный по трём осям — насыщенности, ширине и наклону — он предоставляет дизайнерам широкие возможности для точной настройки внешнего вида. Шрифт с засечками воплощает (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A8AC7875E22881CC8DC372AD075DD586BC9AB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819808   (1143) от 24.09.2025
-
-Пресеты - We Are Memory Catchers - The Beautiful Newborn Preset Collection [XMP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие из нас обожают снимать новорожденных, будь то в больнице, в доме ребенка или в студии. Однако редактирование с учетом уникальных особенностей новых маленьких человечков может оказаться сложной задачей — их кожа может быть красной, но также иметь желтоватые оттенки. Они могут быть пятнистыми или пятнистыми, их маленькие лбы могут быть на удивление грубыми, (   Читать дальше...   )Формат: XMP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1941F65BBC006B0792FDE7EE7F942F27DCEDB0D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819770   (1142) от 24.09.2025
-
-Евгений Шварц | Тень (Аудиоспектакль) (1988) [MP3, Олег Анофриев и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Музыкальная сказка.
-Евгений Львович Шварц (1896–1958) – знаменитый и всеми любимый «чудесный писатель, нежный к человеку и злой ко всему, что мешает ему жить», самый «недетский» сказочник, покоривший взрослых читателей, автор более двадцати пьес, а также сценариев к кинофильмам и мультфильму, тонкий мудрый мыслитель, сумевший в своих пьесах передать трагичность (   Читать дальше...   )Жанр: Русская литература, пьесаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B257E4D3B436551D2D8FFFAA7BA24FF29A8ECFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819786   (1141) от 24.09.2025
-
-Шрифты - Creative Market - BS Helivita - 291791871 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1141.jpg" />
-</div>
-
-
-###  Подробнее
-
-BS Helivita™ — современная элегантность и универсальность типографики. BS Helivita™ — это изысканный шрифт с засечками, призванный привнести в вашу типографику изысканную элегантность и функциональную универсальность. Он представлен в 9 тщательно сбалансированных вариантах начертания — от тонкого до чёрного. Каждый вариант начертания дополняется 6 вариантами ширины (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45C75B385FC33D80935394013B9D9259D49C990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819813   (1140) от 24.09.2025
-
-Кафе Аврора - Колыма (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - На представку [00:03:29]
-02 - По кромке льда [00:04:15]
-03 - Сестричка в белом [00:03:44]
-04 - Шизо [00:04:02](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16AD2FE79B461270E7234B40FA6DA243D24AB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819576   (1139) от 24.09.2025
-
-Arcade Fire - Premium Playlist (2005-2025) [MP3|320 Kbps] <Indie Rock, Art Rock, Baroque Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterlife.mp3
-02. Age of Anxiety I.mp3
-03. Age of Anxiety II (Rabbit Hole).mp3
-04. Awful Sound (Oh Eurydice).mp3(   Читать дальше...   )Жанр: Indie Rock, Art Rock, Baroque PopПродолжительность: 03:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D0472AD95415FF87A81A1ED8D6DDC5240FF3B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819585   (1138) от 24.09.2025
-
-Otros Aires - Premium Playlist (2005-2017) [MP3|320 Kbps] <Electronic Tango, Tango Nuevo>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allerdings Otros Aires {Dos (L), 2007}.mp3
-02. Amor O Nada {Perfect Tango (L), 2016}.mp3
-03. Amor que se Baila {Otros Aires (L), 2005}.mp3
-04. Amor Que se Baila {Vivo en Otros Aires (L), 2008}.mp3(   Читать дальше...   )Жанр: Electronic Tango, Tango NuevoПродолжительность: 02:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F149724F863C368D618CAFF96059DB44418088A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819789   (1137) от 24.09.2025
-
-Оверлеи - Creative Market - Kage - Botanical Shadow Overlays - 3790661 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kage — это пакет из 20 оверлеев теней ботанических растений для ваших творческих задач. Просто поместите его поверх своей композиции и измените режим наложения слоев на «Линейный свет»! Быстрый и простой способ добавить красивое, органичное освещение и текстуру к статическим изображениям-макетам.Формат: PNGРазрешение файлов: 2561x1921 - 4032x3024
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D3FA536E1F3CA22F235CAA2720D44EDFC04E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819739   (1136) от 24.09.2025
-
-Звуковые библиотеки - NOIIZ - CyberFunk [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1136.jpg" />
-</div>
-
-
-###  Подробнее
-
-«CyberFunk» — это ультрамягкий набор сэмплов, сочетающий старые и новые техники продакшена, что в итоге приводит к созданию высококачественного набора уникальных фанк- и соул-сэмплов. «CyberFunk» включает в себя классические фанк-басовые риффы, дополненные лоу-фай и экспериментальными пэдами, фанковые винтажные фортепианные грувы, идеально сочетающиеся с футуристичными (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121F652CF93A2ADBE5C1A93020A20C179B147A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819819   (1135) от 24.09.2025
-
-Вера Снежная - Я снова вспоминаю (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - За Уралом [00:04:11]
-02 - Паренёк [00:04:44]
-03 - Тайга [00:03:41]
-04 - Я снова вспоминаю [00:03:48](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2E7817942085EFFF68365E70D6376B44175D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819736   (1134) от 24.09.2025
-
-Рай и ад / Tengoku to jigoku (1963) BDRip [H.264/720p] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий - вольная адаптация романа 1959 года «Выкуп короля» Эвана Хантера... Накануне крупной сделки, на которую он поставил всё, у преуспевающего бизнесмена Гондо неизвестный похищает сына и требует огромный выкуп в 30 миллионов иен. Вскоре выясняется, что преступник ошибся и похитил сына шофёра Гондо, но он всё равно продолжает требовать с него выкуп, угрожая (   Читать дальше...   )Производство: Япония / Kurosawa Production Co. Ltd., Toho CompanyЖанр: драма, криминал, детектив, триллерРежиссер: Акира КуросаваАктеры: Тосиро Мифунэ, Тацуя Накадай, Кёко Кагава, Татсуя Михаши, Исао Кимура, Кэндзиро Ишияма, Такэси Като, Такаси Симура, Дзюн Тадзаки, Нобуо НакамураПеревод: профессиональный двухголосый, авторский (Яковлев)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 02:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E90DC3E28BFEC397B00812AFBA5742874648EF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819748   (1133) от 24.09.2025
-
-Шрифты - Creative Market - Neutrix - 291654822 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Neutrix — это современное семейство шрифтов с тремя осями: насыщенностью, шириной и наклоном, доступное в 24 статистических начертаниях. Neutrix, выполненный в стиле Neo-Grotesk, отличается нейтральностью, чистотой и высокой гибкостью — идеально подходит для брендинга, UI/UX, редакционного и цифрового дизайна.
-
-Благодаря стабильным формам букв и сбалансированным (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7915D7E1AABC93FE8877A2011537859284F68C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819582   (1132) от 24.09.2025
-
-Bajofondo Tango Club - Premium Playlist (2002-2013) [MP3|320 Kbps] <Neotango, electronica, candombe, milonga>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asi Es (Propergol) {Presente, 2013}.mp3
-02. Borges Y Paraguay {Mar Dulce, 2007}.mp3
-03. Circular {Presente, 2013}.mp3
-04. Codigo De Barra {Presente, 2013}.mp3(   Читать дальше...   )Жанр: Neotango, electronica, candombe, milongaПродолжительность: 03:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32BEDB5D59E4801C76DEE3D536D09BB4C4755F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819723   (1131) от 24.09.2025
-
-VA - Buddha Bar - Premium Playlist {#, a} (2007-2025) [MP3|320 Kbps] <Lounge, Chill-Out, World Music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive - Over {Buddha's Chill  4 Buddha Asian Bar Lounge, 2015}.mp3
-02. Abacilar - Chombacilar (Max Tenrom Remix) {Buddha-Bar - 26, 2024}.mp3
-03. Abaribi & Aliberti - Opera Prima (Paolo Aliberti Propelling Mix) {Little Buddha 2, 2009}.mp3
-04. Abhijit Pohankar - Piya Bavari {Chill Out In Paris 3, 2003}.mp3(   Читать дальше...   )Жанр: Lounge, Chill-Out, World MusicПродолжительность: 07:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0310E0FB7272F4B7F820CF88C7F75EA1BD06883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819725   (1130) от 24.09.2025
-
-VA - Buddha Bar - Premium Playlist {b} (2007-2025) [MP3|320 Kbps] <Lounge, Chill-Out, World Music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.A.Z - Zameen Aasman {Buddha-Bar A Trip To India, 2016}.mp3
-02. Bahramji & Mashti - All About You {A Night At Buddha-Bar Hotel, 2011}.mp3
-03. Bahramji & Mashti - Being With Your {Siddharta Budapest, 2010}.mp3
-04. Bahramji & Mashti - Jodaie Separation {Buddha-Bar - 25, 2023}.mp3(   Читать дальше...   )Жанр: Lounge, Chill-Out, World MusicПродолжительность: 07:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D958F0C5E127441D5DD7348A8F56192745627227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819825   (1129) от 24.09.2025
-
-Илюша - Шансон для зумеров 2 (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Моя бабушка имба [00:02:55]
-02 - Как же хочется альтушку [00:02:45]
-03 - Остывший бабл-ти [00:03:18]
-04 - Малышка ашкудишка [00:02:45](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D498FF2BEE51D8F90D3DB3EAA1EC6ADDC81BA43E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819720   (1128) от 24.09.2025
-
-Саидмурод Давлатов | Как стать миллионером на территории СНГ. 10 шагов к успешной жизни (2021) [MP3, Павел Константиновский]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всего 10 шагов отделяют вас от богатой, изобильной жизни! В этой книге Саидмурод Давлатов представляет пошаговую методику открытия и развития успешного бизнеса. Все его слова подкреплены делом, а советы – проверены реальным опытом. За свою жизнь автор участвовал в 67 бизнесах, и многие из них сейчас процветают. Но часть не оправдала себя, о чем честно рассказывает (   Читать дальше...   )Жанр: БизнесИздательство: БОМБОРАПродолжительность: 06:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A42CFFB33675FDB3831B7A34914F260E66C504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819839   (1127) от 24.09.2025
-
-Шрифты - Font Brothers - Qirvalen [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Qirvalen — современный, гармоничный и стильный шрифт с засечками. Он доступен в вариативном варианте, что расширяет возможности его использования благодаря вариациям начертания от Light до Extra Bold, создавая тёплый и мягкий дизайн. Полный набор символов поддерживает более 200 латинских языков.
-
-Такая универсальность делает Qirvalen идеальным выбором для множества (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8B2B92C537B9C9799FEC4C8D6FFE91E46CFFF1
+magnet:?xt=urn:btih:AA261768ACFD821354D57F728B0266903DF23050
 ```
 
 https://mybot314.ru/tekegram_catalog/

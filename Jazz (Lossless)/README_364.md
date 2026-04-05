@@ -6,7 +6,7 @@ Sensual Chill Saxaphone Band - Sensual Embrace: Lush Sounds for Late Nights (202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35441.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ V.A. - LoFi Jazz (Holiday Chill Vibes) (2024) [FLAC|Lossless|WEB-DL|tracks] <LoF
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35438.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Larry Fuller Trio - Easy Walker (1998) 2003, Pony Boy Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35410.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Gershwin – The Gershwin Songbook - 'S Marvelous (1994) CD, Compilation [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35320.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Dance Electro Swing For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35313.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Smooth Jazz Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35309.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Phineas Newborn, Jr. - Harlem Blues (1969) 1991, Original Jazz Classics [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35214.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Teddy Wilson And His Trio - Mr. Wilson and Mr. Gershwin (1959) 1992, Sony [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35212.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Jazzyness (New Sounds From Today's Jazz) (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35117.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tal Farlow - This Is Tal Farlow (1958) 1997, Verve Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34593.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Jimmy Bruno Group - Midnight Blue (2001) Concord Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34588.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sexual Music Collection, Jazz Music Lovers Club - Provocative Jazz (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34413.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dakota Staton - Five Classic Albums (1957 - 1959) 2CD, 2017, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33764.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Funk & Soul For Your Aperitif (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33759.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Merry Swingmas (Electro Swing Christmas) (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33750.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - The Best Of Summer 2024 Broken Beat Nu Disco (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33458.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ De-Phazz - presents De-Drums (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Futu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32315.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Dancefloor Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32093.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Anita O'Day - Cool Heat: Anita O'Day Sings Jimmy Giuffre Arrangements (1959) 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31477.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Woong San - Close Your Eyes (2010) Pony Canyon [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31373.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Melody Gardot - Live In Europe (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31361.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Papik and The Soultrend Orchestra - Now Imagine (2025) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30950.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Deodato - 2 (1988) [FLAC|Lossless]<Jazz, Latin Jazz, Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30849.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Milt Jackson & Ray Brown Quartet - It Don't Mean a Thing If You Can't Tap Your F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30323.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Brian Tarquin - High Life (2001) [WavPack|Lossless] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30251.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Sonny Stitt - The Champ (1973) 1991, Muse Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29381.jpg" />
 </div>
 
 

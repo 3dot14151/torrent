@@ -1,3 +1,55 @@
+###  Публикация: 1197341   (814869) от 07.01.2018
+
+Fallen Legion+ (2018) [Ru/Multi] (1.0) Repack Covfefe
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fallen Legion — это напряженная ролевая игра, в которой каждая битва захватывает дух, а каждое принятое решение может вызвать муки совести, но при этом влияет на судьбу вашего королевства.Тип издания: RepackРазработчик: YummyYummyTummy, MintsphereЖанр: Action, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D38749BCB6C6157841EAD12D6742B3640E7BC2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504172   (813356) от 22.10.2021
+
+This Land Is My Land (2021) [Ru/Multi] (0.0.9.18436) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возьмите верный лук, быстрого коня и верните Ваши земли. Сражайтесь с патрулями, пробирайтесь в форты и поселения, исследуйте прекрасный мир, изготавливайте оружие и пищу, охотьтесь на животных, ведите своих верных товарищей к победе! This Land Is My Land предлагает Вам уникальное сочетание стелс-экшена и стратегии, позволяя Вам выбирать самые разные подходы к каждой (   Читать дальше...   )Тип издания: LicenseРазработчик: Game-LabsЖанр: Survival, Action, Stealth, Strategy, Open World, RPG, Crafting, SandboxЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F50B04C1A15976356034A7E6153C73ABE39F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008762   (811047) от 20.04.2016
 
 Out There: Omega Edition (2015) [Ru/Multi] (2.3) Repack R.G. Origami
@@ -6,7 +58,7 @@ Out There: Omega Edition (2015) [Ru/Multi] (2.3) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811047.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Planescape: Torment (1999) [Ru/En] (1.1) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810637.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7 (A)) License GOG [Deluxe]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809475.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Alchemist Adventure (2021) [Ru/Multi] (1.211021/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807660.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Titan Quest (2006) [Ru/Multi] (1.42) Repack R.G. Revenants [Anniversary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806569.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Overfall (2016) [En] (03/22/2017) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806568.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Operation Abyss: New Tokyo Legacy (2017) [En/Ja] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804791.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ I am Setsuna (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804653.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Risen 3: Titan Lords (2014) [Ru/Multi] (3.0.30.0/dlc) Repack =nemos= [Enhanced E
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802360.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Nioh (2017) [Ru/Multi] (1.21.04/dlc) Repack R.G. Механики [Complete Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801401.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Moonglow Bay (2021) [Multi] (1.0rls) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801336.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ NieR Replicant ver.1.22474487139... (2021) [Ru/Multi] (1.0.3.0/dlc) Repack Decep
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801303.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Might and Magic 7: For Blood and Honor / Меч и магия 7 (1999) [Multi] (
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800934.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.07.0.1318/dlc) Repack xatab [Definitive
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800808.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Risen 3 (2014) [Ru/En/Ge] (3.0.30/dlc) Repack R.G. Механики [Complete Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800802.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Avenging Angel (2018) [En] (1.0.5) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800742.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Repack R.
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800536.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Defend the Rook (2021) [Ru/Multi] (1.062) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799829.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.5.11880) Repack Other s [Final Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799789.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/En] (1.0.0.0/upd3) SteamRip Let
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799423.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Eschalon: Book (2007-2014) [En] (1.06/1.05/1.021) License GOG [Trilogy]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798355.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Swords and Fairy 7 (2021) [Multi] (1.0.8.7586889) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798334.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Prison Simulator (2021) [Ru/Multi] (1.0.1.1v04.11) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798039.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Dungeon Souls (2016) [En] (1.0.5.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797842.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Dungeon Souls (2016) [En] (1.0.5.5) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A68F6BC27D7DC36E89762FA887BEF11CF7D78C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508145   (797836) от 07.11.2021
-
-Vampire: The Masquerade - Shadows of New York (2020) [En] (1.0.1) License GOG [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты никто. Изгой в своей вампирской секте. Политический заключенный, не представляющий особой ценности. Иммигрантка, которая так и не нашла своих корней в городе иммигрантов. Заядлый курильщик, чье любимое занятие - безучастно смотреть на улицу из окон закусочной в 4 утра. Ощущение опускания внизу живота говорит вам, что вы обречены, и искаженные голоса из теней, (   Читать дальше...   )Тип издания: LicenseРазработчик: Draw DistanceЖанр: Визуальная новелла, Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795EB5F31667E9F1232D2538C2C8D6F8010416D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508367   (797264) от 08.11.2021
-
-Vigil: The Longest Night (2020) [Ru/Multi] (2021.11.01/dlc) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vigil: The Longest Night - это 2D-платформер с боевой составляющей, требующей точности действий и хороших навыков, и сильным сюжетом. Черпая вдохновение в Salt and Sanctuary и Castlevania, игра Vigil: The Longest Night стремится бросить игрокам вызов своей сложностью и одновременно завлечь их историей, полной зловещих ужасов. (   Читать дальше...   )Тип издания: LicenseРазработчик: Glass Heart GamesЖанр: RPG, Action, Adventure, PlatformerЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFA007D6C420A69156B92A23FBEB78D9D633BD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

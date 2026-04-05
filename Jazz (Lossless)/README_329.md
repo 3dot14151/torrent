@@ -6,7 +6,7 @@ Betty Booom - Booombastic (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107411.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dolly Baker - All Waves (1993) Sony Music [FLAC|Lossless|tracks + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107395.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Roaring Halloween (Electro Swing 2) (2023) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107384.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Masha Ray - Masha Ray (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107382.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rex Stewart - 1949 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107378.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hot Lips Page - 1950 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107376.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Szigeti Juli - Wild & Groovy (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107369.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Phlyndc - Passion (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107313.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Willis Jackson - Single Action (1978) 1995, Muse Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107312.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Michel Morissette - Quatre (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107311.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Victor Lob - Day Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107310.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Laurindo Almeida & Charlie Byrd - Brazilian Soul (1980) 2002, Victor [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107308.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Nathan Mitchell - Gentle and Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107307.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Rodney Greene - Real Close (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107305.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Anita O'Day - An Evening With Anita O'Day (1956) 1990, Polygram [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107293.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Kevin Casteel - Shadows of the Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107292.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Louis Prima - 1944 - 1945 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107289.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Anita O'Day - Live In Tokyo (1975) 1994, Venus Records [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107288.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107285.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Relaxing Soothing Lounge Chill Sounds Enjoying a Quiet Moment While Vacatio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107247.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Pleasant Relaxing Escape to Paradise Lounge Vacation Playlist (2024) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107246.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Relaxing Soothing Sounds Enjoying a Quiet Moment While Vacation (2024) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107244.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Blissful Luxury Travel Lounge Tunes for Relaxation and Enjoyment (2024) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107243.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Chillhop Summer Vibes (Chillhop Music for Relaxing Days) (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107242.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Relaxing Escape to Paradise Vacation Playlist (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107240.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Ibiza Meets Beauty Chill, Vol. 10 (Balearic Lounge & Chill House Grooves) (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107236.jpg" />
 </div>
 
 

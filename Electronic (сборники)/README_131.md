@@ -1,3 +1,71 @@
+###  Публикация: 539338   (506729) от 26.08.2012
+
+VA - Progressive Breaks v.2 (2012) [MP3|320 кб/с]<Atmospheric, Progressive Breaks>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fonarev & Melodica - ZFM (Cosmonaut Breaks Mix) [05:32]
+02. Abdomen Burst - Sakkura (Dmitry Bessonov Remix) [07:05]
+03. Buried Boy - Nirvana (Original Mix) [06:06]
+04. Axcess - Massacre (Trukers Remix) [08:47]
+05. Вадим Жуков - Evolution [06:15]
+06. Вадим Жуков - Moscow Morning [05:18]
+07. Ilya Mosolov - Kassiopea (Original Mix) [07:38]
+08. Jacob Henry - Hopeful Romantic (Schodt Remix) [05:41]
+09. Miika Kuisma - Returning Home [06:02]
+10. NewTone - Sad Song (Abdomen Burst 6 a.m. in the morning mix) [09:03](   Читать дальше...   )Жанр: Atmospheric, Progressive BreaksПродолжительность: 03:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB67F8A459842126ABD6E70C54DD541AD939E079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539368   (506703) от 26.08.2012
+
+VA - Sexy Trance #45 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506703.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Sexy Trance #45 (2012)
+
+Год: 2012
+Жанр: Uplifting Trance, Trance, Vocal Trance
+Продолжительность: 03:34:45Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+001. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AE6D0F74111310FC1A46A56E14F54F70E0DA80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933350   (506325) от 01.09.2015
 
 VA - Trance Traveling 68 (2015) [MP3|320 кб/с]<Trance>
@@ -6,7 +74,7 @@ VA - Trance Traveling 68 (2015) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506325.jpg" />
 </div>
 
 
@@ -35,7 +103,7 @@ VA - Color Dance Expansion (2015) [MP3|320 кб/с]<Club, Minimal House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506256.jpg" />
 </div>
 
 
@@ -64,7 +132,7 @@ VA - Lounge Affair (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505500.jpg" />
 </div>
 
 
@@ -93,7 +161,7 @@ VA - 4 Years Melancholy (2015) [MP3|320 кб/с]<Melodic, Progressive, Trance, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505447.jpg" />
 </div>
 
 
@@ -122,7 +190,7 @@ VA - Chill Rock (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504606.jpg" />
 </div>
 
 
@@ -151,7 +219,7 @@ VA - Record Super Chart 597 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504218.jpg" />
 </div>
 
 
@@ -180,7 +248,7 @@ VA - Beatport Indie Dance / Nu Disco Top 100 August (2015) [MP3|320 кб/с]<Ind
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503566.jpg" />
 </div>
 
 
@@ -209,7 +277,7 @@ VA - Trance Eve Volume 40 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502717.jpg" />
 </div>
 
 
@@ -243,7 +311,7 @@ VA - September Wind - Chillout Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502628.jpg" />
 </div>
 
 
@@ -272,7 +340,7 @@ VA - Beautyness of Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502627.jpg" />
 </div>
 
 
@@ -301,7 +369,7 @@ VA - Delicious Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502626.jpg" />
 </div>
 
 
@@ -330,7 +398,7 @@ VA - Delicious Deep House Vol 2 (2015) [MP3|320 кб/с]<Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502532.jpg" />
 </div>
 
 
@@ -359,7 +427,7 @@ VA - Resident Advisor Top 50 Charted Tracks August 2015 (2015) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502523.jpg" />
 </div>
 
 
@@ -388,7 +456,7 @@ Leo Rojas - Mini Best (Dj Ikonnikov E.x.c Version) (2015) [MP3|320 кб/с]<Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502068.jpg" />
 </div>
 
 
@@ -417,7 +485,7 @@ VA - The best Dubstep 2012 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501418.jpg" />
 </div>
 
 
@@ -452,7 +520,7 @@ VA - Vocal Trance Collection Vol. 136 (2015) [MP3|320 кб/с]<Trance, Vocal Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501331.jpg" />
 </div>
 
 
@@ -481,7 +549,7 @@ VA - Music For Everyone - Atmospheric & Progressive Breaks Vol.4 (2015) [MP3|320
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501261.jpg" />
 </div>
 
 
@@ -510,7 +578,7 @@ VA - 100 Techno Minimal Tracks (2015) [MP3|320 кб/с]<Techno, Minimal, Tech Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500628.jpg" />
 </div>
 
 
@@ -539,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500609.jpg" />
 </div>
 
 
@@ -574,7 +642,7 @@ VA - Trance Desire Volume 54 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500550.jpg" />
 </div>
 
 
@@ -603,7 +671,7 @@ VA - Deep House - Hotel Lounge Dance Music (2015) [MP3|320 кб/с]<Deep House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500547.jpg" />
 </div>
 
 
@@ -632,7 +700,7 @@ VA - Beatport Top 100 Tech House August (2015) [MP3|320 кб/с]<Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500538.jpg" />
 </div>
 
 
@@ -661,7 +729,7 @@ VA - Good Morning Motivational Summerset (2019) [MP3|320 Kbps] <Downtempo, Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500181.jpg" />
 </div>
 
 
@@ -690,7 +758,7 @@ VA - Soul of Ibiza Volume 43 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499615.jpg" />
 </div>
 
 
@@ -710,70 +778,6 @@ VA - Soul of Ibiza Volume 43 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F496A95CE35EA9F3A5FA597650489ED4212B010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935424   (499555) от 08.09.2015
-
-VA - Hybrid ElectriX Extremely (2015) [MP3|211-320 кб/с]<Breaks, Electro, House, Club, Bigroom, Dub>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bottai - L'enfant (Original Mix) 05:30
-02. Arma - Reckless (Original Mix) 05:02
-03. Catalin Bodnar - Infinity (Original Mix) 04:40
-04. Beat Maniacs - Hypnotized (Original Mix) 05:23(   Читать дальше...   )Жанр: Breaks, Electro, House, Club, Bigroom, DubПродолжительность: 10:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257F9967DD7B09D059B77902C28FE2DB47B9B808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542339   (499498) от 02.09.2012
-
-VA - Kiss FM - Top-40 (02.09.2012) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parachute Youth - Can't Get Better Than This (Original Mix)
- 02. Gotye - Somebody That I Used To Know (Dberrie Rmx)
- 03. Armin van Buuren - Orbion
- 04. Dada Life - Happy Violence (Vocal Extended Mix)
- 05. Florence & The Machine - Spectrum (Calvin Harris rmx)
- 06. Adam F - When The Rain Is Gone
- 07. Orjan Nilsen - Amsterdam (Original Mix)
- 08. Armin Van Buuren - We Are Here To Make Some Noise
- 09. Skrillex & Members of The Doors - Breakn' A Sweat (Zedd Rmx)
- 10. W&W & Bree - Nowhere To Go (Shogun Rmx)(   Читать дальше...   )Жанр: DanceПродолжительность: 03:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BBAAA871920418A6E77B22C5D6667BA1E11CC09
 ```
 
 https://mybot314.ru/tekegram_catalog/

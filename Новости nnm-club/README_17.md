@@ -1,3 +1,29 @@
+###  Публикация: 907681   (1002860) от 07.01.2020
+
+Stand Up (2013-2019) SATRip/WEB-DLRip [Выпуски 1-156] (Обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 00:47:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EB524BA732FB0F86AF887737C8FB0EB670A0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 865286   (1002609) от 08.01.2020
 
 Camera360 VIP 9.7.5 (Mod) [Ru] - Камера со множеством эффектов
@@ -6,7 +32,7 @@ Camera360 VIP 9.7.5 (Mod) [Ru] - Камера со множеством эффе
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002609.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002605.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Tension / The Void / Тургор / Тургор: Голос цвета (2008-20
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002604.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002444.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002121.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Micron пообещала, что новые DDR5 будут на 85% быстр
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001836.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/En] (Build 4073014/dlc) UplayRip 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001808.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ FxSound Enhancer 13.028 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001807.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Kodachi Linux 6.2 [анонимный доступ в сети] [08.26.2019] [am
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001498.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Parallels Desktop for Mac Business Edition 15.1.2 + Toolbox 3.7.0 CR2 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001487.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Lauge (with Baba Gnohm, Rütz, Matt Tondut) - Discography 63 Releases (2008-2021
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001329.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001319.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ TeamViewer 15.1.3937 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001204.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Total Commander 9.22a Podarok Edition + Lite [Ru/Uk]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001195.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001061.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ SCUM (2018) [Ru/Multi] (0.3.67.19766/dlc) Repack Mr_Weegley [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000735.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Adobe Photoshop 2020 21.0.2.57 RePack (& Portable) by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000725.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000714.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ The Surge 2 (2019) [Ru/Multi] (1.09u5/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000713.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Halo: Dilogy [En/Ru] (Rip) 2002 - 2007 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000564.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Severance: Blade of Darkness [En/Ru] (RePack/1.01) 2001 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000291.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Medal of Honor Warfighter: Limited Edition [Ru/En] (RePack/1.0.0.3) 2012 l R.G. 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000285.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Medal Of Honor. Warfighter: Digital Deluxe [Ru] (Repack/1.0.0.3/3 DLC) 2012 | Fe
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1000079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1000079.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ Shadow Defender 1.2.0.355 [Английский + Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999524.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.779.0 RePack [MULTi / Ру
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999480.jpg" />
 </div>
 
 
@@ -660,32 +686,6 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.779.0 RePack [MULTi / Ру
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599169   (999473) от 05.01.2013
-
-Doom 3 BFG Edition [Ru/En] (L/1.0.0.1u1) 2012
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Doom 3 BFG Edition - это обновленная версия культового шутера Doom 3, а также дополнение к нему под названием Ressurection of Evil. Помимо знакомой игрокам истории Doom 3 BFG Edition включает новые эпизоды – семь уровней под общим заголовком The Lost Mission. С Doom 3 BFG Edition игроки смогут еще глубже погрузиться в атмосферу легендарного шутера. Оптимизация графики под современные платформы, улучшенные рендеринг и освещение, поддержка стереоскопического 3D и звука 5.1. Новая система сохранения, а также поддержка достижений – все это позволит игрокам насладиться игрой, как в первый раз. Наконец, в качестве особого бонуса для самых верных фанатов серии Doom 3 BFG Edition содержит также оригинальную дилогию Doom.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st Person / CompilationЯзык озвучки: АнглийскийЯзык субтитров: Английский, РусскийЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DF9533A0D24E355B15F286C20A470A17AF7FDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

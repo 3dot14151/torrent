@@ -6,7 +6,7 @@
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391505.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Wolfgang Amadeus Mozart - Mitridate  (Christophe Rousset & Les Talens Lyriques) 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389249.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ Anna Netrebko, Elina Garanca, Ramon Vargas, Ludovic Tezier, SWR Sinfonieorcheste
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367764.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ Amira Willighagen - Amira (2014) [FLAC|Lossless]<Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362490.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Giuseppe Verdi - Un Ballo in Maschera: Herbert von Karajan, Vienna Philharmonic 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360368.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ SLAVA - OTTIMO best of SLAVA (1999) [FLAC|Lossless|tracks + .cue] <Classical, Vo
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354309.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Barbara Hendricks & VA - Ave Maria (1994) [FLAC|Lossless]<Classical, Vocal>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347813.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343945.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Cherubini - Requiem (Christoph Spering & New Berlin Chamber Orchestra) (1994) [F
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339850.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Handel - Renee Fleming. Renee Fleming/Orchestra of the Age of Enlightenment. Har
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333784.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Anna Netrebko - Opera Arias (2003)/Wiener Philarmoniker Noseda, Deutshce Grammop
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333776.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Anna Netrebko & Rolando Villazon - Duets (2007),Deluxe Limited-Edition, Deutsche
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331131.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Mozart - Requiem (Jordi Savall) (2000) [FLAC|image +.cue]<Classical, Classical P
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329318.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Mario del Monaco - Verismo Arias Leoncavallo-Ponchielli-Giordano-Zandonai-Catali
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306430.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Carlo Bergonzi - Carlo Bergonzi - Grandi Voci (1958-1967) 1994 Decca Records [FL
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302629.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Handel;  Academy of St. Martin in the Fields Chorus, Sir Neville Marriner - Mess
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302462.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Johann Sebastian Bach MUnchener Bach-Chor, Munchener Bach-Orchester, Karl Richte
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302406.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Handel - Messiah (highlights) (1967) 1997 EMI Classics [FLAC|Lossless|image + .c
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300010.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Monteverdi - L'incoronazione di Poppea (Nikolaus Harnoncourt & Concentus musicus
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296981.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Jackie Evancho - Someday at Christmas (2016) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294015.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Mozart, Herbert von Karajan, Berliner Philharmoniker - Requiem (1961) 1989 Deuts
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290076.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Divna Ljubojeviс / Дивна Любоевич - Divna - In Concert - Théâtre
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288268.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Canti Gregoriani – Adorate Deum…in Sanctis Eius (1999-2001) 2001 TACTUS [FLA
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288134.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Vivaldi, Pergolesi, A.Scarlatti, Handel - Contralto arias (1997-2002) 2004, Naï
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287540.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ Divna Ljubojevic & Melodi / Angelopoulos& Byzantine Choir of Greece - The Glory 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286081.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ Robert Schumann - Dichterliebe op.48 (Peter Schreier, Christoph Eschenbach) (199
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285853.jpg" />
 </div>
 
 

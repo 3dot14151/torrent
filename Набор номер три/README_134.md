@@ -1,3 +1,165 @@
+###  Публикация: 1107047   (869389) от 21.02.2017
+
+Пиратские зеркальные сайты заблокируют навсегда
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_869389.jpg" />
+</div>
+
+
+###  Подробнее
+
+В российском законодательстве впервые появится термин "производный сайт в сети Интернет". Будет прописан порядок внесудебного ограничения по доступу к таким сайтам, нелегально распространяющим музыку, фильмы и книги. Фотографии под запрет не попадают.Правительство разместило на официальном сайте распоряжение о внесении в Госдуму законопроекта, направленного (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496226   (869359) от 19.09.2021
+
+ЦБ заблокирует платежи россиян в адрес криптобирж
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_869359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Банк России ведет обсуждение поправок в законодательство, которые расширят запрет на использование криптовалют.Центральный банк РФ видит высокие риски в развитии рынка криптовалют, ведет работу с банками с целью ограничить переводы платежей в пользу криптовалютных бирж, готовит законодательные изменения, заявил первый зампред ЦБ Сергей Швецов.По его словам, в настоящее (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 188128   (869275) от 01.04.2010
+
+[Игры] Сборник игр для сенсорных экранов WVGA (480х800) (Windows Mobile 6-6.5 )
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой сборник игр для кпк с экраном WVGA (480х800), состоящий из ~ 154 игр. Большинство игр проверено на работоспособность, все крякнуты, либо имеют кейген. Не забываем читать Read Me в папках с играми, где есть. …Жанр: 3D
+ RPG
+ Аркады
+ Бильярд(   Читать дальше...   )Язык интерфейса: английский(multi) и русский
+Разрешение экрана: 480х800
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998124   (869263) от 19.03.2016
+
+JetBrains PhpStorm 2016.1 Build #PS-145.258 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869263.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains PhpStorm представляет coбoй легкий и удобный редактор PHP, который максимально повысит вашу производительность. Редактор отлично понимает код, дает удобные подсказки, быструю навигацию и отслеживает ошибки "на лету". IDE всегда готова помочь Вам собрать ваш код, запустить юнит-тесты и обеспечить визуальную отладку. PhpStorm поддерживает PHP, CSS, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF27B226D133837F1C8BFD18E5CDE3F6B4AEF3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998034   (869260) от 19.03.2016
+
+Windows XP SP3 IInsideP4 v15.03.2016 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ на основе Micrоsoft Windows XP Professional with Sеrvice Pack 3 VL Russian.
+ru_windows_xp_professional_with_service_pack_3_x86_cd_vl_x14-74146
+Интегрированы Драйвера самых распространённых AHCI-контроллеров AMD, nForce, Intel, JMicron, SiS, VIA от simplix, Установлено обновление по 01.05.2014 от simplix, DirectX Redistributable - Июнь 2010, ERUNT - утилита (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD01BC2FAD4D092C547B3B65BA8AC9649E59B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998330   (869259) от 19.03.2016
+
+Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 (19.03.2016) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E31A7552EDC5FAE547AADD39C508BC82CA431C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998055   (869257) от 19.03.2016
 
 Зоозомби / Zoombies (2016) WEB-DLRip
@@ -6,7 +168,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869257.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ Grim Dawn (2016) [Ru/Multi] (1.0.0.2) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869251.jpg" />
 </div>
 
 
@@ -58,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869250.jpg" />
 </div>
 
 
@@ -86,7 +248,7 @@ Titan Quest (2007) [Ru] (1.30/1.17a) Repack Sprut [Gold Edition / Золотое
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869247.jpg" />
 </div>
 
 
@@ -112,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_869219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_869219.jpg" />
 </div>
 
 
@@ -138,7 +300,7 @@ Ventoy 1.0.52 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869217.jpg" />
 </div>
 
 
@@ -166,7 +328,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2019 SmokieBlahBlah 2021.09.19 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869207.jpg" />
 </div>
 
 
@@ -192,7 +354,7 @@ Windows 10 32in1 (21H1 + LTSC 1809) x86/x64 +/- Office 2019 x86 by SmokieBlahBla
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869204.jpg" />
 </div>
 
 
@@ -219,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869202.jpg" />
 </div>
 
 
@@ -245,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869014.jpg" />
 </div>
 
 
@@ -271,7 +433,7 @@ V-Ray 3.40.03 for 3ds Max 2015-2017 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869001.jpg" />
 </div>
 
 
@@ -297,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868998.jpg" />
 </div>
 
 
@@ -323,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868997.jpg" />
 </div>
 
 
@@ -349,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868784.jpg" />
 </div>
 
 
@@ -375,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868688.jpg" />
 </div>
 
 
@@ -401,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868687.jpg" />
 </div>
 
 
@@ -428,7 +590,7 @@ TrustPort Internet Security 2011 v11.0.0.4606 [ML/Rus]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_868584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_868584.jpg" />
 </div>
 
 
@@ -463,7 +625,7 @@ Apple и Google будут следить за пользователями дл
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_868519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_868519.jpg" />
 </div>
 
 
@@ -489,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>16
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_868464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_868464.jpg" />
 </div>
 
 
@@ -515,7 +677,7 @@ Windows Vista Ultimate SP2 6.0.6002 by Burnoutman 2020 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868458.jpg" />
 </div>
 
 
@@ -526,165 +688,6 @@ Windows Vista Ultimate SP2 6.0.6002 by Burnoutman 2020 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8F046A854AC2422E14316204E6A7B69EC412FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373530   (868453) от 12.04.2020
-
-Гретель и Гензель / Gretel & Hansel (2020) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия старинной сказки братьев Гримм о зловещих приключениях брата и сестры в Очарованном лесу. В поисках еды голодные Грета и Гензель отправляются в лес, не подозревая, что им предстоит отведать обед дьявольской кухни и пройти все круги ада...Производство: Канада, Ирландия, США, ЮАР / Automatik Entertainment, Orion Pictures, BRON StudiosЖанр: ужасы, фэнтези, триллерРежиссер: Оз ПеркинсАктеры: София Лиллис, Сэмми Лики, Чарльз Бабалола, Элис Крайдж, Джессика Де Гау, Беатрикс Перкинс, Йен Кенни, Абдул Альшариф, Мануэль ПомбоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBE2DBB831DC57A8279C159A61BD02A5E1D3A18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998658   (868398) от 20.03.2016
-
-Китай планирует запуск собственного космического телескопа, превосходящего по многим параметрам телескоп Hubble
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_868398.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом году, во время одной из последних сессий парламента, китайское правительство объявило о начале новой программы, в ходе которой на околоземную орбиту будет выведен китайский космический телескоп. Это даст Китаю возможность проводить собственные исследовательские программы, подобные программам, в которых задействован американский телескоп Hubble, и это, в свою очередь, должно упрочнить положение Китая в качестве мировой супердержавы в области исследований космоса и некоторых других наук.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496905   (867726) от 20.09.2021
-
-«Росатом» завершил испытания ядерного «топлива будущего»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_867726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксплуатационные испытания твэлов с РЕМИКС-топливом успешно завершились на Балаковской АЭС в Саратовской области. Об этом 16 сентября 2021 года сообщила пресс-служба топливной компании «ТВЭЛ» (топливный дивизион Росатома).РЕМИКС-топливо призвано снизить потребление природного урана в атомной энергетике и повторно использовать компоненты уже облучённого топлива. Основное (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864349   (867721) от 28.02.2015
-
-Heroes of Might & Magic III (2015) [Ru/En] (1.15) SteamRip DWORD [HD Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867721.jpg" />
-</div>
-
-
-###  Подробнее
-
-С ностальгией вспоминаете о бессонных ночах, проведенных в сражениях с Черными Драконами, Архангелами, Демонами и Чародеями? Настоящие фанаты Heroes® of Might & Magic® III, у нас есть отличные новости!
-
-Самая популярная игра в серии – теперь в HD-качестве! Сыграйте в обновленную версию пошаговой стратегии: помогите королеве Катрине Железный Кулак восстановить (   Читать дальше...   )Тип издания: Steam-RipРазработчик: DotEmuЖанр: Strategy (Turn-based) / Top-downЯзык озвучки: Русский, Английский,Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4290026B7156C436FA230E559E539E29AE14817A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188091   (867639) от 02.04.2010
-
-Утиные Истории / Duck Tales (1987-1990)  9 х DVD9
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультсериал о дядюшке Скрудже, мультимиллиардере, большом добряке, скряге и бизнесмене, и его трех племянниках-утятах. В каждой истории дядюшка влипает в какие-нибудь неприятности, а верные племянники спасают его самыми невероятными способами с множеством уморительных приключений!
-Утиные Истории - интереснейший и непревзойденный сериал, в эпизодах которого потрясающим, (   Читать дальше...   )Жанр: Детский, Приключения, Рисованая анимацияРежиссер: Алан ЗасловПеревод: Дублированный, профессиональныйПродолжительность: 03:03:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980496   (867572) от 20.09.2021
-
-Брат и Брат 2: Дилогия (1997,2000) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брат: Демобилизованный из армии, Данила Багров вернулся в родной городок. Но скучная жизнь российской провинции не устраивала его, и он решился податься в Петербург, где, по слухам, уже несколько лет процветает его старший брат. Данила нашел брата. Но все оказалось не так просто — брат был наемным убийцей…Производство: Россия / Кинокомпания CTB, Студия Горького, РоскомкиноЖанр: Боевик, Криминал, Драма, МузыкаРежиссер: Алексей БалабановАктеры: Сергей Бодров мл., Виктор Сухоруков, Светлана Письмиченко, Мария Жукова, Юрий Кузнецов, Василиса Стрельникова, Константин Анисимов, Алексей Севостьянов, Андрей Федорцов, Андрей Краско, Вячеслав Бутусов, Игорь Шибанов, Сергей Дебижев, Владимир Ермилов, Анатолий Горин, Денис Кириллов, Наталья Львова, Артур Харман, Андрей Розин, Сергей Астахов, Виталий Матвеев, Сергей (   Читать дальше...   )Продолжительность: 01:35:23 + 02:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD4664D5C924797E65DC8C3FA1D1A9CD1F844F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

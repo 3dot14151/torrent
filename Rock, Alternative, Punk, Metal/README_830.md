@@ -1,3 +1,32 @@
+###  Публикация: 1376585   (241757) от 18.04.2020
+
+The Twilight Sad - It Won/t Be Like This All The Time (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. [10 Good Reasons For Modern Drugs] (04:08)
+02. Shooting Dennis Hopper Shooting (03:24)
+03. The Arbor (04:19)
+04. VTr (04:16)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post-PunkПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7DEDF2517728577701B0AC382E81FDC3CF24DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546131   (241751) от 23.04.2022
 
 Radiant - Written By Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
@@ -6,7 +35,7 @@ Radiant - Written By Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241751.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241748.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The L.A. Maybe - Dirty Damn Tricks (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241746.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Fuzztones - Encore (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, G
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241739.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Kitchen Sink - Clandestiny  (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241738.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Audrey Horne - Devil's Bell (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241731.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Bog Monkey - Hollow (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241729.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Crowne - Operation Phoenix (2023) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241725.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241720.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Fratellis - Half Drunk Under a Full Moon (2021) Deluxe Edition [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241716.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ As Light Dies - The Laniakea Architecture vol. II (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241715.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Afraid of Destiny - Contra Omnes (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospher
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241699.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241697.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Domkraft - Seeds (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241694.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Vita Imana - VI (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241690.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Septicflesh - A Fallen Temple (1998) [MP3|320 Kbps] <Atmospheric, Symphonic Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241689.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241679.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sirenia - 1977 (2023) [MP3|320 Kbps] <Symphonic, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241673.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Story of the Year - Tear Me To Pieces (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241662.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Witherfall - Curse Of Autumn (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241654.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Sweat - Who Do They Think They Are? (2023) [FLAC|Lossless|WEB-DL|tracks] <Classi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241646.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Harry Chapin - Cats In the Cradle (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock Fol
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241645.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Dagoba - By Night (2022) [FLAC|Lossless|tracks + .cue] <Groove Metal, Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241643.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Motus - Here Comes the Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241641.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Two Sinners - Brutal Emotion (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241635.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Two Sinners - Brutal Emotion (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C18FEF74609E0D2948916351876599F5FD415D34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625526   (241632) от 10.04.2023
-
-Kreeature - Two Leaves / Dos Hojas (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Funk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road to Death [00:04:37]
-02. The Sound of Money [00:05:48]
-03. Footprints in the Sand [00:06:54]
-04. The Parable of the Sower [00:05:26](   Читать дальше...   )Жанр: Progressive Rock, Funk RockПродолжительность: 2 CD, 02:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1071EA212CC901104DD2487877EFB099A1C8B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

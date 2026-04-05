@@ -1,31 +1,3 @@
-###  Публикация: 1222646   (683128) от 30.04.2018
-
-В. В. Троцкий | Революционное движение в Средне-Волжском крае (1930) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683128.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей брошюре автор ставил своей задачей дать по печатным материалам краткий исторический очерк революционного движения в Средне-Волжском Крае, начиная с народных движений XVII и XVIII веков — Разиновщины и Пугачевщины, и заканчивая настоящим моментом революционного строительства.
-
-Для этой цели автором был использован, главным образом, материал Истпартовских (   Читать дальше...   )Жанр: История, политология, экономика, документалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29DFDBE7DCF9907F667C2FBD2BB706A5377C6E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222648   (683122) от 30.04.2018
 
 Лаврентий Берия | Победа ленинско-сталинской национальной политики (1936) [PDF]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683122.jpg" />
 </div>
 
 
@@ -63,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683040.jpg" />
 </div>
 
 
@@ -89,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683039.jpg" />
 </div>
 
 
@@ -117,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683028.jpg" />
 </div>
 
 
@@ -143,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683026.jpg" />
 </div>
 
 
@@ -171,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682916.jpg" />
 </div>
 
 
@@ -197,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681778.jpg" />
 </div>
 
 
@@ -223,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681201.jpg" />
 </div>
 
 
@@ -249,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681100.jpg" />
 </div>
 
 
@@ -277,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680153.jpg" />
 </div>
 
 
@@ -305,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679510.jpg" />
 </div>
 
 
@@ -331,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679509.jpg" />
 </div>
 
 
@@ -359,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679508.jpg" />
 </div>
 
 
@@ -385,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679426.jpg" />
 </div>
 
 
@@ -411,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679418.jpg" />
 </div>
 
 
@@ -437,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679406.jpg" />
 </div>
 
 
@@ -463,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679371.jpg" />
 </div>
 
 
@@ -489,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679318.jpg" />
 </div>
 
 
@@ -515,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679312.jpg" />
 </div>
 
 
@@ -541,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679309.jpg" />
 </div>
 
 
@@ -567,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678823.jpg" />
 </div>
 
 
@@ -593,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678476.jpg" />
 </div>
 
 
@@ -621,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678023.jpg" />
 </div>
 
 
@@ -647,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677295.jpg" />
 </div>
 
 
@@ -673,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677286.jpg" />
 </div>
 
 
@@ -687,6 +659,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E5B7DBCE7B93CB26D2135EF696D5E801EBB6840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136059   (677159) от 21.05.2017
+
+А. Я. Канторович | Америка в борьбе за Китай (1935) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор поставил своей задачей проследить исторический путь Америки в ее борьбе за китайский рынок, начиная с конца XVIII в. вплоть до наших дней. Последовательные этапы этой борьбы характеризуются автором на фоне параллельного анализа сдвигов, происходивших в Соединенных штатах, в международно-политической ситуации и в самом Китае. В главах, относящихся к довоенному (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C407FFAF0A58939FDD5F78AFA223F4567526D5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

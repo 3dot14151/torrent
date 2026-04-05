@@ -6,7 +6,7 @@ Aerosmith - Rock For The Rising Sun (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571607.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ U.D.O. – Steelhammer - Live from Moscow (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571594.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Blackmore's Night - A Knight In York (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571426.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571050.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ David Gilmour (Pink Floyd) - "Live at Later with Jools Holland" (2008) HDTV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_571004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_571004.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570927.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570800.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570750.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Ozzy Osbourne - Speak Of The Devil (17.07.2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_570559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_570559.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570334.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Styx - The Grand Illusion / Pieces of Eight Live (2010/2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569821.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569637.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569224.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ The BEATLES: Invade Paris! Conquer America! 1964 Vol.1 (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568821.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568491.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Fare Thee Well - Weekend One / Grateful Dead Live Jun 27 & 28, 2015 at Levi's St
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568060.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567083.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566851.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Wizards And Demons - Официальная история Uriah Heep / Uriah He
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566445.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Shakira - Oral Fixation Tour (2007) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565954.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565837.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Norah Jones - Live At Ronnie Scott's 2017 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565558.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565182.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565064.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ The Eagles - Hotel California (2005) HDTV [MPEG-2/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564934.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564326.jpg" />
 </div>
 
 

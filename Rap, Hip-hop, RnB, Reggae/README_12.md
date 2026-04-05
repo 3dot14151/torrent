@@ -1,32 +1,3 @@
-###  Публикация: 1511201   (789364) от 20.11.2021
-
-Bahh Tee - 33 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белые Найки [04:24]
-02. Ветер и Берёза (feat. Turken) [06:43]
-03. Три сестрёнки [02:56]
-04. Прожигаю [02:56](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC1661988A2B58D9C2A7084506D17558896D90F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511205   (789361) от 20.11.2021
 
 ST - Высотка (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -35,7 +6,7 @@ ST - Высотка (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789361.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Loc-Dog - Счастье в простом (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789315.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Zambezi - CHIPS (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789314.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ ST1M - Цитрус (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789311.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ SQWOZ BAB - FLOWJOB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789310.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789309.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VELIAL SQUAD - UGLY STYLEZZ (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789304.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789301.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789241.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ INSTASAMKA - MONEYDEALER (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789237.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ alyona alyona - Пушка (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788362.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Redo - RANKED (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786886.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Horus & Зараза - Вопрос времени (2020) [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786872.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Run The Jewels - RTJ4 (2020) [FLAC 2.0|48/24|tracks|WEB-DL]  <Hip - Hop>
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786852.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Old School Rap Classics (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785111.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784008.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783935.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Fardi - Черный сад, часть 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783685.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ DA108 - Это всё не то... (Чужие 2005-2011) (2020) [MP3|320 Kbps] 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783679.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ SQWOZ BAB - BODY LANGUAGE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783668.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Scarlxrd - FANTASY VXID; SUMMER. (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783650.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ DMX - 10 Albums (1998 - 2010) [MP3|320 kbps]<Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782707.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Onyx - Black Rock (2018) [MP3|320 Kbps] <Hardcore Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781662.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Krec - Атом (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779650.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ MiyaGi & Эндшпиль - HAJIME Part.1 (2016) [MP3|256-320 кб/с] <Rap, Hip
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775415.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ MiyaGi & Эндшпиль - HAJIME Part.1 (2016) [MP3|256-320 кб/с] <Rap, Hip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD1D58B83BED1CD7BC0444A50D33661F84C1113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212646   (775034) от 13.03.2018
+
+Грот - Лучшее (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Обитатели рая
+02. Лиза
+03. Кровь с кислородом
+04. Рубежи(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB7E7134B33A3713024DB5071E3548D4A43749A
 ```
 
 https://mybot314.ru/tekegram_catalog/

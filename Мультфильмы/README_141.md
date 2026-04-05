@@ -1,3 +1,133 @@
+###  Публикация: 674547   (693009) от 30.06.2013
+
+Специальный агент Фредди / Freddie as F.R.O.7. (1992) DVD5
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то давным-давно во Франции жил принц по имени Фредерик. И быть бы принцу королем, если бы злая тетка Фредерика - колдунья Мессина - не превратила его в лягушонка, ростом с человека. Но Фредди недолго пребывал в унынии. С помощью магического дара, унаследованного от своего отца-короля, Фредди начал новую жизнь в облике супершпиона на службе у правительства Франции! (   Читать дальше...   )Жанр: мультфильм, мюзикл, фэнтези, приключенияРежиссер: Джон Асевски / Jon AcevskiПеревод: Двуголосый закадровый, профессиональныйЯзык субтитров: РусскиеПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147D111A8A68E932B955B65741CDB7AEDAD05EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 674454   (692809) от 30.06.2013
+
+Звезда Лоры и таинственный дракон Нянь / Lauras Stern und der geheimnisvolle Drache Nian (2009) BDRip 720p
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девочка по имени Лора, у которой есть настоящая живая звезда, едет со своей семьей в Китай, где ее мама будет давать концерт. Звездочка рашает отправиться вместе с Лорой, но в пути внезапно пропадает. Оказывается ее нашла и взяла с собой китайская девочка по имени Лин-Лин. Встреча Лоры и Лин-лин, начавшаяся со ссоры, вскоре перерастает в настоящую дружбу, особенно (   Читать дальше...   )Жанр: Мультфильм, семейныйРежиссер: Пьет де Рикер / Piet de Rycker, Тило Роткирч / Thilo RothkirchПеревод: Многоголосый закадровый, любительскийЯзык субтитров: немецкиеПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F56CDDB2F17862475961D5769BE6EC3013CB5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 674490   (692601) от 30.06.2013
+
+Лев, Колдунья и волшебный шкаф / The Lion, the Witch & the Wardrobe (1979) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нарния – это сказочный мир, созданный для детей англо-ирландским автором Клайвом Стэйплзом Льюисом. Животные там умеют разговаривать, а магия является привычным для всех ремеслом. Однажды четверо детей обнаруживают дверь, ведущую в эту удивительную страну. Но власть в Нарнии теперь принадлежит злой колдунье, наславшей на всю страну вечную зиму. Только детское бесстрашие (   Читать дальше...   )Жанр: мультфильм, фэнтези, драма, приключенияРежиссер: Билл МелендесПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FBADF95BFE9662BA67CCAC49B7B930939E52289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403314   (692351) от 19.08.2020
+
+Обезьяньи мелодии / Monkey Melodies (1930) DVDRip [H.264] [hand made colored] [EN]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обезьяны качаются на лианах и к их песням и танцам присоединяются другие существа из джунглей. А две влюбленные обезьяны гоняются друг за дружкой и целуются. Но голодные крокодилы поджидают их...Производство: США, Walt DisneyЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Берт ДжиллеттПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: вшитые отключаемые на английскомПродолжительность: 00:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF6B3753F8AB19C3188CA1377D962B3F9AA9C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403251   (692215) от 19.08.2020
+
+Тайна гориллы / The Gorilla Mystery (1930) DVDRip [H.264] [hand made colored]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбежала горилла. Микки в панике звонит Минни, но она играет песню, чтобы показать, что она не боится. То есть, пока горилла не подойдет к ней сзади и не схватит ее. Микки бросается к ней, чтобы спасти.Производство: США, Walt DisneyЖанр: Рисованная анимация, Музыкальный, Комедия, КороткометражныйРежиссер: Берт ДжиллеттПеревод: ДублированныйСубтитры: вшитые отключаемые на английскомПродолжительность: 00:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C42F09CC7FE245EA47ADE857A02CE0F144A707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028155   (692112) от 21.06.2016
 
 Маленький принц / The Little Prince (2015) BDRip [H.264]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692112.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692105.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_692103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_692103.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692097.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691709.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691400.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690691.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690604.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690603.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689863.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689771.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689730.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689695.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689692.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689621.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688672.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688603.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688565.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688553.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688348.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688231.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCC96F93A9E3466AEECCAEDA2E382ED50EBED40C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403824   (688028) от 21.08.2020
-
-Тролли. Мировой тур / Trolls World Tour (2020) DVD9 [Custom]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поп-тролли в шоке – оказывается, мир музыки гораздо больше, чем они думали. Рейвы, оупен-эйры, классические концерты и, конечно, хип-хоп баттлы – впереди их ждет головокружительное веселье. Но неудержимая королева Рокс планирует уничтожить всё, чтобы миром безоговорочно правил хард-рок! Розочка, Цветан и их новые друзья отправляются в невероятное путешествие: им (   Читать дальше...   )Производство: США / Universal Pictures, DreamWorks AnimationЖанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Уолт Дорн, Дэвид П. СмитПеревод: Дублированный (лицензия)Субтитры: Русские, английские, итальянскиеПродолжительность: 01:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68B1362E51A379E85467482CF19C9C0300E3782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289358   (687995) от 15.03.2019
-
-Смывайся! / Flushed Away (2006) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родди – привилегированная крыса, живущая жизнью любимого домашнего животного в престижном пентхаусе. Однажды засорившаяся раковина "выплевывает" в квартиру канализационную крысу Сида, которому приходятся по душе роскошные апартаменты. Чтобы избавиться от надоедливого гостя, Родди решает смыть его в унитаз, но житель канализации не такой простак, каким кажется, (   Читать дальше...   )Производство: США, DreamWorks Animation, Aardman FeaturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дэвид Бауэрс, Сэм ФэллПеревод: Дублированный, профессиональный двухголосый закадровыйСубтитры: Русские (форсированные, полные), украинские, английские (полные, для слабослышащих)Продолжительность: 01:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE14C22566C2B9EAB6509913A0A5C4730356461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791301   (687601) от 13.06.2014
-
-Лего. Фильм / The Lego Movie (2014) BDRemux 3D [1080p] [3D/2D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная лего-фигурка соглашается присоединиться к походу против злого лего-диктатора, планирующего склеить вместе всю вселенную…Производство: Австралия, США, Дания / Animal Logic, LEGOЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Фил Лорд / Phil Lord, Кристофер Миллер / Christopher MillerАктеры: Крис Прэтт, Уилл Феррелл, Элизабет Бэнкс, Уилл Арнетт, Лиам Нисон, Морган Фриман, Крэйг Берри, Элисон Бри, Дэвид Берроуз, Энтони ДэниелсПеревод: ДублированныйЯзык субтитров: Русский (forced, full), украинский (forced, full), английский (SDH)Продолжительность: 01:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C889CA9F1B6C1AEE5499BF22732F85CDC5C74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334799   (687502) от 10.05.2011
-
-Про черепаху (1980) DVD
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Рисованая анимация, КороткометражныйРежиссер: Александр ГорленкоПродолжительность: 00:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3C18D9D32F04540E20BD0F2EF4C283849E1689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791123   (687462) от 13.06.2014
-
-Лего. Фильм / The Lego Movie (2014) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная лего-фигурка соглашается присоединиться к походу против злого лего-диктатора, планирующего склеить вместе всю вселенную…Производство: Австралия, США, Дания / Animal Logic, LEGOЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Фил Лорд / Phil Lord, Кристофер Миллер / Christopher MillerАктеры: Крис Прэтт, Уилл Феррелл, Элизабет Бэнкс, Уилл Арнетт, Лиам Нисон, Морган Фриман, Крэйг Берри, Элисон Бри, Дэвид Берроуз, Энтони ДэниелсПеревод: ДублированныйЯзык субтитров: Русский (forced, full), украинский (forced, full), английский (full, SDH, SDH-colored)Продолжительность: 01:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374B5205510F2D2ACA72333AEB6D6D6BC4377465
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 1373296   (1026167) от 15.03.2021
+
+Universal TV Remote Pro v1.0.23 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный пульт дистанционного управления №1 - приложение Smart и IR Remotes в более чем 100 странах. Для Smart TV / Устройств, единственная необходимая настройка - это подключить телефон, а также Smart TV / Device к той же сети Wifi. Для ИК-телевизоров ваш телефон должен иметь встроенную инфракрасную функцию, чтобы приложение работало в качестве пульта дистанционного (   Читать дальше...   )Тип издания: Пиратка (Mod: Pro, удалена реклама, лишние пункты об оценке и прочий мусор)Релиз состоялся: 23.01.2021Разработчик: CodeMatics Media SolutionsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B589100890AB306064F644F1C5D1AEF5EDD452C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454533   (1026163) от 15.03.2021
+
+Adobe Premiere Pro 2021 15.0.0.41 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CC 2020 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C18317F8B37540B8D0AE92910F39EA8D85AA9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278657   (1026159) от 15.03.2021
+
+Variours Artist - Дискотека 70-80-90-2000 [MP3|224-320 Kbps] <Disco, POP, Rock>
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Disco, POP, RockПродолжительность: 209.08.32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB783ACBDBD054E907C4ED28B90C96AEFC54C526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065053   (1026158) от 15.03.2021
+
+Sid Meier's Civilization VI (2016) [Ru/Multi] (1.0.10.15/dlc) Repack Other s [Digital Deluxe]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданная легендарным дизайнером Сидом Мейером серия Civilization представляет собой увлекательную пошаговую стратегию, в которой игроку предлагается создать империю, способную выдержать испытание временем. Станьте одним из сильных мира сего, основав собственную цивилизацию, и возглавляйте ее в течение многих эпох. Объявляйте войны, ведите дипломатические переговоры, (   Читать дальше...   )Тип издания: RepackРазработчик: Firaxis GamesЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий  и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEB15F45779D8041B451528DE6CE7C42CBA10D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454236   (1026056) от 16.03.2021
+
+Как вычислить преступника по сигналам его мозга? Технология уже есть
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026056.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце января в новостные ленты попала интригующая история: полиция Дубая смогла раскрыть убийство, "покопавшись" в мозге подозреваемого. Технология, которая позволяет это сделать, уже применяется в Индии, Сингапуре, а кое-где и в США. Но у юристов и ученых к ней много вопросовПодозреваемому надевают на голову шлем с электродами и в течение 40 минут демонстрируют (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338433   (1026030) от 16.03.2021
+
+Александр Башибузук | Собрание произведений [28 книг] (2013 - 2021) [FB2] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Башибузук — современный писатель-фантаст. Информацию о себе автор предпочитает не афишировать, даже наверняка неизвестно является ли «Башибузук» псевдонимом. По информации, заполненной самим автором в профиле на сайте «Миры Андрея Круза», он из Новой Каховки (Херсонская область, Украина).
+Был участником сайта «В вихре времени», затем, с ноября 2014 года, (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная история, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C2648EB62732B43CD43F13078BC64DEFD9C641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368595   (1026029) от 16.03.2021
 
 DOOM Eternal (2020) [Ru/Multi] (1052055/dlc) Repack xatab (обновляемая)
@@ -6,7 +163,7 @@ DOOM Eternal (2020) [Ru/Multi] (1052055/dlc) Repack xatab (обновляема�
 >>67
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026029.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Apple согласилась предустанавливать на свои г
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025882.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025864.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025861.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025691.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ The Outer Worlds (2019) [Ru/Multi] (1.5.1.712/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025683.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ Windows 10 Pro 20H2 b19042.867 x64 ru by SanLex (edition 2021-03-18) [Ru]
 >>19
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025681.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025529.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025525.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ The KMPlayer 4.2.2.50 repack by cuta (build 1) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025516.jpg" />
 </div>
 
 
@@ -266,7 +423,7 @@ Kaspersky Total Security 2021 21.3.10.391 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025503.jpg" />
 </div>
 
 
@@ -292,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025502.jpg" />
 </div>
 
 
@@ -318,7 +475,7 @@ The Outer Worlds (2019) [Ru/En] (1.5.1.712/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025501.jpg" />
 </div>
 
 
@@ -344,7 +501,7 @@ Adobe Photoshop 2021 v22.3+ Neural Filters [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025329.jpg" />
 </div>
 
 
@@ -370,7 +527,7 @@ Windows 10 ждут изменения
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025328.jpg" />
 </div>
 
 
@@ -396,7 +553,7 @@ Adobe Lightroom Classic v10.2 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025325.jpg" />
 </div>
 
 
@@ -422,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025324.jpg" />
 </div>
 
 
@@ -448,7 +605,7 @@ Adobe Photoshop 2021 22.3.0.49 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025323.jpg" />
 </div>
 
 
@@ -474,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025322.jpg" />
 </div>
 
 
@@ -500,7 +657,7 @@ Crysis Quadrilogy (2007-2013) [Ru/En] Repack/Rip R.G. Catalyst
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025321.jpg" />
 </div>
 
 
@@ -511,166 +668,6 @@ Crysis Quadrilogy (2007-2013) [Ru/En] Repack/Rip R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72B27F13C0FA0A328E0674A42EFCD1FBBD5D0321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455952   (1025174) от 21.03.2021
-
-NASA успешно испытало ступень самой большой ракеты в мире
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025174.jpg" />
-</div>
-
-
-###  Подробнее
-
-NASA наконец-то провело успешное испытание основной ступени ракеты Space Launch System (SLS), завершив восьмиминутные испытания потоками пламени из сопел четырех двигателей RS025 в космическом центре имени Джона Стенниса.На сегодняшний день SLS стоит более 20 миллиардов долларов и является ключевым компонентом программы NASA Artemis, направленной на обеспечение постоянного (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455947   (1025170) от 21.03.2021
-
-6 неожиданных фактов о человеческом сне
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы проводите треть своей жизни лежа на любимой подушке и сладко посапывая, пока мерзкий звук будильника не разбудит вас. Но что вы знаете о сне как таковом, кроме банальностей, вроде той, что это полезно для организма? Ученые пока до конца не могут объяснить, почему же мы спим, но продолжают обнаруживать интересные и даже абсурдные факты об этом пока еще загадочном физиологическом процессе. Вот шесть наиболее удивительных из них.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455547   (1025149) от 21.03.2021
-
-Лига справедливости Зака Снайдера / Zack Snyder's Justice League (2021) WEB-DLRip [H.265/1080p-LQ] [HDR, 10-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновившись самопожертвованием Супермена, Брюс Уэйн вновь обретает веру в человечество. Он заручается поддержкой новой союзницы Дианы Принс, чтобы сразиться с ещё более могущественным противником. Бэтмен и Чудо-женщина набирают команду сверхлюдей для борьбы с пробудившейся угрозой.Производство: США / Atlas Entertainment, DC Entertainment, DC FilmsЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Зак СнайдерАктеры: Бен Аффлек, Галь Гадот, Генри Кавилл, Дайан Лэйн, Джаред Лето, Эзра Миллер, Джейсон Момоа, Конни Нильсен, Дж.К. Симмонс, Робин РайтПеревод: Дублированный (КиноПоиск HD)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 04:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B046CC2DCB4D6D359747F1A7EE7956AD96EB7B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214829   (1025146) от 21.03.2021
-
-Surviving Mars (2018) [Ru/Multi] (1001551/dlc) Repack Other s [Digital Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Surviving Mars — это научно-фантастический симулятор поселения, где вашей целью будет колонизировать Марс и не умереть в процессе. Выберите космическое агентство, которое будет обеспечивать вам логистику и финансовую поддержку, затем определитесь с местом для колонии. Возводите купола и остальную инфраструктуру, исследуйте новые возможности, используйте дронов, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Haemimont GamesЖанр: Simulation, Strategy, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9045CD5DCBE18230562B89422FB848FC152BF494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 696915   (1025145) от 21.03.2021
-
-Tor Win64 0.4.5.7
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tor (сокр. от англ. The Onion Router) — свободное программное обеспечение для реализации второго поколения так называемой «луковой маршрутизации». Это система, позволяющая устанавливать анонимное сетевое соединение, защищённое от прослушивания. Рассматривается как анонимная сеть, предоставляющая передачу данных в зашифрованном виде. Предлагаемый пакет представляет (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E468FA919C18F83FE2F16C27E58FD57F47A90B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455756   (1025144) от 21.03.2021
-
-Windows 10 20H2 Compact & FULL x64 [19042.746] by Flibustier 13.01.2021 [Ru]
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компактная сборка Windows 10 20H2, включает два индекса и все последние наработки:
-● Индекс 1 - Compact "FULL" (практически полная, минимально урезанная, установятся все обновления).
-● Индекс 2 - Compact (урезана по максимуму, обновления устанавливаться не будут).
-● Включены все пакеты для правильной интеграции и установки английского (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A7B21F4427EA93838671B74911E1B47E458FCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

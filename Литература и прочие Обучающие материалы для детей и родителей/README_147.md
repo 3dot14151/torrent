@@ -1,3 +1,29 @@
+###  Публикация: 1213535   (768178) от 17.03.2018
+
+Константин Паустовский | Прощание с летом (1988) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AFF1C30909B1FFDFC082F72AE7F4A7426B61F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213599   (768099) от 17.03.2018
 
 Елена Березовская | Дочки-матери: Все, о чем вам не рассказывала ваша мама и чему стоит научить свою дочь (2018) [FB2]
@@ -6,7 +32,7 @@
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768099.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767894.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767837.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767826.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767413.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767409.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767406.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767404.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767403.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767398.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767372.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767325.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767042.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766975.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766928.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766814.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766759.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766740.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766530.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766417.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766374.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766307.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766304.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766300.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766296.jpg" />
 </div>
 
 
@@ -644,34 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33BCE670F203A387AC58179744A582003C59CFA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393916   (766291) от 02.07.2020
-
-Анна Быкова | Школьники «ленивой мамы» (2018) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие родители школьников с ужасом ждут начала нового учебного года. Потому что ребенок может приносить плохие оценки и дневник с гневными записями учителя, не делать домашние задания, а то и вовсе прогуливать школу.
-В этой книге Анна Быкова делится с читателями ценными советами о воспитании детей младшего, среднего и старшего школьного возраста.
-Как правильно выбрать (   Читать дальше...   )Жанр: Психология, Педагогика, Воспитание детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3104E3C6924188CD9912A861456BBE6D2AF8414
 ```
 
 https://mybot314.ru/tekegram_catalog/

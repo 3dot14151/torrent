@@ -6,7 +6,7 @@ Mildred Bailey - 1945 - 1947 (2003) Classics [FLAC|Lossless|image + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032593.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mary Lou Williams - 1944 (1995) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032592.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Richard M. Jones - 1923 - 1927 (1995) Classics [FLAC|Lossless|tracks + .cue] <Ea
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032550.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Roseanna Vitro - Softly (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032345.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mezz Mezzrow - 1951 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixiel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032343.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Julie London - Julie...at Home (1960) 2010, Toshiba-EMI [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032337.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dino Saluzzi - Albores (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032311.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Julie London - For The Night People (1966) 2010, Toshiba-EMI [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032307.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Malcolm Strachan - Point Of No Return (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032144.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Roseanna Vitro - Live At The Kennedy Center (2006) Challenge Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032130.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jamhunters - Climate (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop, Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032122.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Les Sabler - Flying High (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032118.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jelly-Roll Morton - 1926 - 1928 (1991) Classics [FLAC|Lossless|tracks + .cue] <N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031935.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Charlie Christian - On the Air (2009) [FLAC|Lossless|tracks + .cue] <Bop, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031934.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Charlie Christian & The Benny Goodman Sextet - The Radio Broadcasts (1939 - 1941
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031933.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sonny Rollins Trio - Live in Munich (1965) 2011, Domino Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031932.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Charlie Christian - Jazz Guitar Hero (1939 - 1941) 2010, Grammercy Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031929.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dave Brubeck - Greatest Hits (1967) 1987, CBS [FLAC|Lossless|tracks + .cue] <Coo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031903.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ George Kawaguchi's The Big Four - Jazz At The Torys (1957) 2012, King Record [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031680.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lorraine Desmarais - Street Beat Suite (2023) Analekta [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031677.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Louis Jordan - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031618.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Erskine Hawkins - 1939 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031411.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Erskine Hawkins - 1940 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031410.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Django Reinhardt - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031406.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Django Reinhardt - 1937 - 1938 (1994) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031404.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Dakh Daughters - Make Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Cabaret, Jazz, Fo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031396.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1795460   (19262) от 05.05.2025
+
+ZEPHON (2024) [Ru/Multi] (1.1.4/dlc) Repack Other s [Supporter Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество медленно, но верно идёт к своей гибели. От известного нам мира не осталось почти ничего. Города, леса, моря, горы - всё стало незнакомым. Стаи до неузнаваемости мутировавших тварей охотятся среди искажённых деревьев. Ветхие военные роботы с давно перегоревшими сенсорами и логическими узлами бездумно бродят среди развалин. Солдаты-пришельцы, ранее неимоверно (   Читать дальше...   )Тип издания: RepackРазработчик: Proxy StudiosЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA10E6E92BF7CCE6F7EFDFD6041A81CB34C52C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760763   (18771) от 10.05.2025
+
+ZEPHON (2024) [Ru/Multi] (1.1.0/dlc) Repack FitGirl [Supporter Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество медленно, но верно идёт к своей гибели. От известного нам мира не осталось почти ничего. Города, леса, моря, горы - всё стало незнакомым. Стаи до неузнаваемости мутировавших тварей охотятся среди искажённых деревьев. Ветхие военные роботы с давно перегоревшими сенсорами и логическими узлами бездумно бродят среди развалин. Солдаты-пришельцы, ранее неимоверно (   Читать дальше...   )Тип издания: RepackРазработчик: Proxy StudiosЖанр: Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22E4E4989F8F943D65AC0FEFF58331149A260B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754210   (18172) от 16.05.2025
 
 Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.53r) Repack FitGirl
@@ -6,7 +58,7 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.53r) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18172.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Dune: Imperium (2024) [Ru/Multi] (2.2.10.1211/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16932.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Repack FitGirl [D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16914.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Terraforming Mars (2018) [Ru/Multi] (2.9.1.2284/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16912.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Scene Rune [Delux
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16819.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Age of Darkness: Final Stand (2025) [Ru/Multi] (1.0.2.4) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16786.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ HUMANKIND (2021) [Ru/Multi] (1.0.28.4665/dlc) Repack Let'sРlay [Definitive Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16635.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Interstellar Space: Genesis (2019) [En] (1.6.3/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15717.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ NOBUNAGA'S AMBITION: Awakening (2022) [Multi] (1.1.6/dlc) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15523.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Northgard (2018) [Ru/Multi] (3.7.26.42112/dlc) Repack FitGirl [The Viking Age Ed
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14658.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Warhammer 40,000: Rites of War (1999) [En] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14532.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.7.1104/dlc) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14249.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ WARNO (2024) [Ru/Multi] (157953/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14173.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14144.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.9/dlc) Repack Pioneer [Ultimate Bu
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13859.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Grimstar: Crystals are the New Oil! (2025) [Ru/Multi] (1.5.0) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13825.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Stellaris (2016) [Ru/Multi] (4.0.1/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13584.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Ashes of the Singularity: Escalation (2016) [Multi] (3.30.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13537.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Star Wars: Rebellion (1998) [Multi] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13520.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Monster Train 2 (2025) [Ru/Multi] (Build #11691) Repack FitGirl [Supporter Pack]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13402.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.16.2.3/dlc) Scene Rune [Royal Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13331.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124610) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13162.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Three Kingdoms: The Last Warlord / Три королевства: Последн
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13032.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Grimstar: Crystals are the New Oil! (2025) [Ru/Multi] (1.6.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12302.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Grimstar – это стратегия в реальном времени с с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62251A5F32DC8A8C9F19264BFA61CB1162C086E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807117   (11251) от 17.07.2025
-
-Stronghold Crusader (2025) [Ru/Multi] (1.00) Repack FitGirl [Definitive Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11251.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом расширенном и дополненном издании полюбившейся игрокам классики Stronghold Crusader вы сможете отправиться во времена крестовых походов на Святую землю. Участвуйте в исторических боях в пустыне, оцените новый геймплей и улучшенную графику, тщательно переработанные с большим вниманием к исходным деталям, музыку и озвучку. Над игрой трудились актеры, композитор (   Читать дальше...   )Тип издания: RepackРазработчик: FireFly StudiosЖанр: Симуляторы, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A133EC46E14CEBABB911D048101071A6E6DEF2BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802944   (11034) от 19.07.2025
-
-Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Scene Rune [Vanguard Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Командуйте современными военными действиями с размахом. Broken Arrow - это масштабная военная тактическая игра в реальном времени, где сочетается комплексный подход варгеймов, в которых используются разные рода войск, с динамичным, тактическим игровым процессом. В игре насчитывается более 300 реалистичных военных подразделений и технологий, а каждая битва дает полное (   Читать дальше...   )Тип издания: SceneРазработчик: Steel BalalaikaЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5230CB87509BA191A8AA483415A164D31BA2987F
 ```
 
 https://mybot314.ru/tekegram_catalog/

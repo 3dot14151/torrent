@@ -1,32 +1,3 @@
-###  Публикация: 1105409   (874934) от 18.02.2017
-
-Duran Duran - Notorious (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874934.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Notorious
-A2	American Science
-A3	Skin Trade
-A4	A Matter Of Feeling(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6D710DCECA83540E6D5487CFA041AD805349FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 300159   (874115) от 25.02.2011
 
 Celebrating the Music of Weather Report (2000) [MLP 44.1/24 5.1; 2.0 96/24, DTS 5.1, DD 2.0 | DVD-Audio]<Jazz-Pop>
@@ -35,7 +6,7 @@ Celebrating the Music of Weather Report (2000) [MLP 44.1/24 5.1; 2.0 96/24, DTS 
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_874115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_874115.jpg" />
 </div>
 
 
@@ -70,7 +41,7 @@ Ludwig van Beethoven - Symphonies 4,5,6,9 (Daniel Barenboim) (2000) [MLP 5.0, 2.
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872231.jpg" />
 </div>
 
 
@@ -99,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872108.jpg" />
 </div>
 
 
@@ -129,7 +100,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872061.jpg" />
 </div>
 
 
@@ -159,7 +130,7 @@ VA - RETROспектива, часть XII. Мелодии и песни из к
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869534.jpg" />
 </div>
 
 
@@ -188,7 +159,7 @@ Horizont and Friends - Late Night Chillout Lounge (2003/2008) [DTS 5.0 CD-DA|44.
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864205.jpg" />
 </div>
 
 
@@ -217,7 +188,7 @@ Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864034.jpg" />
 </div>
 
 
@@ -247,7 +218,7 @@ The Alan Parsons Project – Ammonia Avenue (1984) 2020 [DTS 5.1 CD-DA|44.1/16|i
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863367.jpg" />
 </div>
 
 
@@ -276,7 +247,7 @@ VA - Музыка РУ 5 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862975.jpg" />
 </div>
 
 
@@ -305,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862972.jpg" />
 </div>
 
 
@@ -334,7 +305,7 @@ Laid Back - Hole In The Sky (1990) Unofficial Release [FLAC 2.0|48/24|image +.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862971.jpg" />
 </div>
 
 
@@ -363,7 +334,7 @@ VA - Любимой Женщине 3. Сборник медленных комп
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862870.jpg" />
 </div>
 
 
@@ -392,7 +363,7 @@ Linn Records - The Super Audio Collection Volume 4 Sampler (2010) [DSD 5.1, 2.0|
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861532.jpg" />
 </div>
 
 
@@ -421,7 +392,7 @@ Steven Wilson - 4 1/2  (2016) [DTS 5.1 CD-DA|44.1/16|image+cue|BD-Audio] <Neo-Pr
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860535.jpg" />
 </div>
 
 
@@ -450,7 +421,7 @@ Linn Records - Super Audio Collection Vol. 8 (2015) [DSD 5.1, 2.0|2822,4/1|SACD]
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859850.jpg" />
 </div>
 
 
@@ -478,7 +449,7 @@ Electric Light Orchestra - Time (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857180.jpg" />
 </div>
 
 
@@ -507,7 +478,7 @@ VA - RETROспектива, часть XIII. Мелодии и песни из �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855326.jpg" />
 </div>
 
 
@@ -536,7 +507,7 @@ Ken Hensley - Proud Words On A Dusty Shelf (1973) [WavPack|192/32|image+.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853604.jpg" />
 </div>
 
 
@@ -566,7 +537,7 @@ VA - The Great Singers Of The Jazz/Големите Вокалисти На Дж
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852186.jpg" />
 </div>
 
 
@@ -595,7 +566,7 @@ Sam Brown - Stop! (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851754.jpg" />
 </div>
 
 
@@ -624,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851019.jpg" />
 </div>
 
 
@@ -650,7 +621,7 @@ Passengers - Casino (1981) [FLAC|96/24|image+.cue|Vinyl-Rip] <Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850179.jpg" />
 </div>
 
 
@@ -679,7 +650,7 @@ Electric Light Orchestra - Discovery (1979)  [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850127.jpg" />
 </div>
 
 
@@ -708,7 +679,7 @@ Frank Sinatra - Portrait Of Sinatra: Forty Songs From The Life Of A Man (1977) [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849794.jpg" />
 </div>
 
 
@@ -737,7 +708,7 @@ Fleetwood Mac - Rumours (1977) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Soft Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849033.jpg" />
 </div>
 
 
@@ -751,6 +722,35 @@ A4. Don't Stop (3:15)(   Читать дальше...   )Жанр: Soft RockПр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8D21AE3BE8E830387C475552ED04087ED25D739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002332   (848601) от 31.03.2016
+
+Группа Стаса Намина - Гимн Солнцу (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление и "Гимн Солнцу"
+02. После Дождя
+03. Где Живет Ветер
+04. Ты Только Слушай(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A286BC7EC7C1FC1FF6F538F985372B748D34FA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

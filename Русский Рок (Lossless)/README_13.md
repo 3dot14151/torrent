@@ -1,61 +1,3 @@
-###  Публикация: 1376536   (858798) от 18.04.2020
-
-Звери - Одинокому везде пустыня (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858798.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дама с собачкой
-2. Попрыгунья
-3. Человек в футляре
-4. Палата №6(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6753A7BC7879A76DCE3F25FEEE4D731D2C998BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498364   (858069) от 26.09.2021
-
-Анатомия Меланхолии - Мой бог (2021) [FLAC|Lossless|WEB-DL|tracks] <Melancholic Metal, Instrumental Metal, Melancholic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Разбитые мечты [00:02:41]
-02. Нелюбовь [00:05:02]
-03. Я не знаю [00:04:44]
-04. Их послали в огонь [00:05:46](   Читать дальше...   )Жанр: Melancholic Metal, Instrumental Metal, Melancholic RockПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BE4C9193D5B3AC9C30F3EE8278F41AA1720B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376817   (856905) от 19.04.2020
 
 Олег Скобля - Крылатый Лев (2004) [FLAC|Lossless|image + .cue] <Christian Rock (Православный рок)>
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856905.jpg" />
 </div>
 
 
@@ -93,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855911.jpg" />
 </div>
 
 
@@ -122,7 +64,7 @@ Nobody.one - Mercy, Please Mercy! (2020) [FLAC|Lossless|tracks] <Instrumental, r
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855064.jpg" />
 </div>
 
 
@@ -151,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854590.jpg" />
 </div>
 
 
@@ -180,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854110.jpg" />
 </div>
 
 
@@ -209,7 +151,7 @@ VA - Maxidrom (1995-2005) 8CD [FLAC|Lossless|image + .cue, tracks + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852731.jpg" />
 </div>
 
 
@@ -239,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852047.jpg" />
 </div>
 
 
@@ -268,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851911.jpg" />
 </div>
 
 
@@ -298,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851873.jpg" />
 </div>
 
 
@@ -327,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850261.jpg" />
 </div>
 
 
@@ -356,7 +298,7 @@ Louna - Песни о мире (С симфоническим оркестром
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850210.jpg" />
 </div>
 
 
@@ -385,7 +327,7 @@ BONGTOWER - Oscillator (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Psyched
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850160.jpg" />
 </div>
 
 
@@ -414,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850134.jpg" />
 </div>
 
 
@@ -443,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848541.jpg" />
 </div>
 
 
@@ -472,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848535.jpg" />
 </div>
 
 
@@ -501,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848161.jpg" />
 </div>
 
 
@@ -530,7 +472,7 @@ Tequilajazzz - Камни (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847685.jpg" />
 </div>
 
 
@@ -559,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847667.jpg" />
 </div>
 
 
@@ -588,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847596.jpg" />
 </div>
 
 
@@ -617,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844297.jpg" />
 </div>
 
 
@@ -646,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843031.jpg" />
 </div>
 
 
@@ -675,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841499.jpg" />
 </div>
 
 
@@ -704,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841344.jpg" />
 </div>
 
 
@@ -733,7 +675,7 @@ VA - Иллюминатор. Песни на стихи Ильи Кормиль�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841223.jpg" />
 </div>
 
 
@@ -747,6 +689,64 @@ VA - Иллюминатор. Песни на стихи Ильи Кормиль�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:358FEE5F3D77C6C15D0061F19D42AF344ACF3E15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501085   (837990) от 08.10.2021
+
+Кипелов - Часы Судного Дня (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Огненная Дуга
+02. Часы Судного Дня
+03. Лунный Ковчег
+04. Крик ТишиныЖанр: Heavy MetalПродолжительность: 00:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB78BBCD2C1E40BF89F2D373F80E8E22E2E5D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113601   (836608) от 12.03.2017
+
+VA - Отражения (Tribute to Каталог) (2016) [FLAC|lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чичерина - Куда пропали Звезды (03:20)
+02. Братья Лапенковы - День наоборот (03:51)
+03. Специальный проект 'Сашины товарищи' - Если вас тревожит что-то (03:53)
+04. Настя Полева - Игра без правил (04:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B20BAB5670159215F094D5E6DEA4E62C5E5C3C7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

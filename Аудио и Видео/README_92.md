@@ -6,7 +6,7 @@ VA - Sunset Emotions 3 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748478.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Sunset Emotions 2 (2020) [AAC|~331 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748477.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Sun Travellers, Vol. 4 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748476.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Sunset Emotions 4 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748475.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - DNBB Recap 2021 (2021) [AAC|~319 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748473.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Liquid Flow Recap 2021 (2021) [AAC|~315 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748370.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Sun Travellers, Vol. 1 (2019) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748368.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Sun Travellers, Vol. 3 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748367.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - The Essential Downtempo, Vol. 2: Chillout Your Mind (2022) [AAC|~335 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748366.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Bar Lounge Costes, Vol. 1 (2019) [AAC|~320 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748365.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Jazzy Weekend, Vol. 2 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748364.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Sunset Emotions 5 (2021) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748362.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Sun Travellers, Vol. 2 (2020) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748358.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 1 (2018) [AAC|~327 Kbp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748354.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Sunset Emotions 1 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748352.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Modern Urban Jazz 2 (2022) [AAC|~313 Kbps] <Jazz, Nu Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748348.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Modern Urban Jazz (2020) [AAC|~314 Kbps] <Jazz, Nu Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748341.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748337.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748220.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - 50 любовных баллад шансона (Избранная люб�
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748208.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748136.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748059.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748049.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747867.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747585.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747564.jpg" />
 </div>
 
 

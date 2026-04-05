@@ -1,3 +1,32 @@
+###  Публикация: 1177793   (360898) от 26.10.2017
+
+Alice Cooper - Welcome To My Nightmare (1975) Remastered, 2002, Atlantic/Rhino [FLAC|Lossless|image + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To My Nightmare
+02. Devil's Food
+03. The Black Widow
+04. Some Folks(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE34882885F25EE6C9C49796D985F5F1B3BD8A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071118   (360897) от 09.11.2016
 
 Пикник - 35 (2016) 2CD [FLAC|Lossless|image + .cue] <Rock>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360897.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ Lynyrd Skynyrd - 25 Albums, 1 Box-set, 41CD (1973-2014) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360844.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360825.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ Silent Descent - Mind Games (Japanese Edition) (2012) [FLAC|Lossless]<Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360815.jpg" />
 </div>
 
 
@@ -129,7 +158,7 @@ Kamelot - Silverthorn (Japanese Edition) (2012) [FLAC|Lossless]<Progressive Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360813.jpg" />
 </div>
 
 
@@ -164,7 +193,7 @@ Funky Junction - Play A Tribute To Deep Purple (1973) [MP3|256 кб/с]<Classic 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360808.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360776.jpg" />
 </div>
 
 
@@ -227,7 +256,7 @@ Serenity - Lionheart (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360771.jpg" />
 </div>
 
 
@@ -256,7 +285,7 @@ Step Child - The Prayer (1995) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360702.jpg" />
 </div>
 
 
@@ -285,7 +314,7 @@ Carnivore - Retaliation (1987) Reissue, Remastered, 2018, Listenable [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360689.jpg" />
 </div>
 
 
@@ -314,7 +343,7 @@ Spirit Adrift - Еnlightеnеd In Еtеrnitу (2020) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360687.jpg" />
 </div>
 
 
@@ -343,7 +372,7 @@ Theo - Figurеhеаds (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360685.jpg" />
 </div>
 
 
@@ -372,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360663.jpg" />
 </div>
 
 
@@ -401,7 +430,7 @@ Soulfly - 11 Альбомов (1998-2018) [FLAC|tracks|Lossless]<Groove Metal, N
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360649.jpg" />
 </div>
 
 
@@ -430,7 +459,7 @@ Jeff Liberman - Пять Альбомов (2002 - 2012) [WAVPack /FLAC|Lossless]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360608.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ Lazarus - Down N' Dirty (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360573.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ Stonehand - Дорожный Альбом (2020) [MP3|320 Kbps] <Heavy Metal, Ha
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360559.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360540.jpg" />
 </div>
 
 
@@ -550,7 +579,7 @@ Theory Of A Deadman - Wake Up Call (2017) [MP3|320 Kbps] <Alternative Rock, Post
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360501.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360362.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Paul McCartney - Tug Of War (2015) 3CD Deluxe Edition [FLAC|image + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360288.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ Kaipa - 9 albums (1974 - 2007) [FLAC|Lossless]<Symphonic Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360089.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360069.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ VA - 101 Hits Rock Legends (Box Set 4CD) (2009) [MP3|320 кб/с]<Classic Rock &
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359936.jpg" />
 </div>
 
 
@@ -724,7 +753,7 @@ Behemoth - Opvs Contra Natvram (2022) [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359520.jpg" />
 </div>
 
 
@@ -738,35 +767,6 @@ Behemoth - Opvs Contra Natvram (2022) [FLAC|Lossless|image + .cue] <Black Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0E1508277D646B71BDC047A1A94C303F5EF7155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576822   (359515) от 17.09.2022
-
-Creedence Clearwater Revival - At The Royal Albert Hall (2022) At The Royal Albert Hall, London, UK, April 14, 1970 [FLAC 2.0|96/24|tracks|WEB-DL] <Southern Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born On The Bayou (At The Royal Albert Hall / London, UK / April 14, 1970) (05:12)
-02. Green River (At The Royal Albert Hall / London, UK / April 14, 1970) (02:57)
-03. Tombstone Shadow (At The Royal Albert Hall / London, UK / April 14, 1970) (03:38)
-04. Travelin' Band (At The Royal Albert Hall / London, UK / April 14, 1970) (02:10)(   Читать дальше...   )Жанр: Southern Rock, Classic RockПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5592D59798542D8488C7BC5E2053D76CC2388690
 ```
 
 https://mybot314.ru/tekegram_catalog/

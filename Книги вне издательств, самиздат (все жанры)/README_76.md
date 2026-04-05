@@ -1,3 +1,83 @@
+###  Публикация: 1314632   (517884) от 15.07.2019
+
+Роман Афанасьев | Охотники: Война Ночных Охотников (2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чевёртый роман цикла «Охотники»
+
+Алексей Кобылин, самый удачливый охотник на нечисть, заключил сделку со Смертью и практически обрел бессмертие. Но цена, которую он заплатил за это, слишком велика. Превращаясь в беспощадного Жнеца, охотничью собаку Смерти, Кобылин теряет личность, превращаясь в одно из тех существ, за которыми он когда-то охотился. В минуты просветления (   Читать дальше...   )Жанр: Городское фэнтези, Боевое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498A22759C3AF10459E6C7B038115A50C80734E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314899   (517027) от 16.07.2019
+
+Александра Лисина | Темный мир. Забытые боги (2019) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алиара — древний мир, в котором уже много веков царят покой и процветание. Однако приход чужаков грозит разрушить эту идиллию. Изгнанники, отступники, безумцы… Как только в свое время не называли потомков Л’аэртэ. И вот теперь они возвращаются, неся с собой новые знания, новую магию и массу других опасностей, к которым Алиара оказывается не готова. Впрочем, для Таррэна (   Читать дальше...   )Жанр: Фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3FD3F5F189F501A85CDBBBE55A6D515D655A1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930288   (516305) от 22.08.2015
+
+Елизавета Дворецкая | Дочери Волхова (2015) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ладога, конец IX века. У воеводы Домагостя растут три дочери. Старшей, Яромиле, волховской Леле, суждено встретиться с князем Оддом Халейгом: так появляется на Руси тот, кого назовут Вещим Олегом. Средняя, Дивляна, полюбила псковского княжича Вольгу, но в это время в Ладогу приезжают сваты, желающие найти невесту киевскому князю Аскольду. Пытаясь убежать от этой (   Читать дальше...   )Жанр: Историческое фэнтези, Альтернативная история, Исторические любовные романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC93344C99191C8B896243EE95D6639F47F40B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930263   (516068) от 22.08.2015
 
 Георгий Юленков | Цикл «Павла» [3 книги] (2014) [FB2]
@@ -6,7 +86,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516068.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516045.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515952.jpg" />
 </div>
 
 
@@ -89,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515905.jpg" />
 </div>
 
 
@@ -118,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515882.jpg" />
 </div>
 
 
@@ -144,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515709.jpg" />
 </div>
 
 
@@ -172,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515155.jpg" />
 </div>
 
 
@@ -199,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515051.jpg" />
 </div>
 
 
@@ -225,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514355.jpg" />
 </div>
 
 
@@ -251,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513632.jpg" />
 </div>
 
 
@@ -277,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513580.jpg" />
 </div>
 
 
@@ -303,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513005.jpg" />
 </div>
 
 
@@ -331,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512976.jpg" />
 </div>
 
 
@@ -357,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512801.jpg" />
 </div>
 
 
@@ -384,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512787.jpg" />
 </div>
 
 
@@ -410,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512778.jpg" />
 </div>
 
 
@@ -436,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512643.jpg" />
 </div>
 
 
@@ -464,7 +544,7 @@ Angel Delacruz | Цикл «Молодые Боги» [3 книги] (2018-2019)
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512620.jpg" />
 </div>
 
 
@@ -491,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511729.jpg" />
 </div>
 
 
@@ -517,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511698.jpg" />
 </div>
 
 
@@ -545,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510862.jpg" />
 </div>
 
 
@@ -571,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510621.jpg" />
 </div>
 
 
@@ -599,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509487.jpg" />
 </div>
 
 
@@ -612,88 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E719A6C1F7129D136D2B00DA52455E3C7353595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932537   (509267) от 29.08.2015
-
-Алексей Корепанов | Призрачный Сфинкс (2015) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трем бойцам группы быстрого реагирования, выехавшим на очередную операцию по задержанию преступников, и в голову прийти не могло, что ожидает их в загородном леске, и чем обернется для них эта поездка. Нечто, похожее то ли на сон, то ли на сказку вторглось в их жизнь, и очень кстати пришлись верные «калаши».
-Психиатру Виктору Самопалову пришлось долго ломать голову (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA180D44EDEC28257972421680613FE8DE2AEF73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932344   (508820) от 29.08.2015
-
-Владимир Поселягин | Патрульный (2015) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая книга цикла «Наемник».
-
-Антон Кремнев смог прорваться сквозь системы Фронтира, кишащие кораблями противника и пиратами, и через неисследованные пространства добрался до Земли. Та встретила его не очень приветливо, нанеся удар по семье. Но Антон с честью преодолел все препятствия при помощи тяжелого вооружения. Вот уже подписаны договора с правительствами разных (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:792872467F270592F17A76763377F43737B0E0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932979   (508037) от 30.08.2015
-
-Алексей Корепанов | Зверь из бездны [трилогия] (2015) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечеству не привыкать к «деяниям» серийных убийц. И далекое будущее тут ничего не изменит. Но расследование, которым занимается офицер «Унипола» Лео Грег, не вписывается ни в какие рамки. Не бывало еще такого во всей Ассоциации Миров. Чем-то нездешним веет от этих ужасных деяний. И главное - непонятна их цель.
-Однако, отступать Лео Грег не собирается...Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B05F5EFBAF50934185EB75A94621D97B0512E7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

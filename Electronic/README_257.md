@@ -1,3 +1,119 @@
+###  Публикация: 1043591   (572200) от 16.08.2016
+
+Astronaut Ape - Unknown Sector (2016) Microcosmos Records [FLAC|Lossless|WEB-DL-24/96|tracks] <Psybient, Ambient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Small Step (05:19)
+02. Nebula (08:10)
+03. Moon Station Traffic (08:21)
+04. A Lonely Robot In A Control Room (05:57)(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C98BA4C8F4D7CAB155932FE05F8A7524959C325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555048   (571976) от 02.06.2022
+
+VA - A State Of Trance 2022 (Mixed by Armin van Buuren) (2022) [FLAC|Lossless|CD|tracks + .cue] <Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Let You Down (4:15)
+02. Rub!k - Orbit-37 (2:14)
+03. C-Systems - Every Star (2:21)
+04. Ben Gold - Same Sky Same Stars (feat. Plumb) (4:15)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F8B9DE6E87C34F416CC3DA2F745DC03929E2CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922157   (571674) от 27.07.2015
+
+VA - In Search Of Sunrise 13.5 - Amsterdam (Mixed by Richard Durand with BT) (2015) [FLAC|Lossless|WEB-DL]<Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vidda Deborras - Tower Of Tears (Intro) (3:04)
+02. Michael Badal with Sue McLaren - Recapture (5:58)
+03. Alex O'Rion - Electrifying Love (7:09)
+04. Moonbeam feat. Sopheary - Heaven (4:42)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 05:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D9CA0CE02ED05E7EFA58025DA9320781C0CFC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922073   (571340) от 27.07.2015
+
+Carpenter Brut - Trilogy (2015) 3CD + Bonus [MP3|320 кб/с]<80's, Electro, Synthwave, Dark Synth>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571340.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Escape from Midwich Valley (06:43)
+02. Disco Zombi Italia (05:17)
+03. L.A. Venice Bitch 80's (04:11)(   Читать дальше...   )Жанр: 80's, Electro, Synthwave, Dark SynthПродолжительность: 01:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6D8E7DCA26D74D4CD0F2694B5E15734E18687A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526723   (571278) от 29.07.2012
 
 Lolita Jolie - Non Non Non (2012) [MP3|320 кб/с]<Electro, House>
@@ -6,7 +122,7 @@ Lolita Jolie - Non Non Non (2012) [MP3|320 кб/с]<Electro, House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571278.jpg" />
 </div>
 
 
@@ -36,7 +152,7 @@ VA - Sunset Players Vol.1 (Relaxed Sunset Moods) (2016) [MP3|320 Kbps] <Chillout
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571190.jpg" />
 </div>
 
 
@@ -65,7 +181,7 @@ Rafael Cerato & The White Shadow - Distance (2016) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571176.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ VA - Ibiza Top 100-3CD (2012) [MP3|~259 кб/с (VBR)]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571158.jpg" />
 </div>
 
 
@@ -129,7 +245,7 @@ VA - Restate Gods Vol.1 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571149.jpg" />
 </div>
 
 
@@ -158,7 +274,7 @@ VA - Nothing But... True Progressive Vol.06 (2018) [MP3|320 Kbps] <House,Progres
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571145.jpg" />
 </div>
 
 
@@ -187,7 +303,7 @@ VA - Radio Charts - Gold Collection (2016) [MP3|320 Kbps] <House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571073.jpg" />
 </div>
 
 
@@ -216,7 +332,7 @@ VA - Poolside Tech House Sundays, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571034.jpg" />
 </div>
 
 
@@ -245,7 +361,7 @@ VA - The Fitness Series, Vol. 3 (2018) [MP3|320 Kbps] <Hard House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571032.jpg" />
 </div>
 
 
@@ -274,7 +390,7 @@ VA - Chillout Summer Essentials (2018) [MP3|320 Kbps] <Chillout,Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571028.jpg" />
 </div>
 
 
@@ -303,7 +419,7 @@ VA - Lounge Theme (25 Sofa Grooves), Vol. 2 (2018) [MP3|320 Kbps] <Balearic, Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571020.jpg" />
 </div>
 
 
@@ -332,7 +448,7 @@ VA - Best Sound of Chill & Lounge 2019 (33 Chillout Downbeat Songs with Ibiza Ma
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570820.jpg" />
 </div>
 
 
@@ -361,7 +477,7 @@ VA - Fckng Serious (One Year) (2016) [MP3|320 Kbps] <Techno, Minimal Techno, Tec
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570804.jpg" />
 </div>
 
 
@@ -390,7 +506,7 @@ VA - Voice Of Suanda Vol.4 (2017) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570742.jpg" />
 </div>
 
 
@@ -419,7 +535,7 @@ VA - Poolside Heat Paradise Summer Beach Lounge (2017) [MP3|320 Kbps] <Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570727.jpg" />
 </div>
 
 
@@ -448,7 +564,7 @@ VA - Summer Time (Dance Hits) (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570696.jpg" />
 </div>
 
 
@@ -477,7 +593,7 @@ VA - Erotic Chillout Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570530.jpg" />
 </div>
 
 
@@ -506,7 +622,7 @@ VA - Tomorrowland 2017: Amicorum Spectaculum (2017) [MP3|320 Kbps] <House, Progr
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570198.jpg" />
 </div>
 
 
@@ -535,7 +651,7 @@ VA - Deep House Hits: Ibiza 2019 – Armada Music (2019) [MP3|320 Kbps] <House, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570082.jpg" />
 </div>
 
 
@@ -564,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_569998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_569998.jpg" />
 </div>
 
 
@@ -590,7 +706,7 @@ Alter Ego - Alter Ego (1995) [FLAC|tracks +.cue]<Techno, Acid Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569925.jpg" />
 </div>
 
 
@@ -619,7 +735,7 @@ VA - Cafe Ipanema (2011) [FLAC|tracks+.cue]<Downtempo, Bossa Nova>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569876.jpg" />
 </div>
 
 
@@ -633,122 +749,6 @@ VA - Cafe Ipanema (2011) [FLAC|tracks+.cue]<Downtempo, Bossa Nova>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D30A04F1663BB6A13CDD6B62C8C351ED84B6F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 689841   (569841) от 15.08.2013
-
-VA - Eclettica (Compiled By Glass Coffee) - 2013 [FLAC|Lossless|WEB-DL|KLCD 081 ]<Deep House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haraket - Taint (Mokadem remix)
-02. Glass Coffee - Shining Love
-03. Nosaj Thing - Eclipse/Blue (feat Kazu Makino)
-04. Allone - Look At The Doorway Boys(   Читать дальше...   )Жанр: Deep House, ElectronicПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07502A6E5D9CC94FC78CBAFBE5673BBCEC791A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304008   (569485) от 23.05.2019
-
-Useless - Urban Jungle (1997) Single [FLAC|Lossless|tracks + .cue] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Urban jungle (4:11)
- 02. Urban jungle (jungle mix) (4:39)
- 03. Envoie-moi au ciel Scotty (4:45)
- 04. Envoie-moi au ciel Scotty (acid mix) (9:59)Жанр: TechnoПродолжительность: 00:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A74165DA7C89A1A1AC1D22014417227C067F71D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234583   (569378) от 06.07.2018
-
-VA - SHINE Ibiza Soundtrack (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk presents SHINE - SHINE Ibiza Anthem 2018 (Edit)
-02. Giuseppe Ottaviani - Ozone (Craig Connelly Remix)
-03. Jordan Suckley and Alex M.O.R.P.H. - Ambush
-04. Woody van Eyden and James Cottle - Caliber-12(   Читать дальше...   )Жанр: TranceПродолжительность: 03:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF2D2F042E4AD0BE28E4C2AA3702135A04E3C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234579   (569374) от 06.07.2018
-
-VA - Ibiza Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Roger Shah & JES - Star-Crossed
-02.Anske & Victoriya - Love Won't End
-03.Moonsouls & Marjan - Come Home
-04.Fabio XB & Betsie Larkin - Under Your Stars(   Читать дальше...   )Жанр: TranceПродолжительность: 01:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F273D38AA2285418F61A8848060D6815999C85
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ NG: Жизнь в эпоху самолётов / Living in the Age of Airplanes
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673197.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Пустынное море / The Desert Sea (2016) HDTVRip [H.264/720p-LQ] 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672423.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Известная Вселенная. От атома до космоса /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672390.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672187.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Землетрясение на Эвересте / Earthquake on Everest (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668098.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Секс в каменном веке / Sex in the Stone Age (2011) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665885.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665235.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG: Начало (Происхождение: Путешествие челов�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665040.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW: Неудачи хищников / Predator Fails (2015) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664796.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NGW: Планета птиц / Planet of the Birds (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664781.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG: Скрытый мир Амазонки / Amazon Underworld (2016) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660905.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NG: Происхождение: Путешествие человечества 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657529.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG. Известная Вселенная / Known Universe (2009) BDRemux [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654704.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NG. Криминальная Британия / Britain's underworld (2010) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654204.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NG: Дикая природа Калифорнии / Дикая Нижняя К�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653843.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NGW: Дикая природа Чили / Wild Chile (2017) DVB [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653581.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG. Монстр млечного пути / Cosmic Monsters (2007) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653089.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ NG. Убийственная скорость / Speed Kills (2012) HDTVRip [3 с
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_649413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_649413.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NG. Великая Китайская стена / China's Great Wall (2007) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649197.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NGW: Дикая природа Аргентины. Водное царство /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648473.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ NG: Испытайте свой мозг / Test Your Brain (2011) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646874.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NG. Следствие по делам хищников / Predator CSI (2007) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646437.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NG. Удивительная планета / Amazing Planet (2006) BDRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_645566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645566.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643031.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NG. Фри-соло / Free Solo (2018) HDTV [H.264/1080i-LQ] [MVO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642693.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ NG. Тайны истории. Человек в железной маске / M
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641652.jpg" />
 </div>
 
 

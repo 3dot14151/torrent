@@ -1,159 +1,3 @@
-###  Публикация: 1674688   (160756) от 06.11.2023
-
-Raghav Kandarpa, Shivangi Saxena | Data Wrangling with SQL (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга начинается с ознакомления с основами SQL и посвящена основным принципам и методам работы с данными. Затем вы познакомитесь с такими продвинутыми концепциями SQL, как агрегатные функции, оконные функции, CTE и подзапросы. В следующей главе Вы рассмотрите различные функции в SQL-запросах, которые приводят к задержкам в преобразовании данных, и поможем понять, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F598B222537DC0679586677E942AD65347150A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674680   (160735) от 06.11.2023
-
-Dr. Gabriel N. Schenker | The Ultimate Docker Container Book, 3rd Edition (2023) [PDF][EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вначале вы освоите такие практические навыки, как настройка окружения Docker, работа с компонентами, имеющими состояние, выполнение и тестирование кода в контейнерах, управление образами Docker. Вы также узнаете, как адаптировать унаследованные приложения к контейнеризации и понять архитектуру распределенных приложений. Далее вы узнаете о сетевой модели Docker, программно-определяемых (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA823C77CF68D2BE444DF37E0C4A01D8CBA2089B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674715   (160709) от 06.11.2023
-
-Дмитрий Колисниченко | Командная строка Linux (2023) [PDF, DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены задачи, которые выполняются из командной строки операционной системы Linux. Объясняется, как попасть в командную строку, работать в консоли, настраивать систему с помощью программ, обладающих только текстовым интерфейсом. Описаны особенности файловой системы Linux, наиболее полезные команды для работы с текстом, сетью и Интернетом, а также команды системного (   Читать дальше...   )Жанр: АдминистрированиеИздательство: БХВ-ПетербургФормат: PDF, DJVUКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1C059E30AD35502F3D5BCF0786E9F3452D9666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674848   (160508) от 07.11.2023
-
-Брюс Шнайер | Взломать всё. Как сильные мира сего используют уязвимости систем в своих интересах (2023) [FB2]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический образ хакера – это специалист ИТ высочайшего класса, который знает несколько языков программирования, разбирается в устройстве систем безопасности и в два счета подберет пароль к вашему почтовому ящику. Он изучает системы для того, чтобы найти в них уязвимости и заставить работать в своих интересах. Однако взламывать можно не только компьютеры, но и (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Михаил БелоголовскийИздательство: Альпина ПаблишерФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54472E60B07C306BD444812D1F0C2C3A66C15E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675121   (160368) от 08.11.2023
-
-Andreas Deja | Уроки от "Девятки диснеевских стариков":  Изучаем техники и вдохновляемся работами великих аниматоров студии Дисней (2015) [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уолт Дисней сгоряча назвал команду своих ведущих аниматоров «Девятка диснеевских стариков», но это прозвище вошло в историю. «Девятка» прославилась не только знаменитыми творениями – они сформулировали 12 базовых принципов анимации. Позвольте великому аниматору, легенде студии Дисней, Андреасу Дежа познакомить вас с мировоззрением, принципами и методами работы выдающихся (   Читать дальше...   )Жанр: АнимацияИздательство: Taylor and FrancisФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5502CFC1B8F824B2B996E0B187BA4360F0280F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675378   (160193) от 09.11.2023
-
-В.П. Дьяконов | MATLAB R2006/2007/2008 + Simulink 5/6/7. Основы применения (2017) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является вторым изданием первого тома 5-томной серии книг по системе MATLAB+Simulink. Впервые в одной книге описаны новейшие версии этой системы MATLAB R2006*/2007*/2008 и ее главного расширения Simulink (версии 5, 6 и 7), выполняющего блочное ситуационное моделирование. Эти, системы лидируют в численных расчетах и в математическом, блочном имитационном и ситуационном (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Солон-ПрессФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D85B0A295D712E2AA1638A01F7E5B2DCAAA3B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675319   (160037) от 09.11.2023
 
 Brian Lipp | Modern Data Architectures with Python (2023) [PDF][EN]
@@ -162,7 +6,7 @@ Brian Lipp | Modern Data Architectures with Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160037.jpg" />
 </div>
 
 
@@ -188,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159474.jpg" />
 </div>
 
 
@@ -215,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159411.jpg" />
 </div>
 
 
@@ -242,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159182.jpg" />
 </div>
 
 
@@ -268,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159164.jpg" />
 </div>
 
 
@@ -295,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159085.jpg" />
 </div>
 
 
@@ -321,7 +165,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Ruby (2022) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158962.jpg" />
 </div>
 
 
@@ -349,7 +193,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Node.js (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158940.jpg" />
 </div>
 
 
@@ -377,7 +221,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Java (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158930.jpg" />
 </div>
 
 
@@ -405,7 +249,7 @@ Nabendu Biswas | TypeScript Basics (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158903.jpg" />
 </div>
 
 
@@ -431,7 +275,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Python (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158874.jpg" />
 </div>
 
 
@@ -459,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158823.jpg" />
 </div>
 
 
@@ -487,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158811.jpg" />
 </div>
 
 
@@ -516,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158772.jpg" />
 </div>
 
 
@@ -542,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158736.jpg" />
 </div>
 
 
@@ -570,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158722.jpg" />
 </div>
 
 
@@ -597,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158316.jpg" />
 </div>
 
 
@@ -623,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157272.jpg" />
 </div>
 
 
@@ -649,7 +493,7 @@ Thomas Valentine | Database-Driven Web Development, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157161.jpg" />
 </div>
 
 
@@ -675,7 +519,7 @@ The KiCad Team | Мануал для ПО "KiCad" [10 книг] (10.2021) [PDF, 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156820.jpg" />
 </div>
 
 
@@ -686,6 +530,163 @@ The KiCad Team | Мануал для ПО "KiCad" [10 книг] (10.2021) [PDF, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BE9C2FFB229879129DF19543F3EA66F98B1D5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600341   (156741) от 27.12.2022
+
+Эли Стивенс и др. | PyTorch. Освещая глубокое обучение (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие средства глубокого обучения используют Python, но именно библиотека PyTorch по-настоящему «питоническая». Легкая в освоении для тех, кто знаком с NumPy и scikit-learn, PyTorch упрощает работу с глубоким обучением, обладая в то же время богатым набором функций. PyTorch прекрасно подходит для быстрого создания моделей и без проблем масштабируется до корпоративного (   Читать дальше...   )Жанр: Машинное обучение. Анализ данныхФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8E3B3B90A26F94821DA9A873ACF3A706763747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676482   (156715) от 13.11.2023
+
+Steven F. Lott | Python Real-World Projects (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга предназначена для тех, кто имеет базовое представление об определении классов, создании модулей и присущих Python структурах данных. Используйте как стандартную библиотеку, так и ключевые внешние проекты, такие как Jupyter Lab, pydantic, pytest и requests. Воспользуйтесь методологией, ориентированной на предприятия, включая модульное и приемочное тестирование, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B2677B4F54FDC0AE4AF846E18709844695AF4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670943   (156597) от 13.11.2023
+
+Книжная серия | Видеоигры: Глубокое погружение [4 книги] (2023) [PDF, FB2][Обновляемая]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всегда хотели делать игры, но не знали с чего начать? Много идей и все хочется реализовать? Страшно браться за что-то новое с нуля? Мысли о программировании вводят в панический ужас?
+Тогда книги этой серии именно для вас.Жанр: Компьютерная литератураИздательство: АСТФормат: PDF, FB2Качество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E244AA3E7BA4F6738C06017AA0E675B432621F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194167   (156411) от 24.12.2017
+
+Антонио Джулли, Суджит Пал | Библиотека Keras - инструмент глубокого обучения (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - краткое, но обстоятельное введение в современные нейронные сети, искусственный интеллект и технологии глубокого обучения. В ней представлено более 20 работоспособных нейронных сетей, написанных на языке Python с использованием модульной библиотеки Keras, работающей поверх библиотек TensorFlow от Google или Theano от компании Lisa Lab. Описан функциональный (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C088342D50007CAA42E76524A5BB7F7CDC467FAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433498   (155439) от 21.12.2020
+
+Владимир Дронов | HTML и CSS: 25 уроков для начинающих (2020) [PDF]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дано введение в веб-разработку, раскрыты основы HTML, CSS и работы в WWW. Объяснено, как с помощью HTML структурировать и форматировать текст, работать с графикой и мультимедиа, таблицами, гиперссылками, веб-формами, фреймами и метаданными. Рассказано, как средствами CSS оформлять веб-страницы, использовать блоки, списки и таблицы, изображения и гиперссылки, элементы (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:463BF19CA9BD741A877C04742C53ABE4C1BE3762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270668   (155014) от 20.12.2018
+
+А.С. Масалков | Особенности киберпреступлений. Инструменты нападения и защита информации (2018) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материал книги помогает разобраться в том, что обычно скрывается за терминами и шаблонными фразами "взлом электронной почты", "кибершпионаж" и "фишинг". Автор старался показать информационную безопасность как поле битвы с трех сторон: со стороны преступного сообщества, использующего информационные технологии, со стороны законодательства (   Читать дальше...   )Жанр: Информационные технологииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9410C2E9B4AFB73B672DCE1DCCB0BA23F3A0C32F
 ```
 
 https://mybot314.ru/tekegram_catalog/

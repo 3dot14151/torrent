@@ -1,3 +1,29 @@
+###  Публикация: 1775893   (29555) от 28.01.2025
+
+CyberYozh Academy, Евгений Ивченков, Алексей Гришин | Курс «Linux CyberPunk» (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс «Linux CyberPunk» от CyberYozh Academy предназначен для глубокого изучения архитектуры и администрирования операционной системы Linux, включая её «светлые» и «тёмные» возможности. Программа курса ориентирована на практическое освоение навыков настройки и развёртывания решений, соответствующих современным стандартам безопасности. По завершении обучения участники (   Читать дальше...   )Производство: CyberYozh AcademyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 34:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31277217B301576C1FE76DCCFC96EDC5A38681C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775738   (29526) от 28.01.2025
 
 JUG Ru Group | HolyJS 2024 Autumn. Конференция для JavaScript‑разработчиков (2024) WEB-DL [RU]
@@ -6,7 +32,7 @@ JUG Ru Group | HolyJS 2024 Autumn. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29526.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29453.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Digium | Обучение основам Asterisk / Asterisk Essentials Training
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29344.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Andrew Burgess | Building a Web App From Scratch With AngularJS (2014) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29217.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Grand Secret, Максим Волков, Виктория Жихарева, Ма
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29102.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Deworker Pro, Дмитрий Елисеев | Стрим про безопасн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29069.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ Skillbox, А. Гончаренко, А. Слуцкер, Н. Смерницкий
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29058.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29054.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28963.jpg" />
 </div>
 
 
@@ -256,7 +282,7 @@ OK English School, Елена Вогнистая | Видеокурс Начин
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28934.jpg" />
 </div>
 
 
@@ -285,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28849.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ OK English School, Елена Вогнистая | Видеокурс по уч�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28835.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28823.jpg" />
 </div>
 
 
@@ -368,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28772.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Crypto Robotics | Криптовалюты - инструкция по прим�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28723.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Infostart, Артур Аюханов, Александр Кунташов, Ва�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28720.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28658.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28654.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Merion Academy, Никита Буцев | Онлайн-курс по сетев�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28521.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Master-Skills & Андрей Скидан | Программирование б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28507.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ Systems.Education | Конференция по проектированию п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28492.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28473.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ Product University, Анна Филина, Дмитрий Жечков, Алек
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28441.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Skillbox, Дмитрий Шадрин, Арсений Павлов | Специ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28435.jpg" />
 </div>
 
 
@@ -671,7 +697,7 @@ Network for Everyone (NFE, N4E) | Внедрение Cisco ACI. Базовый �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28310.jpg" />
 </div>
 
 
@@ -685,35 +711,6 @@ Network for Everyone (NFE, N4E) | Внедрение Cisco ACI. Базовый �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B62B5ACF60980CEC0B619E9FD4DF2FA510C9CE12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778020   (28284) от 08.02.2025
-
-Network for Everyone (NFE, N4E) | Внедрение Cisco SD-WAN (Viptela). Базовый курс (2024) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кому подойдёт этот курс:Системные инженеры
-Системные архитекторы
-Администраторы, ответственные за эксплуатацию и развитие сети WANЧему вы научитесь:Понимать логику работы решения Cisco SD-WAN
-Внедрять контроллеры vManage, vSmart и vBond(   Читать дальше...   )Производство: Network for Everyone (NFE, N4E)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:35:18Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3003B117E7F483147DD547F0A60A6802827352
 ```
 
 https://mybot314.ru/tekegram_catalog/

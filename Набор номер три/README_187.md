@@ -1,3 +1,159 @@
+###  Публикация: 1012596   (793204) от 01.05.2016
+
+Voyager 16.04 LTS [x86-64] 2xDVD
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел новый релиз французского дистрибутива на основе Ubuntu 16.04. В качестве рабочего окружения используется Xfce 4.12.2. Дистрибутив отличается ярким внешнем видом, легкостью и богатыми возможностями кастомизации. В рабочем окружении представлены Conky,Gimp,Thunderbird,Firefox,LibreOffice,Mpv Media Player и др. Ядро 4.4. Так же есть поддержка UEFI.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1EA7383629677308C3DFBA544FA8113CFB93A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710392   (793199) от 01.05.2016
+
+NG. Винни Джонс: Реально о России / Vinnie Jones: Russia's Toughest (2013) HDTVRip [H.264/720p-LQ] [1-6 серии из 6]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот документальный фильм из шести серий рассказывает о Винни Джонсе, который бросает вызов России. Задача Винни - выяснить, почему считается, что здесь так тяжело работать и жить, и соответствует ли это действительности. Винни попробует жить в России, примерив на себя профессии, которые могут показаться очень тяжелыми. Бывшему "плохому мальчику" от футбола (   Читать дальше...   )Жанр: Документальный, познавательныйАктеры: Винни ДжонсПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 6 х ~00:44:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011114   (793198) от 01.05.2016
+
+Dark Souls III (2016) [Ru/Multi] (1.04/dlc) Repack R.G. Games [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793198.jpg" />
+</div>
+
+
+###  Подробнее
+
+DARK SOULS™ III продолжит испытывать игроков на прочность в новой главе прославленной саги, определившей лицо жанра. Огонь гаснет, мир обращается в руины, и вам предстоят сражения с еще более колоссальными врагами. Вас ждет традиционная мрачная и притягательная атмосфера, напряженные битвы и еще более динамичный геймплей.Тип издания: RepackРазработчик: FromSoftware, IncЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA85CF422C1376915254FACB8F019A19355EB6A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012725   (793196) от 01.05.2016
+
+Adobe Photoshop Lightroom 6.5.1 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B172D1F5303069810EA6EA053DEB3263AFD059F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744838   (793195) от 01.05.2016
+
+AirDroid v3.2.1.1 [Ru/Multi] - управление устройством из веб браузера компьютера с помощью Wi-Fi
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793195.jpg" />
+</div>
+
+
+###  Подробнее
+
+AirDroid это бесплатное и удобное приложение, которое поможет Вам управлять Вашим Андроидом прямо из браузера, все без проводов с помощью Wi-Fi.Тип издания: FreeРелиз состоялся: 29.04.2016Разработчик: Sand StudioПоддерживаемая ОС: Android 2.1+ (ICS поддерживается)Язык интерфейса: Мульти / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B263C7EB0EDA3A980A910E064FACC49397F50A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012555   (793193) от 01.05.2016
+
+АСТЕР V7 2.11 [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793193.jpg" />
+</div>
+
+
+###  Подробнее
+
+АСТЕР — программа (и только программа!), позволяющая создать несколько рабочих мест на базе одного системного блока. АСТЕР является программным решением и не использует тонкие клиенты или терминальные станции - его аналогами являются такие популярные программы как MS MultiPoint, SoftXpand, Betwin, Userful и др.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC52D3B587011DB9600C0C245B4B42AF24BBF5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944342   (793192) от 01.05.2016
 
 Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/En] (1.8 37786) Repack R.G. Catalyst
@@ -6,7 +162,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/E
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793192.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ MultiBoot 2k10 6.3.2 Unofficial [Ru/En]
 >>98
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793191.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793120.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Navitel / Навител Навигатор 9.13.46 Full для карт рел�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793114.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793111.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793109.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793107.jpg" />
 </div>
 
 
@@ -192,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793106.jpg" />
 </div>
 
 
@@ -218,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793008.jpg" />
 </div>
 
 
@@ -244,7 +400,7 @@ Navitel / Навител Навигатор v9.8.2 RePack для карт рел
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793007.jpg" />
 </div>
 
 
@@ -270,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793001.jpg" />
 </div>
 
 
@@ -296,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792994.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792721.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792714.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792692.jpg" />
 </div>
 
 
@@ -400,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792600.jpg" />
 </div>
 
 
@@ -427,7 +583,7 @@ Intel призвала пользователей не устанавливат�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792598.jpg" />
 </div>
 
 
@@ -454,7 +610,7 @@ Microsoft засудит абсолютно всех пользователей 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792592.jpg" />
 </div>
 
 
@@ -480,7 +636,7 @@ Adobe Photoshop CC 2018 (19.1.0) x86-x64 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792590.jpg" />
 </div>
 
 
@@ -506,7 +662,7 @@ Nvidia устала от майнеров криптовалют
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_792588.jpg" />
 </div>
 
 
@@ -517,162 +673,6 @@ Nvidia устала от майнеров криптовалют
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200905   (792573) от 24.01.2018
-
-Microsoft® Windows 10 Enterprise LTSB x86-x64 1607 RU Office16 by OVGorskiy® 01.2018 2DVD
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792573.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинальных русских образов новейшей операционной системы Windows 10 Enterprise (Корпоративная) LTSB x86-x64 (msdn) от Microsoft с дополнительным материалом разных разрядностей на 2-х разных DVD (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: обновления системы, небольшой набор программ, (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883A2EFC5FF66B94DC7E5F89F2A33BECE3D47FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509273   (792561) от 14.11.2021
-
-Технологии двух столетий: кто изобрел консервы и как их производят сейчас
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первые промышленные технологии производства консервов появились чуть больше двух столетий назад, в начале XIX века. С тех пор они развивались и эволюционировали вслед за техническим прогрессом и появлением новых потребностей общества. В этой статье мы расскажем, как происходил этот процесс. А любопытной информацией о том, как производят консервы сейчас, поделится (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509276   (792541) от 14.11.2021
-
-Взломанный чат-бот Госуслуг отрицает существование коронавируса
-
->>3
->>18
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Министерство цифрового развития, связи и массовых коммуникаций РФ заявило, что на портал «Госуслуг» второй день подряд направлена мощнейшая кибератака, говорится в сообщении официального Telegram-канала Минцифры.«Портал госуслуг находится под беспрецедентной кибератакой. «Госуслуги» второй день подвергаются самой мощной за всё время функционирования портала кибератаке. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509100   (792539) от 14.11.2021
-
-Не время умирать / No Time to Die (2021) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Бонд оставил оперативную службу и наслаждается спокойной жизнью на Ямайке. Все меняется, когда на острове появляется его старый друг Феликс Лейтер из ЦРУ с просьбой о помощи. Миссия по спасению похищенного ученого оказывается опаснее, чем предполагалось изначально. Бонд попадает в ловушку к таинственному злодею, вооруженному опасным технологическим оружием.Производство: Великобритания, США, B25, Cinesite, Danjaq, Eon Productions Ltd., Metro-Goldwyn-Mayer (MGM), Universal PicturesЖанр: Боевик, Триллер, ПриключенияРежиссер: Кэри Дзёдзи ФукунагаАктеры: Дэниэл Крэйг, Рами Малек, Леа Сейду, Лашана Линч, Бен Уишоу, Наоми Харрис, Билли Магнуссен, Ана де Армас, Кристоф Вальц, Рэйф ФайнсПеревод: Многоголосый закадровый (Jaskier), Любительский двухголосый (Pazl Voice)Субтитры: Русские (FOCS), Английские (Forced, Full, SDH), Испанские, Французские, КорейскиеПродолжительность: 02:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355ECE1A4B16BD7E537E284D791BD9C0C8C7D607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509398   (792538) от 14.11.2021
-
-Красное уведомление / Red Notice (2021) WEB-DL [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент Интерпола отправляется на поиски самого знаменитого вора в мире.Производство: CША, Flynn Picture Company, Legendary Entertainment, Seven Bucks Productions, NetflixЖанр: Боевик, триллер, криминал, комедияРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Райан Рейнольдс, Галь Гадот, Риту Эрийа, Крис Диамантополос, Ivan Mbakop, Винченцо Амато, Рафаэль Петарди, Сет Майклс, Себастьен ЛарджПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, SDH), мультиязычныеПродолжительность: 01:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2BA5A9542C654E7B4003804B61CEF81BC999FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386193   (792300) от 31.05.2020
-
-Солярис (1972) BDRip [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792300.jpg" />
-</div>
-
-
-###  Подробнее
-
-На космическую станцию, сотрудники которой давно и тщетно пытаются сладить с загадкой планеты Солярис, полностью покрытой Океаном, прибывает новый учёный, психолог Крис Кельвин. Его задача — разобраться в странных сообщениях, поступающих со станции и закрыть её вместе со всей бесплодной «соляристикой». Поначалу ему кажется, что немногие уцелевшие на станции ученые (   Читать дальше...   )Производство: СССР / Творческое объединение писателей и киноработников, Мосфильм, Unit FourЖанр: Фантастика, драма, детективРежиссер: Андрей ТарковскийАктеры: Наталья Бондарчук, Донатас Банионис, Юри Ярвет, Владислав Дворжецкий, Николай Гринько, Анатолий Солоницын, Ольга Барнет, Виталик Кердимун, Ольга Кизилова, Татьяна МалыхСубтитры: ОтсутствуютПродолжительность: 02:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB94A0306B143D5065EF80120306217E7D1B8C01
 ```
 
 https://mybot314.ru/tekegram_catalog/

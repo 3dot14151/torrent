@@ -6,7 +6,7 @@ Knight Cats 2: Waves on the Water / Коты-рыцари 2: Волны на в�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126001.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Maze of Realities 3: Ride in the Sky (2023) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125615.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Christmas Fables 2: The Magic Snowflake / Рождественские небы�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125331.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kaya Joshi: Magical Detective (2023) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124379.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Unsolved Case 5: Killer Popularity (2024) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123938.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Maze of Realities 3: Ride in the Sky / Лабиринт реальностей 3
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123701.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Twistingo 4: Hummingbird Haven (2023) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123679.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Around the World 2: Travel to Canada (2024) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123538.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Unsolved Case5: Killer Popularity / Нераскрытое дело5: Убийс
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122574.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Crossroads 3: What Was Lost / Перекрёсток 3: Возврата нет 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122560.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Connected Hearts 4: Cost of Beauty (2024) [Multi] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122545.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Cursed Fables 4: Before the Clock Strikes (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122038.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Cub (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121980.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Around the World 2: Travel to Canada / Вокруг света 2: Путешес
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121349.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ RIN: The Last Child (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120865.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Magic City Detective 4: Wrath of the Ocean (2024) [Multi] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120843.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Noxia Somnia (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120538.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Cub (2024) [Multi] (1.0.0) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120534.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Ms. Holmes 5: The Milverton Plot / Мисс Холмс 5: Заговор Мил�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120303.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Reflections of Life 12: The Shattered Timeline (2024) [En] (1.0) Unofficial [Col
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119632.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ RIN: The Last Child (2024) [Ru/Multi] (221) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119415.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Cursed Fables 4: Before the Clock Strikes / Проклятые предания 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118497.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Legendary Tales 3: Stories (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118442.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Maze of Realities 4: Symphony of Invension (2024) [Multi] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118296.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Edge of Reality 10: Island of Shadows (2025) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117619.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Spectra: Beneath the Stain (2025) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117531.jpg" />
 </div>
 
 

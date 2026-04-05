@@ -1,3 +1,55 @@
+###  Публикация: 1732014   (52427) от 23.06.2024
+
+Crab God (2024) [Ru/Multi] (1.0.24) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crab God – это увлекательная подводная крабостратегия. Покоряйте глубины океана и защищайте икринку, из которой вылупится новая Крабогиня! Узнайте больше о коралловых рифах и внесите свой вклад в охрану природы в реальном мире! Клешни к бою! Станьте Стражницей бездны и возглавьте великую миграцию, чтобы засвидетельствовать вылупление новой Крабогини.Тип издания: SceneРазработчик: Chaos Theory GamesЖанр: Приключенческие игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D29D96F5D837C7B0E8076E84A23376AB51F710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734086   (51208) от 03.07.2024
+
+Crab God (2024) [Ru/Multi] (1.0.24) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crab God – это увлекательная подводная крабостратегия. Покоряйте глубины океана и защищайте икринку, из которой вылупится новая Крабогиня! Узнайте больше о коралловых рифах и внесите свой вклад в охрану природы в реальном мире! Клешни к бою! Станьте Стражницей бездны и возглавьте великую миграцию, чтобы засвидетельствовать вылупление новой Крабогини.Тип издания: RepackРазработчик: Chaos Theory GamesЖанр: Приключенческие игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D89B644777655BB807AD86E9017CC0EE1A6162C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734426   (51194) от 03.07.2024
 
 Doodle Adventure of Chameleon (2024) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +58,7 @@ Doodle Adventure of Chameleon (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51194.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Monster Bash HD (2021) [En] (1.1.5.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51087.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Cookie Cutter (2023) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51085.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Crystal Caves HD (2020) [En] (1.1.5.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51045.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Star Leaping Story (2024) [En] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50864.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Ultros (2024) [Multi] (20240403) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50435.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ With My Past (2024) [Ru/Multi] (20240601) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50394.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Braid (2024) [Ru/Multi] (20240603) Repack dixen18 [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49404.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ SANABI (2023) [Ru/Multi] (1.3.35) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49267.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Artisan TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48674.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ The Messenger (2018) [Ru/Multi] (2.0.4/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48636.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Gestalt: Steam & Cinder (2024) [Multi] (1.0.6) Scene Skidrow
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48607.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Messenger (2018) [Ru/Multi] (2.0.4/dlc) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48566.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ JustAxe (2024) [Ru/En] (1.00) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48551.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Bo: Path of the Teal Lotus (2024) [Ru/Multi] (1.0.6) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48307.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Dystobel (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48293.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48145.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ BioGun (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48024.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ First Cut: Samurai Duel (2024) [En] (1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47974.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Fallen Leaf (2024) [En] (1.0.0.14) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47879.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ PIGROMANCE (2022) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47773.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Kingdom Shell (2023) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47750.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Abathor (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47578.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ MeteoHeroes (2022) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47428.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ MeteoHeroes (2022) [Multi] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6D03D0F2975AACBF40B860F45056FDA2FE9C5C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741997   (47360) от 09.08.2024
-
-PIGROMANCE (2022) [Multi] (1.0.1) Repack FitGirl
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами самый настоящий запутанный платформинг с непростыми для решения головоломками! Где обычного свина ждут его героические приключения, если он конечно не хочет превратится в сосиску… Игровой процесс начинается с мирной фермы, где ленивые свинки жили своей обыденной жизнью за небольшим забором. И все было до того, пока они не сломали этот злополучный забор (   Читать дальше...   )Тип издания: RepackРазработчик: OAA (외계인납치작전)Жанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Корейский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Корейский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81AC7B5726F140E6C114D0107746996FB4B85525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742154   (47260) от 10.08.2024
-
-SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Scene Tenoke [Deluxe Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не все гладко в синем море, там зреет кризис - кризис воды! Драгоценный ресурс вдруг стал смертельно опасным, он заставляет ржаветь металлические конечности и механические сердца. Возьмите на себя роль капитана Ливэя, управляющего разношерстной командой, чтобы узнать, что же за опасность грозит Большому морю.Тип издания: SceneРазработчик: Thunderful DevelopmentЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713D87CEB94B5C53AD34CC47DC1BCA6F71DD2B92
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1307096   (753165) от 11.07.2020
+
+Cooking Simulator (2019) [Ru/Multi] (3.3.0/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы – повар, который работает в личном передвижном кафе и путешествует по всему миру на нем. Постепенно к вам заглядывают посетители и желают опробовать вашу еду. Вы должны удовлетворить их требования и приготовить изысканные блюда. Сама же готовка будет проходить все этапы, начиная с приготовления ингредиентов и нарезки, заканчивая тщательным поджариванием и смешиванием. (   Читать дальше...   )Тип издания: RepackРазработчик: Big Cheese StudioЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2720EC7DEDA9FE2DB60446E9CF90DE5FD0ED17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280876   (753105) от 07.02.2019
+
+Появление фильма в торрентах после премьеры увеличивает кассовые сборы на 3%
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё одно исследование подтвердило пользу «правильного» пиратства для кинематографической индустрии. Причём здесь учёные не брали в расчёт гипотетические формулы вроде двойной маржинализации. Они ничего не моделировали, а изучили реальные цифры кассовых сборов в США по нескольким сотням кинофильмам во время крупного даунтайма The Pirate Bay в 2014 году. Учёные также (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280950   (753012) от 07.02.2019
+
+Китайский электрокар заблокировал пассажиров в салоне, пока шло обновление системы
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753012.jpg" />
+</div>
+
+
+###  Подробнее
+
+На днях один из автомобилей стартапа EV NIO при попытке установки новой версии фирменного ПО застрял на трассе в Пекине. И всё бы ничего, но на весь процесс замены прошивки на свежую версию машина решила заблокировать двери и окна, не выпуская пассажиров.Запертыми внутри оказались представитель компании NIO и водитель, тестирующий электрокар. Их заточение длилось (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281279   (752995) от 07.02.2019
+
+Adobe Photoshop CC 2019 20.0.3.24950 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC 2019 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A5EDEAE492844D4D96A2ED823D3F6F6840AC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281368   (752993) от 07.02.2019
+
+Суспирия / Suspiria (2018) BDRip  [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая американка приезжает в Берлин, чтобы присоединиться к знаменитой танцевальной труппе. Однако в стенах студии девушка внезапно обнаруживает нечто зловещее и сверхъестественное. Вскоре она понимает, что станет следующей жертвой, если не успеет раскрыть тайну проклятия, которое окутало легендарную танцевальную академию.Производство: Италия, США / Amazon Studios, First Sun, Frenesy Film CompanyЖанр: Ужасы, фэнтези, триллер, детективРежиссер: Лука ГуаданьиноАктеры: Дакота Джонсон, Тильда Суинтон, Дорис Хик, Малгоша Бела, Хлоя Грейс Морец, Ангела Винклер, Ванда Каприоло, Алек Век, Джессика Батю, Елена ФокинаПеревод: Дублированный (iTunes)Субтитры: Русские (полные), английские (хардсаб на немецкую речь)Продолжительность: 02:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9367C71942082A5866F3565C7081C2DBF5A0B44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281412   (752992) от 07.02.2019
+
+Перспектива / Prospect (2018) WEB-DLRip [H.264/1080p-LQ] [MVO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752992.jpg" />
+</div>
+
+
+###  Подробнее
+
+В надежде разбогатеть отец с дочерью отправляются на отдалённую луну, где планируют добывать драгоценные камни, сокрытые в глубине опасных лесов. Быстро выясняется, что на луне есть и другие люди, желающие поправить собственное финансовое положение. В итоге вся операция превращается в попытку выжить и сохранить свои жизни. Вынужденная сражаться не только с внешними (   Читать дальше...   )Производство: Канада, США / Depth of Field, Ground Control, BRON StudiosЖанр: ФантастикаРежиссер: Кристофер Колдуэлл, Зик ЭрлАктеры: Софи Тэтчер, Джей Дюпласс, Педро Паскаль, Люк Питцрик, Артур Деранло, Андре Ройо, Алекс МакКоли, Даг Доусон, Криста Джонсон, Брайан ГантерПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6A09D593946FEE861771FD42914F5E007202BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 778345   (752991) от 07.02.2019
 
 Подборка | Книги издательства Манн, Иванов и Фербер [220 книг] (2008 - 2014) [PDF, DOC, TXT, RTF, FB2, MOBI, EPUB, DJVU]
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752991.jpg" />
 </div>
 
 
@@ -34,7 +190,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752857.jpg" />
 </div>
 
 
@@ -61,7 +217,7 @@ Clear screen 3.2 + Portable [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752852.jpg" />
 </div>
 
 
@@ -89,7 +245,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752849.jpg" />
 </div>
 
 
@@ -115,7 +271,7 @@ BELOFF 2021.12 Full (Авторская раздача)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752804.jpg" />
 </div>
 
 
@@ -141,7 +297,7 @@ Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752803.jpg" />
 </div>
 
 
@@ -167,7 +323,7 @@ Black Mesa: Definitive Edition (2020) [Ru/Multi] (1.5.3) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752802.jpg" />
 </div>
 
 
@@ -193,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752530.jpg" />
 </div>
 
 
@@ -219,7 +375,7 @@ Outlast 2 (2017) [Ru/Multi] (gog-4/19597) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752503.jpg" />
 </div>
 
 
@@ -245,7 +401,7 @@ Mass Effect (2008-2012) [Ru/En] RePack R.G. Механики [Galaxy Edition]
 >>21
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752453.jpg" />
 </div>
 
 
@@ -271,7 +427,7 @@ LEGO Star Wars: The Complete Saga [Ru] (P) 2009
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752350.jpg" />
 </div>
 
 
@@ -298,7 +454,7 @@ Gripen E - истребитель нового поколения от комп�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_751752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751752.jpg" />
 </div>
 
 
@@ -324,7 +480,7 @@ Kerish Doctor 2016 4.60 DC 20.05.2016 Final Repack by Alker [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751372.jpg" />
 </div>
 
 
@@ -350,7 +506,7 @@ MAGIX Video Pro X8 15.0.0.83 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751371.jpg" />
 </div>
 
 
@@ -376,7 +532,7 @@ Wink ATV Ultimate v1.16.1 (ревизия 2.6) Mod [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751290.jpg" />
 </div>
 
 
@@ -402,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751289.jpg" />
 </div>
 
 
@@ -428,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751288.jpg" />
 </div>
 
 
@@ -454,7 +610,7 @@ Oxygen Not Included (2019) [Ru/Multi] (420700) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751287.jpg" />
 </div>
 
 
@@ -480,7 +636,7 @@ GeekBrains | Системный администратор (2019) PCRec
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751286.jpg" />
 </div>
 
 
@@ -506,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751285.jpg" />
 </div>
 
 
@@ -517,162 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3171E81E0637F246161C2556C07066E9CD6A480F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281242   (751214) от 08.02.2019
-
-Google через Chrome предупредит о скомпрометированном пароле
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_751214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google выпустил расширение Password Checkup для Chrome, которое сообщает пользователю — безопасен ли пароль.Для этого расширение проверяет его по базам данных 4 миллиардов комбинаций, о которых уже знают злоумышленники. Если компании станет известно о новой утечке, и пароль окажется скомпрометирован, пользователь получит уведомление при входе в аккаунт с любого устройства.Для (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019303   (751175) от 22.05.2016
-
-Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [PS3] [USA] 3.55 [PSN / DLC] [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Teenage Mutant Ninja Turtles: Mutants in Manhattan - это классический кооперативный экшен про черепашек ниндзя по сюжету автора комиксов Тома Вальца. Игрокам доступны кооператив для 2-4 человек и онлайновый мультиплеер с несколькими режимами. Боритесь вместе со своими братьями-черепашками в канализации, подземке и на улицах Нью-Йорка, для того чтобы победить Шредера (   Читать дальше...   )Тип издания: PSNРазработчик: Platinum GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2264B81CD69FFA9971CEECA7481E0CD92799DE45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019248   (751174) от 22.05.2016
-
-Act of Aggression - Reboot Edition (2015) [En/Multi] (260000390) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Act of Aggression начинается в 2020 году в мрачном реалистичном будущем, где 3 крупные фракции сражаются за свои интересы. Первая - подпольный Картель, обладающий высокими технологиями, украденными прототипами, устраивающий секретные операции. Вторая - финансируемая ООН военная организация Химера (Chimere), пытающаяся быстрыми ударами добиться мира и порядка. (   Читать дальше...   )Тип издания: RepackРазработчик: Eugen SystemsЖанр: Strategy, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2AC17024B516FB1059B68261AF5FDFBA6A24AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002471   (751173) от 22.05.2016
-
-Ashes of the Singularity (2016) [En/Ge] (1.11) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashes of the Singularity - это футуристическая реалтайм стратегия, где игрокам предложены несколько планет для сражений в виде локаций. Действие разворачивается в далёком будущем: человечество давно утратило материальную форму и превратилось в существа чистой энергии и сознания.Тип издания: LicenseРазработчик: Stardock EntertainmentЖанр: Strategy (Real-time), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFBAC664166179CDEEB04062F48BCFDE040ACE65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933785   (751165) от 22.05.2016
-
-Act of Aggression - Reboot Edition (2015) [En/Multi] (770000792) License CODEX
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Act of Aggression – стратегия в реальном времени, действие которой разворачивается в недалеком будущем в 2020-х годах. Игра сталкивает между собой три крупные фракции, сражающиеся за свои интересы. В результате того, что многие государства обанкротились, в мире случился массовый экономический кризис.Тип издания: LicenseРазработчик: Eugen SystemsЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577C7403A78A1D455D533A2EE6D3A522452199BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019290   (751163) от 22.05.2016
-
-Cowon jetAudio 8.1.5.10314 Plus Retail [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751163.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetAudio - это универсальный проигрыватель музыкальных и видео файлов, риппер, конвертер и т.д., в общем, все в одном комплекте. Программа поддерживает практически все музыкальные форматы, умеет проигрывать MP3, MP2, WAV, MID, REAL AUDIO/VIDEO, S3M, MOD, MPG, AVI, MOV, Video/Audio CD, RealPlayer G2 и некоторые другие форматы мультимедийных файлов. Позволяет записывать (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBF986D7FE8F045F1A2042FEA5EE41F97B34C65
 ```
 
 https://mybot314.ru/tekegram_catalog/

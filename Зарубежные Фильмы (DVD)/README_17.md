@@ -1,29 +1,3 @@
-###  Публикация: 203692   (762618) от 25.05.2010
-
-Прежде, чем ты скажешь «да» / Before You Say 'I Do' (2009) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джордж Мюррей долгое время встречался с Джейн Гарднер и решил сделать ей предложение. Но Джейн не может его принять, потому что ее сердце все еще разбито после расставания с ее первым мужем Дагом. Джорджу очень хочется, чтобы все было иначе: чтобы он встретил Джейн до того, как она вышла замуж за Дага. После автомобильной катастрофы Джордж попадает на десять лет (   Читать дальше...   )Производство: СШАЖанр: Фэнтези, комедия, мелодрама, драмаРежиссер: Пол Фокс / Paul FoxАктеры: Дэвид Сатклифф, Дженнифер Вестфилдт, Лорен Холли, Брэд Бобридж, Джефф Руп, Джон Бойлан, Рейган Пастернак, Роджер Данн, Сальваторе АнтониоПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:30:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 201947   (762611) от 25.05.2010
 
 Шпион по соседству / The Spy Next Door (2010) DVD9
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762611.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762414.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762393.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761357.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761348.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761247.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759886.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759884.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759751.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758550.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758259.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ Starперцы / Last Vegas (2013) DVD5
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757766.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757765.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ Starперцы / Last Vegas (2013) DVD9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757657.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757578.jpg" />
 </div>
 
 
@@ -427,67 +401,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756172.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Овдовевший пенсионер осознает, что долгие годы именно его жена связывала воедино их большое семейство. Чтобы самому поближе узнать, как живут его дети, он отправляется навестить их — и во время импровизированного путешествия по домам своих отпрысков открывает для себя много неожиданного…Производство: Miramax, Radar Pictures, Hollywood Gang Productions / СШАЖанр: Комедия, ДрамаРежиссер: Кирк ДжонсАктеры: Роберт Де Ниро, Дрю Бэрримор, Кейт Бекинсейл, Сэм Рокуэлл, Люсиан Майсел, Дамиан Янг, Джеймс Фрейн, Мелисса Лео, Кэтрин Монниг, Брендан Секстон IIIПеревод: ДублированныйСубтитры: English, Czech(Ceske), Magyar, Slovak, Russian, Ukrainian, Hebrew, Latvian, Lithuanian, EstonianПродолжительность: 01:35:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205099   (755971) от 29.05.2010
-
-Незнакомец / The Stranger (2010) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент ФБР разыскивает свидетеля, причастного к сверхсекретным экспериментам.Производство: КанадаЖанр: боевик, триллерРежиссер: Роберт Либерман / Robert LiebermanАктеры: Стив Остин, Эрика Серра, Адам Бич, Джон Тенч, Джофф Густафссон, Дж. Майкл Грэй, Энтони Харрисон, Далила Бела...Перевод: Любительский (двухголосый)Язык субтитров: English, EspanolПродолжительность: 01:30:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205115   (755961) от 29.05.2010
-
-Репортаж / [Rec] (2007) DVD-5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все журналисты жаждут сенсаций! Но начинающий телерепортёр Анжела Видал из хроники происшествий — жаждет особенно страстно. С завидным упорством она ищет уникальный материал, а потому выезжает с командой спасателей на место жуткого происшествия в большом жилом доме.
-
-Прибыв туда, Анжела, азартно занятая работой, не сразу понимает, откуда именно она ведет свой репортаж. Осознание жуткой реальности приходит слишком поздно. Жители дома, пораженные страшным вирусом, один за другим превращаются в зомби. Чтобы зараза не вырвалась на улицы города, власти заблокировали дом — выхода нет! Но телекамера будет работать до конца…Жанр: УжасыРежиссер: Хайме Балагуэро / Jaume Balagueró, Пако Пласа / Paco PlazaВ ролях: Мануэла Веласко, Ферран Терраза, Джордже Серрано,Пабло Россо, Дэвид Верт, Винсент Джил, Марта Карбонелл, Карлос Винсент, Мария Тереза Ортега, Мануэль Брончад...Перевод: Профессиональный (полное дублирование)Формат: DVD Video
 
 ## Скачать торент
 ```bash
@@ -507,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755859.jpg" />
 </div>
 
 
@@ -533,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755854.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754932.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754024.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753843.jpg" />
 </div>
 
 
@@ -640,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_753777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753777.jpg" />
 </div>
 
 
@@ -667,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_753625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753625.jpg" />
 </div>
 
 
@@ -678,6 +598,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EF2E3FE10078B79C5836986F65CE8F4749E09E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017669   (753431) от 21.05.2016
+
+Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна с (   Читать дальше...   )Производство: США / Lucasfilm Ltd., Truenorth Productions, Bad RobotЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди СеркисПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, русский, эстонскийПродолжительность: 02:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E861BFF4C1877460A0F2E947BA10273BCF1B381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523224   (753285) от 10.01.2022
+
+Король Стейтен-Айленда / The King of Staten Island (2020) DVD9 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753285.jpg" />
+</div>
+
+
+###  Подробнее
+
+24-летний инфантил по имени Скотт живёт с мамой и младшей сестрой в нью-йоркском районе Стейтен-Айленд. С самого детства парень не может смириться со смертью отца-пожарного и теперь всё время проводит за курением травки и набиванием друзьям кривых татуировок. Когда сестра уезжает в колледж, а его мама впервые после смерти мужа начинает встречаться с мужчиной, тоже (   Читать дальше...   )Производство: США / Universal Pictures, Perfect World (Beijing) Pictures Co., Apatow ProductionsЖанр: Драма, комедияРежиссер: Джадд АпатоуАктеры: Пит Дэвидсон, Мариса Томей, Билл Бёрр, Бел Паули, Мод Апатоу, Стив, Бушеми, Рики Велес, Мойзес Ариас, Лу Уилсон, Карли АквилиноПеревод: Дублированный, двухголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 02:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60315656FB006252D37D91D9BABFC369EF1E3E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888398   (753219) от 15.04.2015
+
+Исход: Цари и боги / Exodus: Gods and Kings (2014) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветхозаветная история о великом пророке Моисее и освобождении еврейского народа из египетского плена. Моисей появился на свет в те времена, когда фараон приказал убивать всех новорожденных мальчиков еврейского происхождения. Чтобы спасти его, мать положила малыша в корзину из тростника и отправила вниз по Нилу.
+
+Ребенка нашла дочь фараона, которая усыновила его и (   Читать дальше...   )Производство: Великобритания, США, Испания / 20th Century Fox, TSG Entertainment, Babieka, Chernin Entertainment, Scott Free Productions, Volcano FilmsЖанр: Боевик, драма, приключенияРежиссер: Ридли СкоттАктеры: Кристиан Бэйл, Джоэл Эдгертон, Джон Туртурро, Аарон Пол, Бен Мендельсон, Мария Вальверде, Сигурни Уивер, Бен Кингсли, Хиам Аббасс, Исаак ЭндрюсПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, русский, эстонский, венгерский, латышский, литовский, польский, украинскийПродолжительность: 02:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8032F0AEDDE2808AC157461B735C650F38E58566
 ```
 
 https://mybot314.ru/tekegram_catalog/

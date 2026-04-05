@@ -6,7 +6,7 @@
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397296.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JumpStart Advanced Preschool: StoryLand [5+ лет] (2013) [En] (3.2.0.61061) Un
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362241.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Biotopia / Биотопия [5+] (L) [Русский] (2003)
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336058.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277049.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274417.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265192.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257322.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257011.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255855.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255827.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191990.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189083.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89519.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89502.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89482.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89475.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88410.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87481.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86213.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86182.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86061.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86031.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86029.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85414.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85009.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84971.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Reanimation inc / Скорая Помощь Inc v51 Mod by vadj [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173616.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Quick Brain / Упражнения для мозга v2.5.9 [Ru/Multi] (обно
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170451.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pro Pilkki 2 v1.9 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168805.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Death Worm™ Deluxe 2.0.054 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167590.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Survivalist: invasion PRO v0.0.431 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167412.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Prince of Persia Shadow&Flame v2.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167264.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Half-Life 2: Эпизод два v78 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167099.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Roblox v2.458.415263 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165582.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Garena Free Fire: Безумие v1.56.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164969.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Max Payne Mobile v1.7 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164771.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ ARK: Survival Evolved v2.0.21 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163597.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Dendy Games (645 in 1) v3.11 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163482.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.1 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162381.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Among Us Mega Mod v2020.11.17a [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161670.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Pro Pool 2023 v1.52 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159538.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159155.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Toy Defense 2 / Солдатики-2 v2.7.0.1 + Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155169.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Russian crosswords v1.15.3 [Ru/En] (обновляемая)
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153253.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ FAR: Lone Sails v1.31 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150460.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Pascal's Wager v0.2.1 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150407.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ MudRunner Mobile v1.3.0.8633 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150352.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149453.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ PAC-MAN 256: вечный лабиринт v2.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149291.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149236.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Space Marshals 3 + Mod Menu v1.3.8 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149183.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Street Racing Grand Tour v0.12.3756 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147822.jpg" />
 </div>
 
 

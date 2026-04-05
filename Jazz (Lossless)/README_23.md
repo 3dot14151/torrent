@@ -6,7 +6,7 @@ VA - Broadcaster presents Weekend Jazz (2002) Tamura Shigeru[FLAC|image+.cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982080.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sonny Stitt & Don Patterson - Brothers-4 (1969) Remaster, 2001, Prestige[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982079.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sonny Fortune - Serengeti Minstrel (1977) Remaster, 2013, Warner[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982077.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ike Quebec - Heavy Soul (1961) 1995, Planet[FLAC|tracks+.cue] <Mainstream Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982066.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ V.A. - Jazz And Floyd (2013) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981835.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Various Artists - The Art Of The Ballad (The Best of Mapleshade) (1999) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981677.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Bruce Ackley Trio - The Hearing (1998) Avant [FLAC|Lossless|tracks + .cue] <Avan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981213.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Leon Thomas With Oliver Nelson - In Berlin 1970 (2002) BMG [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981157.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Louis Armstrong - African Dreams 1960 - 1962 (2000) 2CD, Milan [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981154.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Billie Holiday - The Essential Collection, 2CD (2007)  [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981110.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Brian Culbertson - Colors of Love Tour (Live in Las Vegas) (2019) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981107.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Talisha Karrer - Jazz Covers Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981098.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Masabumi Kikuchi, Masahiko Togashi, Gary Peacock - Poesy: The Man Who Keeps Wash
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980839.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Coleman Hawkins - Night Hawk (1960) Remaster, 2003, Original Jazz Classics[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980838.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Chico Hamilton - Peregrinations (1975) Remaster, 2013, EMI Music[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980773.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - Jazz Masterpieces Remixed (2015) [FLAC|tracks] <Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980704.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Dave's True Story - 4 albums (1993-2005) [APE|Lossless|image + .cue] <Jazz, Fema
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980671.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Benny Goodman - At The Tivoli 1981 (1996) MasterTone [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980569.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ John Coltrane - A John Coltrane Retrospective: The Impulse! Years 1961 - 1967 (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980554.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Jazzamor - Things We Do For Love (Instrumentals) (2013) [FLAC|Lossless|WEB-DL]<A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980375.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ J. J. Johnson - Blue Trombone (1957) Remaster, 2014, Sony Music[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980333.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Coleman Hawkins - Sirius (1966) 2003, Planet[FLAC|tracks+.cue] <Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980332.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Art Blakey And The Jazz Messengers - Buhaina (1973) Remaster, 2014, Universal[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980331.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Howard Alden, Lloyd Ellis, Cal Collins - Famous Door: Ace Guitarists (1976/1978/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980321.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Johnny Griffin & Art Taylor Quartet - The Jamfs Are Coming! (1975/1977) Remaster
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980319.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Jack Wilson - Something Personal (1966) Remaster, 2015, Universal[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979323.jpg" />
 </div>
 
 

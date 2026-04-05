@@ -7,7 +7,7 @@ Baby DONT Cry - Bittersweet (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062907.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Odd Youth - Babyface (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062198.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Narin - No Savior (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062190.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ DJ Slon & Ангел-А (2007-2019) WEBRip [H.264/480p, 720p] (5 Клипов)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061855.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ MTV 80s Video Hits Collection (2026) SATRip [ex VH1] (parts 1-4)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061335.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061000.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Crematory - Born (2026) WEBRip [H.265/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060999.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Baby DONT Cry - Shapeshifter (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060810.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Madein - Pung! (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060477.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ RESCENE - BamBamBam (The First Night With The Duke OST) (2025) WEBRip [H.265/216
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060461.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ NiziU - Emotion (2025) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060460.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ First Love (CSR) - Сборник клипов (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060459.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ ILLIT - Сборник клипов (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060458.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Girls' Generation - FOREVER 1 (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060441.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058361.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Baby DONT Cry - I DONT Care (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049897.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Alice - Dance On (2022) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049896.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049885.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045626.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045623.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045390.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045034.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045031.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041893.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Dessar - Вопрос (2023) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036126.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035067.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1462878   (1020837) от 16.04.2021
+
+Mike Williams - Live @ Duif' Church, Netherlands (2021-04-09) [MP3|320 Kbps] <Future House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Williams - Get Dirty (Intro Edit)
+02. Kriss Reeve - Techno On My Mind
+03. Mike Williams & Curbi - Take Me There w/Ivan Gough & Feenixpawl ft. Georgi Kay - In My Mind (Acappella)
+04. Throttle ft. LunchMoney Lewis & Aston Merrygold - Money Maker (Mike Williams Remix)(   Читать дальше...   )Жанр: Future HouseПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D813D1B0FA5A3630F51F73D7C3E891746967608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462883   (1020783) от 16.04.2021
+
+Scooter - God Save The Rave (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hardstyle, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Futurum Est Nostrum
+02. God Save the Rave (feat. Harris & Ford)
+03. Never Stop The Show
+04. We Love Hardcore (feat. Dimitri Vegas & Like Mike)(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781870D524965C8F90CC7587E3BB1B5FBB28CE83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 735169   (1020741) от 16.04.2021
 
 Woob | Journeyman | Max & Harvey | w00b - Discography 51 Releases (1994-2021) Bigamoebasounds, em:t, Time Limited [FLAC|Lossless|tracks+.cue, tracks]<Ambient, Downtempo, Dub, Modern Classica ...
@@ -6,7 +64,7 @@ Woob | Journeyman | Max & Harvey | w00b - Discography 51 Releases (1994-2021) Bi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020741.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Raul Jordan (Lab's Cloud, Psycho Abstract) - Discography 13 Releases (2010-2021)
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020737.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Nickolay Fedorenko - Dance Planet (2014) [FLAC|Lossless|WEB-DL|tracks] <Spacesyn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020678.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Synthwave Dreams, Vol. 13 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020657.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Front Line Assembly - Mechanical Soul (2021) [FLAC|Lossless|image + .cue] <Elect
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020656.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Synthwave Dreams, Vol. 14 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020653.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Kymelle - Show  That Body Baby (1996) Maxi-Single [FLAC|Lossless|image + .cue] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020326.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Lo-Fi City Vibes: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020304.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Black Hole Trance Music 04-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020281.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Electric Dark Souls - Planet 0712 (2019) [MP3|320 Kbps] <Synthwave, Retrowave, E
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020142.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Electric Dark Souls - Heroes (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Electr
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020134.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Electric Dark Souls - Planet 0712 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019992.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Electric Dark Souls - Heroes (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Re
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019966.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Midnight Voyage: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019794.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Inner Frequencies Vol. 3 (2017) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019461.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Chicane - Everything We Had to Leave Behind (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019450.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Geomatic - Discography 10 Releases (2001-2021) M-Tronic, Tympanik Audio, Strange
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019409.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Mychael Danna & Tim Clément (Tim Clement) - The Best Of Danna & Clément (1999)
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019341.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ Zzzzra - Сollection 23 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019279.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ Above & Beyond - The Club Instrumentals (2021) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019274.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ Giriu Dvasios - Sunkus (2021) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019155.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Korolova - Live @ Farsha Cafe Sharm El Sheikh, Egypt (2021-04-23) (2021) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019135.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ Anima Mundi - Another World II (1998) Old Europa Cafe [FLAC|Lossless|tracks+.cue
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019114.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ Scooter - God Save The Rave (2021) [FLAC|Lossless|tracks + .cue] <Techno, Hardst
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019101.jpg" />
 </div>
 
 
@@ -681,63 +739,6 @@ Scooter - God Save The Rave (2021) [FLAC|Lossless|tracks + .cue] <Techno, Hardst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3EA6F02ADE4E4B05CE4D29906CA557D61D3FE96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465771   (1018979) от 27.04.2021
-
-Kashya - Discography 20 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Soundscape>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is So Much Hope Buried Underneath Tragedy, Its The Same Shade As Concrete (15:15)
- 02. I Only Get To Hold Her When She's Injured, I Only Get To Kiss Her When She's Sore (08:41)
- 03. We Can Mend All The Seams That Were Torn During Our Backs Slowly Breaking (07:45)Тип издания: WebЖанр: Ambient, Drone, Soundscape •Продолжительность: 11:25:49 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73898252DC3AB3853D8A594277380AF83D6DD7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465854   (1018959) от 27.04.2021
-
-Michael E - Lost in Thought (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time (5:49)
-02 . Maybe This Time (feat Ashley Slater & Diego Porchile) (7:00)
-03. Happy Daze (3:42)
-04. Distant Lovers (5:12)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD1F8228A748FE5D62E657A67C1AB79DADA6F56
 ```
 
 https://mybot314.ru/tekegram_catalog/

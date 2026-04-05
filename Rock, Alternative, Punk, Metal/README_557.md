@@ -1,3 +1,90 @@
+###  Публикация: 1241788   (518299) от 19.08.2018
+
+Hartmann - Hands On The Wheel (2018) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518299.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Don't Want Back Down (5:21)
+ 2. Your Best Excuse (4:17)
+ 3. Cold as Stone (5:30)
+ 4. Simple Man (4:37)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D97A1593289EC0C3A96F17AC637422BC3D3F7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241799   (518292) от 19.08.2018
+
+Johnny Gioeli - Deen Castronovo - Set The World On Fire (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set The World On Fire (3:31)
+ 02. Through (4:06)
+ 03. Who I Am (3:00)
+ 04. Fall Like An Angel (3:37)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A830232FBEFF07CCA4C0331313EE37C151FF09D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314653   (518258) от 15.07.2019
+
+311 - Voyager (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Reggae Rock, Rap Rock, Funk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossfire (02:41)
+02. Don't You Worry (03:38)
+03. Stainless (03:50)
+04. Space and Time (03:34)(   Читать дальше...   )Жанр: Alternative Rock, Reggae Rock, Rap Rock, Funk MetalПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC396414DC6D84D488904A364EA258E30AFEF93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314684   (518256) от 15.07.2019
 
 Neal Morse - Jesus Christ the Exorcist (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -6,7 +93,7 @@ Neal Morse - Jesus Christ the Exorcist (2019) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518256.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ King Gizzard and the Lizard Wizard - Quarters! (2015) [OGG| 493-548 кб/с]<Alt
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518194.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518005.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Sorgeldom - Innerlig Förmörkelse (2009) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517897.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Sorgeldom - Vithatten (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517896.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Bongbongbeerwizards - Ampire (2022) [MP3|320 Kbps] <Drone, Doom, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517895.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ Jukka Takalo - Vastarannan Laulut (2011) [FLAC|Lossless|tracks + .cue] <Pop Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517894.jpg" />
 </div>
 
 
@@ -208,7 +295,7 @@ Overthrone - The Path of Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517807.jpg" />
 </div>
 
 
@@ -237,7 +324,7 @@ Blood Command - Praise Armageddonism (2022) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517806.jpg" />
 </div>
 
 
@@ -266,7 +353,7 @@ Lodestar - 2 Albums (2021-2022) [MP3|320 Kbps] <Doom Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517805.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Lobate Scarp - You Have It All (2022) [MP3|320 Kbps] <Progressive Rock, Crossove
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517803.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Satyr - Totem (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Progressive, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517802.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Superheist - MMXX (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rapcore, Nu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517801.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Conjurer - Páthos (2022) [MP3|320 Kbps] <Sludge, Doom Metal, Post-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517800.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Peter Goalby - I Will Come Runnin' (2022) [FLAC|Lossless|image + .cue] <Classic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517799.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Khamyel - Loser With A Crown (2022) [MP3|320 Kbps] <Heavy Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517798.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Horizon Ignited - Towards The Dying Lands (2022) [MP3|320 Kbps] <Melodic Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517795.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Crashdiet - Automaton (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517793.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Speaking With Ghosts - At Its End (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517721.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Seether - Si Vis Pacem, Para Bellum (2020) 2CD, Deluxe Edition, 2022 [MP3|320 Kb
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517719.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Porcupine Tree - Closure / Continuation (2022) 2CD, Limited Edition [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517715.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Shining Black - Postcards From The End Of The World (2022) Japanese Edition [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517647.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517599.jpg" />
 </div>
 
 
@@ -657,93 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6A8332CE39F1A47F0668E15BB7E4A35596774F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560638   (517591) от 02.07.2022
-
-Imagine Dragons - Mercury - Acts 1 & 2 (2022) [MP3|320 Kbps] <Indie Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bones
-02. Symphony
-03. Sharks
-04. I Don't Like Myself(   Читать дальше...   )Жанр: Indie Rock, ElectronicПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF22422595DFB9A0A31A866558D9A9B1FE0865D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929910   (517398) от 21.08.2015
-
-The Surfaris - The Hurley Sessions (2015) [OGG| 444-537 кб/с]<Surf Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pipeline
-02. Point Panic
-03. Similau
-04. Diamond Head(   Читать дальше...   )Жанр: Surf RockПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423B0A7BDBEB055A1C132A3447DB20BC8BCA45BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314764   (517219) от 16.07.2019
-
-Billy Sherwood - Citizen: In the Next Life (2019) Yes, Circa, The Prog Collective, Yoso [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Partisan (04:03)
-02. Sophia (05:08)
-03. Monet (03:34)
-04. Skywriter (5:00)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08084553DDB923966EAFFED1B6860AB07E9C100
 ```
 
 https://mybot314.ru/tekegram_catalog/

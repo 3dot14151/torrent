@@ -1,3 +1,32 @@
+###  Публикация: 1268869   (224664) от 12.12.2018
+
+Louna - Panopticon (2018) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Kingdoms (feat. Craig Mabbit & Kevin Thrasher)
+02. Spring
+03. Homeland
+04. Searching(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA225E647201931A8D9254AF921AA01B0392B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965511   (224635) от 15.12.2015
 
 Ultimate Holocaust - Blackmail The Nation (2015) [MP3|320 кб/с] <Thrash Metal>
@@ -6,7 +35,7 @@ Ultimate Holocaust - Blackmail The Nation (2015) [MP3|320 кб/с] <Thrash Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224635.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Rainbow - Long Island 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224565.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Love - Reel to Real (1974) 2015, High Moon Records [FLAC|lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224537.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bee Gees - This Is Where I Came In (2001) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224485.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224413.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224400.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Feskarn - 3 Albums (2014-2022) [MP3|320 Kbps] <Viking Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224398.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Sodom - A Handful of Bullets (2020) EP [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224350.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Architects (UK) - The Classic Symptoms of a Broken Spirit (2022) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224346.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224318.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Writhing - Of Earth & Flesh (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224293.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Architects (UK) - The Classic Symptoms of a Broken Spirit (2022) [MP3|320 kbp] <
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224281.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Atomic Dust - Eden (1992) EP [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224280.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Konvolted - Human Reification (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224275.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224266.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ BBCC - Michael (2023) [FLAC|Lossless|WEB-DL|tracks] <Art-Punk, Experimental Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224254.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Icon Of Sin - Legends (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224247.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ The Shredderz - The Shredderz (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224242.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ The Exploited - Troops Of Tomorrow (2002) [APE|Lossless|image + .cue] <Punk Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224239.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Arctic Monkeys - The Car (2022) [MP3|320 Kbps] <Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224207.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Lyle Workman - Built To Last (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224202.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ High On Fire - The Art of Self Defense (2000) Reissue, 2023, MNRK Music [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224193.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Dark Tranquillity - Moment (2020) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224186.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ APE - Human Greed (1992) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224182.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224177.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Wet (   Читать дальше...   )1. W.A.P. (Wet Ass Plutonium) (5:05)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABE49AA2A6933D9E1AAF7D63770288E9B6B791C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651014   (224161) от 04.08.2023
-
-Mammoth WVH - Mammoth WVH II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alt.Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right? [00:04:30]
-02. Like a Pastime [00:03:45]
-03. Another Celebration at the End of the World [00:04:35]
-04. Miles Above Me [00:04:02](   Читать дальше...   )Жанр: Hard Rock, Alt.Rock, Post-GrungeПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992E18A98DD2BAB46DC47840B237A7BA10BB524D
 ```
 
 https://mybot314.ru/tekegram_catalog/

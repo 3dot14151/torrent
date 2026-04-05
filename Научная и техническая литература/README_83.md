@@ -1,135 +1,3 @@
-###  Публикация: 980348   (955761) от 29.01.2016
-
-Нил Деграсс Тайсон | Смерть в черной дыре и другие мелкие космические неприятности. От зарождения жизни до теории относительности и физики элементарных частиц (2016) [FB2, DOCX, PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Нил Тайсон. Смерть в черной дыре и другие мелкие космические неприятности ответит на самые интересные вопросы о Вселенной: "Что будет, если упасть в черную дыру?", "Какие ошибки допускают создатели голливудских фильмов о космосе?", "Зачем построили Стоунхендж?", "Наступит ли когда-нибудь конец света?", "Как могут (   Читать дальше...   )Жанр: Астрономия, ФизикаФормат: FB2, DOCX, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC8F2A3266F794F5FC25C0569A0971C47C0CFC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979675   (955684) от 29.01.2016
-
-А.Ю. Ощепков | Системы автоматического управления: теория, применение, моделирование в MATLAB (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955684.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге систематически изложены основы современной теории управления физическими системами и техническими устройствами. Рассмотрены основы математического моделирования систем управления (СУ), свойство СУ с обратной связью и основные методы анализа устойчивости непрерывных и дискретных систем, описаны методы традиционной теории оптимального управления, а также современные (   Читать дальше...   )Жанр: Электроника, автоматикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9868F1EEF58932157041F0C259AB9FB7578B54F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361491   (955515) от 19.02.2020
-
-Ари Турунен | Памятники не тем. Правители, не заслужившие славы (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955515.jpg" />
-</div>
-
-
-###  Подробнее
-
-В разных уголках мира любопытный турист то и дело натыкается на статуи грозных мужей – пеших и конных. Местные жители уже не замечают эти пафосные монументы, считая их неотъемлемой частью городского пейзажа. Чаще всего брови героя насуплены, пронзительный взгляд устремлен вдаль, осанка горделива, а в руках он держит оружие или указывает одной из них в светлое будущее. (   Читать дальше...   )Жанр: Общая историяПеревод: Любовь ШалыгинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F8A004600D87D2F458E95055F98ED0F107CF9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361401   (955409) от 19.02.2020
-
-Элисон Джордж (сост.) | Эволюция. От Дарвина до современных теорий [сборник] (2020) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Появление жизни на Земле – это случайность или неизбежность? С чего все начиналось? Есть ли у эволюции цель или направление? Как жираф отрастил такую шею? Почему человек видит много разных цветов, но не видит ультрафиолет? Если выживают сильнейшие, то откуда берутся альтруисты? Но разве эволюция – это не просто теория?
-В этой книге собраны лучшие статьи экспертов (   Читать дальше...   )Жанр: Научно-популярная литература, Общая биологияПеревод: О.Д. СайфудиноваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4DBCBAD73615B7142C4378F7A1192E6AD54ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361436   (955407) от 19.02.2020
-
-К.К. Рокоссовский | Воспоминания без цензуры (2020) [EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воспоминания К.К. Рокоссовского рассказывают нам об удивительной судьбе Маршала Советского Союза и Польши. В центре повествования – Великая Отечественная война. На страницах книги автор последовательно восстанавливает обстоятельства важнейших и кровопролитнейших сражений войны, рассказывает историю своей жизни, дав ей название «Солдатский долг».
-Воспоминания маршала (   Читать дальше...   )Жанр: Биографии и Мемуары, О войнеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326BC357F96A0B86D357C2E58528461EB15A103F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361438   (955404) от 19.02.2020
 
 А.А. Лебедев и др. | Нейрофизиология. Основной курс (2019) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955404.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955105.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955077.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955075.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954943.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954941.jpg" />
 </div>
 
 
@@ -294,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954837.jpg" />
 </div>
 
 
@@ -320,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954783.jpg" />
 </div>
 
 
@@ -346,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954767.jpg" />
 </div>
 
 
@@ -372,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954748.jpg" />
 </div>
 
 
@@ -398,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954736.jpg" />
 </div>
 
 
@@ -424,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954565.jpg" />
 </div>
 
 
@@ -450,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954505.jpg" />
 </div>
 
 
@@ -479,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954500.jpg" />
 </div>
 
 
@@ -505,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954486.jpg" />
 </div>
 
 
@@ -532,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_954446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_954446.jpg" />
 </div>
 
 
@@ -559,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954439.jpg" />
 </div>
 
 
@@ -585,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954121.jpg" />
 </div>
 
 
@@ -611,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954114.jpg" />
 </div>
 
 
@@ -637,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954106.jpg" />
 </div>
 
 
@@ -663,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954081.jpg" />
 </div>
 
 
@@ -675,6 +543,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEDBD01C6F3DA79D483C9CE618F1420BE55524E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361617   (954051) от 20.02.2020
+
+Наталья Иртенина | История России. Иллюстрированный атлас (2016) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот атлас – путеводитель по истории России с древних времен до наших дней. Необычайно комфортная для восприятия структура атласа поможет не только разобраться в море исторических дат, но и понять причинно-следственные связи между различными историческими событиями и эпохами.Жанр: История России, справочная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BF23C85786BC57BBC614EA62F5125CD6044375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089025   (953903) от 02.01.2017
+
+А. Р. Тюрго | Избранные экономические произведения (1961) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анн Робер Жак Тюрго (10 мая 1727 — 18 марта 1781) — французский экономист, философ и государственный деятель. Вошёл в историю как один из основоположников экономического либерализма.Жанр: История, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D56B9E35CF6BACEAC01D504ABDA80CAD615007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361658   (953900) от 20.02.2020
+
+Паола Волкова | Полная история искусства (2020) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами обновленное издание уникальных лекций по истории и философии изобразительного искусства, составляющих цикл «Мост через бездну» известной российской писательницы, искусствоведа и преподавателя Паолы Волковой. «Полная история искусств» дает читателю возможность составить всестороннее представление об истории искусства, творческом процессе и личности художника. (   Читать дальше...   )Жанр: История , Культурология, ИскусствоведениеФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00093961EEDBD8303D1112CAB8A62E7F14C406F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089046   (953660) от 02.01.2017
+
+А.И. Канащенков, В.И. Меркулов (ред.) | Оценивание дальности и скорости в радиолокационных системах (Часть 1) (2004) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены теоретические основы синтеза и анализа радиолокационных измерителей на основе представления процессов и систем в многомерном пространстве состояний в рамках математического аппарата теорий оптимального управления, фильтрации и идентификации. Уделено внимание особенностям построения и функционирования временных и частотных дискриминаторов, сглаживающих (   Читать дальше...   )Жанр: РадиолокацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3410EE943DE9DA200181BA276A65B5D0C13B3B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089109   (953655) от 02.01.2017
+
+А.А. Кудинов | Строительная теплофизика (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены основы теории переноса теплоты теплопроводностью, конвекцией и радиацией, а также тепло- и массообмена при фазовых превращениях. Изложена теория подобия процессов конвективного теплообмена и теплопередачи, теплового и гидромеханического расчетов теплообменных аппаратов рекуперативного типа. Представлены инженерные методы расчета процессов передачи теплоты, (   Читать дальше...   )Жанр: Строительство, физикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A624557B4D108AF9642FEDE783CD4C5129EBF26
 ```
 
 https://mybot314.ru/tekegram_catalog/

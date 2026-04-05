@@ -1,32 +1,3 @@
-###  Публикация: 1810306   (17450) от 03.08.2025
-
-Extreme Tinnitus - Darlene - Extreme Tinnitus - Darlene (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Concepts of a plan (3:31)
-02.  Sociopathy (3:04)
-03.  Goodbye, Narccisus (3:59)
-04.  Screen Door Interlude (2:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC4CAA183CFF57114FC4E04BC969EB3EE537FF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810308   (17449) от 03.08.2025
 
 Five Foot Finn - Electric Hex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -35,7 +6,7 @@ Five Foot Finn - Electric Hex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17449.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Greg Foat & Jihad Darwish - Opening Time (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17448.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Gutta Verse Moon - Unusual Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17447.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Jazzy Coffee - Noir Notes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17446.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Lisa Price - Priceless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17423.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Tenkiller - Burn the Boats (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17422.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Thaddeus Moss - Strip Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17421.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Arcana - Studio Albums (9 releases) (1996-2014) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17341.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ VA - Jan Sparring/Nils-Borge Gardh/Linda Hutchens/Bobby Jones & New Life - Till 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17340.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ Morcheeba - Escape The Chaos (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17246.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17239.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ Sparks - MAD! (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17114.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ Joe Bonamassa - Drive By The Exit Sign (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17094.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ Abrania - Back To Our Sleazy Roots (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17087.jpg" />
 </div>
 
 
@@ -442,7 +413,7 @@ Ash Lambe & The 32-20's - Ash Lambe & the 32-20's (2025) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17086.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ Big A Sherrod - Torchbearer Of The Clarksdale Sound (2025) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17085.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ Big Shoes - King Size (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17084.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ Broke Oracle - Shackle and Weight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17063.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Charlie Slavik - A Nice Reminder (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17062.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ Dead Romantic - Stay High (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17061.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Dj Cult Music - Blues Dreams on the Horizon (2025) [FLAC 24/192|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17060.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ Leatherjacks - Surviving the Beginning of the End (2025) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17036.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ Mojo Hands - GO! GO! GO! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17035.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ Roll Mega, Son Little & Eric Krasno - Roll Mega (2025) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17034.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ Signature Dish, Lexi Weege, and JJ Slater - They're Red Hot! (2025) [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17033.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ Signature Dish, Lexi Weege, and JJ Slater - They're Red Hot! (2025) [FLAC 24/44.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61DFF01EA0224A15A5A240CD45ADB22031B305E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810693   (17032) от 05.08.2025
+
+The Krugers - Outlaw Rock'n'Roll (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Long Way Down (5:01)
+02.  I'm Gone (3:00)
+03.  Upside Down (4:05)
+04.  Dead Man Boogie (4:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2395403E303E9906EE39008F3E1D6E399B3119
 ```
 
 https://mybot314.ru/tekegram_catalog/

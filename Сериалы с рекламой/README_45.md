@@ -1,3 +1,59 @@
+###  Публикация: 1694352   (120490) от 28.01.2024
+
+Одна ночь / One Night (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда новый роман Симоны становится сенсацией, ее мгновенный успех превращается в настоящий кошмар, разрушающий жизнь ее самой и двух ее ближайших подруг. Их дружба подвергнется испытанию, ведь история нового романа основана на мрачной тайне, которой Симона не должна была знать…Производство: Австралия / Motive Pictures, Easy Tiger Productions, Paramount+Жанр: драмаРежиссер: Лиза Мэтьюз, Катрин МилларАктеры: Николь Да Силва, Mikaela Binns-Rorke, Bridgette Armstrong, Яэль Стоун, Джоди Уиттакер, Bella Ridgway, Джордж Мэйсон, Кэт Стюарт, Harper Simon, David Howell и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы, всплывающий баннер
+
+Внимание!! Присутствует ненормативная лексика 18+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2122CA602338CACC3EE64E35E0641FA0EFA686C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694353   (120487) от 28.01.2024
+
+Одна ночь / One Night (2023) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда новый роман Симоны становится сенсацией, ее мгновенный успех превращается в настоящий кошмар, разрушающий жизнь ее самой и двух ее ближайших подруг. Их дружба подвергнется испытанию, ведь история нового романа основана на мрачной тайне, которой Симона не должна была знать…Производство: Австралия / Motive Pictures, Easy Tiger Productions, Paramount+Жанр: драмаРежиссер: Лиза Мэтьюз, Катрин МилларАктеры: Николь Да Силва, Mikaela Binns-Rorke, Bridgette Armstrong, Яэль Стоун, Джоди Уиттакер, Bella Ridgway, Джордж Мэйсон, Кэт Стюарт, Harper Simon, David Howell и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы, всплывающий баннер
+
+Внимание!! Присутствует ненормативная лексика 18+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DD6F8DEF4FBD0952CF10560ED46BF5419AD7EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695454   (120201) от 30.01.2024
 
 Фрейзер / Frasier (2023) WEB-DLRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
@@ -6,7 +62,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120201.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120170.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119649.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119642.jpg" />
 </div>
 
 
@@ -110,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119336.jpg" />
 </div>
 
 
@@ -136,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119324.jpg" />
 </div>
 
 
@@ -162,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118985.jpg" />
 </div>
 
 
@@ -190,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118962.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118813.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118759.jpg" />
 </div>
 
 
@@ -270,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117993.jpg" />
 </div>
 
 
@@ -296,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117842.jpg" />
 </div>
 
 
@@ -322,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117699.jpg" />
 </div>
 
 
@@ -349,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117696.jpg" />
 </div>
 
 
@@ -375,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117453.jpg" />
 </div>
 
 
@@ -401,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117436.jpg" />
 </div>
 
 
@@ -427,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117286.jpg" />
 </div>
 
 
@@ -454,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117262.jpg" />
 </div>
 
 
@@ -481,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116230.jpg" />
 </div>
 
 
@@ -507,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116197.jpg" />
 </div>
 
 
@@ -533,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115601.jpg" />
 </div>
 
 
@@ -563,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115510.jpg" />
 </div>
 
 
@@ -589,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115488.jpg" />
 </div>
 
 
@@ -615,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115411.jpg" />
 </div>
 
 
@@ -630,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A98ED2D34DDA35CBF4EF2883E09FFAF535ED6451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703029   (115365) от 27.02.2024
-
-Мэнди и силы зла / Mandy und die Machte des Bosen (2023-2024) WEB-DLRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115365.jpg" />
-</div>
-
-
-###  Подробнее
-
-На вечеринке в честь Хэллоуина с Мэнди Пёппль происходит несчастный случай, после которого у неё появляются агорафобия и панические атаки. В квартире, где Мэнди живёт со своей матерью Тиффани, она устраивает спиритические сеансы, чтобы заработать себе на жизнь. Однако, когда во время одного из надувательских сеансов внезапно появляется призрак её соседки Сельчан, (   Читать дальше...   )Производство: Австрия / Caligari Film- und Fernsehproduktions, Samsara FilmproduktionЖанр: ужасыРежиссер: Франциска Мейер Прайс, Андреас ШмидАктеры: Giovanni Funiati, Bayan Layla, Eli Riccardi, Ребекка Иммануэль, Рафаэль Гарайзен, Михаэль Пинк, Инге Маукс, Томас Пон, Christina Trefny, Сафира Робенс и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F02F96C88F79A4F46E102D3D14B21495438037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703028   (115338) от 27.02.2024
-
-Мэнди и силы зла / Mandy und die Machte des Bosen (2023-2024) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115338.jpg" />
-</div>
-
-
-###  Подробнее
-
-На вечеринке в честь Хэллоуина с Мэнди Пёппль происходит несчастный случай, после которого у неё появляются агорафобия и панические атаки. В квартире, где Мэнди живёт со своей матерью Тиффани, она устраивает спиритические сеансы, чтобы заработать себе на жизнь. Однако, когда во время одного из надувательских сеансов внезапно появляется призрак её соседки Сельчан, (   Читать дальше...   )Производство: Австрия / Caligari Film- und Fernsehproduktions, Samsara FilmproduktionЖанр: ужасыРежиссер: Франциска Мейер Прайс, Андреас ШмидАктеры: Giovanni Funiati, Bayan Layla, Eli Riccardi, Ребекка Иммануэль, Рафаэль Гарайзен, Михаэль Пинк, Инге Маукс, Томас Пон, Christina Trefny, Сафира Робенс и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBF8F58827C047B5D0CF6C854DC635B46981150
 ```
 
 https://mybot314.ru/tekegram_catalog/

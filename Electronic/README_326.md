@@ -1,3 +1,119 @@
+###  Публикация: 1414441   (385622) от 08.10.2020
+
+VA - The Sacred Rage (2020) Morphine Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Contemporary, Techno, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Kameel Farah and Thomas Brinkmann - Sans Titre (06:40)
+ 02. "A" trio - Over (07:06)
+ 03. Monolake - Beirut (07:53)
+ 04. Irena and Vojtech Havlovi - Radek 2 (06:13)(   Читать дальше...   )Жанр: Experimental, Contemporary, Techno, AmbientПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B9A8590666C2B96F2F5C6441C7663424920B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414222   (385621) от 08.10.2020
+
+Tomas Senkyrik - Fond (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electrocoustic, Field Recording>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hana 04:56
+2. Eugen 06:46
+3. Fond 11:28
+4. Tata 04:14Жанр: Ambient, Electrocoustic, Field RecordingПродолжительность: 00:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18ABD62DB079FDEC45E09A0A4A067E80467E7BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414455   (385617) от 08.10.2020
+
+Sciama - Illusion of Separation (2020) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385617.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Selui	8:37
+2	Unfolding Self	8:00
+3	Somnium	5:12
+4	Illusion Of Separation	6:40(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092613C8B3B39FD72C68E8F5FFFBE79EF9FE4EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253211   (385552) от 08.10.2018
+
+VA - Amsterdam Dance Essentials Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utku Erbay - Gonna Be Free (Original Mix)
+02. Eric Senn - Days To Come (Original Mix)
+03. Angelica S - Monologue Of The Soul (Science Deal Remix)
+04. James Dust - Bagged (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8950F8879A3E1C7AFACE13485FC11B85226A3A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414543   (385513) от 08.10.2020
 
 Vector Seven - Electric Blood (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Cybersynth>
@@ -6,7 +122,7 @@ Vector Seven - Electric Blood (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, C
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385513.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Pulsarum - Discography 2 Releases (2020) AstroPilot Music [FLAC|Lossless|WEB-DL|
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385510.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Tantric Sexuality Masters - Sexy Chillout Beats for Lovers 2020 [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385508.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Best of Chillout Vol.07 (2018) [MP3|320 Kbps] <Chillout,Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385457.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ CHEjU (aka Wil Bolton) - Discography 20 Releases (2004-2009) Boltfish Recordings
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385375.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Rewind To The 80s: Germany (2016) Compilation [FLAC|Lossless|tracks + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385318.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ LowXY (LX, Mordexes, Xovlex) - Discography 17 Releases (2016-2017) [FLAC|Lossles
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385223.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ VA - Lounge Cafe Supreme Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385201.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ VA - 5 Years Diynamic (2012) [FLAC|Lossless]<Tech House, Deep House, Minimal Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_385095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_385095.jpg" />
 </div>
 
 
@@ -261,7 +377,7 @@ D.Y.A - Do It (Single) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385049.jpg" />
 </div>
 
 
@@ -288,7 +404,7 @@ Khen - One Day Of Independence (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384933.jpg" />
 </div>
 
 
@@ -317,7 +433,7 @@ VA - Erotic Yoga Vol.2 (Deluxe Chill out for Special Moments) (2016) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384927.jpg" />
 </div>
 
 
@@ -346,7 +462,7 @@ VA - Swedish Electro vol. 4: The Unsigned (2016) [MP3|320 Kbps] <Synthpop, EBM, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384774.jpg" />
 </div>
 
 
@@ -375,7 +491,7 @@ Carpenter Brut - Leather Terror (2022) [FLAC|Lossless|WEB-DL|tracks] <Darksynth,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383763.jpg" />
 </div>
 
 
@@ -404,7 +520,7 @@ Nils Hoffmann - A Radiant Sign (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383762.jpg" />
 </div>
 
 
@@ -433,7 +549,7 @@ VA - In Search of Sunrise 18 (Mixed by Markus Schulz & Matt Fax & Dennis Sheperd
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383746.jpg" />
 </div>
 
 
@@ -462,7 +578,7 @@ Sciama - Broken Circle (2019) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383634.jpg" />
 </div>
 
 
@@ -491,7 +607,7 @@ VA - Digital Empire - Miami Underground (2018) [MP3|320 Kbps] <House, Electro-Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383613.jpg" />
 </div>
 
 
@@ -520,7 +636,7 @@ VA - Ibiza Summer 2018: Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383569.jpg" />
 </div>
 
 
@@ -549,7 +665,7 @@ VA - Bass House Autumn '18 (2018) [MP3|320 Kbps] <House, Future-House, Electro-H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383567.jpg" />
 </div>
 
 
@@ -578,7 +694,7 @@ VA - The Minimal Wave Tapes (2010, 2012) Volume One & Two [MP3|320 Kbps] <Electr
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383565.jpg" />
 </div>
 
 
@@ -607,7 +723,7 @@ worriedaboutsatan - Europa (2020) Past Inside the Present [FLAC 2.0|44.1/24|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383515.jpg" />
 </div>
 
 
@@ -621,119 +737,6 @@ worriedaboutsatan - Europa (2020) Past Inside the Present [FLAC 2.0|44.1/24|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:502EBE06BE38D2F9FFF440AC243124966F26E7FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326625   (383510) от 21.09.2019
-
-Second Tension - Assembly Point (2017) Monolith Rec [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ally (07:26)
- 02. Assembly Point (06:56)
- 03. Esoteric Flame (07:22)
- 04. Kinetic (09:01)Жанр: Techno, IndustrialПродолжительность: 00:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECCB22CC72A9F441B76623AF981E2FEED4872A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413743   (383420) от 09.10.2020
-
-Christian Kleine - Touch & Fuse (2020) A Strangely Isolated Place [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Return Of The Underground	4:35
-02	Helios Flood	5:01
-03	Touch & Fuse	4:38
-04	Velvet Impulse	4:25(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 01:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B99F0B029B6CB073003218CD3CC53CFB538F525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414717   (383413) от 09.10.2020
-
-Mat Zo - Illusion of Depth (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Media Res (4:12)
- 02. Love Songs (5:02)
- 03. The Next Chapter (5:15)
- 04. Problems (5:49)(   Читать дальше...   )Жанр: Electronic, Progressive House, TranceПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D223FA2ECAE8BC38229F52224DED037297518142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174723   (383401) от 16.10.2017
-
-Amorph - Discography 5 Releases (2006-2012) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Downtempo, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live At Lab.30 (53:21)Тип издания: CD, WebЖанр: IDM, Ambient, Downtempo, Glitch •Продолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409F5C172505B5E47488A3AB52DE9B505D397443
 ```
 
 https://mybot314.ru/tekegram_catalog/

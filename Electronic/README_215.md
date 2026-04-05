@@ -1,3 +1,119 @@
+###  Публикация: 1139322   (659099) от 03.06.2017
+
+VA - EPIC Ibiza: Trance Anthems Vol.1 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Digitalism - Second Chance (Capa Remix) 5:42
+02.  21street - Mind Bender 10:08
+03.  Marko Kantola - Valkyrie 7:16
+04.  Ejoop - Thrown 4:22(   Читать дальше...   )Жанр: TranceПродолжительность: 03:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D5CE1550013411615B2A772C5BA08CA4AA8869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139642   (659086) от 03.06.2017
+
+Blasterjaxx - XX Files (Festival Edition) (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  070 (Extended Mix) 3:45
+02.  Do Or Die (Extended Mix) (feat. Lara) 4:36
+03.  Savage (Extended Mix) 4:06
+04.  Seth (Extended Mix) 4:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06CC6BA414EE4736AF855B96A1D0707E8DC92E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139682   (659080) от 03.06.2017
+
+VA - Buddha Gold Vol.1 – The Finest In Mystic Bar Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659080.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Le Voyage – African Daydreamer (Ethno mix) (05:55)
+2. DJ Maretimo – Cosmopolitan Cocktail (feat Cafe Americaine – mix La Nuit) (05:55)
+3. Cinematic – We Are Alone (After Sunset mix) (07:46)
+4. Panafrican Project – Talking Pyramids (Ethnix Space mix) (06:33)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 06:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7E5289990AE7397ED8346DB3C79BE8D08F1728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139647   (659007) от 03.06.2017
+
+DJ Smash - Smash World (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro Robin Bad Theme 2:46
+02.  Love & Pride (feat. Vengerov) 2:55
+03.  Lovers 2 Lovers (feat. Ridley) 2:52
+04.  Cosmos 3:07(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BCB5843BC9E39F02133B12243E50B51065B839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139716   (659004) от 03.06.2017
 
 Teddy Killerz - Nightmare Street (2017) [MP3|320 Kbps] <Drum & Bass>
@@ -6,7 +122,7 @@ Teddy Killerz - Nightmare Street (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659004.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Spring Collective 01 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658835.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Best Of Series: Miroslav Vrlik Vol.01 (2018) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658828.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Strong Stuff (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658277.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Lounge System Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658276.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Endless Music - Balearic Ibiza Grooves Vol.2 (Compiled By Paul Lomax) (2017
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658275.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Monaco Night Tales - The Best Of Mediterranean Chillout Music (2017) [MP3|3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658272.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Ibiza Vocal Hits 2017 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658209.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Lounge Culture (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658174.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - My Day (Chillout & Lounge) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658172.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Cala Gracioneta (Pop Lounge Ibiza 2015) (2015) [MP3|320 кб/с]<Downtempo,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658169.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Vocal Trance Classics Top 40 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658142.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Power Dance Workout Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658125.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Sexy Chillout Music Cafe - Chillout Piano Bar Lounge 2022 [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658124.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ ENiGMA Dubz - Awakening (2022) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, UK Garage
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658113.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Chillout Breakfast Best Lounge Tracks (2015) [MP3|320 кб/с]<Downtempo, C
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658072.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658066.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ VA - Skullduggery Selection Vol. 001 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658045.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Rodriguez Jr. - Baobab (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658020.jpg" />
 </div>
 
 
@@ -560,7 +676,7 @@ DAVI - Boarding Call (2018) Maxi Single & EP [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657956.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ VA - Chill Bar Essential Lounge (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657873.jpg" />
 </div>
 
 
@@ -618,7 +734,7 @@ VA - Paul Oakenfold - DJ Box: June (2015) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657868.jpg" />
 </div>
 
 
@@ -632,128 +748,6 @@ VA - Paul Oakenfold - DJ Box: June (2015) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96DB7575D59F1C02A7DC2537D2F227D30501B231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514568   (657754) от 24.06.2012
-
-Example - Playing In The Shadows (2011) [FLAC|Lossless]<Electro House/ Electro Hip-Hop/Dubstep>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_657754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Example - Playing In The Shadows (2011)
-
-Год: 2011
-Жанр: Electro House/ Electro Hip-Hop/Dubstep
-Продолжительность: 00:52:39
-Страна: UK
-Лейбл: Ministry Of Sound
-Каталог №:  MOSART2
-Сканы: Комплект
-Кодек: FLAC(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902729   (657572) от 31.05.2015
-
-Major Lazer - Peace Is the Mission (2015) [FLAC|Lossless|WEB-DL]<Trap, FutureBass, DutchHouse, ElectroHouse, Moombahton, Carnival>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657572.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Be Together (feat. Wild Belle) [3:53]
-2. Too Original (feat. Elliphant & Jovi Rockwell) [3:27]
-3. Blaze Up the Fire (feat. Chronixx) [3:34]
-4. Lean On (feat. MO & DJ Snake) [2:56](   Читать дальше...   )Жанр: Trap, FutureBass, DutchHouse, ElectroHouse, Moombahton, CarnivalПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F0828A9AFDA09146783225408229C6509892DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539711   (657218) от 26.03.2022
-
-Nickolay Fedorenko - Magic Multiverse: Best of 2011-2017 (2022) [MP3|320 Kbps] <Spacesynth, Spacedisco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolution (3:03)
-02. Liftoff (3:41)
-03. Mikroumlaufbahnen (feat. Vortex Mechanic) (4:41)
-04. Space Falcon (3:16)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E75A725841827B87D82932E4C4A22E5B009AC42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539554   (657212) от 26.03.2022
-
-VA - Vocal Trance Hits 2022 Vol 1 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Sam Gray - Human Touch (Extended Club Mix) (4:13)
-02. Roger Shah & Sian Evans - Hide U (Jerome Isma-Ae Extended 2022 Remix) (7:48)
-03. AVIRA feat. Sam Martin - Change My World (Extended Mix) (6:46)
-04. Chicane - Sailing (Back Pedal Brakes Extended Remix) (4:15)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D5F6241DFAB7E124CF3CA6EF0A242CF880988F
 ```
 
 https://mybot314.ru/tekegram_catalog/

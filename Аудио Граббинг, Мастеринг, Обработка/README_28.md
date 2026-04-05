@@ -1,3 +1,187 @@
+###  Публикация: 1518077   (157503) от 18.12.2021
+
+iZotope Music Production Suite Pro 2021.12 STANDALONE, VST, VST3, AAX (x64) RePack by VR (Rev2) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все подключаемые модули, которые понадобятся вам для профессионального создания музыки, в одном наборе. Получите доступ к RX Pro for Music, VocalSynth Pro, Ozone Pro, Neutron Pro, Nectar Pro, Neoverb Pro, Tonal Balance Control Pro, Insight Pro, Melodyne 5 Essential, а также к пресетам, семплам и обновлениям для всех продуктов Pro. Добавьте к своему набору навыков (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDC9CC86306BA0A2173F55D3C5184454B2F6C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600640   (155638) от 28.12.2022
+
+Sonible - smart:limit 1.1.3 VST, VST3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155638.jpg" />
+</div>
+
+
+###  Подробнее
+
+smart:limit предоставляет настройки лимитера, которые позволяют вашему миксу «дышать», и дает вам всю информацию о громкости и динамике, необходимую для уверенной публикации.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283C1C08DF21CBFB0FB5BEB1B19010FD8C1FACF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270642   (155618) от 20.12.2018
+
+Rob Papen - Go2 1.0.1b VSTi, AAX (x86/x64) Repack by VR [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Независимый разработчик Роб Пейпен выпустил VST-синтезатор Rob Papen Go2. По мнению создателя, у новинки есть все шансы стать одним из основных синтезаторов в любой студии звукозаписи.
+Виртуальный инструмент отличается простым и понятным интерфейсом и большим количеством функций, управляемых и вызываемых через единственное окно программы. Несмотря на простоту, Пейпен (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5452A01E7168CC4C6E7BE158C7629FB381E8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270663   (155212) от 20.12.2018
+
+Roland VS - SRX DANCE TRAX VSTi, VSTi3, AAX 1.0.1 [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Roland Cloud представляет SRX DANCE TRAX, созданный в духе оригинальной аппаратной платы Roland с переосмысленной функциональностью.
+Как это было - В начале 2000-х платы расширения Roland SRX были инновационным способом добавления свежих ароматов в ваш синтезатор. Установленные непосредственно в аппаратные синтезаторы Roland, каждая плата создавала крошечный жанрово-ориентированный (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D287F3C30735B41EDF2515C2C892EA96E83D8098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346812   (155174) от 21.12.2019
+
+Tone2 - Warmverb Multi-FX 1.2.1/1.2.2 VST (x86/x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tone2 - Warmverb - гибкий мульти-эффект процессор, предоставляющий возможность создавать уникальные звуковые эффекты. Он может делать не только классические эффекты с наилучшим качеством, но и сумасшедшие вещи, такие как связка эффектов дисторшн-реверб-фейзер-задержка-вокодер. Включая высококачественные технологии реверберации из синтезатора Gladiator, Warmverb также (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B731E8FEE38AA9731F438E1A4A8345AE96ADF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518503   (153969) от 20.12.2021
+
+Adam Szabo - Viper 1.0.91 VSTi (x86/x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viper стремится передать звуковые характеристики легендарных аппаратных синтезаторов в виртуальном формате. Он поставляется с множеством функций, таких как: несколько типов осцилляторов, синхронизация, частотная модуляция, кольцевая модуляция, унисон до 8 голосов, насыщенность фильтра, маршрутизация фильтра, матрица модуляции, высококачественные эффекты, мощный арпеджиатор (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C292DDEE1633D0BC2E258481AA6B569F19C89671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518480   (153954) от 20.12.2021
+
+UVI - Key Suite Electric 1.0.6 (UVI Falcon) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153954.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате более чем 20 лет в создании инструментов на основе сэмплов, Key Suite Electric был разработан, чтобы стать вашей библиотекой электрических клавиатур. Наслаждайтесь богатством глубоко сэмплированных и безукоризненно записанных инструментов с уровнем качества звука и контроля, который вы ожидаете найти только в профессиональной студии звукозаписи. С 63 (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9F704D3C45B1B2BE30A5D72103A3DD1FA96B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347086   (153948) от 22.12.2019
 
 2CAudio - Vector 1.0.0 VST, AAX (x64) [En]
@@ -6,7 +190,7 @@
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153948.jpg" />
 </div>
 
 
@@ -32,7 +216,7 @@ Rob Papen - BLUE II 1.0.3b VSTi, AAX (x86/x64) Repack by VR (Rev.2) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152206.jpg" />
 </div>
 
 
@@ -58,7 +242,7 @@ Loopmasters - Bass Master 1.1.2 VSTi (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152164.jpg" />
 </div>
 
 
@@ -85,7 +269,7 @@ Xfer Records - Serum & SerumFX 1.35b7 VSTi, VSTi3, AAX (x86/x64) Update [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152067.jpg" />
 </div>
 
 
@@ -111,7 +295,7 @@ Glitchmachines - Tactic 1.1.0 VSTi (x64) RePack [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151278.jpg" />
 </div>
 
 
@@ -138,7 +322,7 @@ Glitchmachines - Polygon 2.0.0 VSTi (x64) RePack [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151204.jpg" />
 </div>
 
 
@@ -165,7 +349,7 @@ Wavesfactory - TrackSpacer 2.5.10 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150731.jpg" />
 </div>
 
 
@@ -191,7 +375,7 @@ Cytomic Effects Bundle 2025.10 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150729.jpg" />
 </div>
 
 
@@ -217,7 +401,7 @@ Scaler Music - Scaler 3 3.1.3 Standalone, VSTi, VSTi 3, AAX (x64) + Sounds [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150728.jpg" />
 </div>
 
 
@@ -243,7 +427,7 @@ W.A. Production - Instacomposer 3 3.0.0.251014 VSTi, VSTi 3, AAX RePack by TCD [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150727.jpg" />
 </div>
 
 
@@ -269,7 +453,7 @@ Sonible - Learn Bundle 2.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150726.jpg" />
 </div>
 
 
@@ -295,7 +479,7 @@ Acon Digital Acoustica Premium 7.5.5 (X64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150650.jpg" />
 </div>
 
 
@@ -322,7 +506,7 @@ Rob Papen - RP-AMod 1.0.0h VST, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150130.jpg" />
 </div>
 
 
@@ -348,7 +532,7 @@ Rob Papen - RP-Delay 1.0.2c VST, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150117.jpg" />
 </div>
 
 
@@ -374,7 +558,7 @@ Rob Papen - RP-VERB 2 1.0.0d VST, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149961.jpg" />
 </div>
 
 
@@ -401,7 +585,7 @@ ValhallaDSP Bundle 2020.11 VST, VST3, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149256.jpg" />
 </div>
 
 
@@ -427,7 +611,7 @@ GiliSoft Audio Toolbox Suite 2018 7.1.0 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148477.jpg" />
 </div>
 
 
@@ -455,7 +639,7 @@ Oeksound - Spiff 1.3.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146942.jpg" />
 </div>
 
 
@@ -483,7 +667,7 @@ Ample Sound - Ample Guitar LP III 3.0.0 VSTi, VSTi3, AAX (x64) + Library [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146857.jpg" />
 </div>
 
 
@@ -494,191 +678,6 @@ Ample Guitar LP III (AGLP) ставит целью привнести в ваш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEC0E6F4155E5B17382118AB699F6D4B4A0F6E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272088   (145590) от 26.12.2018
-
-u-he - Zebra2 2.8.0.7730 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный модульный синтезатор, комбинирующий различные типы синтеза, с мощными механизмами модуляции. С помощью этого инструмента, можно создать любую форму волны которая Вам по душе, применять к ней обширный набор спектральных эффектов, или пропускать через имеющиеся фильтры. Возможности фактически безграничны, это как детская площадка, только для звукорежиссёров. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E1A365D38D4200DFD5C59F9B4B83CD00A19538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520005   (145378) от 26.12.2021
-
-ADSR Sample Manager 1.7.4 STANDALONE, VSTi, VSTi3, AAX [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145378.jpg" />
-</div>
-
-
-###  Подробнее
-
-ADSR Sample Manager - инструмент для управления библиотеками сэмплов на своем компьютере.
-По словам разработчиков, ADSR Sample Manager создан специально для тех музыкантов, чья библиотека сэмплов и лупов насчитывает тысячи файлов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0139D79B94C9639A5351F41484F3B2F69650C630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678285   (145312) от 21.11.2023
-
-Acoustica Premium Edition 7.5.5 (x64) RePack (& Portable) by elchupacabra [Ru/En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acoustica Premium Edition - профессиональная программа, которая позволит на высоком уровне вести аудио запись, редактирование и мастеринг. Хочется отметить интуитивно понятный интерфейс в котором приятно работать. Он был разработан таким образом, чтобы вы максимально быстро могли в нем освоится и приступить к работе, получая доступ к мощным инструментам. Все аудио (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41837534BC584D1408DB7B0782B432AB324ECA14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520340   (143486) от 27.12.2021
-
-Acoustic samples - VHorns Brass Section for 1.0 (UVI Falcon) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acousticsamples объявила о выпуске VHorns латунный профиль. Реалистичная и простая в использовании библиотека рупорных инструментов для бесплатного программного обеспечения UVI для рабочих станций.
-
-Для работы с банком требуется семплер UVI FalconЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345C238560F2C310053A7B14C428775EB06DFBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435329   (143439) от 28.12.2020
-
-Slate Digital - Virtual Mix Rack Complete 2.5.2.1 VST, VST3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143439.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMR 2.0 позволяет звукорежиссерам легко создавать полосы каналов своей мечты, используя библиотеку, полную аналоговых модулей. Выбирайте из десятков модулей, включая смоделированные в старинном стиле эквалайзеры, компрессоры, усилители, фильтры, предусилители, микшерные пульты и многое другое. Но даже помимо звука, который вы можете получить с VMR 2.0, вы также получаете (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A88128C7698D979C70FC109B00196756F9E73A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520233   (143233) от 27.12.2021
-
-MAGIX Sound Forge Pro 15.0 Build 161 (x86/x64) [Ru/En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143233.jpg" />
-</div>
-
-
-###  Подробнее
-
-SOUND FORGE Pro вот уже 25 лет представляет собой удобный программный инструмент для работы с музыкой и другими звуковыми файлами на самом высоком профессиональном уровне. Последняя версия убедительно продолжает славные традиции, может похвастаться улучшенным пользовательским интерфейсом, большей эффективностью, стабильностью и скоростью работы. Постоянно совершенствуемый (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B641AA6588CB235D6ED428AD20759FD9BEE14BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519440   (143026) от 27.12.2021
-
-iZotope - Ozone 9 Advanced 9.11.1 STANDALONE, VST, VST3, AAX (x64) RePack by VR (Rev2) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143026.jpg" />
-</div>
-
-
-###  Подробнее
-
-iZotope Ozone – полноценное и функциональное приложение, которое можно смело назвать полноценной системой для выполнения мастеринга. В одном интегральном плагине собраны все необходимые инструменты, которые необходимы для постобработки различных музыкальных композиций. iZotope Ozone – это идеальный вариант, который предоставляет в распоряжение каждого музыканта абсолютно (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F4528E7A627B093CEA72B5EA7089586393960D
 ```
 
 https://mybot314.ru/tekegram_catalog/

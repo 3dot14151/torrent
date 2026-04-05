@@ -6,7 +6,7 @@ World War Party: Balls of Duty (2017) [En] (0.1.9) Repack VseTop [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841105.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gremlins vs Automatons (2016) [Ru/Multi] (1.0.0.200) Repack VseTop [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839163.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MadOut BIG City (2017) [Ru/En] (24.02.2017) Repack Andrxaxa
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839157.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Slime Rancher (2016) [Ru/Multi] (0.5.0b) Repack Kuji Kita
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837497.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ARK: Survival Evolved (2015) [Ru/Multi] (build 238.3) Repack SpaceX
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835778.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833094.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Hand of Merlin (2021) [En] (675212/dlc) License GOG [Deluxe Edition] [Early 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833078.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Gang Beasts (2014) [En] (0.5.5) Repack VseTop [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825671.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Frozen State (2014) [Ru/Multi] (0.88 build 217) Repack Trackerock
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824518.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Demesne (2016) [En] (0.7.1.1) Repack Trackerock
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822602.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mad Games Tycoon (2015) [Ru/Multi] (0.160414B) Repack Dante159
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818829.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ MewnBase (2017) [Ru/En] (0.34.1) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816462.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Sphere - Flying Cities (2021) [Ru/Multi] (0.1.3/dlc) License GOG [Save the World
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809614.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Starmancer (2021) [En] (0.1.49) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809484.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ GIBZ (2016) [Ru/Multi] (24.03.2017) Repack VseTop [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806561.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Gravi (2013) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802024.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ The Fifth Expedition (2016) [En/Pl] (0.7.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801946.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Halcyon 6: Starbase Commander (2016) [En] (0.1.0.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797356.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Judgment: Apocalypse Survival Simulation (2016) [En] (0.5.1776) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797291.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Planetoid Pioneers (2016) [En] (Build 0) Repack Other s [Contributor Edition]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796602.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Factorio (2016) [Ru/Multi] (0.18.26) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796483.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Elven Legend 7: The New Generation (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792961.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Project Zomboid (2013) [Ru/Multi] (38.30) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791895.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Minotaur (2020) [Ru/Multi] (0509) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791750.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Persian Nights 2: The Moonlight Veil (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791614.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Mystery Trackers 16: The Fall of Iron Rock (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791069.jpg" />
 </div>
 
 

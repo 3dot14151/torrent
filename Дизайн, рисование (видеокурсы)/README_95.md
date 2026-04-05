@@ -1,3 +1,61 @@
+###  Публикация: 1713256   (60710) от 05.04.2024
+
+Олег ОreX | Онлайн курс по созданию изображений с помощью искусственного интеллекта Automatic 1111 (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Automatic 1111 — мощный и бесплатный инструмент. Открывает дверь в мир AI-генераций изображений тем, кто хочет научиться с помощью искусственного интеллекта преображать идеи в визуальные шедевры.
+А также получить новую, высокооплачиваемую, востребованную профессию.
+От лучшего специалиста по Automatic 1111 — Олега ОreX
+Чему научитесь на курсе:(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 12:13:38Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3BC482BE5B5EA358F8423B6204947290C580D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713892   (60512) от 07.04.2024
+
+Школа Вероники Калачевой, Дарья Остапенко | Классический женский торс (2018) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приглашаю вас на вебинар по рисунку!
+Будем рисовать классический женский торс. Поговорим о пропорциях тела, законах построения фигуры и выполним зарисовку по фотографии статуи Венеры Милосской.
+Как настоящие художники, мы изучим натуру и с академической точностью, с учетом всех законов линейной перспективы, передадим вдохновляющие изгибы женской фигуры.
+(   Читать дальше...   )Производство: Школа Вероники КалачевойЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 01:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C805A7C253209B8D9E232491BF6F372D745B73CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584820   (60306) от 09.04.2024
 
 Videosmile, Михаил Бычков | Супер After Effects (2022) WEB-DL [RU]
@@ -6,7 +64,7 @@ Videosmile, Михаил Бычков | Супер After Effects (2022) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60306.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Canopy Games, Erindale Woodford | Advanced Geometry Nodes for Blender 3.3+ (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58722.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ Scott Eaton.com, Scott Eaton | Portraiture and Facial Anatomy. Week 1-6 (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58071.jpg" />
 </div>
 
 
@@ -87,7 +145,7 @@ Blender Market, Jean-yan BABOIS | The Ride - A Blender Car Animation Course (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57252.jpg" />
 </div>
 
 
@@ -114,7 +172,7 @@ CG Masters, Chris Plush | 3D Cars: Inside and Out in Blender [Chapters 1-37] (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56959.jpg" />
 </div>
 
 
@@ -141,7 +199,7 @@ GeekBrains | Факультет дизайна (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56926.jpg" />
 </div>
 
 
@@ -170,7 +228,7 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Nebula: Learn Volumes, GeoNodes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55454.jpg" />
 </div>
 
 
@@ -197,7 +255,7 @@ ArtStation, Milad Kambari | Substance Painter Master Course (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53808.jpg" />
 </div>
 
 
@@ -225,7 +283,7 @@ Udemy, 3D Tudor | Blender Basics Geometry Node Brick Walls Workshop (2024) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53396.jpg" />
 </div>
 
 
@@ -252,7 +310,7 @@ DoubleJump Academy, Post Processed | Unreal Engine Complete Automotive Mastercla
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53285.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ fxphd, Liam Whitehouse | Automotive Cinematography in Unreal Engine, Part 1 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53267.jpg" />
 </div>
 
 
@@ -305,7 +363,7 @@ Udemy, Nick Stanchev | Unreal Engine 5 - The Complete Automotive Cinematic Cours
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53254.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Udemy, 3D Tudor | Blender Geometry Node Fire Animation (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51450.jpg" />
 </div>
 
 
@@ -358,7 +416,7 @@ Udemy, FastTrack Tutorials, Emiel Sleegers | Creating Advanced Trim Sheet Textur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51426.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ LiveClasses, Константин Тимофеев | Основы моделир
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51255.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ CG Boost, Martin Klekner | Master 3D Environments in Blender (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51249.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ The Gnomon Workshop, Thomas Butters | Creating a Hero Weapon for Games (2024) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51023.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ YanSculpts | Master Sculpting Heads - 3D Blender Course (V1.3) (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48014.jpg" />
 </div>
 
 
@@ -492,7 +550,7 @@ Sefki Ibrahim | Hyperreal 3D Character Creation Course [Tutorial] [EN/EN Sub] (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47801.jpg" />
 </div>
 
 
@@ -518,7 +576,7 @@ Design Wonderland, Алиса Яковлева | Профессия дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46545.jpg" />
 </div>
 
 
@@ -547,7 +605,7 @@ Udemy, GameDev.tv Team, Stephen Woods | Blender 4.2 Simulation Nodes - Master An
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45819.jpg" />
 </div>
 
 
@@ -573,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45110.jpg" />
 </div>
 
 
@@ -602,7 +660,7 @@ Profileschool, Никита Чесноков | Blender - продвинутый 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44157.jpg" />
 </div>
 
 
@@ -628,7 +686,7 @@ CG INCUBATOR, Артём Куприяненко | Архитектурный в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44148.jpg" />
 </div>
 
 
@@ -642,62 +700,6 @@ CG INCUBATOR, Артём Куприяненко | Архитектурный в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D777F53AC9D1C291C6C27B470A41CEA2AD34F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748532   (44051) от 10.09.2024
-
-Profileschool, Никита Чесноков | Blender - базовый уровень (2022) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на практический онлайн-курс по работе в универсальном 3D-редакторе Blender, в рамках которого вы не только получите уверенные навыки моделирования и анимации, но и начнете создавать современное портфолио.
-На курсе вам предстоит не только познакомиться с широчайшим спектром возможностей программы, но и создать креативное портфолио в самых разных областях (   Читать дальше...   )Производство: ProfileschoolЖанр: 3D моделированиеЯзык озвучки: РусскийПродолжительность: 18:02:49Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECEF35A8CC6AB5F985E2E81D05ABD6BDF071EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751194   (42696) от 23.09.2024
-
-Вольница, Андрей Шкиль | BLNDR - База v2 (2024) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это база! И этим все сказано!
-38 бесплатных уроков про Blender, которые не только помогут вам сделать первые шаги в этой программе, но и научат полезным навыкам!
-Вы сделаете авторскую low poly модель и освоите базовый 3D моушн дизайн.
-Главное, вы пройдете этот путь не одни! А с объемными фидбеками от автора курса и коллегами в чате!Производство: ВольницаЖанр: 3D моделированиеЯзык озвучки: РусскийПродолжительность: 13:17:29Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02987F6BECD9E2BDDCA0214F352F42D94F4E589C
 ```
 
 https://mybot314.ru/tekegram_catalog/

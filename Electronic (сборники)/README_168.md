@@ -1,3 +1,61 @@
+###  Публикация: 956943   (329487) от 15.11.2015
+
+VA - Sunday Privilege Vol 2 - 25 Luxury Lounge Anthems (2015) [MP3|320 кб/с]<Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tuscany - Acoustic Place - Original Mix
+02. White Ensemble - Cut Driving - Original Mix
+03. Richard Le Monde - A Old Passion - Original Mix
+04. Vibrant Vibes - Distacco - Original Mix(   Читать дальше...   )Жанр: LoungeПродолжительность: 01:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFBD6B777E747E1E5CFF7D8F2002C57546FC8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956604   (329484) от 15.11.2015
+
+VA - All About Chillout (2015) [MP3|320 кб/с]<House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gorda's Groove - Vocofeeling
+02. Miraflores - Riverbend's Song
+03. Oliver Backstrom - One Last Goodbye
+04. Enrico Donner feat. Theresa Thomason - Time Stands Still(   Читать дальше...   )Жанр: HouseПродолжительность: 01:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473B9CB5225DFFEE2DD6857234462CC8F8D3B3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956591   (329476) от 15.11.2015
 
 VA - Winter Vibes (Relaxed Laidback Beats Finest Collection) (2015) [MP3|320 кб/с]<Electronic, Downtempo, Lounge, Chill Out>
@@ -6,7 +64,7 @@ VA - Winter Vibes (Relaxed Laidback Beats Finest Collection) (2015) [MP3|320 к�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329476.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Lounge Music Classics 2016 Sexy Soft Lounge Chillout Music (2015) [MP3|320 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329400.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Drive (Ministry Of Sound) (2015) [MP3|320 кб/с]< Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329309.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - TGIF Playlist Collection Lazy Sunday Chill and Ease Up Playlist to Relax (2
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328481.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Cozy Evenings Vol 1 (25 Warm Up Lounge Tunes) (2015) [MP3|320 кб/с]<Chil
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328458.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Ibiza Festival - Madness Peoples (2015) [MP3|320 кб/с]<Funky, Club, Trop
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328455.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - 5 Years Of Clear Conceptions  (2015) [MP3|320 кб/с]< Drum And Bass >
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327689.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA -  Driving Melodic & Trance Songstarters (2015) [MP3|320 кб/с]<Trance, Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327664.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Sunrise Avenue Vol 4 (20 Lounge & Chill-Out Pearls) (2015) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327662.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Chillout for Good Times (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327628.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Club Dance Ambience vol.45 (2015) [MP3|320 кб/с]<House, Progressive Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327626.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Weird & Naked (Essential Classics) (2015) [MP3|320 кб/с]<Chillout, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327621.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Epic & Uplifting Trance Euphoria (2015) [MP3|320 кб/с]<Trance, Uplifting
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327620.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Music For Everyone - Deep House & Nu Disco Vol.4 (2015) [MP3|320 кб/с]<D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327617.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA -  Ministry of Sound: Maximum Bass Unleashed (2015) [MP3|320 кб/с]<House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327427.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - TOP Non-Stop - Funky House Before 2000 (2022) [MP3|192-320 Kbps] <Funky Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327134.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - A Smile and a Tear Best Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326712.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - White Sunset - 20 Smooth Sexy and Relaxing Chillout Tunes - Vol 1 (2015) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324998.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Winterzeit Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324035.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Private Lounge Cafe, Vol. 1 (25 Delicious Lounge Anthems) (2015) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323999.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ DJ Sveta - Magic Time (2015) [MP3|320 кб/с]<House, Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323996.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Beatport Top 100 20.11.2015 (2015) [MP3|320 кб/с]<House, Electro, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323642.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Morphological Patterns: Techno Electrozombies (2018) [MP3|320 Kbps] <Techno
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323543.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - South Beach Clubbing Vol. 31 (2022) [MP3|320 Kbps] <Electronic, Future Disc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323476.jpg" />
 </div>
 
 
@@ -684,67 +742,6 @@ VA - South Beach Clubbing Vol. 31 (2022) [MP3|320 Kbps] <Electronic, Future Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BD285B1E3DC871A63B07BCEC0600FFB4B56F586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582461   (323354) от 09.10.2022
-
-VA - Trance October Week 001 (2022) CD, Compilation [MP3|320 Kbps] <Euphoric, Progressive, Melodic, Tech Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divisional Phrase & Prisma Storm - Lifesaver
-02. Adam Ellis & Katty Heath - Made It Through The Rain (radio edit)
-03. 1st in Line & Cris von X - The Light (Darren Porter Remix)
-04. Ciaran McAuley & Susie Ledge - You're Never Alone(   Читать дальше...   )Жанр: Euphoric, Progressive, Melodic, Tech TranceПродолжительность: 02:25:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3CB624F3B30376BB1170B87048A6B3E10DEBBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259066   (323095) от 02.11.2018
-
-VA - Hits of My Soul Vol. 41 (2018) [MP3|320 кб/с]<Darkwave, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. DevilRazor - FutureHell (04:45)
-02. Elevn - Burn Alexandria, Burn (06:13)
-03. Matthew Bauer - Night Demons (06:25)
-04. Carpenter Brut - Roller Mobster (03:34)(   Читать дальше...   )Жанр: Darkwave, Synthwave, New WaveПродолжительность: 02:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417A2C3F7F7D634DB82C4C9D41B685C94A31503D
 ```
 
 https://mybot314.ru/tekegram_catalog/

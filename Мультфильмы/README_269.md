@@ -1,3 +1,134 @@
+###  Публикация: 964652   (280470) от 12.12.2015
+
+Мульт утро. Выпуск 6 (2015.12.05) HDTVRip
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте каждую субботу с любимыми героями! "Маша и Медведь", "Фиксики", "Лунтик и его друзья", "Барбоскины", "Аркадий Паровозов спешит на помощь" и другие мультфильмы – на телеканале "Россия HD".Телекомпания: Россия HDЖанр: Мультсериал, компьютерная анимация, сказка, детский, семейныйПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B70BF6B7D8423AFB2BA378DD1505C16AA44C050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335441   (280330) от 06.11.2019
+
+Эллиот / Elliot the Littlest Reindeer (2018) BDRip [H.265/1080p] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь: Эллиот — маленькая лошадка с большой мечтой. Ему так хочется занять место одного из северных оленей в упряжке Санты и дарить детям радость! У него есть всего 3 дня, чтобы доказать окружающим, что он достоин стать одним из них, даже если рогами не вышел! Ведь если чего-то хочешь по-настоящему, то чудеса случаются непременно!Производство: Канада, Awesometown Entertainment,Double Dutch International,Elgin Road ProductionsЖанр: Мультфильм, СемейныйРежиссер: Дженнифер ВесткоттПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957C14BA9D543E9D4F31511C1FE591F7CF6DC19B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335439   (280329) от 06.11.2019
+
+Эллиот / Elliot the Littlest Reindeer (2018) BDRip [H.265] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь: Эллиот — маленькая лошадка с большой мечтой. Ему так хочется занять место одного из северных оленей в упряжке Санты и дарить детям радость! У него есть всего 3 дня, чтобы доказать окружающим, что он достоин стать одним из них, даже если рогами не вышел! Ведь если чего-то хочешь по-настоящему, то чудеса случаются непременно!Производство: Канада, Awesometown Entertainment,Double Dutch International,Elgin Road ProductionsЖанр: Мультфильм, СемейныйРежиссер: Дженнифер ВесткоттПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450A99850E99328C72FAA03624AA5CA7B41368A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336234   (280320) от 06.11.2019
+
+Лига Справедливости против Смертоносной Пятерки / Justice League vs. The Fatal Five (2019) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной мультфильм линейки «DC Universe Animated Original Movies».
+Лиге придется столкнуться с новой командой суперзлодеев, путешествующих во времени, которая прибывает в Метрополис в поисках Джессики Круз, начинающего Зеленого Фонаря. Лига Справедливости была создана после того, как главные супергерои Америки поняли, что будет куда эффективнее, если они будут (   Читать дальше...   )Производство: США, Warner Bros. Animation, DC ComicsЖанр: Рисованная анимация, ПриключенияРежиссер: Сэм ЛьюПерсонажи: Супермен, Бэтмен, Чудо-женщина, Зелёный Фонарь, СтарбойПеревод: Многоголосый закадровый (Flarrow Films)Субтитры: Русский, АнглийскийПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE95FF3AD54821CB9274A89A370AEA3157119F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187402   (280285) от 28.11.2017
+
+Мир Винкс / World of Winx (2016) WEBRip [H.264/1080p-LQ] (Сезон 1, 13 серий из 13) [UKR, EN]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280285.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сюжету спин-оффа Винкс отправляются на Землю в поисках талантливых детей, чтобы помочь им развить волшебство своих талантов. Для этого они создают реалити-шоу под названием WoW и работают в нём судьями, скрывая свои настоящие личности. Во время своей миссии девушки сталкиваются с неизвестным преступником, который похищает талантливых детей, и Винкс пытаются его (   Читать дальше...   )Производство: Италия, США, Rainbow, NetflixЖанр: Детский, Приключения, МузыкальныйРежиссер: Иджинио СтраффиПеревод: ОтсутствуетЯзык озвучки: украинский (закадровый ТК ТЕТ), английскийСубтитры: английские, испанские, французские, китайский упрощенный, китайский традиционный.Продолжительность: 00:24:20 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:049A730331C3E8F02341644119F8597EEDE280F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964945   (280279) от 12.12.2015
 
 Савва. Сердце воина (2015) WEB-DLRip [H.264] [MP4|720x304]
@@ -6,7 +137,7 @@
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280279.jpg" />
 </div>
 
 
@@ -34,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280253.jpg" />
 </div>
 
 
@@ -60,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280193.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280084.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280063.jpg" />
 </div>
 
 
@@ -138,7 +269,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.265/720p] [1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280060.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.265] [10-bit
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280056.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRemux [H.264/1080p]
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280055.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280028.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280020.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.265/1080p] [
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279967.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264]
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279965.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279903.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279899.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279810.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279754.jpg" />
 </div>
 
 
@@ -427,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279637.jpg" />
 </div>
 
 
@@ -455,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279494.jpg" />
 </div>
 
 
@@ -481,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278922.jpg" />
 </div>
 
 
@@ -507,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278875.jpg" />
 </div>
 
 
@@ -534,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278749.jpg" />
 </div>
 
 
@@ -546,139 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:753750CE2F0CC1F8C135A9D19720986BA8D2D8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336426   (278691) от 07.11.2019
-
-Бэтмен: Готэм в Газовом Свете / Batman: Gotham by Gaslight (2018) BDRip [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бэтмен против Джека Потрошителя в альтернативной истории, которая представляет Темного Рыцаря более ста лет назад в Готэме на стыке веков.
-Готэм-Сити переживает золотую эру открытий и промышленности, о чем свидетельствует Всемирная выставка богатого бизнесмена Брюса Уэйна. На дне города, в самых темных переулках, разгуливает убийца. Охотясь на женщин, этот убийца (   Читать дальше...   )Производство: США, Warner Bros. Animation, DC ComicsЖанр: Рисованная анимация, ПриключенияРежиссер: Сэм ЛьюАктеры: Брюс Гринвуд (Брюс Уэйн / Бэтмен), Дженнифер Карпентер (Селина Кайл), Энтони Хэд (Альфред Пенниуорт), Скотт Паттерсон (Джеймс Гордон)Перевод: Многоголосый закадровый (Flarrow Films)Субтитры: ОтсутствуютПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F909FCF00BCDE012F426920AB3CF6B43FE79F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082220   (278513) от 12.12.2016
-
-Тайная жизнь домашних животных / The Secret Life of Pets (2016) BDRemux [H.264/1080p] [2D/3D] [ISO]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делают домашние животные пока хозяева пропадают на работе? С тоской смотрят в окно? Смиренно дремлют на коврике у двери? Как бы не так. Они ведут свою тайную жизнь.Производство: Япония, США / Dentsu, Fuji Television Network Inc., Universal PicturesЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Ярроу Чейни, Крис РеноПерсонажи: Луис С.К., Эрик Стоунстрит, Кевин Харт, Дженни Слейт, Элли Кемпер, Альберт Брукс, Лэйк Белл, Дэна Карви, Хэннибал Бёресс, Бобби МойнаханПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F600F09D00B2FD68D09374CA915AEDCDD6FFB3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336351   (278463) от 07.11.2019
-
-Отряд самоубийц: Адская расплата / Suicide Squad: Hell to Pay (2018) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аманда Уоллер отправляет Оперативную Группу Икс, состоящую из Дедшота, графа Вертиго, Чёрной Манты и криминальной пары Панча и Джюели, чтобы похитить флешку Тобиаса Уэйла. После успешного завершения миссии Вертиго и Джюели внезапно нападают на Дедшота и убивают Панча. Тайно следящая за ними Уоллер активирует бомбы, имплантированные в шеи бунтовщиков. Вертиго взрывается, (   Читать дальше...   )Производство: США, Warner Bros. Animation, DC ComicsЖанр: Рисованная анимация, ПриключенияРежиссер: Сэм ЛьюПерсонажи: Дедшот, Профессор Зум, Капитан Бумеранг, Харли Куинн, Бронзовый ТигрПеревод: Многоголосый закадровый (Flarrow Films)Субтитры: ОтсутствуютПродолжительность: 01:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3217AF20625ED933B7E30747326447156F052DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187705   (278214) от 29.11.2017
-
-Босс-молокосос / The Boss Baby (2017) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта актуальная во все времена история для взрослых и детей рассказывается от лица семилетнего брата новорожденного — фантазера Тима, который ревнует его к родителям. Но главный герой — совсем не простой ребенок, он обладает лидерскими задатками, уже носит деловые костюмы и во всем видит бизнес-задачу.
-
-Однажды Тим узнает о готовящемся заговоре, целью которого является (   Читать дальше...   )Производство: США / DreamWorks AnimationЖанр: мультфильм, комедия, семейныйРежиссер: Том МакГратПерсонажи: Майлз Кристофер Бакши, Алек Болдуин, Эрик Белл мл., Стив Бушеми, Джимми Киммел, Лиза Кудроу, Тоби Магуайр, ВивиЭнн ЙиПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (Full-length, Forced), Украинские (Full-length, Forced), АнглийскиеПродолжительность: 01:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D5B4907A7EE64FC61C9DC550437D33D6E60B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082357   (278062) от 12.12.2016
-
-Тайная жизнь домашних животных / The Secret Life of Pets (2016) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делают домашние животные пока хозяева пропадают на работе? С тоской смотрят в окно? Смиренно дремлют на коврике у двери? Как бы не так. Они ведут свою тайную жизнь.Производство: Япония, США / Dentsu, Fuji Television Network Inc., Universal PicturesЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Ярроу Чейни, Крис РеноПерсонажи: Луис С.К., Эрик Стоунстрит, Кевин Харт, Дженни Слейт, Элли Кемпер, Альберт Брукс, Лэйк Белл, Дэна Карви, Хэннибал Бёресс, Бобби МойнаханПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 01:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C82EF5898ED9B8E06BF852C1E6CA9382D02ACE70
 ```
 
 https://mybot314.ru/tekegram_catalog/

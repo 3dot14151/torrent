@@ -1,3 +1,55 @@
+###  Публикация: 1340916   (263184) от 25.11.2019
+
+Fictorum (2017) [En] (2.0.4) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Царство террора, как никогда, кажется таким приятным, когда вы не оставляете буквальную камня на камне на своем пути. Fictorum - это ролевая игра о волшебнике приговоренному к смертной казни, в которой есть полностью разрушаемые структуры, рандомизированная карта мира, магическая система с формированием и настройкой заклинаний «на лету».Тип издания: RepackРазработчик: Scraping Bottom GamesЖанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26687DDB8100A683D8A8754813BF92371EF7BA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192536   (262963) от 17.12.2017
+
+Star Wars™: Knights of the Old Republic (2003) [Multi] (1.0.3.0) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выберите свой путь! За четыре тысячи лет до возникновения Империи галактическая Республика едва не распалась. Дарт Малак, последний выживший ученик темного лорда Ревана, повел непобедимую армаду ситхов против галактики, которая была к этому не готова. Завоеватель Дарт Малак ломал любое сопротивление. Орден джедаев был рассеян и ослаблен: много рыцарей-джедаев погибло (   Читать дальше...   )Тип издания: LicenseРазработчик: BioWare CorporationЖанр: Ролевая игра, Приключение, ФантастикаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F973740C6009AB7E6F4C32AA57F236D40F2645A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170484   (262369) от 19.12.2017
 
 Vaporum (2017) [Ru/Multi] (Build 236) License RELOADED
@@ -6,7 +58,7 @@ Vaporum (2017) [Ru/Multi] (Build 236) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262369.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Vaporum (2017) [Ru/Multi] (Build 236) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262365.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Hand of Fate 2 (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261896.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Hades II (2025) [Ru/Multi] (1.133066) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261709.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Hades (2020) [Ru/Multi] (1.38290) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261704.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Balrum (2016) [En] (1.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261629.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Hell Clock (2025) [Ru/Multi] (1.2.0_17965/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261465.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Yendorian Tales [En] (RePack) 1996 | RG games (Pilotus)
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259096.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.22) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257838.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Geneforge 1 - Mutagen (2021) [En] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257786.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ For The King II (2023) [Ru/Multi] (1.10.9/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257623.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Trails in the Sky 1st Chapter (2025) [Multi] (1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256743.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Little Witch in the Woods (2022) [Multi] (1.0) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256742.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Rise Eterna (2021) [Multi] (1.0.0 r8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255912.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Wanterlude [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255662.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Wartales (2021) [Ru/Multi] (1.0.25233) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255177.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Hard To Be a God / Трудно Быть Богом (2007) [Ru] (1.1) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255154.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Minecraft Legends (2023) [Ru/Multi] (11023230) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254962.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Star Ocean: The Divine Force (2022) [Multi] (01.01/dlc) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254869.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Tiny Tina's Wonderlands (2022) [Ru/Multi] (10922058/dlc) Repack DjDI [Chaotic Gr
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254863.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Venetica (2009) [Multi] (1.0.3) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254797.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Wytchwood (2021) [En] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254791.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.6.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254768.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ ArcaniA (2010) [Multi] (1.0.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254651.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ ArcaniA (2010) [Multi] (1.0.0.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CF692B5BD06856D30B20C6A27CFC202F09E6158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631723   (254523) от 07.05.2023
-
-Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack dixen18 [Complete Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сыграйте за викинга по имени Эйвор, которого с самого детства готовили стать бесстрашным воином. Вам предстоит повести свой клан из безжизненной ледяной Норвегии, чтобы обрести новый дом на плодородных землях Англии IX века. Вы должны основать селение и любыми средствами обуздать этот непокорный край, чтобы обеспечить себе место в Вальгалле. В те времена Англия представляет (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: RPG, 3rd Person, Action, AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37DDD1F76472E3A872619CF748A2112B55C5115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632165   (254478) от 09.05.2023
-
-Darkest Dungeon II (2023) [Ru/Multi] (1.0.49820) Scene Fairlight
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkest Dungeon 2 - сиквел готической ролевой игры, объединяющей в себе механики метроидвании и сурвайвал хоррора. Игровой процесс представляет собой динамичный экшен, в котором вы путешествуете по мрачному фэнтезийному миру и сражаетесь с многочисленными врагами. Каждый враг представляет серьезную угрозу. Все противники имеют уникальные паттерны атак и движений. (   Читать дальше...   )Тип издания: SceneРазработчик: Red Hook StudiosЖанр: Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B984D8A43824CC8B4B896921155E762DE07889E
 ```
 
 https://mybot314.ru/tekegram_catalog/

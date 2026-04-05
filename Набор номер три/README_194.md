@@ -1,3 +1,160 @@
+###  Публикация: 1276366   (787438) от 17.01.2019
+
+Microsoft назвала дату смерти Windows 7
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_787438.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Microsoft рассказали, что вскоре количество официально поддерживаемых версий Windows сократится. Разработчики игр уже давно готовят пользователей к переменам: в системных требованиях новых релизов всё чаще мелькает одна лишь Windows 10 (вместе с 8). Каждый раз это становится неприятным сюрпризом для геймеров, однако вскоре, очевидно, вопрос будет закрыт: корпорация (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276426   (787435) от 17.01.2019
+
+Звезда родилась / A Star Is Born (2018) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кантри-музыкант Джексон Мейн, чья карьера быстро катится под откос, однажды знакомится с никому не известной талантливой певицей Элли. Между героями вспыхивает страстный роман. Джек помогает Элли добиться успеха. Но чем стремительнее набирает обороты музыкальная карьера Элли, тем сложнее ему мириться со своей увядающей славой.Производство: США | Warner Bros. Pictures, Metro-Goldwyn-Mayer, Thunder RoadЖанр: Мелодрама, музыкаРежиссер: Брэдли КуперАктеры: Леди Гага, Брэдли Купер, Сэм Эллиотт, Эндрю Дайс Клэй, Рафи Гаврон, Энтони Рамос, Дэйв Шаппелл, Алек Болдуин, Марлон Уильямс, Брэнди КарлайлПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: 02:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6617C0C337E03BF47F073667B05967FFA34CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276735   (787434) от 17.01.2019
+
+Дубликат / Jonathan (2018) BDRip [H.264]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как многие жители Манхэттена, Джонатан просыпается ровно в 7 утра и отправляется на работу, а вечером ложится спать. Вроде бы всё, как у всех. Если бы не одно «но» — каждый день молодой человек проживает две жизни. Пока одна личность спит, вторая ведёт активную жизнь. И каждое утро Джонатану приходит видео от самого себя — о том, что он делал во второй половине дня. (   Читать дальше...   )Производство: США / Manis Film, Raised by WolvesЖанр: Фантастика, ДрамаРежиссер: Билл ОливерАктеры: Энсел Элгорт, Сьюки Уотерхаус, Патриша Кларксон, Мэтт Бомер, Дуглас Ходж, Сулейман Си Саване, Шунори Раманатхан, Джо Эгендер, Йен Унтерман, Алок ТевариПеревод: Профессиональный (многоголосый закадровый) iTunes, Любительский (многоголосый закадровый) HDrezka StudioСубтитры: АнглийскиеПродолжительность: 01:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897230B1061DAAD4F9F1EA64B674C6DD515CAC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203518   (787416) от 03.02.2018
+
+Windows 7 SP1 x86 x64 AIO Release by StartSoft 05-2018 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на компьютеры операционной системы Windows 7 SP1 с разной разрядностью. В ее состав входит образ ISO который предназначен для записи на флешку от 16 Гигабайт и выше. В сборке поддерживается установка системы с языковыми интерфейсами на английском, русском и украинском языках. Операционная система  устанавливается на том языке, который (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA7467ADB1453293B59B713A105EF8E7CB117EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203524   (787412) от 03.02.2018
+
+loftschool | Комплексное обучение JavaScript (2017-2018) PCRec [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс разрабатывался и задумывался с самого основания нашей школы. Мы долго работали над ним и теперь готовы вам представить самый глубокий и полноценный курс по JavaScript в русскоязычном интернете. Если вы готовы погрузиться в захватывающий мир JavaScript-программирования и настроены получить максимум знаний и навыков — то вы пришли в правильное место. Наша (   Читать дальше...   )Жанр: Программирование, JavaScriptПродолжительность: 53:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23299B13598ADF6D4F3C15C8639C6DDFBE55F82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511909   (787273) от 24.11.2021
+
+«Блокировать, зачищать, понижать рейтинг». Новые идеи по развитию интернета в России
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_787273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супруг Натальи Касперской Игорь Ашманов собирается предложить Президенту России Владимиру Путину идею по созданию в стране реестра «токсичного» контента. Под ним он подразумевает, помимо прочего, ЛГБТ-сообщества и мнения людей о нежелании становиться родителями. У Ашманова уже готова концепция реестра.Борьба с «токсичным» интернетом
+В России может появиться еще один (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511783   (787269) от 24.11.2021
 
 Поклонская заявила о нарушении прав человека из-за QR-кодов
@@ -6,7 +163,7 @@
 >>18
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_787269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_787269.jpg" />
 </div>
 
 
@@ -33,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787266.jpg" />
 </div>
 
 
@@ -59,7 +216,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 11.20
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787264.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ Cent Browser 3.8.5.52 Beta + Portable [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787159.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_787147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_787147.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787145.jpg" />
 </div>
 
 
@@ -165,7 +322,7 @@ Constructor Paravis Flash ver:Beta 01.2019 [UEFI | x86/x64 | RU/EN]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786904.jpg" />
 </div>
 
 
@@ -194,7 +351,7 @@ Gigabyte AORUS AD27QD — первый тактический игровой м�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_786899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_786899.jpg" />
 </div>
 
 
@@ -220,7 +377,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 01.2019 1DVD v
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786897.jpg" />
 </div>
 
 
@@ -246,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786770.jpg" />
 </div>
 
 
@@ -273,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786769.jpg" />
 </div>
 
 
@@ -299,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_786619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_786619.jpg" />
 </div>
 
 
@@ -325,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_786497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_786497.jpg" />
 </div>
 
 
@@ -351,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_786494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_786494.jpg" />
 </div>
 
 
@@ -377,7 +534,7 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786487.jpg" />
 </div>
 
 
@@ -403,7 +560,7 @@ Resident Evil 2 Remake / Biohazard RE:2 (2019) [Ru/Multi] (1.04/dlc) Repack West
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786484.jpg" />
 </div>
 
 
@@ -429,7 +586,7 @@ S.T.A.L.K.E.R. Lost Alpha DC Extended (2020) [Ru/En] (1.4008) Repack/Mod Koltira
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786483.jpg" />
 </div>
 
 
@@ -455,7 +612,7 @@ Windows 10 32in1 (2004 + LTSC 1809) x86/x64 +/- Office 2019 x86 by SmokieBlahBla
 >>20
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786482.jpg" />
 </div>
 
 
@@ -484,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_786467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_786467.jpg" />
 </div>
 
 
@@ -510,7 +667,7 @@ qBittorrent 3.3.12 Stable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786463.jpg" />
 </div>
 
 
@@ -521,163 +678,6 @@ qBittorrent - бесплатный, мощный и удобный в работ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE53482FE626E1E8F0AC84B54BC296BEE8C32BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123023   (786440) от 07.04.2017
-
-NVIDIA GeForce Desktop 381.65 WHQL + For Notebooks [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786440.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (UDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14028A685DA00B5AEA79C4452D63DFCBA1C414B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123147   (786432) от 07.04.2017
-
-Защитники (2017) WEB-DLRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во времена Холодной войны секретная организация «Патриот» создала отряд супергероев, в который вошли участники из различных советских республик. Долгие годы героям приходилось скрывать свою сущность, однако в тяжелые для страны времена они вновь берутся за дело.Производство: Россия / Enjoy MoviesЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Сарик АндреасянАктеры: Антон Пампушный, Санжар Мади, Себастьян Сисак, Алина Кизиярова-Ланина, Станислав Ширин, Валерия Шкирандо, Вячеслав Разбегаев, Александр Семенов, Владимир Бутенко, Мила Максимова ...Перевод: Не требуется (язык русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4763C38469CFC2B69AD0A31D3F70CB6BD359BCBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122763   (786428) от 07.04.2017
-
-Детям до 14 лет хотят запретить соцсети
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_786428.jpg" />
-</div>
-
-
-###  Подробнее
-
-А остальных собираются пускать только под настоящим именем по паспорту
-Заксобрание Ленинградской области разработало законопроект "О правовом регулировании деятельности социальных сетей", предполагающий строгий порядок допуска и идентификации пользователей, пишет газета "Известия" со ссылкой на имеющийся в ее распоряжении текст документа.При регистрации (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123107   (786426) от 07.04.2017
-
-Защитники (2017) WEB-DL [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во времена Холодной войны секретная организация «Патриот» создала отряд супергероев, в который вошли участники из различных советских республик. Долгие годы героям приходилось скрывать свою сущность, однако в тяжелые для страны времена они вновь берутся за дело.Производство: Россия / Enjoy MoviesЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Сарик АндреасянАктеры: Антон Пампушный, Санжар Мади, Себастьян Сисак, Алина Кизиярова-Ланина, Станислав Ширин, Валерия Шкирандо, Вячеслав Разбегаев, Александр Семенов, Владимир Бутенко, Мила Максимова ...Перевод: Не требуется (язык русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DDDEEF9749403CF2FA12EA356C399A2CB780933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123065   (786421) от 07.04.2017
-
-Microsoft раскрыла подробности о сборе данных в Windows 10
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_786421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Microsoft обнародовала подробности относительно диагностических данных, которые будут собираться в системе Windows 10 Creators Update, запланированной к выходу 11 апреля нынешнего года.«Впервые мы публикуем полный список диагностических данных, собираемых на основном уровне. Мы также приводим подробную сводку данных о пользователях, собираемых как на основном, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122766   (786243) от 08.04.2017
-
-Navitel / Навител Навигатор v9.8.2 Full для карт релиза Q1-2017 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: пираткаРелиз состоялся: 05.04.2017Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF65D3D11A894FC089ADBE1E9488F7A12214364
 ```
 
 https://mybot314.ru/tekegram_catalog/

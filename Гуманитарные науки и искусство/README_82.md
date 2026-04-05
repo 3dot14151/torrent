@@ -1,85 +1,3 @@
-###  Публикация: 1067038   (409413) от 27.10.2016
-
-РГБ (изд.) | Учимся читать славянские рукописи (2014) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409413.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре говорится о трудностях, которые могут возникнуть у желающих читать славянские рукописи. Приводятся буквы церковнославянского алфавита, сведения о том, как записывались числа, сокращались слова. В издании есть небольшой словарь малопонятных слов.Жанр: УчебникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60C3B05058BB6CA79CC35C20249691E1542A4C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168743   (408851) от 24.09.2017
-
-В. И. Ленин | Национальный вопрос (1936) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408851.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издательства:
-
-Настоящая брошюра, как и другие, входящие в первую ленинскую библиотечку, содержит в себе работы, написанные Лениным до 1914 г. Часть более поздних работ Ленина по национальному вопросу включена во вторую библиотечку, охватывающую период 1914—1923 гг.Жанр: История, политология, экономика, правоведение, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DFB3274609553AA90ECFA5A2884128F229AF9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413634   (408425) от 04.10.2020
-
-В. И. Ленин | Статьи о литературе (1942) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из огромной сокровищницы литературных высказываний В. И. Ленина в настоящий сборник включены лишь те основные статьи и отрывки, касающиеся литературных вопросов, которые необходимы учащимся средней школы при изучении ими истории и теории литературы.
-
-Кроме высказываний самого Владимира Ильича Ленина о писателях и отдельных художественных произведениях, в сборнике (   Читать дальше...   )Жанр: История, политология, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7171C3BC1B27BE6DD79708AD9079BD3C8A320855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948712   (408401) от 22.10.2015
 
 Й. Сигети | Дени Дидро - выдающийся представитель воинствующего материализма XVIII века (1963) [DJVU]
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408401.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408263.jpg" />
 </div>
 
 
@@ -140,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408147.jpg" />
 </div>
 
 
@@ -166,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408053.jpg" />
 </div>
 
 
@@ -192,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406796.jpg" />
 </div>
 
 
@@ -220,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405350.jpg" />
 </div>
 
 
@@ -246,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403887.jpg" />
 </div>
 
 
@@ -273,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403837.jpg" />
 </div>
 
 
@@ -300,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403834.jpg" />
 </div>
 
 
@@ -327,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403187.jpg" />
 </div>
 
 
@@ -355,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403155.jpg" />
 </div>
 
 
@@ -381,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403151.jpg" />
 </div>
 
 
@@ -407,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403101.jpg" />
 </div>
 
 
@@ -433,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402474.jpg" />
 </div>
 
 
@@ -459,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399816.jpg" />
 </div>
 
 
@@ -485,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399808.jpg" />
 </div>
 
 
@@ -511,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399725.jpg" />
 </div>
 
 
@@ -537,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399720.jpg" />
 </div>
 
 
@@ -563,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399628.jpg" />
 </div>
 
 
@@ -590,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399624.jpg" />
 </div>
 
 
@@ -616,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399422.jpg" />
 </div>
 
 
@@ -643,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399092.jpg" />
 </div>
 
 
@@ -670,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396737.jpg" />
 </div>
 
 
@@ -681,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FB1DE22F6929CA6E5A5033E14B3CB4F6B372BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171429   (396722) от 04.10.2017
+
+Флавий Филострат | Жизни софистов [Том I] (2017) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396722.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Жизни софистов» - один из четырех дошедших до нас сборников древнегреческих биографий, до сих пор издававшийся по-русски только в отрывках: завершивший этот сборник в 237/238 гг. н. э. Флавий Филострат был самым знаменитым представителем литературного семейства Филостратов, оставивших нам солидное и разнообразное собрание софистической прозы, создававшейся на протяжении (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:360CFA76EB98E0AA143DE7386826651574D9151C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171446   (396677) от 04.10.2017
+
+А.Г. Дугин | Ноомахия. Войны ума. Латинский Логос. Солнце и Крест (2016) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Латинский Логос. Солнце и Крест» продолжает цивилизационный цикл «Ноомахия» А. Дугина и описывает еще одно западноевропейское пространство в его базовых, самобытных культурно-исторических составляющих — латинский мир (Италия, Испания, Португалия). Сложившись в Античности, достигнув апогея в эпоху возвышения Рима, латинский Логос стал полюсом западного христианства, (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AC05D479E7F222DCC758BFD449F6ED3C5BCEBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171449   (396626) от 04.10.2017
+
+А.Г. Дугин | Ноомахия. Войны ума. Цивилизации границ. Семиты. Монотеизм Луны и Гештальт Ва'ала (2017) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Александра Дугина посвящена исследованию семитской цивилизации как многоуровневого явления с множеством самостоятельных полюсов, развивающегося самостоятельно, но одновременно вступающего в активное взаимодействие с окружающими культурами. Среди многочисленных уровней и полюсов семитской цивилизации автор выделяет следующие: ассиро-вавилонский, финикийский, (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3966D83B19A849375E93C5BFDCA92A2E551A0814
 ```
 
 https://mybot314.ru/tekegram_catalog/

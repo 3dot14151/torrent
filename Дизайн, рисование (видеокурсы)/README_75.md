@@ -1,3 +1,55 @@
+###  Публикация: 1662885   (187502) от 19.09.2023
+
+Ирина Шпакова | Тюльпаны (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный мастер — класс по живописи рассчитан на начинающих, людей без каких либо художественных навыков.Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 01:25:03Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CCA92C8AC2564D4EE2F43A1E492961FA0FE126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662890   (187500) от 19.09.2023
+
+Ирина Шпакова | Букет роз (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187500.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам художника Carl Holger Fische.Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 01:39:23Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CE47B955876EA5656AA91F2D835BF66666AF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662888   (187499) от 19.09.2023
 
 Ирина Шпакова | Букет (2023) WEB-DL [AD] [RU]
@@ -6,7 +58,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187499.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187472.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187467.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187461.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Skillshare, Daniel Kim | Spaceship Concept Art with Affinity Photo and Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187378.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Skillshare, Daniel Kim | Space Marine Helmet - 3D Game Art with Blender and Subs
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187369.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187363.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ Skillshare, Daniel Kim | Sci-Fi Character Armor with Blender and Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187358.jpg" />
 </div>
 
 
@@ -224,7 +276,7 @@ Skillshare, Daniel Kim | Sci-Fi Vehicle Creation with Blender and Substance Pain
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187352.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187170.jpg" />
 </div>
 
 
@@ -280,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187157.jpg" />
 </div>
 
 
@@ -306,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187155.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187151.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187142.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187139.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ Z-art school, Татьяна Зубова | Горная река (2020) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187117.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ Gumroad, Florian Bard | Houdini All combined Lightning Setups (2023) WEB-DL [AD]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187042.jpg" />
 </div>
 
 
@@ -467,7 +519,7 @@ Udemy, Tri Dimension Education | Complete Houdini FX 19.5 Course Beginner To Adv
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186999.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186848.jpg" />
 </div>
 
 
@@ -521,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186831.jpg" />
 </div>
 
 
@@ -547,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186821.jpg" />
 </div>
 
 
@@ -573,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186804.jpg" />
 </div>
 
 
@@ -602,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186779.jpg" />
 </div>
 
 
@@ -629,7 +681,7 @@ Liveclasses, Алексей Шадрин | Тайны модернизма: Эг
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186765.jpg" />
 </div>
 
 
@@ -642,64 +694,6 @@ Liveclasses, Алексей Шадрин | Тайны модернизма: Эг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA996FA4CC09C407555540A2AAFAE28A58C94886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663452   (186750) от 21.09.2023
-
-Елена Якимова | Практикум Цвет (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друзья, вы давно просили меня провести мастер-класс или курс по замешиванию оттенков и работе с цветом.
-Я долго думала над форматом этого обучения, информации очень много, а еще нужны задания и обратная связь, без этого качественной проработки темы не получится. В общем, думала я, думала и, наконец, придумала!
-
-Приглашаю вас на трехнедельный практикум “ЦВЕТ”, это (   Читать дальше...   )Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 07:53:11Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610672CDAEA0AFCD966FEA75C4D3B990E83207C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663461   (186729) от 21.09.2023
-
-GreyscaleGorilla, Zach Corzine | Next Level Mograph Procedural Systems in C4D (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заставьте вашего клиента сказать «ВАУ!» Изучите новые мощные методы Mograph, которые сделают каждый создаваемый вами проект еще более удивительным.
-
-Да, это верно. Cinema 4D может это сделать.
-(   Читать дальше...   )Производство: GreyscaleGorillaЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 03:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C7CF57128AC9EDA01835B636ED81F7BF1E48B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

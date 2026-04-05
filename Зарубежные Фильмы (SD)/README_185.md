@@ -1,3 +1,81 @@
+###  Публикация: 1505191   (805709) от 26.10.2021
+
+Последняя капля / On the Rocks (2020) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаура думает, что она счастлива замужем, но, когда её муж Дин начинает проводить вечера в офисе с новой коллегой, в её голову закрадываются сомнения. Лаура обращается за помощью к своему харизматичному и импульсивному отцу Феликсу, который предлагает начать слежку за Дином. Когда отец и дочь отправляются в приключение по ночному Нью-Йорку, неожиданно для себя они (   Читать дальше...   )Производство: США / A24, American Zoetrope, Apple Original FilmsЖанр: Драма, комедияРежиссер: София КопполаАктеры: Билл Мюррей, Рашида Джонс, Марлон Уайанс, Джессика Хенвик, Дженни Слейт, Лиянна Мускат, Александра Мэри Реймер, Анна Шанель Реймер, Барбара Бэйн, Джулиана КэнвилдПеревод: Дублированный (Apple TV+)Язык озвучки: РусскийСубтитры: Русские (forced hardsub, full), Украинские (full) отдельными файламиПродолжительность: 01:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AAAC9FBB30299BA3A605BD02C0A6B9357B1038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505170   (805703) от 26.10.2021
+
+Подводный дом / The Deep House (2021) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805703.jpg" />
+</div>
+
+
+###  Подробнее
+
+У молодой и современной пары, которая отправляется во Францию, чтобы исследовать подводный дом и поделиться своими находками в социальных сетях, серьезно меняются планы, когда они попадают внутрь странного дома, расположенного на дне моря. Их присутствие пробуждает темный дух, который преследует дом.Производство: Франция, Бельгия, Apollo Films, Centre National de la Cinématographie (CNC), Forecast Pictures, Investisseurs Tax ShelterЖанр: Ужасы, триллерРежиссер: Александр Бустильо, Жюльен МориАктеры: Камилль Роу, Джеймс Джаггер, Эрик Савен, Каролина МассеПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA2E418CC38C16852BAAD3B2B7F08ED0B28CE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119962   (805476) от 29.03.2017
+
+Предсмертная записка / Suicide Note (2016) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Амбициозная 21-летняя Молли Уайтс, ученица психологического факультета просыпается однажды утром, узнав что её соседка по комнате совершила самоубийство, оставив после себя предсмертную записку, которая так хорошо характеризует последние моменты из жизни Эммы. Но когда Молли начинают преследовать сновидения о смерти Эммы, Молли понимает, что это не просто самоубийство, (   Читать дальше...   )Производство: СШАЖанр: ТриллерРежиссер: Джейк ХелгренАктеры: Кирби Блисс Блэнтон, Брэнт Догерти, Лекси Джованьоли, Стивен Коллетти, Гэбриэлль Картерис, Кайл Лезерберри, Максвелл Хигсмит, Мередит МэйПеревод: Многоголосый закадровый, любительский (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:23:44Реклама: Присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3FA909A97E86C246B17035F54EFA3FFDA7BC512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010169   (805456) от 23.04.2016
 
 Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805456.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805367.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805244.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805239.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805234.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804954.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804946.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804907.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804885.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804844.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804839.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804815.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804808.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804789.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804655.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804583.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804262.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804258.jpg" />
 </div>
 
 
@@ -472,32 +550,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505374   (804248) от 27.10.2021
-
-Посредник смерти / Mr. In-Between (2001) DVDRip [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон – жестокий убийца, состоящий на службе эксцентричных господ-садистов. Но с каждым делом он всё больше ощущает себя подвешенным в воздухе – насилие, которому он посвятил всего себя, не доставляет ему удовольствия, а перспектива окончательно превратиться в собственного хозяина не вызывает у него большой радости. Однажды Джон встречает школьного друга; тот женат (   Читать дальше...   )Производство: Великобритания, Enterprise Films, Phantom Pictures Ltd.Жанр: Триллер, мелодрама, криминалРежиссер: Пол СароссиАктеры: Эндрю Ховард, Джеральдин О’Роу, Эндрю Тирнан, Дэвид Колдер, Марк Бентон, Клайв Расселл, Саид Джаффри, Клинт Дайер, Питер Вэддингтон, Джина ЯшерПеревод: Профессиональный двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896A209D9A802242D3309FB0C14BB7FFB61E8BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198777   (804226) от 13.01.2018
 
 Молодой Карл Маркс / Le jeune Karl Marx (2017) HDRip [MVO] [AD]
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804226.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804009.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804007.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803999.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803998.jpg" />
 </div>
 
 
@@ -621,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97085FB3205387A02A91E0302855CEDF740ABCA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198748   (803973) от 13.01.2018
-
-Уиджи: Проклятие Вероники / Veronica (2017) HDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уиджи — это доска для спиритических сеансов вызова душ умерших. Ее называют доской Дьявола, потому что общение с загробным миром не обходится для живого человека без последствий. Тот, кто берет в руки Уиджи, должен знать, что она обладает страшной властью открывать врата чудовищному злу, противостоять которому практически невозможно.
-Вероника, красивая и веселая (   Читать дальше...   )Производство: Испания / Apaches Entertainment, Expediente La PelГ­cula A.I.E., Film FactoryЖанр: Ужасы, ДрамаРежиссер: Пако ПласаАктеры: Сандра Эскасена, Бруна Гонсалес, Клаудия Плейсер, Иван Чаверо, Ана Торрент, Консуэло Трухильо, Анхела Фабиан, Карла Кампра, Миранда ГасПеревод: Одноголосый закадровый, любительский (Хихикающий доктор)Субтитры: отсутствуютПродолжительность: 01:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C7050119A9CFC198259CA34DF80DB3DAFCC69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010469   (803969) от 24.04.2016
-
-Понты / Everybody Loves Sunshine / Busted (1998) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двоюродные братья Терри и Рей вышли на свободу и вновь возглавили банду, которая давно враждует с триадами. На самом деле Рей хочет «завязать» и заняться музыкой. Узнав об этом, Терри развязывает кровавую резню, и Рей, чтобы не бросить брата в беде, оказывается втянутым в нее.Производство: Великобритания, Gothic FilmsЖанр: Боевик, Драма, КриминалРежиссер: Эндрю ГотАктеры: Дэвид Боуи, Эндрю Гот, Рэйчел Шейли, Клинт Дайер, Дэвид Бэйкер, Грэм Брайан, Винсент Дэвис, Голди, Джэйн Дрэйвен, Кевин Джон ХарвиПеревод: Двуголосый закадровыйПродолжительность: 01:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3032995427272297F35A5C2EAB5710126B45E35
 ```
 
 https://mybot314.ru/tekegram_catalog/

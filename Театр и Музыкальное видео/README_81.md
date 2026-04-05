@@ -6,7 +6,7 @@ Beat Club - Progressive Times - Vol3. 1970 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472731.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Beat Club - Progressive Times - Vol 2. 1970 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472726.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Def Leppard: Hysteria at the O2 (2018) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472536.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471962.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Deadmau5 - Live @ Earl's Court (2011) [Progressive House / Minimal Trance / Tech
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471949.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Scorpions - Life In Wacken (2012) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471732.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Graham Bonnet Band - Live...Here Comes the Night (2017) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471675.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471594.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471536.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ ZAZ - Sans Tsu Tsou (Live) (2012) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471095.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Aerosmith - Rocks Donington (2014/2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470597.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469518.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Avril Lavigne - Wish You Were Here (2011) HDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469420.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Procol Harum - Live At The Union Chapel (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469255.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Lara Fabian - Un regard 9 (2006) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469058.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Red Hot Chili Peppers — Live At Bonnaroo Festival (2012)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468866.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468581.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Sade - Bring Me Home - Live 2011 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468547.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Metallica - The Global Citizen Festival (2016) HDTV [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468118.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Beat Club - Progressive Times - Vol.4 1970-71 (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467982.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Beat Club - Progressive Times - Vol5. (1971-72) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467961.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Secret - Poison (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467683.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ MC Yankoo feat. SHA - Afterparty (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467674.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ R-Evolution Band Live - The Dark Side of the Wall (2013) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467662.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467225.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ DJ King Serenity feat. Boonty Rayne Swagger - Body Dance (2012) [H.264/1080p] WE
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467209.jpg" />
 </div>
 
 

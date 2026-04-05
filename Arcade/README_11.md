@@ -6,7 +6,7 @@ LEGO The Hobbit (2014) [Ru/En] (1.0.0.21750) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795761.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Abyss Odyssey (2014) [Ru/En] (1.14) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795463.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Human: Fall Flat (2016) [Ru/Multi] (107976214) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795421.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04/dlc) License CPY
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795401.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Zombies on a Plane (2016) [Ru/Multi] (1.0 u5/dlc) License 0x0007
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795161.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ LEGO Pirates of the Caribbean / LEGO Пираты Карибского моря 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794774.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Treasures of the Aegean (2021) [Multi] (1.0) License DARKSiDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794745.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hidden Dragon: Legend (2018) [En/Ja/Ch] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794596.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79.d2f5cadd/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794542.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Apocalypse Hotel (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794419.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ori and the Blind Forest (2016) [Ru/Multi] (1.0) Repack R.G. Origami [Definitive
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794343.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Lightbringer (2021) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793848.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ My Singing Monsters Playground (2021) [Ru/Multi] (2020.3.20.4310246) License TiN
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793737.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ OK K.O.! Let's Play Heroes (2017) [Ru/Multi] (1.0.0.157) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793700.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Blightbound (2021) [Ru/Multi] (1.1-128893/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793676.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Orcs Must Die! 3 (2021) [Ru/Multi] (1.1.0.0/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793675.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ The Bridge (2013) [Ru/Multi] (30.04.2016) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793326.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Ori and the Blind Forest (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Definitiv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793202.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Mortal Kombat: Komplete Edition (2013) [Ru] (1.07) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792705.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Epic Chef (2021) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792625.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Binding of Isaac: Rebirth (2014) [Ru/Multi] (1.75/dlc) License PLAZA [Comple
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792551.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ SOULCALIBUR VI / SOULCALIBUR 6 (2018) [Ru/Multi] (02.31.01/dlc) License CODEX [D
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792544.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Pray for Death (1996) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792334.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Halfway (2014) [En] (1.2.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790882.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790793.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Dead or Alive 5: Last Round (2015) [Ru/En] (1.10C/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790777.jpg" />
 </div>
 
 

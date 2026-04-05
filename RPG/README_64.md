@@ -1,3 +1,55 @@
+###  Публикация: 1764044   (35153) от 05.12.2024
+
+Vaporum: Lockdown (2020) [Ru/Multi] (Build #80) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vaporum: Lockdown - это приквел знаменитой игры с приключениями в подземельях и обстановкой в стиле стимпанк Vaporum. Это одиночная игра с одним персонажем, передвижением по сетке и видом от первого лица в оригинальной стимпанковой обстановке, вдохновленная такой классикой жанра, как Dungeon Master I и II, играми серии Eye of the Beholder и более современными Legend (   Читать дальше...   )Тип издания: RepackРазработчик: Fatbot Games, s. r. o.Жанр: Ролевая игра, Экшны, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773FE33782EECDBFDAEC86031DE25898690D5213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711473   (34976) от 07.12.2024
+
+Lords of the Fallen (2023) [Multi] (1.6.49/dlc) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lords of the Fallen приглашает игроков в мрачный мир фэнтези, где вы станете одним из легендарных Темных крестоносцев и будете бороться против бога-демона Адира. Lords of the Fallen - это эпическое приключение на огромной территории, которая в пять раз больше мира оригинальной игры. Адир терзал страну много веков, и теперь его нужно свергнуть снова. Пройдите по миру (   Читать дальше...   )Тип издания: SceneРазработчик: HEXWORKSЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3AB41DC374977A08FE3CA60F2935EADA7F82BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764439   (34958) от 07.12.2024
 
 ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (2024) [Ru/Multi] (1.0) Scene Tenoke
@@ -6,7 +58,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34958.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Alder's Blood (2020) [Ru/Multi] (2.0.1) License GOG [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34934.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Alder's Blood: Prologue (2020) [En] (1.0.20a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34888.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Bad 2 Bad: Apocalypse (2024) [Ru/Multi] (Build 16701862/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34572.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Sea of Stars (2023) [Ru/Multi] (1.1.53846) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34431.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.4.63.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34260.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Archons (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34223.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34220.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sir Whoopass: Immortal Death (2022) [En] (1334) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34165.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Keylocker | Turn Based Cyberpunk Action (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34087.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Rogue Citadel (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33956.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Barony (2015) [Ru/En] (4.3.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33869.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ SpiderWeb Games (Avadon, Avernum, Exile, Geneforge, Nethergate, Subterra) (1995-
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33830.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (Build 16501847/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33613.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Atelier Ryza 3: Alchemist of the End & the Secret Key (2023) [Multi] (1.7.0.0/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33386.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Neptunia Game Maker R:Evolution Deluxe Edition (2024) [Multi] (UWP/dlc) Scene Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33345.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Diablo II (2): Resurrected (2021) [Ru/En] (1.6.81914) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33314.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ The Iron Oath (2022) [En] (1.0.021) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33214.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ The Legend of Heroes: Trails to Azure (2023) [Multi] (1.1.19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33111.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ V Rising (2024) [Ru/Multi] (1.0.10.2-r83846-b3/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33104.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Tokyo Clanpool (2024) [Multi] (0.30) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33100.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Glorious Companions (2019) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32991.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.1.7b.fix/dlc) Repack Wanterlude [Impe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32890.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32880.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Banishers: Ghosts of New Eden - это увлекательная Action-RPG, к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF984C488D18B3EC2E2BE324EB0071E55D31F0AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769358   (32761) от 28.12.2024
-
-Dragon Quest Monsters: The Dark Prince (2024) [Multi] (1.0.1) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Составьте собственную команду чудовищ из игровой серии DRAGON QUEST и участвуйте вместе с ней в захватывающих битвах с врагами. Нанимайте монстров в диких землях и сочетайте их между собой, чтобы синтезировать новых существ. Более 500 оригинальных чудовищ и переработанная система синтеза открывают простор для бесконечных экспериментов, позволяя создавать симпатичных (   Читать дальше...   )Тип издания: SceneРазработчик: Square EnixЖанр: Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий, Японский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Японский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687414FD41210347EDAB1FB4FB12706085321FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769605   (32637) от 29.12.2024
-
-Dungeon Defenders (2011) [Multi] (10.0.0/dlc) Scene TinyIso
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dungeon Defenders – интересная игра, которая сочетает в себе огромное количество разнообразных жанров: экшен, стратегия, ролка, РПГ. Данная игра изначально рассчитана на многопользовательское подключение. Перед самым началом, нам предстоит выбрать наиболее интересный класс персонажа, его стиль экипировки и цвет магического кристала. Этот предмет является самым жизненно (   Читать дальше...   )Тип издания: SceneРазработчик: Chromatic GamesЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA50E3247A48603A462C530D719EF2330D87BA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

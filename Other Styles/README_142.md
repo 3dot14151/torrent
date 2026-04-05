@@ -1,3 +1,61 @@
+###  Публикация: 1338125   (269805) от 15.11.2019
+
+Sina Vodjani - Indian Colours (2002) [FLAC|Lossless|tracks + .cue] <New Age, Ethnic Fusion>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Shanti (4:04)
+02. Indian Colours (6:30)
+03. Emaho (6:02)
+04. Alap (3:21)(   Читать дальше...   )Жанр: New Age, Ethnic FusionПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA1B7A3EDF7B64B158232BC4D33403A3DA35FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338193   (269775) от 15.11.2019
+
+VA - Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269775.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Soulfood - Wisdom (Prayer and Heart) (7:21)
+2.Bernie Krause - Gaia Dreams (6:16)
+3.Vangelis - Ask the Mountains (7:53)
+4.Sandelin & Ekman - 1.618 i stereo (3:27)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 02:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E63196A4533B126C49250E9199216404C6B4B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338516   (269736) от 15.11.2019
 
 Faun - Marchen & Mythen (2019) [MP3|320 Kbps] <Folk, Medievol>
@@ -6,7 +64,7 @@ Faun - Marchen & Mythen (2019) [MP3|320 Kbps] <Folk, Medievol>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269736.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Mokadelic - Gomorra: La Serie (2019) Expanded Edition [FLAC|Lossless|WEB-DL|trac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269734.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Jeff Pearce - From the Darker Seasons (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269510.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Michael Logozar - Starlight (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269508.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Kamasutra Tantra Massage - Just Relax (2013) [MP3|320 Kbps] <Relax, Chillou
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269430.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Ed Harcourt - Beyond the End (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269186.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Horizon Zero Dawn: The Frozen Wilds Original Soundtrack (2017) [FLAC|Lossle
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269106.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Ashaneen - Dancing on the Edge of Infinity (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268868.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA – Super Instrumental Vol.2 (2002) Величайшие хиты XX века
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267982.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Serj Tankian - Furious / Легенда о Коловрате (2017) [MP3|320 Kb
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267760.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Latin Hits 2018 - 60 Super Exitos Latinos - Club Edition (2017) [MP3|320 Kb
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267572.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Leonhardt North - The Spirit Of Pandora (2010) [MP3|256 kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267474.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Kartsy Hatakka & Kimmo Kajasto - Max Payne 2: The Fall Of Max Payne (Original So
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267387.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Gregorian - Best Of 1990-2010 (2011) [FLAC (Image+.CUE), lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267383.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267334.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267007.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Kronos Quartet & Trio Da Kali - Ladilikan (2017) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_266983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266983.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motio
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266942.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Оригина
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266936.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Оригина
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266874.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motio
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266868.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Simonetti, Morante, Pignatelli - Tenebre (1982) The Complete Original Motion Pic
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266727.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - All American Country Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Countr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266153.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Wings Of An Angel - The Golden Cage Of Tradition (2019) [FLAC|Lossless|Web-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266151.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Wings Of An Angel - The Golden Cage Of Tradition (2019) [FLAC|Lossless|Web-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E6885D4C123F893FFE9104489A6EA448CD842BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190424   (265154) от 12.12.2017
-
-Henry Jackman and Matthew Margeson - Kingsman: The Golden Circle Soundtrack (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Eggsy Is Back	5:50
-02	Memories of Harry	2:00
-03	The Golden Circle	1:18
-04	Poppy	2:17(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E68AC170F30E767E728EB4B7D488093821D19B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190938   (265090) от 12.12.2017
-
-Летеница - Берегиня (2017) [MP3|320 Kbps] <Folk Rock, Neofolk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Твой голос
-02. Утро зорями восходило
-03. Нить его судьбы
-04. Младый месяц(   Читать дальше...   )Жанр: Folk Rock, NeofolkПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A19DA9CB5C1536CCD0AFA260CCCDA3223C6885E
 ```
 
 https://mybot314.ru/tekegram_catalog/

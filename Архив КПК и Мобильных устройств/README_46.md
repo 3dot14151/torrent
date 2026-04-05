@@ -6,7 +6,7 @@ Major GUN 3.2 -  Майор ГАН  [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619625.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Heroes and Castles 2 1.00.03.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619623.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Splitter Critters 1.1.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619601.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619572.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Train Sim Pro 3.3.9 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619497.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Heroes of Dragon Age 4.0.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619489.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617598.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ MoreLocale 2 2.3.1 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617514.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Quick PDF Scanner Pro 3.2.314. - Сканирование в PDF-формат [E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617506.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617400.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617397.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Handy Photo 2.3.5 [Ru] - Фоторедактор
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617162.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ QuickEdit Text Editor Pro 1.1.7 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616876.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ ApkCrack 0.7.1[Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616871.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Battery Doctor (Battery Saver) 5.23 (build 5230006) [Ru/Multi] - Професс�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616866.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_616295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616295.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616052.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Mercury watchface by Tove [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615856.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ AndroHelm Antivirus 2.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615784.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614925.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614506.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Maple Player Classic 2.5.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614395.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Jelly Splash 2.6.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614154.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614084.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614009.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Six-Guns [3D] 2.9.0h  [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613932.jpg" />
 </div>
 
 

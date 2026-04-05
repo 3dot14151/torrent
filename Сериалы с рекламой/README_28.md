@@ -1,3 +1,55 @@
+###  Публикация: 1246657   (298400) от 13.11.2018
+
+Последний корабль / The Last Ship (2018) WEBRip [H.264/1080p-LQ] (сезон 5, серии 1-10 из 10) OmskBird [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298400.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Последний корабль» — постапокалиптический экшен-триллер в лучших традициях телеканала SyFy, рассказывающий о том, как команда военного эсминца пытается найти лекарство от смертельного вируса, угрожающего уничтожить все человечество. Продюсером сериала выступил заслуженный голливудский кинематографист Майкл Бэй, проекты которого отличаются исключительной зрелищностью (   Читать дальше...   )Производство: СШАЖанр: фантастика, боевик, триллер, драма, военныйРежиссер: Пол ХолаханАктеры: Эрик Дэйн, Адам Болдуин, Бриджит Риган, Чарльз Парнелл, Тревис Ван Винкл, Марисса Нитлинг, Джоко Симс, Кевин Майкл Мартин, Брен Фостер, Эмерсон Брукс и др.Перевод: Многоголосый закадровый, профессиональный - OmskBirdСубтитры: английскиеПродолжительность: ~00:42:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C61253EB8A45DA5B07687B0172E9AD0E8754D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423856   (297601) от 14.11.2020
+
+Забор / La valla (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в мрачном будущем, где демократические ценности западного общества отступили перед нехваткой природных ресурсов. Испанскую столицу пересекает забор, который разделяет население на социальные слои. Появление диктатуры привело к ущемлению прав жителей. Главные действующие лица – семья, которой придётся преодолеть всевозможные невзгоды и бросить (   Читать дальше...   )Производство: Испания / Atresmedia, Good MoodЖанр: фантастикаРежиссер: Давид Молина Энсинас, Ориоль Феррер, Лукас ХильАктеры: Унакс Угальде, Оливия Молина, Элеонора Векслер, Абель Фольк, Анхела Молина, Ману Фуйола, Daniel Ibáñez, Laura Quirós, Элена Сеихо, Оскар де ла Фуэнте и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAD4280D7B666C62824EE8916FB8C0EB6A5DC46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423857   (297478) от 14.11.2020
 
 Забор / La valla (2020) WEB-DLRip (сезон 1, серии 1-13 из 13) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297478.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295678.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295568.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292859.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285223.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284080.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279769.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278096.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277506.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276826.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272194.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271716.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270893.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269374.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269302.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269254.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268254.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265897.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265896.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265895.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264982.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263637.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_262966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262966.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262812.jpg" />
 </div>
 
 
@@ -617,59 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81C062FEB6FE3AA9923541B8B28298036CFD36CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170350   (262642) от 18.12.2017
-
-Нация Z / Нация Зомби / Z Nation (2017) WEB-DL [H.264/1080p-LQ] (сезон 4, серии 1-13 из 13) OMSKBIRD [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя три года после того, как вирус зомби распространился и выпотрошил всю страну, команда героев должна перевезти необычный груз. Это - единственный выживший после непосредственного воздействия чумы. В Калифорнии последняя функционирующая вирусная лаборатория ждет его крови. Хотя антитела, которые он несет, являются последней надеждой мира получить вакцину, он (   Читать дальше...   )Производство: США / Asylum, The, Go2 Digital MediaЖанр: ужасы, фантастика, боевик, драма, комедияРежиссер: Крэйг Энглер, Джон Хайамс, Карл ШэферАктеры: Том Эверетт Скотт, Майкл Уэлш, Келлита Смит, Анастасия Баранова, Расселл Ходжкинсон, Кит Аллан и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDСубтитры: английскиеПродолжительность: ~00:44:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68DA194E95ECD444D12159E6C71B331C92552B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838025   (257805) от 20.11.2025
-
-Смерть от молнии / Death by Lightning (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет рассказывает о 20-м президенте США Джеймсе А. Гарфилде, который неохотно заступил на пост в 1881 году и правил страной всего несколько месяцев — с марта по сентябрь, — пока его не застрелил фанатик Шарль Гито.
-Сериал основан на книге Кэндис Миллард «Судьба республики: история безумия, медицины и убийства президента».Производство: США / Bighead Littlehead, Origo Catering, Pioneer Stillking FilmsЖанр: драма, биография, историяРежиссер: Мэтт РоссАктеры: Мэттью Макфэдиен, Майкл Шеннон, Бетти Гилпин, Шей Уигэм, Брэдли Уитфорд, Ник Офферман, Laura Marcus, Archie Fisher, Дэвид Найкл, Эндрю Хефлер и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:50:00 серияРеклама: Присутствует бегущая строка
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7953FFF48287EF51F3ED774731A5F645BAAD82B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

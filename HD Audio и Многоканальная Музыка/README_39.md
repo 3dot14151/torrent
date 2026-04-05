@@ -1,32 +1,3 @@
-###  Публикация: 1254967   (370157) от 15.10.2018
-
-Modern Talking - The 1-st Album (1985) [FLAC 2.0 24/96|Lossless|tracks|Vinyl-Rip] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370157.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. You're My Heart, You're My Soul (5.36)
-A2. You Can Win If You Want (3.55)
-A3. There's Too Much Blue In Missing You (5.30)
-A4. Diamonds Never Made A Lady (4.40)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82EF9B7D2F0635157555C873D48345536816A334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328062   (368157) от 28.09.2019
 
 Teruo Yoda & Dreamy Mood Orchestra - The Enchanted (1967) [FLAC 2.0|44,1/16|tracks +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
@@ -35,7 +6,7 @@ Teruo Yoda & Dreamy Mood Orchestra - The Enchanted (1967) [FLAC 2.0|44,1/16|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368157.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Yujiro Mabuchi '68 All Stars - Attractive Tenor-Sax Mood Best 16 (1973) [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368012.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367881.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ The Prodigy - No Tourists (2018) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Drum & Bass,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367684.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367505.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Robert Miles - Organik (2001) [DTSCD][UP]<Trance, Instrumental>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_366279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_366279.jpg" />
 </div>
 
 
@@ -215,7 +186,7 @@ Giorgio & Martin Koppehele - Lichtmond 3: Days Of Eternity (2014) [DTS-ES Discre
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366127.jpg" />
 </div>
 
 
@@ -244,7 +215,7 @@ Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <He
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365728.jpg" />
 </div>
 
 
@@ -273,7 +244,7 @@ Santana - Santana III (1971) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Psychedelic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364973.jpg" />
 </div>
 
 
@@ -302,7 +273,7 @@ Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364260.jpg" />
 </div>
 
 
@@ -331,7 +302,7 @@ Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363130.jpg" />
 </div>
 
 
@@ -360,7 +331,7 @@ The Beatles - Abbey Road (1969) UMG, 2019 [FLAC 5.1|48/24|Lossless|tracks + .cue
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360652.jpg" />
 </div>
 
 
@@ -389,7 +360,7 @@ The Alan Parsons Project - I Robot (1977) Reissue /1982, Arista Records/ [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358285.jpg" />
 </div>
 
 
@@ -418,7 +389,7 @@ Emigrate (Rammstein, Richard Kruspe) - Studio Albums (4 releases) (2007 - 2021) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356764.jpg" />
 </div>
 
 
@@ -447,7 +418,7 @@ Placido Domingo - Placido Domingo And Friends (2000) [FLAC 2.0|48/24|image+.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356699.jpg" />
 </div>
 
 
@@ -476,7 +447,7 @@ Saint-Saens - Symphonies (Carnival of the Animals, Phantasy E flat Major, Organ 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356691.jpg" />
 </div>
 
 
@@ -505,7 +476,7 @@ Three Dog Night - Coming Down Your Way (1975) [FLAC 2.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356688.jpg" />
 </div>
 
 
@@ -534,7 +505,7 @@ The Music Of San Marco/Soloist Di Zagreb - Vivaldi - The Four Seasons/Concerto G
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356551.jpg" />
 </div>
 
 
@@ -563,7 +534,7 @@ Various Artists - Le Silence (2003) [DTS 4.0|44.1/16|image +.cue|SACD] <electron
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356463.jpg" />
 </div>
 
 
@@ -592,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356441.jpg" />
 </div>
 
 
@@ -621,7 +592,7 @@ Paul Mauriat - El Bimbo & Toccata (2019) 1975-73 [DTS 4.0 CD-DA|44.1/16|image+.c
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356126.jpg" />
 </div>
 
 
@@ -650,7 +621,7 @@ Elvis Presley - Our Memories Of Elvis (1979) [FLAC 2.0 24/96|traks(Vinil-Rip)]<R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355313.jpg" />
 </div>
 
 
@@ -685,7 +656,7 @@ Roger Waters – Amused To Death (1992, 2015 Remaster) [DTS 5.1 44.1 /16 | .wav+
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353034.jpg" />
 </div>
 
 
@@ -714,7 +685,7 @@ Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Хри
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351827.jpg" />
 </div>
 
 
@@ -740,7 +711,7 @@ Wishbone Ash - Front Page News (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351353.jpg" />
 </div>
 
 
@@ -754,6 +725,35 @@ A4 Surface To Air(   Читать дальше...   )Жанр: Hard Rock, Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1936BD7C51CAFD46AD48AD09E69728AF3DE41A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072908   (349829) от 14.11.2016
+
+Святослав Рихтер - Сергей Рахманинов – Тринадцать прелюдий (1985) [WavPack|96/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Шесть прелюдий из соч. 23
+01. Фа Диез Минор. Largo (№1)  3:50
+02. Си-Бемоль Мажор. Maestoso (№2)  3:26(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F63D89CDCD569479C8D0A620B3130E10F1477FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

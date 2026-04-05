@@ -1,3 +1,56 @@
+###  Публикация: 1142904   (636810) от 17.06.2017
+
+Чиновники: принятый Госдумой законопроект о запрете анонимности в мессенджерах защищает интересы граждан и бизнеса
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и ожидалось, законопроект о регулировании работы мессенджеров, внесенный на рассмотрение депутатами Госдумы, прошел первое чтение. Документ был поддержан 356 депутатами, двое высказались против, а один — воздержался. Законопроект, предусматривающий поправки к закону «Об информации, информационных технологиях и о защите информации», обязывает организаторов обмена (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255479   (636767) от 03.04.2019
+
+Ходячие мертвецы / The Walking Dead (2018) WEB-DL [H.264/1080p-LQ] (сезон 9, серии 1-16 из 16) FOX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение популярного американского постапокалиптического сериала основанного на одноименных комиксах Роберта Киркмана The Walking Dead.
+В центре сюжета история бывшего шерифа Рика Граймса, который путешествует с сыном Карлом и группой единомышленников по постапокалиптической Америке, оккупированной зомби.Производство: США / American Movie Classics (AMC), Circle of Confusion, Valhalla Motion PicturesЖанр: ужасы, фантастика, триллер, драмаРежиссер: Грег Никотеро, Розмари Родригез, Дэн ЛьюАктеры: Норман Ридус, Мелисса Сюзанн МакБрайд, Эндрю Линкольн, Лорен Кохэн, Данай Гурира, Аланна Мастерсон, Кристиан Серратос, Джош МакДермитт, Сет Гиллиам, Росс Маркванд и др.Перевод: Многоголосый закадровый, профессиональный - FOXСубтитры: английскиеПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A03FE03318D55B8369446699EBCC33979341A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293401   (636765) от 03.04.2019
 
 DAEMON Tools Lite 10.10.0.798 Unlocked [Multi/Ru]
@@ -6,7 +59,7 @@ DAEMON Tools Lite 10.10.0.798 Unlocked [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636765.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636661.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Avira Phantom VPN Pro 2.8.2.29275 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636531.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4549.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636525.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636522.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ Tyranny (2016) [Ru/En] (1.1.0.0023/dlc) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636520.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ WPI x86-x64 by OVGorskiy® 06.2017 1DVD [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636519.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636242.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635539.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ Krai Mira / Край Мира (2016) [Ru/En] (1.1) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635533.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635110.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ Apocalyptica - 8albums + 19singles (1996-2015) [MP3|320kbps] <Cello Metal>
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635005.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Lego Jurassic World / LEGO Мир Юрского периода (2015) [Ru/Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635000.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ Adobe Creative Cloud Collection Июнь 2015 For Windows [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634993.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ Fable Anniversary (2014) [Ru/En] (1.0.867695/dlc) Repack R.G. Games [HD]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634992.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634990.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634808.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ Borderlands Game of the Year Enhanced (2019) [Multi] (1.0) License PLAZA
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634806.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634801.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ Hearts of Iron IV / Hearts of Iron 4 (2016) [Ru/Multi] (1.6.2/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634799.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ Debian GNU/Linux 9.0 + nonfree Stretch [amd64] 4xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634753.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ Total War: Warhammer (2016) [Ru/Multi] (1.6.0/dlc) License STEAMPUNKS
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634576.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ Total War: Warhammer (2016) [Ru/En] (1.6.0/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634569.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634568.jpg" />
 </div>
 
 
@@ -623,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9628C351E5722EB35BE6A1134BF84D838A5107A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053778   (634567) от 18.06.2017
-
-Sony PlayStation 2 (2017) [PS2] [NTSC-U] [License] [Redump 20170613] (#-I)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1871 проверенных по базе ReDump образов игр для PlayStation 2 региона NTSC-U.
-В раздаче НЕТ образов демонстрационных дисков и дисков с бонусами к играм - это тема для отдельной раздачи (в сети пока нет полной коллекции).
-Redump.org это база данных и сообщество, хранящее достоверную информацию о когда либо вышедшей играх на оптических носителях для разных платформ. (   Читать дальше...   )Тип издания: LicenseЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC912D9A80825B2B684CC7E3E6B97AE37F4BD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800971   (634156) от 02.07.2014
-
-Звездные войны / Star Wars (1977-2005) BDRip [720p] [hand made 60fps] [Антология]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: СШАЖанр: Фантастика, Фэнтези, БоевикРежиссер: Джордж ЛукасАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Питер Мейхью, Себастьян Шоу, Иен МакДермид, Фрэнк Оз, Джеймс Эрл ДжонсПеревод: ДублированныйЯзык субтитров: Rus (форс.), Rus (полные), Eng (полные)Продолжительность: 02:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D71848B86FD10EF56CE14788E7E5311B898A35
 ```
 
 https://mybot314.ru/tekegram_catalog/

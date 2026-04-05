@@ -1,32 +1,3 @@
-###  Публикация: 1808520   (10387) от 25.07.2025
-
-Madonna - Veronica Electronica (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Drowned World _ Substitute for Love (BT & Sasha's Bucklodge Ashram New Edit) (05:21)
- 02 - Ray of Light (Sasha Twilo Mix Edit) (05:42)
- 03 - Skin (Peter & Victor's Collaboration Remix Edit) (05:19)
- 04 - Nothing Really Matters (Club 69 Speed Mix Meets the Dub) (05:14)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EDA56A15ACC6A787C2016059667C7CCEF764C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679598   (10175) от 27.07.2025
 
 Alice Cooper - Studio Albums (11 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
@@ -35,7 +6,7 @@ Alice Cooper - Studio Albums (11 releases) (2000-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10175.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10012.jpg" />
 </div>
 
 
@@ -92,7 +63,7 @@ Yello - 12 студийных альбомов (1983-2020) [DSD 128|tracks, imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10007.jpg" />
 </div>
 
 
@@ -121,7 +92,7 @@ Folk Bitch Trio - Now Would Be A Good Time (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9954.jpg" />
 </div>
 
 
@@ -150,7 +121,7 @@ VA - Evangelion Finally (2020) [FLAC 2.0|48/24|image +.cue|MC-Rip] <J-pop, Synth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9951.jpg" />
 </div>
 
 
@@ -179,7 +150,7 @@ Chris Rea - Collection (1979-2017) [DSD 128|tracks|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9859.jpg" />
 </div>
 
 
@@ -208,7 +179,7 @@ Chilly - Collection (1978-1982) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9777.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ Boney M. - Collection (1976-1984) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9767.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ Roger Waters - Roger Waters: This Is Not A Drill (Live From Prague May 2023) (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9658.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Supermax - Collection (1977-1990) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Disc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9547.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9424.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Pink Floyd - Collection (+Solo) (1967-2018) [DSD 128|tracks, image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9276.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Frank Sinatra - The Collection 1953-1962, Original Master Recording, MFSL Box (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9258.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ John Skelley - We Were Lightning (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9211.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Chaos Magic (Caterina Nix & Timo Tolkki project) - Studio Albums (4 releases) (2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8892.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Evanescence - Дискография (11 releases) (1998-2025) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8865.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Presto Ballet - Studio Albums (7 releases) (2005-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8784.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Motograter - Studio Albums (4 releases) (2000-2017) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8707.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Livin' Blues - Blue Breeze (1976) 1978 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8517.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ Leah - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8441.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Pawlo-X Sax - Smooth Jazz Summer 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8411.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ Mr. Saxxy and the Funkaholix - The Dusty Tape Sessions (2025) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8401.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ My Dying Bride - A Map Of All Our Failures (2012)[FLAC|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8383.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ Liv Sin - Close Your Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8377.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ Lord Of The Lost - OPVS NOIR Vol. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8375.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ Lord Of The Lost - OPVS NOIR Vol. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A8B71AB14A0173864EA973647BE2BE992A8CFE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811758   (8350) от 11.08.2025
+
+Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tracks|Vinyl-Rip] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am The Black Wizards (06:26)
+02. Wrath Of The Tyrant (04:15)
+03. Night Of The Graveless Souls (03:15)
+04. Cosmic Keys To My Creations And Times (06:23)Жанр: Symphonic Black MetalПродолжительность: 00:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD41EDF9054CB68CD6C582C4F0D36ED3498A52A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

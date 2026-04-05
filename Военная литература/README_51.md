@@ -1,139 +1,3 @@
-###  Публикация: 1400896   (206874) от 08.08.2023
-
-Susan Southard | Nagasaki: Life After Nuclear War / Нагасаки: жизнь после атомной войны (2015) [EPUB] [EN]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206874.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 августа 1945 года, через три дня после атомной бомбардировки Хиросимы, Соединенные Штаты сбросили вторую атомную бомбу на Нагасаки, небольшой портовый город на самом южном острове Японии. По оценкам, 74 000 человек погибли в течение первых пяти месяцев, а еще 75 000 получили ранения. Опубликованная в честь семидесятой годовщины бомбардировки, книга переносит читателей (   Читать дальше...   )Жанр: История, Военная историяЯзык: АнглийскийИздательство: VikingФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA15B02948BA4A023C9FAC130D517C53A3439A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654068   (205959) от 19.08.2023
-
-В.Н. Шунков | Ракетное оружие (1-е изд.) (2001) [DJVU, PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, иллюстрированная фотографиями и схемами, содержит сведения о ракетном оружии, использовавшемся во 2-й мировой войне, а также о современном ракетном оружии сухопутных войск различных стран мира.
-Для широкого круга читателей, интересующихся развитием военной техники.
-
-Представлено 1-е изданиеЖанр: военная техника, энциклопедияИздательство: "Попурри", МинскФормат: DJVU, PDFКачество: Обработанный скан + OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BA03C2CAEA1E2638A99EBF45C922C1F7616198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607698   (203479) от 27.01.2023
-
-У. Цзы, Сунь Цзы и др. | Искусство войны и кодекс самурая (2023) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эту книгу по праву можно назвать энциклопедией восточной военной философии. Вошедшие в нее тексты четко и ясно регламентируют жизнь человека, вставшего на путь воина. Как жить и умирать? Как вести себя, чтобы сохранять честь и достоинство в любой ситуации? Как побеждать? Ответы на все эти вопросы, сокрыты в книге.
-Древний китайский трактат «Искусство войны», написанный (   Читать дальше...   )Жанр: Древневосточная литература, ФилософияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58DFFE5D11001FA91A38AF2AE3F8357FF52E0A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615359   (202195) от 26.02.2023
-
-А.В. Митяев | Книга будущих командиров [2-е изд.] (2012) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель, историк и солдат Анатолий Митяев в своей самой известной книге рассказывает о великих битвах и тактике знаменитых полководцев, о героических подвигах и уникальном военном оружии всех эпох и народов. Подрастающие историки и командиры совершат увлекательное путешествие во времени, побывают на полях сражений, узнают замыслы военачальников и попытаются понять, (   Читать дальше...   )Жанр: военная история, научно-популярнаяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF10F48FAD656FF3D9FD96317B9EAA32456E5FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616693   (201663) от 07.03.2023
-
-Сергеев Николай | Колокол Люцифера (2023) [PDF, FB2, EPUB, MOBI]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сокращенный вариант книги о пропаганде войны в гитлеровской Германии в период с 1938 года по 1945 год.
-Предназначена для широкого круга читателей.
-Книга была впервые опубликована в 1999 году.Жанр: История, политологияФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C522D00BD13701A4E5B93BCD7C4F4B297FE6D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 705326   (201062) от 19.03.2023
 
 Максим Коломиец | Танки в Финской войне 1939-1940 (2013) [PDF]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201062.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200497.jpg" />
 </div>
 
 
@@ -194,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199445.jpg" />
 </div>
 
 
@@ -220,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199011.jpg" />
 </div>
 
 
@@ -246,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198902.jpg" />
 </div>
 
 
@@ -274,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198051.jpg" />
 </div>
 
 
@@ -300,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197363.jpg" />
 </div>
 
 
@@ -326,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195690.jpg" />
 </div>
 
 
@@ -352,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193869.jpg" />
 </div>
 
 
@@ -378,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188817.jpg" />
 </div>
 
 
@@ -404,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183973.jpg" />
 </div>
 
 
@@ -431,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183641.jpg" />
 </div>
 
 
@@ -457,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182741.jpg" />
 </div>
 
 
@@ -483,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182730.jpg" />
 </div>
 
 
@@ -509,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182717.jpg" />
 </div>
 
 
@@ -535,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182697.jpg" />
 </div>
 
 
@@ -561,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182678.jpg" />
 </div>
 
 
@@ -587,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182672.jpg" />
 </div>
 
 
@@ -614,7 +478,7 @@ Anthony Saunders | Оружие окопной войны 1914-1918/Weapons of t
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182021.jpg" />
 </div>
 
 
@@ -640,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181849.jpg" />
 </div>
 
 
@@ -666,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180653.jpg" />
 </div>
 
 
@@ -677,6 +541,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F74F680DB5BBD38235B0ABBDF75EE5AFA370993E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666810   (178121) от 06.10.2023
+
+Ю.В. Гордеенко и др. (сост.) | Военная авиация (в 2-х частях) (1999) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухтомный справочник содержит сведения (наименование, назначение, внешний вид, отдельные особенности конструкции и применения, основные тактико-технические характеристики) о современных образцах военной авиационной техники и вооружения, которые используются в разных странах мира различными видами и родами войск (ракетными, сухопутными, воздушно-десантными, ПВО, (   Читать дальше...   )Жанр: военная техника, энциклопедияИздательство: "Попурри", МинскФормат: DJVU, PDFКачество: Обработанный скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F81E87FBB0EA1232B571659F83BDAC68A876490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619172   (176566) от 06.12.2020
+
+Н.Н.Головин | Российская контрреволюция в 1917-1918 гг. Том 2 [2011] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга видного военного теоретика генерала Н.Н.Головина представляет собой крупнейший обобщающий труд по истории контрреволюционного Белого движения, впервые изданный в эмиграции в 1937 г. Автор рассматривает весь спектр политических и военных организаций, возникших с марта 1917 г. по конец 1918 г. и пытавшихся противостоять разрушению российской государственности. (   Читать дальше...   )Жанр: Военно-историческая литература, история гражданской войныФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECEC2A9A868AFB07D83B2246E9FDD9DDBD0F2F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430259   (174392) от 09.12.2020
+
+Н.Ф. Дубровин | 349-дневная защита Севастополя (2017) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174392.jpg" />
+</div>
+
+
+###  Подробнее
+
+О Крымской войне 1853–1856 гг. написано немало трудов. Война между Российской империей и коалицией европейских государств за господство на Балканах, в бассейне Чёрного моря и на Кавказе, безусловно, оставила неизгладимый след в истории мировых сражений. Но один из самых запоминающихся эпизодов этой войны заслуживает особого внимания. О доблести и героизме, проявленными (   Читать дальше...   )Жанр: История, Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC9F71491270543C030F6B4B65857C66682B3B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595757   (174387) от 07.12.2022
+
+В.Н. Шунков | Вооружение пехоты (2001) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит сведения о современном вооружении пехотных (мотопехотных) подразделений.
+По каждому из более чем 330 образцов приводятся фотография, краткое описание и тактико-технические характеристики.
+Для широкого круга читателей.Жанр: военная техника, энциклопедияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2183307561048010FC1C9E08C92A703C8D8FB2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595761   (174384) от 07.12.2022
+
+В.Н. Шунков | Бронетехника (2000) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит сведения (назначение, внешний вид, особенности конструкции, тактико-технические характеристики) о боевых разведывательных машинах, боевых машинах пехоты, бронетранспортёрах, состоящих на вооружении различных стран.
+Для специалистов и широкого круга читателей.Жанр: военная техника, энциклопедияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D90E8D9D684ADDDE60FBBCE2CF586A99BA6B5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

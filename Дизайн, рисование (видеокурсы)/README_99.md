@@ -1,3 +1,55 @@
+###  Публикация: 1806379   (11639) от 13.07.2025
+
+Udemy, Manal Abdullal | AutoCAD 2026 2D Essentials – Complete Course (2025) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовы ли вы освоить AutoCAD 2D и уверенно создавать профессиональные технические чертежи? Этот комплексный курс поможет вам пройти путь от новичка до продвинутого пользователя, шаг за шагом освоив все основные инструменты, методы и практические навыки, необходимые для успешной реализации реальных дизайнерских проектов и профессиональной деятельности.Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 03:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0B055F0A71447C061668BB2E1BAC5542FB6E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806546   (11631) от 13.07.2025
+
+Skillshare, Sasha Luvr | Make everything Fluffy with Blender 4 - 3D illustrations for Beginners (2023) WEBRip [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс «Blender 4.0 Mastering: Ваша первая 3D-иллюстрация!» Этот курс — ваш пропуск в увлекательный мир 3D-дизайна с использованием новейшей версии Blender 4.0. Независимо от того, являетесь ли вы начинающим художником, хотите сменить карьеру или просто ищете новое и интересное хобби, этот курс Skillshare станет для вас идеальной отправной точкой.Производство: SkillshareЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915B0D10098A3A367708D6AB19426B5B42859160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806360   (11612) от 13.07.2025
 
 Udemy, CADArtifex LLC | Mastering AutoCAD 2D & 3D for Beginners (2025) WEB-DL [EN]
@@ -6,7 +58,7 @@ Udemy, CADArtifex LLC | Mastering AutoCAD 2D & 3D for Beginners (2025) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11612.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Udemy, Jutta Schneider | Draw With Me in Procreate: Mid-Century Cookbook Illustr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11611.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Skillshare, Mel Armstrong | Illustrate a Children’s Book Cover in Procreate (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11598.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Linkedin, Bart Van de Wiele | Adobe Firefly Essential Training (2025) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11597.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Gumroad, 3dex | How to Make a Stylized Outdoor Environment from Start to Finish 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11424.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Greech, Анастасия Гречушникова | Практический �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7342.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Asya-Design, Александра Бавыкина | Шаблон ArchiCAD (2025
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6344.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Bazanova Art, Ольга Базанова | Волшебные пионы (2024)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5864.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1849.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ ArtStation, LaurentiuN | 3D Weapon Tutorial for Portfolio (2025) PCRec [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1680.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ ArtStation, Vizyon Designers | 50 Hard Surface Kitbash + Full Process Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1200.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ Gumroad, CrossMind Studio | Procedural Thinking - Blender 3D - Small Steps to Bi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1194.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ leManoosh, Mohamed Basil | The Blender Material Mastery - Cracking The Code Of P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1193.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_453.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_341.jpg" />
 </div>
 
 

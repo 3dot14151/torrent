@@ -1,3 +1,55 @@
+###  Публикация: 1636687   (49889) от 16.07.2024
+
+System Shock Remake (2023) [Ru/Multi] (1.2.18898) Scene Rune
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49889.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Shock - это полноценный ремейк хита 1994 года. Вас ждет культовый геймплей с современной HD-графикой, улучшенным управлением, переработанным интерфейсом, новой музыкой и звуковыми эффектами. Кстати, SHODAN, одна из известнейших злодеев видеоигр, была озвучена той же актрисой, что и в оригинале. Это возрождение одной из величайших игр в истории, оказавшей огромное (   Читать дальше...   )Тип издания: SceneРазработчик: Nightdive StudiosЖанр: Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C689B3E0F4A9310AF8CB3EC2517C8A47D5A08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737570   (49641) от 18.07.2024
+
+TeleMorpher (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проснувшись, вы обнаружите себя запертым в таинственной лаборатории... Эта лаборатория полна неизвестных опасностей. Вам предстоит использовать возможности телеморфера, чтобы преодолеть препятствия и раскрыть правду о лаборатории. На каждом уровне вас ждут уникальные испытания и скрытые секреты. Помимо телепортации с помощью телеморфера, вы можете использовать различные (   Читать дальше...   )Тип издания: RepackРазработчик: YuyangЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE97129A141D899B9992FBE84851A4513D7C7125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737616   (49587) от 19.07.2024
 
 Crysis (2007) [Ru/En] (1.1.1.6156) Repack FitGirl
@@ -6,7 +58,7 @@ Crysis (2007) [Ru/En] (1.1.1.6156) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49587.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Scene PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49443.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49381.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Succubus (2021) [Ru/Multi] (15112813/dlc) Scene Rune [Ultimate Edition] [18+]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49007.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Sniper: Ghost Warrior 2 (2013) [Ru/En] (1.0.9/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48933.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Borderlands 3 (2019) [Ru/Multi] (11919094/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48712.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48608.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ No Man's Sky (2016) [Ru/Multi] (5.00.1/dlc) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48606.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48599.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Trepang2 (2023) [Ru/Multi] (77.00/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48447.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Prey (2017) [Ru/Multi] (12742273/dlc) License GOG [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48242.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Trepang2 (2023) [Ru/Multi] (2471/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47826.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ POSTAL 4: No Regerts (2022) [Ru/Multi] (1.3.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47808.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Deadlink (2022) [Ru/Multi] (1.2.27806) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47757.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Apartment No 129 (2024) [Ru/Multi] (Build 15267401) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47701.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Chernobylite (2019) [Ru/Multi] (49522.s04_black_smoke/dlc) Repack Decepticon [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47620.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ PATHOGEN X (2024) [Ru/Multi] (1.0.0.6) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47591.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Scene Doge
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47311.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ STAR WARS: Battlefront (2015) [Ru/Multi] (1.0.7.64833) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47305.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Hexen: Beyond Heretic (1995) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47273.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47094.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Wine Hunt: Aim Fidelity (2024) [En] (2.0.1.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47077.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Unreal 2: The Awakening (2003) [Ru/En] (build 2001) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46758.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Trepang2 (2023) [Ru/Multi] (72.00/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46580.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Trepang2 (2023) [Ru/Multi] (72.00/dlc) Repack Decepticon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71B51F24DAC66962714BBDA748D11C7373254E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546000   (46562) от 17.08.2024
-
-POSTAL 4: No Regerts (2022) [En] (1.4.0) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возвращение легенды спустя семь лет. Чувак возвращается в этот мир вместе со своим псом. Он имеет самые добрые намерения, и хочет начать нормальную жизнь. Ведь его всё это время лечили. По приезду в новый город - чувака обворовывают. Однако у него хватает терпения и выдержки на то, чтобы снова начать копить деньги и начать адекватную жизнь. Весь сюжет завязан на (   Читать дальше...   )Тип издания: LicenseРазработчик: Running With ScissorsЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, КитайскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D67DACE3D2DE55FA8D88FF7FB2607CD84B51965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744174   (46240) от 20.08.2024
-
-Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Decepticon [Complete Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghostrunner - эта жестокая игра-слэшер от первого лица с супердинамичным сюжетом, разворачивающимся в мрачном киберпанковом мире футуристической сверхконструкции. Взбирайтесь вверх по башне Дхарма, ставшей последним убежищем человечества после всемирной катастрофы. Пройдите путь снизу доверху, встретьтесь с тираном Кимастером и воздайте ему по заслугам.Тип издания: RepackРазработчик: One More Level, 3D Realms, Slipgate IronworksЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8187B9B874371660451D9AAF8994447A4C5002C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

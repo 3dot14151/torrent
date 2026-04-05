@@ -1,3 +1,61 @@
+###  Публикация: 1260596   (307293) от 09.11.2018
+
+Баян Mix - Танцы мира (2016) [MP3|320 Kbps] <Instrumental, Pop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чардаш (3:17)
+02. Болгарский танец (4:02)
+03. Сиртаки (3:49)
+04. Лезгинка (3:09)(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4B4C3BA9A65F2923FA39AB4B1EE974DB7041BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260594   (307291) от 09.11.2018
+
+Баян Mix - Альбом №1 (2013) [MP3|320 Kbps] <Instrumental, Pop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карнавал (3:32)
+02. Рэд танго (3:02)
+03. Катя (2:53)
+04. Ты так далеко (4:51)(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C4CDC835E86E32D38618BD2079B4147E3A3943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077001   (306787) от 28.11.2016
 
 Kris Kristofferson - Live At The Big Sur Folk Festival (2016) [FLAC|Lossless|WEB-DL|tracks] <Country>
@@ -6,7 +64,7 @@ Kris Kristofferson - Live At The Big Sur Folk Festival (2016) [FLAC|Lossless|WEB
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306787.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Harlow Monroe - Piano Christmas (2016) [MP3|320 Kbps] <Instrumental, Jazz, Easy 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306601.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Thomas Barquee - Missa (2002) [FLAC|Lossless|tracks + .cue] <Chants, World>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305513.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Midnight Club 3 DUB Edition Remix Soundtrack (2006) [MP3|~245 кб/с (V0)]
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305469.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ Sander van Zanten - Deliver Us the Moon (Original Game Soundtrack) (2019) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305269.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 1 (1990) [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305197.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304459.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Music From Turtle Island - Contemporary Native American Music (2006) [MP3|320 Kb
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304290.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Tantric Music - Tantric Art of Love - New Age Music 2020 [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304168.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Pachuly & Friends - Collection (3 альбома) (2003-2013) [MP3|320 CBR ~245 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304167.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Wychazel - Tao: A Path of Peace (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, R
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304166.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Theodor Bastard - Pathologic 2 OST (2019) [FLAC|Lossless|tracks] <Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304160.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304158.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Tantric Massage Experts - Open New Erotic Feelings of Pleasure and Excitement (2
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304155.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Anibal Palazolo - Flamenco Entre Cuerdas (2009) [MP3|320 кб/с]<Instrumental, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303581.jpg" />
 </div>
 
 
@@ -453,7 +511,7 @@ Kevin Kern - Always Near / A Romantic collection (2014) [FLAC|image+.cue]<New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303364.jpg" />
 </div>
 
 
@@ -482,7 +540,7 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303280.jpg" />
 </div>
 
 
@@ -511,7 +569,7 @@ VA - Master & Mistress  Tango 50 Original Favourites (2010) [MP3|192 кб/с]<Ta
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303247.jpg" />
 </div>
 
 
@@ -540,7 +598,7 @@ VA - Road House (The Original Motion Picture Soundtrack) (1989) [FLAC|image + .c
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303228.jpg" />
 </div>
 
 
@@ -569,7 +627,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 2 (1990) [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303128.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Sound
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303089.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ VA - Spa Relaxation Ambient Music, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Bale
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302838.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ Richard Clayderman - Super Best (2015) [FLAC|24/192|Lossless|WEB-DL|tracks] <Eas
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302765.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Televis
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302656.jpg" />
 </div>
 
 
@@ -699,64 +757,6 @@ Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Televis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3450BF1DA0919F5BD7C6A91FE23C95E7D39E2DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078011   (302640) от 30.11.2016
-
-Баттувшин (Battuvshin) - Душа кочевника - Nomad's Soul (2010) [FLAC|Lossless|image + .cue] <Ethnic, Instrumental>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Мориной соло  (03:41) 
-02|  Намар  (04:31) 
-03|  Арбан таванай hар  (04:27) 
-04|  Аха эгч хоерни  (03:56) (   Читать дальше...   )Жанр: Ethnic, InstrumentalПродолжительность: 01:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5F0DBC05FC5E53E495719C988BCE03D6883D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078123   (302173) от 30.11.2016
-
-Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Television Soundtrack) (2015-2016) [FLAC|Lossless|CD|tracks+.cue]<Soundtrack, Folk>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outlander - The Skye Boat Song (French Version) (feat. Raya Yarbrough) (01:36)
-02. Leave the Past Behind (05:15)
-03. Wrath of the Comte (02:27)
-04. Versailles (02:54)(   Читать дальше...   )Жанр: Soundtrack, Score, Folk •Продолжительность: 03:13:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FDF88CB5AF4687759C2A065AB0C9B368970E03
 ```
 
 https://mybot314.ru/tekegram_catalog/

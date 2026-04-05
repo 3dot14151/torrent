@@ -1,3 +1,57 @@
+###  Публикация: 8063   (765096) от 03.07.2020
+
+Монти Пайтон: Как раздражать людей / Monty Python: How To Irritate People (1968)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765096.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Как раздражать людей» — это пред-«Монти Пайтон»: десять скетчей, снятые будущими участниками культовой группы в 1968 году, до её фактического образования. В скетчах участвуют Джон Клиз и еще два будущих монти-пайтонца — Грэм Чепмен и Майкл Пэлин. Короткие истории, в которых разыгрывается нешуточная драма человеческого бытия в казалось бы привычных ситуациях: общение (   Читать дальше...   )Жанр: английский юморВ ролях: Джон Клиз, Грэм Чепмэн, Майкл Палин, Тим Брук-Тэйлор и др.
+Великобритания, 1968.Перевод: Русский насколько-можно-профессиональный (одноголосый)Продолжительность: 1 ч 08 мин 10 сек
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64D97CCDE068A6033C4C318D8A9803EFBFE4DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 230783   (765008) от 02.01.2022
+
+Дон Ку сын Зорро / Don Q Son of Zorro (1925) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765008.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о доне Сезаре Вега, сыне известного Зорро и о его приключениях в Мадриде, куда он, как и отец, поехал учиться... Хотя фильм и задуман, как продолжение нашумевшего «Знака Зорро», сам Зорро появляется только в самом конце, да и то ненадолго. К тому же его маскировка уже не нужна, ведь все давно знают, кто скрывается под маской.
+Фильм является сиквелом «Знака (   Читать дальше...   )Производство: США, Elton CorporationЖанр: Мелодрама, приключения, немое киноРежиссер: Дональд КриспАктеры: Дуглас Фербенкс, Мэри Астор, Джек МакДональд, Дональд Крисп, Стелла Де Лэнти, Warner Oland, Джин Хершот, Альберт МакКуорри, Лотти Пикфорд, Чарльз СтивенсПеревод: Немой с интертитрамиСубтитры: Английские интертитры, озвучивание титров по-русски за кадром.Продолжительность: 01:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F574420078C06F13924633120180C67871AD2A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214412   (764863) от 21.03.2018
 
 Никогда не было так мало / Never So Few (1959) WEB-DLRip [H.264] [AVO]
@@ -6,7 +60,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764863.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764344.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764234.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764220.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764177.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763929.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763449.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763426.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763217.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762972.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762893.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762612.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762273.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761769.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760681.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760318.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760117.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759505.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758609.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757366.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756774.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753724.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753569.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753002.jpg" />
 </div>
 
 
@@ -625,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA5B9BCC9BAD3B4164927302580F28A5B8B9F066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 236639   (752824) от 10.01.2022
-
-Лимонадный Джо, Или Конская Опера / Limonadovy Joe aneb Konska opera / Lemonade Joe or Horse Opera (1964) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752824.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленьком городке на «Диком западе» крепкие парни развлекаются дракой, стрельбой и пьют виски. Нравы там грубы и жестоки, закон один - «Кто кого раньше застрелит». Даже шериф не в силах этому противостоять. Но однажды в салун заходит Он - Лимонадный Джо, и в городке начинается новая жизнь. В него влюбляются все первые красавицы городка. Секрет популярности героя (   Читать дальше...   )Производство: Чехословакия, Filmové Studio BarrandovЖанр: мюзикл, мелодрама, комедия, приключения, вестернРежиссер: Ольдржих ЛипскийАктеры: Карел Фиала, Рудольф Дейл, Милош Копецки, Квета Фиалова, Ольга Шоберова, Богуш Загорский, Йозеф Глиномаз, Карел Эффа, Вальдемар Матушка, Эман ФиалаПеревод: Дублированный, Многоголосый профессиональныйЯзык озвучки: Русский, чешскийПродолжительность: 01:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F81C15318AB578627342C2860AE057514015F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 660032   (752789) от 01.06.2013
-
-Полуночный ковбой / Midnight Cowboy (1969) [H.264] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джо Бак, жизнерадостный и наивный парень из крохотного техасского городка, направляется в Нью-Йорк, чтобы использовать свои незаурядные сексуальные способности для удовлетворения потребностей богатых женщин за плату. Но дела у него идут не слишком хорошо, и вскоре уличный бомж-туберкулезник Риццо убеждает Джо, что ему необходим менеджер.
-Хотя Джо не в восторге от того, что ему приходится обслужить в сортире гомосексуалистов, он и Риццо становятся настоящими друзьями. Они хотят заработать много денег и уехать во Флориду…Жанр: драмаРежиссер: Джон Шлезингер / John SchlesingerАктеры: Дастин Хоффман, Джон Войт, Сильвия Майлз, Джон, МакГайвер, Бренда Ваккаро, Барнард Хьюз, Рут Уайт, Дженнифер Солт, Гилмен Рэнкин, Т. Том МарлоуПеревод: многоголосый закадровый (DVD Magic), двухголосый закадровый (Somewax); авторский, одноголосый закадровый (Багичев)Формат: MKVПродолжительность: 01:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D4EE8DB422A2F278AC90B9D99FAF378CDAF0EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

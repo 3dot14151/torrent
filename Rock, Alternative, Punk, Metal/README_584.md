@@ -1,3 +1,38 @@
+###  Публикация: 543898   (493259) от 06.09.2012
+
+Dying Fetus - Reign Supreme (2012) [APE|Lossless]<Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invert the Idols (2:05)
+02. Subjected to a Beating (4:53)
+03. Second Skin (4:42)
+04. From Womb to Waste (4:57)
+05. Dissidence (3:28)
+06. In the Trenches (3:44)
+07. Devout Atrocity (4:28)
+08. Revisionist Past (3:57)
+09. The Blood of Power (5:23)
+10.  Dead Whores Love to Fuck (Bonus) (0:50)Жанр: Death MetalПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543602   (493250) от 06.09.2012
 
 Cat Power - Sun (2012) [FLAC|Lossless]<Indie Rock / Folk Rock>
@@ -6,7 +41,7 @@ Cat Power - Sun (2012) [FLAC|Lossless]<Indie Rock / Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493250.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ Archive - With Us Until You're Dead (2012) Special Edition [FLAC|Lossless]<Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493157.jpg" />
 </div>
 
 
@@ -78,7 +113,7 @@ Anathema - A Fine Day To Exit (2001) 2006, Music For Nations, Sony BMG Music Ent
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493104.jpg" />
 </div>
 
 
@@ -107,7 +142,7 @@ Bob Dylan - Tempest (2012) [FLAC (tracks+cue)|Lossless]<Folk-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493078.jpg" />
 </div>
 
 
@@ -142,7 +177,7 @@ VA - Season Of The Witch (2011) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493040.jpg" />
 </div>
 
 
@@ -171,7 +206,7 @@ Great White - 41 Albums (1982-2012) Дискография [MP3|192 - 320 кб/�
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492989.jpg" />
 </div>
 
 
@@ -206,7 +241,7 @@ Gene Loves Jezebel - Voodoo Dollies: The Best Of Gene Loves Jezebel (1999) [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492841.jpg" />
 </div>
 
 
@@ -235,7 +270,7 @@ Elliott Smith - Figure 8 (2000) 50th Birthday Deluxe Edition, 2019, UMG Recordin
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492836.jpg" />
 </div>
 
 
@@ -264,7 +299,7 @@ Wardenclyffe - Temple of Solomon (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492685.jpg" />
 </div>
 
 
@@ -293,7 +328,7 @@ Hammer Fight - Profound And Profane (2016) [APE|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492684.jpg" />
 </div>
 
 
@@ -322,7 +357,7 @@ Paraxism - .xism Excursion (1996) EP [WavPack|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492682.jpg" />
 </div>
 
 
@@ -350,7 +385,7 @@ Parthian - Desolation of a Ceaseless Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492680.jpg" />
 </div>
 
 
@@ -379,7 +414,7 @@ Wolf Counsel - 5 Albums (2015-2022) [MP3|320 Kbps] <Doom Metal, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492677.jpg" />
 </div>
 
 
@@ -408,7 +443,7 @@ Mystic Circle - Drachenblut (1998) [FLAC|Lossless|image + .cue] <Symphonic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492675.jpg" />
 </div>
 
 
@@ -437,7 +472,7 @@ Sedimentum - Suppuration Morphogénésiaque (2022) [MP3|284-296 kbps VBR] <Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492674.jpg" />
 </div>
 
 
@@ -466,7 +501,7 @@ Nightmare - Aeternam (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal, Fe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492603.jpg" />
 </div>
 
 
@@ -495,7 +530,7 @@ Chris Spedding - Joyland (2015) [FLAC|Lossless|image + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492598.jpg" />
 </div>
 
 
@@ -525,7 +560,7 @@ Watain - The Agony & Ecstasy Of Watain (2022) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492597.jpg" />
 </div>
 
 
@@ -554,7 +589,7 @@ Yакuzа - Wау Оf Тhe Dеаd (2002) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492579.jpg" />
 </div>
 
 
@@ -583,7 +618,7 @@ John Orr Franklin - Lighthouse (2011) [FLAC|Lossless|image + .cue] <Prog Rock, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492564.jpg" />
 </div>
 
 
@@ -612,7 +647,7 @@ First Signal - One Step Over The Line (2016) [FLAC|Lossless|tracks] <AOR, Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492491.jpg" />
 </div>
 
 
@@ -641,7 +676,7 @@ The Windmill - The Continuation (2013) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492477.jpg" />
 </div>
 
 
@@ -670,7 +705,7 @@ Out Of This World - Out Of This World (2021) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492443.jpg" />
 </div>
 
 
@@ -700,7 +735,7 @@ The Goo Goo Dolls - Chaos In Bloom (2022) [MP3|320 Kbps] <Alternative Rock, Pop-
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492441.jpg" />
 </div>
 
 
@@ -729,7 +764,7 @@ Garbage - A Darker Religion - The Singles 1995-2000 (2000) [MP3|320 Kbps] <Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492376.jpg" />
 </div>
 
 
@@ -743,35 +778,6 @@ Garbage - A Darker Religion - The Singles 1995-2000 (2000) [MP3|320 Kbps] <Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC6732F355BE644E4000AE435E6BDA7268711285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937114   (492365) от 13.09.2015
-
-Gamma Ray - Heading For Tomorrow (1990) 25 Anniversary Edition 2CD /2015, earMUSIC/ [MP3|320 кб/с]<Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Welcome (Instrumental)
-02.	Lust For Life
-03.	Heaven Can Wait
-04.	Space Eater(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283689467AD62BBEA74205442A5CD3B15041F29F
 ```
 
 https://mybot314.ru/tekegram_catalog/

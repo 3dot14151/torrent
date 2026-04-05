@@ -1,3 +1,64 @@
+###  Публикация: 533665   (405342) от 19.10.2012
+
+Пришелец из космоса / Extraterrestre (2011) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все знают, что делать, если в один прекрасный день все небо заполнят НЛО: бежать со всех ног! Однако что делать, если вторжение началось в тот момент, когда вы находитесь в квартире девушки своей мечты, с которой только что познакомились?Жанр: Фантастика, Драма, КомедияРежиссер: Начо ВигалондоПродюсер: Нахикари Ипинья, Начо Вигалондо, Боря КобягаАктеры: Мишель Хеннер, Карлос Аресес, Хулиан Вильягран, Мишель Хеннер, Карлос Аресес, Хулиан Вильягран, Рауль Симас, Мигель НогераПеревод: Профессиональный (многоголосый)Продолжительность: 01:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E78E2FBC1B7A5720715E18B18440D6F8162AB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464325   (405137) от 20.10.2012
+
+VA - Mixadance 001-300 (2004-2010) (Обновляемая) [MP3|128-320 кб/с] <Electro House, Progressive House>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405137.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. David Guetta vs. The Egg - Love Don't Walking Away
+2. Commander Tom - I Can't Sleep
+3. Marco G - Funkolicious (Mario Ochoa Remix)
+
+4. F.E.D.O - Be Original (Gambafreaks Main Mix)
+5. Fall Out Boy - Dance, Dance (Tommie Sunshine's Brooklyn Fire Re Touch)
+6. Frank Tomiczek - The Chek Of It
+
+7. Freaks Jam - Friday Night (Luca Cassani Remix)
+8. Кино - Перемен (DJ Neumark Mix)(   Читать дальше...   )Жанр: Electro House, House, Progressive House, Electro ProgressiveПродолжительность: 278:07:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562962   (405136) от 20.10.2012
 
 Medal of Honor: Warfighter [Xbox360] [ENG] [Region Free] (2012)
@@ -6,7 +67,7 @@ Medal of Honor: Warfighter [Xbox360] [ENG] [Region Free] (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405136.jpg" />
 </div>
 
 
@@ -35,7 +96,7 @@ Nik Software Complete Collection 2012.10.19 [Английский + Русски
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405128.jpg" />
 </div>
 
 
@@ -63,7 +124,7 @@ Just Dance 2014 DLC Hack [Wii] [PAL/NTSC] (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404967.jpg" />
 </div>
 
 
@@ -89,7 +150,7 @@ Survarium (2016) [Ru] (0.47d0) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404511.jpg" />
 </div>
 
 
@@ -115,7 +176,7 @@ Mafia: The City of Lost Heaven / Мафия [Ru/En] (RePack) 2002 | kuha
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404260.jpg" />
 </div>
 
 
@@ -146,7 +207,7 @@ Autodesk AutoCAD Civil 3D 2018.1.1 RUS-ENG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403660.jpg" />
 </div>
 
 
@@ -172,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403076.jpg" />
 </div>
 
 
@@ -199,7 +260,7 @@ Gran Turismo 5 [PS3] [RUSSOUND] [PAL] [FULL] [3.41/3.55] (2010)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402590.jpg" />
 </div>
 
 
@@ -231,7 +292,7 @@ Spec8_ru | Базовый и продвинутый курсы  [2011] PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402584.jpg" />
 </div>
 
 
@@ -266,7 +327,7 @@ Microsoft и Facebook проложили самый технологически
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_402094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402094.jpg" />
 </div>
 
 
@@ -292,7 +353,7 @@ Killer Instinct (2017) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401992.jpg" />
 </div>
 
 
@@ -318,7 +379,7 @@ CyberLink PowerDVD Ultra 12.0.2118a.57 RePack by qazwsxe [Русский / Ан�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401645.jpg" />
 </div>
 
 
@@ -346,7 +407,7 @@ Medal of Honor: Warfighter Limited Edition [Ru/En] (L/1.0.0.2) 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401633.jpg" />
 </div>
 
 
@@ -372,7 +433,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (L/1.0.0.2) 2012 l R.G. G
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401631.jpg" />
 </div>
 
 
@@ -398,7 +459,7 @@ Mozilla Firefox 56.0 Final RePack (& Portable) by D!akov  [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401133.jpg" />
 </div>
 
 
@@ -424,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401067.jpg" />
 </div>
 
 
@@ -453,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400880.jpg" />
 </div>
 
 
@@ -479,7 +540,7 @@ SONY Sound Forge Pro 10.0d Build 506 [Английский + Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400650.jpg" />
 </div>
 
 
@@ -507,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400637.jpg" />
 </div>
 
 
@@ -533,7 +594,7 @@ Made in Abyss | Созданный в Бездне [2017, TV, 13 эп.] WEB-DL 7
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400114.jpg" />
 </div>
 
 
@@ -559,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400108.jpg" />
 </div>
 
 
@@ -585,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399866.jpg" />
 </div>
 
 
@@ -611,7 +672,7 @@ Norton Internet Security 2013 20.2.0.19 Final [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399641.jpg" />
 </div>
 
 
@@ -639,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399256.jpg" />
 </div>
 
 
@@ -650,58 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170471   (399152) от 01.10.2017
-
-Скрипты - VideoHive - VFX Box - 20112674 [FFX, JSXBIN]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399152.jpg" />
-</div>
-
-
-###  Подробнее
-
-VFX Box - пакет дополнений для After Effects и Premiere Pro, призванный придать Вашему проекту еще больше стиля и индивидуальности.Формат: FFX, JSXBIN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A9E778B6161FF7958EE2261E34A2A563DD53FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164265   (399144) от 01.10.2017
-
-Grand Theft Auto Anthology (1997-2015) [Ru/En] Repack R.G. Механики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы провести серию дерзких ограблений и выжить в большом неприветливом городе, уличному ловчиле, вышедшему на пенсию грабителю банков и вселяющему ужас психопату приходится иметь дело с самыми опасными и безумными преступниками, а также шоуменами и госслужащими Западного побережья.Тип издания: RepackРазработчик: Rockstar North, Rockstar San Diego и Rockstar LeedsЖанр: Action (Shooter), Racing (Cars), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E4A7B93957FC7BDC7B75D25DA9536BC7632BA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

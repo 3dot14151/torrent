@@ -1,3 +1,55 @@
+###  Публикация: 920021   (916333) от 22.02.2016
+
+Call of Juarez: Gunslinger (2013) [Ru/En] (1.0.5/dlc) Repack =nemos=
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Juarez The Gunslinger перенесет вас на просторы легендарного Дикого Запада - место, где царит неповторимая атмосфера беззакония и жестокости. Вживайтесь в роль безжалостного охотника за головами, отыщите и пристрелите самых отъявленных негодяев. Вам предстоит побывать в грязных салунах, золотых шахтах и многих других местах, где могут укрываться бандиты. (   Читать дальше...   )Тип издания: RePackРазработчик: TechlandЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE1BAE9AB99A66391354011CB2DE1E4A6199159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097203   (915125) от 26.01.2017
+
+SWAT 3: Tactical (1999) [En] (2.1) License GOG [Game of the Year Edition]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915125.jpg" />
+</div>
+
+
+###  Подробнее
+
+В SWAT 3: Tactical Game of the Year Edition вы выступите в роли офицера специального элитного подразделения по борьбе с терроризмом SWAT. Под вашим командованием окажется отряд профессионалов, состоящий из пяти человек, основными задачами которого будет борьба с террористами и спасение заложников. В игре вам будет доступна 21 миссия, различные виды оружия с разными (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra NorthwestЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F4079377F3F8328FBEFF010A8ECDFC771600B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097191   (914997) от 26.01.2017
 
 SWAT 4 / SWAT 4: The Stetchkov Syndicate (2005) [En] (1.1) License GOG [Gold Edition]
@@ -6,7 +58,7 @@ SWAT 4 / SWAT 4: The Stetchkov Syndicate (2005) [En] (1.1) License GOG [Gold Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914997.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913452.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ RICO (2019) [Multi] (1.0.5/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913324.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Call of Juarez: Bound in Blood (2009) [Ru] (1.1.0.0/tr) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910964.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Last Floor (2020) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909966.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.5) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909737.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Painkiller / Painkiller: Крещеный Кровью (2005) [Ru/En] (1.64/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905972.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Marine Heavy Gunner: Vietnam / Морпех против терроризма 3:
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904415.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Rise of the Triad (2013) [En] (1.0) License HI2U [DOOM Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904341.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ The Town of Light (2016) [Ru/Multi] (1.0) Repack bosenok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903626.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Quake II: Quad Damage (1997) [En] (3.20/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902560.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Quake III: Gold (2001) [En] (1.32/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902558.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Quake: The Offering (1998) [En] (1.09/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902551.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack YelloSOFT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900753.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Chasing Dead (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896766.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/upd3/dlc) Rip Other s [Digital Del
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895403.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Call of Duty: Infinite Warfare (2016) [En] (6.0.1211685) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893292.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Duke Nukem Forever (2011) [Ru] (1.0.244/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893104.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Bright Memory (2020) [Ru/Multi] (1.0/upd1) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891444.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Call of Duty: Advanced Warfare (2014) [Ru] (1.22.01/dlc) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887236.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ The Solus Project (2016) [Ru/Multi] (1.031) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886723.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Feelings Adrift (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885612.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5.0/dlc) Repack R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883817.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Tom Clancy's Rainbow Six (1998) [En] (1.04) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882799.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Tom Clancy's Rainbow Six (1998) [En] (1.04) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:367671AF8F8B22960F5B18B5FF1DF519CEAAD4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104073   (882788) от 13.02.2017
-
-Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восточная Европа, 2008 год. На границах с Россией бушует война, от ее исхода зависит судьба всего мира. Пора вызывать на подмогу элитное спецподразделение армии США – отряд «Призраков», до зубов вооруженных новейшими технологиям и в совершенстве владеющих искусством убивать. Задача этих бойцов – расчистить путь для миротворцев НАТО и предотвратить глобальный конфликт, (   Читать дальше...   )Тип издания: LicenseРазработчик: Red StormЖанр: Action (Tactical, Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7A076A093F731166A160E4F870509A0A58A802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103975   (882675) от 13.02.2017
-
-Dark Shores (2017) [En] (1.0) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Shores – хоррор на выживание с перманентной смертью и запутанными сюжетными линиями. Роскошный круизный лайнер с пятью юными туристами на борту терпит катастрофу на отдаленном острове, находящемся где-то в глубине южной части Тихого океана. Спустя некоторое время выжившие начинают понимать, что обеспечение себя пропитанием и забота о крыше над головой, это наименьшее (   Читать дальше...   )Тип издания: LicenseРазработчик: LABS GamesЖанр: Adventure (Survival), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F0340583BB7F356777871818370D99ED859FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

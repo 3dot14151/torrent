@@ -1,3 +1,61 @@
+###  Публикация: 1698404   (117976) от 12.02.2024
+
+VA - B-Tribe - Inner Meditation Journey (2024) [MP3|320 Kbps] <Native American, New Age, Electro>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B-Tribe,AH*NEE*MAH,Mohicans,Chillout Cafe,Winds Of Minds,EverLight,Relax Bro - Kindred Spirit [04:51]
+02. B-Tribe,AH*NEE*MAH,Mohicans,Stress Relief Calm Oasis,Majestic Sleep,Binaural Landscapes - Living Your Ending [03:50]
+03. B-Tribe,AH*NEE*MAH,Mohicans,Dormiente,Mellow Line,Relaxing Spa Music - In The Magic Of Cosmos [04:50]
+04. B-Tribe,AH*NEE*MAH,Mohicans,Our (   Читать дальше...   )Жанр: Native American, New Age, ElectroПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57FA0E6525BD18B04FEFDB28E7988C59A0CBF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699246   (117972) от 12.02.2024
+
+Kevin Costner & Modern West - Untold Truths (2008) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock,Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117972.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Long Hot Night
+2. 90 Miles an Hour
+3. Hey Man What About You?
+4. Superman 14(   Читать дальше...   )Жанр: Pop/Rock,CountryПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97070E0A36822B9C0FDE210AF16A70C3BE4BBE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699250   (117968) от 12.02.2024
 
 Kevin Costner & Modern West - Turn It On (2010) [FLAC|Lossless|WEB-DL|tracks] <Country>
@@ -6,7 +64,7 @@ Kevin Costner & Modern West - Turn It On (2010) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117968.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Atomic Heart, Vol.4 (Original Game Soundtrack) (2024) [FLAC|Lossless|WEB-DL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117890.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Shindhu (Шинду, Sri Chinmoy) - Eternity’s Dream (Мечта Вечнос�
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117805.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Teufelstanz - XIII (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117799.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117798.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Corbetta, Izhar Elias - La Guitarre Royalle (2018) [FLAC|Lossless|image + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116890.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Auscultate - Songs of the Beatles (2002) [MP3|320 Kbps] <Gregorian, A Capella, C
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115549.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Oliver Scheffner - Ambient Moments (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115534.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Meldis - Отдохни, волшебник (2006) [FLAC|Lossless|image + .cue] 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115512.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Meldis - Арфография (2007) [FLAC|Lossless|image + .cue] <Folk, Celtic 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115503.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - The Orient Collective: Mithras (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115011.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - The Orient Collective: Mystic Dunes (2023) FLAC Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114849.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114831.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Syntheticsax - Silhouettes (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114180.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Shamanic Chants - Forest Whispers Shamanic Journey (2024) [MP3|320 Kbps] <Native
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113915.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Johnny Whitehorse - Riders of the Healing Road (2009) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113294.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113192.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112986.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka (1980) [FLAC|Lossle
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112682.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka Two Colors (1989) [
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112653.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Spiritual Seasons - Metal Age (2017) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112484.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Spiritual Seasons - Villeman (2022) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112475.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Spiritual Seasons - Medieval Time (2019) [FLAC|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112473.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Tibetan Incantations: The Meditative Sound of Buddhist Chants (1998) [FLAC|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111824.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ VA - Tibetan Incantations: The Meditative Sound of Buddhist Chants (1998) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CD6BA2636B70AB129504B454E268CD206E8B4D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715788   (111484) от 13.04.2024
-
-Kitaro - Warme-Cosmic Love (1985) [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganga 3:38
-02. Sunset 5:14
-03. Linden 3:17
-04. Theme Of Silk Road 4:56(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9063C5E57EFCD1A6E398F8A38691186580CFDD80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717433   (111205) от 20.04.2024
-
-Saxophone Dreamsound - Today's Top Hits on Saxophone (2022) 2CD [MP3|320 Kbps] <Saxophone, Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dynamite [03:20]
-02. Sacrifice [03:38]
-03. Memories [03:38]
-04. Circles [04:54](   Читать дальше...   )Жанр: Saxophone, Easy Listening, InstrumentalПродолжительность: 01:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A384097BCEAE7DD1615530201BD3D1D2D1A5F19C
 ```
 
 https://mybot314.ru/tekegram_catalog/

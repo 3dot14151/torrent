@@ -1,3 +1,32 @@
+###  Публикация: 1583901   (226874) от 17.10.2022
+
+Knee - Тафофилия (2022) [MP3|320 Kbps] <Nu-Metalcore, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Страж [00:02:23]
+02 - Мария [00:01:15]
+03 - Занавес [00:01:59]
+04 - Веролом [00:03:07](   Читать дальше...   )Жанр: Nu-Metalcore, Doom MetalПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D06C40F33EF2A2994D63AAA273C4437A5928ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650141   (226872) от 31.07.2023
 
 Gateway - Galgendood (2023) [MP3|320 Kbps] <Death, Doom Metal>
@@ -6,7 +35,7 @@ Gateway - Galgendood (2023) [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226872.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Ancient Flame - Blood stained the barren land (2022) [MP3|320 Kbps] <Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226865.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Sextape - Prelude (2022) [MP3|320 Kbps] <Garage Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226859.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Seal Fur Peeling - Daggers Predacious (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226850.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Samurai Of Prog - The Spaghetti Epic 4 (2022) [MP3|320 Kbps] <Progressive Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226849.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Dead Daisies - Radiance (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226842.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Bryndin (Брындин) - 4 Albums (2018-2022) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226834.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Phlegtum - Fourth (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226826.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Lugnet - 2 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226819.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Anna Fiori - In ohtli tonalli (2017) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226818.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Outline In Color - Coast is Clear (2022) [MP3|320 Kbps] <Post-Hardcore, Metalcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226811.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Anna Fiori - Magna Tonalli (Edición Especial) (2022) EP [MP3|320 Kbps] <Symphon
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226785.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Billy Talent - Live At Festhalle Frankfurt (2023) 2 x CD [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226777.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226768.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Anna Fiori - De la Tierra (Un encuentro semiacústico) (2019) EP [MP3|320 Kbps] 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226749.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Strider - Into Glory Stride (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226748.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Slow Burning Metal Songs (2022) [MP3|320 Kbps] <Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226740.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Madder Mortem - 7 Albums (2006-2019) [MP3|320 Kbps] <Progressive Rock, Avantgard
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226726.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Intelligent Music Project VII - Unconditioned (2022) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226684.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Skid Row - The Gang's All Here (2022) [FLAC|Lossless|image + .cue] <Hard Rock, G
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226671.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Captain Black Beard - 6 Albums (2011-2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226664.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226657.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226650.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Victory - 12 albums, 13 CD (1985-2021) [FLAC | Lossless | image + .cue | tracks 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226619.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Contempt - The Secret Around Us (2002) Reissued, 2005 [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226597.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Contempt - The Secret Around Us (2002) Reissued, 2005 [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BF8839ABBD7099B6D357290C2E03359BF01DA3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965356   (226586) от 14.12.2015
-
-Underdark - In The Name Of Chaos (2010) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preludium Proelium(instrumental)
-02. Gospel of Netherworld
-03. World Reframed
-04. The Path(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183308685FD863A39C0D75FE391D0F72B3AEA819
 ```
 
 https://mybot314.ru/tekegram_catalog/

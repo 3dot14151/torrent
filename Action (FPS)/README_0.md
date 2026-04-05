@@ -1,3 +1,55 @@
+###  Публикация: 1852545   (1055969) от 08.02.2026
+
+Resident Evil Village (2021) [Ru/Multi] (21519280/dlc) Repack HardwareMining [Gold Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil Village продолжает приключения Итана из семерки. Спрятанная в названии на постерах римская цифра намекает, что это не ответвление, а восьмая часть серии. В основной линейке это уже десятый по счету проект. Уинтерс смог сбежать из особняка каннибалов и спасти супругу Мию. Они убрались из американской глубинки и решили жить обычной жизнью. Однако через (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBB27EEEFEF7E05CCA92BEB1925EACB3C09066A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852346   (1055832) от 07.02.2026
+
+Resident Evil Village (2021) [Ru/Multi] (21519280/dlc) Repack Other s [Gold Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil Village продолжает приключения Итана из семерки. Спрятанная в названии на постерах римская цифра намекает, что это не ответвление, а восьмая часть серии. В основной линейке это уже десятый по счету проект. Уинтерс смог сбежать из особняка каннибалов и спасти супругу Мию. Они убрались из американской глубинки и решили жить обычной жизнью. Однако через (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985D4E1784953EAF8C7D328390E7C5E9FF26CB4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852074   (1055672) от 06.02.2026
 
 Gunfire Reborn (2021) [Ru/Multi] (21791900/dlc) Repack Necros
@@ -6,7 +58,7 @@ Gunfire Reborn (2021) [Ru/Multi] (21791900/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055672.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Resident Evil Village (2021) [Ru/Multi] (Build 21519280/dlc) Repack Wanterlude [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055563.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Resident Evil Village (2021) [Ru/Multi] (21519280/dlc) Repack seleZen [Gold Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055491.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Resident Evil Village (2021) [Ru/Multi] (1.1.0.6/dlc) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055424.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ DOOM Eternal (2020) [Ru/Multi] (Build 19435158/dlc) Repack HardwareMining [Delux
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055013.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Nosferatu: The Wrath of Malachi / Вампиры (2003) [Multi] (1.0v3) License 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054984.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054953.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack FitG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053284.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052749.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Abyssus (2025) [Ru/Multi] (1.2.55683/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052314.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052267.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dead Space (2023) [Multi] (1.1.14.17871/dlc) Scene voices38 [Deluxe]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052036.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ BLOODKILL: Goreblast Overkill (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051960.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0.12.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051116.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет в�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050905.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Redline: Gang Warfare 2066 (1999) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050798.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Fida Puti Samurai (2021) [En] (1.2c025a) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050796.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Voidtrain (2023) [Ru/Multi] (1.03/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049928.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Hunted Within: The Walls (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049376.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.7.1/dlc) Repack Hardwa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048033.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.4.0/dlc) Repack HardwareMining [Deluxe 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047233.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Crime Simulator (2025) [Ru/Multi] (1.19b) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046928.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ You Are Empty (2006) [Ru] (1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046857.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.7.1/dlc) Repack Hardwa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046592.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.7.1/dlc) Repack Hardwa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDC96D9A099C25EE6BF341CC663A7B0E016218BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839398   (1046575) от 28.11.2025
-
-Sniper Ghost Warrior Contracts (2019) [Ru/Multi] (16167732/dlc) Repack Necros
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попробуйте себя в роли настоящего снайпера на суровых просторах Сибири благодаря новейшей игровой системе на базе контрактов, подстегивающей стратегическое мышление.   Выполняйте интересные задания, имеющие множество вариантов прохождения. Выполняйте контракты с точными задачами, чтобы получить фиксированное денежное вознаграждение и возможность пройти дополнительно (   Читать дальше...   )Тип издания: RepackРазработчик: CI GamesЖанр: Шутер от первого лица, СтелсЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80224402D8A8EFE34A8BFA2F220D1E963F6E9DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512015   (1044783) от 18.01.2023
-
-Ziggurat 2 (2021) [Ru/Multi] (09012023/dlc) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ziggurat возвращается и теперь он ещё лучше! Используйте мощные орудия и заклинания, чтобы пробиться через орды врагов, и изучить лабиринтоподобные подземелья в этом лихорадочном roguelite шутере от первого лица, пока вы прокачиваете свои навыки и открываете новое снаряжение. Сможете ли вы выполнить это задание?Тип издания: LicenseРазработчик: Milkstone StudiosЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Нидерландский и другиеЯзык интерфейса: Русский, Английский, Испанский, Нидерландский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98C70458F8EF53AC5D7512A0EEAAD0B07132A3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

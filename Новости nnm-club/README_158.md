@@ -1,3 +1,56 @@
+###  Публикация: 934207   (502949) от 04.09.2015
+
+CorelDRAW Graphics Suite X7 17.6.0.1021 Retail RePack by Krokoz [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный комплект приложений для графического дизайна
+С обновленным интерфейсом, новыми, незаменимыми в работе инструментами и усовершенствованными функциями CorelDRAW Graphics Suite X7 открывает перед пользователями целый мир творческих возможностей. Новые рабочие пространства, где все необходимое всегда под рукой, отражают особенности вашего рабочего процесса. Занимаетесь (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC7E4168FE9AAD21FF5E0C8ACEDF44E668717766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 865769   (502947) от 04.09.2015
+
+Factorio (2013) [Ru/Multi] (alpha 0.12.6) License
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502947.jpg" />
+</div>
+
+
+###  Подробнее
+
+2128 год. Земля страдает от перенаселения. Человечество на краю коллапса, и его время на исходе... Правительство Земли отправило во все уголки вселенной космические зонды, для поиска пригодных для жизни планет. Хорошие новости пришли от LCX-75, маленькой планеты находящейся в 17.2 световых годах от Земли. Атмосфера пригодна для жизни и обнаружено присутствие воды. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Tomas Kozelek, Marwin Kovarex, Kasia MazurekЖанр: Стратегия, ПесочницаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Русский и другиеЯзык интерфейса: Английский, Русский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D11AEA3CE59055325FE84D8C0D2BC67D4090551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194673   (502207) от 16.07.2022
 
 Битва полов / Battle of the Sexes (2017) BDRip [H.264]
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502207.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502196.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Kerish Doctor 2019 4.75 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502051.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Dolby Atmos 3.20403.417.0 Win10 x64 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502035.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502034.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_501989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_501989.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ KMSAuto Lite 1.2.1 DC 03.08.2015 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501907.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501903.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501171.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ Mutant Year Zero: Road to Eden (2019) [Ru/Multi] (1.07/dlc) Repack Other s [Delu
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501020.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ Destroy Windows 10 Spying 1.5 Build 345 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500929.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500923.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500922.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500918.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500254.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ Office Tab Enterprise 10.50 DC 28.08.2015 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500003.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ Adguard 6.0.52.227 Alpha [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500000.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499999.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ Call of Duty: Black Ops 2 (2012) [Ru/En] (1.0.0.1/upd3) Rip =nemos= [Digital Del
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499985.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ Tor Browser теперь автоматически обходит интерн�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_499262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_499262.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ Kaspersky Free 21.7.7.393 Repack by LcHNextGen (19.07.2022) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499258.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ Syberia: The World Before (2022) [Ru/Multi] (1.2.40404) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499252.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499189.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ Z - значит Захария / Z for Zachariah (2015) WEB-DLRip [H.264] [VO]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498947.jpg" />
 </div>
 
 
@@ -618,59 +671,6 @@ Z - значит Захария / Z for Zachariah (2015) WEB-DLRip [H.264] [VO]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8B47EA01D00CE75D74AC37FECA05CCE5B3AA86D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541487   (498852) от 02.09.2012
-
-Clover 2.0.136.0 [Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clover 2 – если вам нравится Google Chrome и его схема управления вкладками, то данная бесплатная утилита, то, что вам нужно! Программа реализует абсолютно идентичную схему управления окнами в стиле Google Chrome, в среде Windows, тем самым повышая общую производительность труда.Название программы: CloverЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542119   (498839) от 02.09.2012
-
-Sleeping Dogs - Limited Edition [Ru] (Repack/1.5/12 DLC) 2012 | R.G. World Games
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sleeping Dogs рассказывает историю детектива Вэй Шена, который был внедрен в один из преступных синдикатов гонконгской Триады. Ему предстоит сделать все возможное, чтобы остаться незамеченным и выжить, постоянно совершая моральный выбор.
-В Sleeping Dogs вас ждут погони, перестрелки и сражения с использованием различных боевых стилей, а также множество миссий и свобода выбора.(   Читать дальше...   )Тип издания: RepackЖанр: Action, Open worldЯзык озвучки: Английский, КитайскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C03E1DB13D8EF9B59EDB087B958CF3044CF8666
 ```
 
 https://mybot314.ru/tekegram_catalog/

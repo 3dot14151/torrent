@@ -6,7 +6,7 @@ Ibiza vs. VDJ Rossonero - Happy New Year (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999314.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Young Swift Feat. Young Jeezy - I Like (Uncensored)(2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999303.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Slade At The BBC (1969-1991) (2012) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999109.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999055.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Uriah Heep - Classic Heep Live From The Byron Era (2004) 2хDVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999028.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998999.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Osibisa - Live At The Marquee 1983 (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998896.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VA - Tribute to Led Zeppelin (35th Kennedy Center Honors) (2012) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998826.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998798.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Adele - Live At The Royal Albert Hall (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998790.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998768.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Adele - Live at the Royal Albert Hall (2011) [H.264] BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998759.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998559.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998531.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998523.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ U.D.O. - Live in Sofia (2012) Blu-Ray [custom]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998520.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998364.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Kim Sori - Dual Life (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998332.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998260.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998019.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998013.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997981.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Eloy - The Legacy Box DVD 1 (русские субтитры) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997817.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Black Veil Brides - Legion Of The Black (2012) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997663.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997650.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997649.jpg" />
 </div>
 
 

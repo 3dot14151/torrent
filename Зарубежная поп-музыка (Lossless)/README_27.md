@@ -6,7 +6,7 @@ Thomas Anders - Pures Leben (2017) [FLAC|Lossless|tracks + .cue] <Pop, Eurodance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785760.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lulu - Independence (1993) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785634.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Demis Roussos - The Demis Roussos Collection (2008) 4CD [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785364.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Barbra Streisand - Guilty (1980) 2015, Columbia [FLAC|24/44.1|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785211.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784949.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Replacements - Let It Be (Deluxe Edition) (1984) [FLAC|Lossless|tracks + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783937.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mariah Carey - Music Box (1993) Columbia CCK 53205 [FLAC|Lossless|image + .cue]<
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783930.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Frankie Goes To Hollywood - Welcome To The Pleasuredome (1984) [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783921.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - NOW Pop Icons (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783392.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Noemi - La Luna (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783208.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bee Gees - Odessa (1969) Box Set Felt Cover 2009 3-CD Reprise Records [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781793.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781732.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781728.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781322.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Nina Zilli - Modern Art (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781313.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Black Eyed Peas - Translation (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781010.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sade - Collection 6 Albums (1984-2010) Originals & Remasters [FLAC|Lossless|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780958.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ DJ Piligrim - Ночером...вечером...кечером (1999) [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780852.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Giorgia - Oronero Live (2018) Deluxe Edition [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780571.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ DJ Piligrim - 3 Albums (2011-2014) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780568.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780560.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Eros Ramazzotti - Duets (2017) Compilation [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780546.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Club 8 - Golden Island (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Female V
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780105.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Totally Mild - Her (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779666.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ ABBA - The Ultimate Collection (2004) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779452.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Shenandoah Davis - Souvenirs (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779403.jpg" />
 </div>
 
 

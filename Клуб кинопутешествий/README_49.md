@@ -6,7 +6,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251748.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248967.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248913.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245501.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ RTG. Парки Москвы. Коломенское (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245285.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ RTG. Национальная Президентская библиотека (2
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245276.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ RTG. Музей оптики (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245220.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ RTG. Сибирские пимы (2012) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245205.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244043.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243975.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243507.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243348.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243341.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243135.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ RTG. Выходные в горах. Поселок Каменномостски
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243103.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ RTG. Выходные дни в Геленджике (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243019.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242462.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ RTG. Дальневосточный морской заповедник (2013) H
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242343.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ RTG. Заповедник Утриш (2015) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242332.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ RTG. Зеленчукская астрофизическая обсервато�
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242304.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ RTG. Зимний отдых в Домбае (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242296.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241929.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241478.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241136.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ RTG. Музей-усадьба Льва Толстого "Ясная Полян�
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241115.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ RTG. Святки в деревне Шуваловка (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240149.jpg" />
 </div>
 
 

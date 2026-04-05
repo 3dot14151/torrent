@@ -6,7 +6,7 @@
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_333283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_333283.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Lem Winchester and the Ramsey Lewis Trio - Perform A Tribute To Clifford Brown (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333209.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Elmer Snowden Quartet Featuring Cliff Jackson - Harlem Banjo! (1960) 1990, Origi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333158.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Future Sounds of Jazz - Vol. 6 (1999) [FLAC|Lossless|tracks + .cue] <Future
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333157.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Sylvaine Helary - Glowing Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Avant Prog,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332618.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Paolo Fresu, Dino Rubino, Marco Bardoscia - Tempo Di Chet (2018) Tuk Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332617.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Candy Dulfer - Discography (1990 - 2009) 11 Albums [FLAC|image + .cue]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_331794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_331794.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Jerry Gonzalez & The Fort Apache Band - Rumba Buhaina (2005) Random [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331413.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Hank Jones & Red Mitchell - Duo (1987) 2015, Timeless Records[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331296.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Masabumi Kikuchi - Re-confirmation (1970) 2015, Unversal[FLAC|tracks+.cue]<Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331294.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Oliver Nelson - More Blues And The Abstract Truth (1964) 2015, Universal[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331293.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Sam Rivers - A New Conception (1966) 2014, Universal[FLAC|tracks+.cue]<Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331292.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Tommy Flanagan - Jazz Poet (1989) 2015, Timeless Records[FLAC|tracks+.cue]<Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331142.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Billie Holiday - Collection (5 альбомов) (1956 - 2002)[FLAC, APE|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_330692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330692.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Alex Pangman - New (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330392.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Ronnie Mathews Trio - Selena's Dance (1988) 2015, Timeless Records[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330391.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Shorty Rogers and His Giants - Jazz Waltz (1962) 2013, Warner[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330390.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Ali McGregor - A Very Jazzamatazz Christmas (2015) [FLAC|tracks+.cue|WEB-DL]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330389.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Terez Montcalm - Quand on s'aime (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330386.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ John Tropea - Gotcha Rhythm Right Here (2014) [FLAC|tracks+.cue]<Jazz, funk, fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330382.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Lonnie Smith Trio - Foxy Lady: Tribute To Jimi Hendrix (1994) 2011, Venus Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330336.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Art Blakey / The Jazz Messengers - Indestructible (1964) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_329987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_329987.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Mary Osborne - A Girl & Her Guitar (1945 - 1959) 2015, El [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329980.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Art Farmer - Yesterday's Thoughts (1975) 2015, Universal[FLAC|tracks+.cue]<Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329482.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ VA - Conception: Lee Konitz, Miles Davis, Stan Getz, Gerry Mulligan (1949-1951) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329451.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Bill Evans - Peace Piece (1956-1962) 3CD 2014, Le Chant Du Monde[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329448.jpg" />
 </div>
 
 

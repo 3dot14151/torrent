@@ -6,7 +6,7 @@ Broforce (2015) [Multi] (3148/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42686.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Disney Epic Mickey: Rebrushed (2024) [Ru/Multi] (15745129/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42497.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Multi] (1.0.0.349/dlc) 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42476.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Plank Builders (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42213.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NARUTO X BORUTO Ultimate Ninja STORM CONNECTIONS (2023) [Ru/Multi] (1.50/dlc) Sc
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42173.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ravenswatch (2023) [Ru/Multi] (1.00.01.01.25883) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42134.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Disney Epic Mickey: Rebrushed (2024) [Multi] (15745129/dlc) Scene FairLight
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42125.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Valfaris: Mecha Therion (2023) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41968.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41656.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Yars Rising (2024) [Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41378.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Hell of an Office (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41274.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Times & Galaxy / Times and Galaxy (2024) [En] (1.13.5060.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41270.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41040.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11458/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_41012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41012.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ HUNTDOWN (2020) [Ru/Multi] (1.278) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_40945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40945.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Repack Fit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40918.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40709.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Freedom Planet (2015) [En] (1.21.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40546.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ EARTH DEFENSE FORCE: WORLD BROTHERS 2 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40527.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Wooden Sen'SeY (2013) [Multi] (4.2.2.12621) Scene PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40460.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Super Mario Party Jamboree (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40446.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Portal (2007) [Ru/Multi] (Build 13095453) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40428.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Portal 2 (2011) [Ru/Multi] (Build 14822445) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40311.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Hell of an Office (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40229.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Portal with RTX (2022) [Ru/Multi] (Build 14355597) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40131.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Glitchpunk (2021) [Ru/Multi] (1.0.7) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40130.jpg" />
 </div>
 
 

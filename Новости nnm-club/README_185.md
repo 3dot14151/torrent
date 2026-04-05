@@ -1,3 +1,56 @@
+###  Публикация: 542716   (391392) от 03.11.2012
+
+Sleeping Dogs - Limited Edition [Ru/Multi7] (RePack/1.7/20 DLC) 2012 l R.G. Catalyst
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Гонконг, город, в котором дрожащий свет неоновых огней тесно переплетается с повседневной жизнью, город, чьи экзотические места и бурлящие улицы скрывают одну из самых могущественных и опасных криминальных организаций во всем мире — Триад.
+В этой игре с открытым миром вам предстоит примерить на себя роль Вей Шена, полицейского под прикрытием, который пытается разрушить банды Триад изнутри. Докажите свою значимость на пути к верхушкам этой организации, приняв участие в жестоких криминальных операциях, и не дайте преступникам раскрыть себя. Разрываясь между верностью к полицейскому значку и бандитским кодексом чести, вам придется поставить на кон всё и не запутаться в размытых границах между правдой, преданностью и справедливостью. (   Читать дальше...   )Тип издания: RePackЖанр: ActionЯзык озвучки: Английский, КитайскийЯзык интерфейса: Английский, Русский, Французский, Немецкий, Испанский, Итальянский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD46FB1ECF34DEE25E2CF4A8B61B12B0914E10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569645   (390591) от 04.11.2012
+
+Вспомнить всё / Total Recall (2012) DVD5
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_390591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — обычный рабочий-строитель, живущий в маленькой квартирке в захудалом районе города будущего где-то в Новой Азии. Хотя собственная жизнь его в целом устраивает, он не может избавиться от чувства, что ему хочется чего-то большего. Потребность в новых будоражащих впечатлениях приводит его в офис компании «Вспомнить всё», имплантирующей в память своих клиентов воспоминания-фантазии, которые они могут получить не рискуя при этом пережить сами события в реальности. Пока герой выбирает, какие именно воспоминания ему приобрести, отряд спецназа штурмует комнату, где он находится, и уже было берет его под арест. К своему собственному удивлению, он молниеносно уничтожает весь отряд при помощи невероятных бойцовских навыков, о владении которыми он и не подозревал…Жанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Лен УайзманПродюсер: Тоби Джаффе, Нил Х. Мориц, Рик КидниАктеры: Колин Фаррелл, Кейт Бекинсейл, Джессика Бил, Брайан Крэнстон, Джон Чо, Билл Найи, Букем Вудбайн, Уилл Юн Ли, Милтон Барнс, Джеймс Макгоун ...Перевод: ДублированныйПродолжительность: 01:53:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173353   (390156) от 11.10.2017
 
 Windows 7 SP1 x86 x64 DVD Release By StartSoft 63-64 2017 [Ru]
@@ -6,7 +59,7 @@ Windows 7 SP1 x86 x64 DVD Release By StartSoft 63-64 2017 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390156.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389916.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Call of Duty: Black Ops 2 [Xbox 360] [ENG] (RegionFree) (LT+3.0/15574) (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389670.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389668.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ AAct 3.7 Portable  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389470.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389463.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема Patch (2013) (u
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389146.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Acronis Disk Director Home 11.0.2343 Final RePack by D!akov [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389131.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ Rayman Raving Rabbids 2 (Возвращение бешеных кроликов)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389062.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388624.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388407.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_387783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_387783.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.3.0.3 Build 3706 + Portable + St
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387683.jpg" />
 </div>
 
 
@@ -358,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_387664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_387664.jpg" />
 </div>
 
 
@@ -384,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_387501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_387501.jpg" />
 </div>
 
 
@@ -410,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387037.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387034.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ Real Guitar / Реальная гитара v7.0.6 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386685.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ Torchlight II [Ru] (Lossless Repack/1.16.2.3) 2012 | R.G. World Games
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386641.jpg" />
 </div>
 
 
@@ -517,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386556.jpg" />
 </div>
 
 
@@ -544,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386438.jpg" />
 </div>
 
 
@@ -570,7 +623,7 @@ Maou-sama, Retry! | Князь Тьмы: Retry! [ТВ-1] [2019, TV, 12 из 12] 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386436.jpg" />
 </div>
 
 
@@ -596,7 +649,7 @@ Fallout + Fallout 2 + Fallout: Nevada [Ru/En] (3.2/3.4/2.0) Repack/Mod Foxx164 [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386432.jpg" />
 </div>
 
 
@@ -622,7 +675,7 @@ Jetico BestCrypt 9.03.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386238.jpg" />
 </div>
 
 
@@ -633,58 +686,6 @@ BestCrypt Container Encryption - пакет программ для создан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFD3BE652C590043C60BB672645D81B791E665F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067125   (386120) от 29.10.2016
-
-Pro Evolution Soccer 2017 (2016) [Ru/En] (1.01.00) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pro Evolution Soccer 2017 – это возвращение легендарной серии на ваши экраны, игры, которая становится всё лучше и лучше буквально с каждым годом. В основе этого проекта лежит «контроль над реальностью». Здесь заключён смысл новой игры, краеугольный камень – это достижение максимального реализма и в управлении, и в визуальном исполнении.Тип издания: RepackРазработчик: Konami Digital EntertainmentЖанр: Sport (Soccer), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223A1BBD84D818722762A8DAF7F74506A53EF74A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067756   (386112) от 29.10.2016
-
-Symantec Endpoint Protection 14.0.1904.0000 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symantec Endpoint Protection, использующий технологию Insight, обеспечивает эффективную и надежную защиту конечных систем. Он предлагает усиленную защиту от всех типов атак для физических и виртуальных систем.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDF06DB469D64CB1DB8F40E67FE03E4CA2EBCE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

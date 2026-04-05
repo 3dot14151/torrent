@@ -1,139 +1,3 @@
-###  Публикация: 1580564   (231966) от 01.10.2022
-
-П.В. Егоров | Пиво в СССР. Краткая энциклопедия сортов (2021) [FB2]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько сортов пива было в СССР? Один – «Жигулёвское» или два – «пиво есть» и «пива нет»? А может их было целых 350?
-Когда появилось «Жигулёвское» и «Рижское»? И насколько похоже современное «Жигулёвское» на то, что варили до войны?
-Было ли в СССР безалкогольное пиво и наоборот – очень крепкие сорта не уступающие нынешним по содержанию алкоголя?
-Варился ли в СССР (   Читать дальше...   )Жанр: Техническая литература, Наука и ОбразованиеЯзык: РусскийФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95DBFF5B99DBC315401300D0D3BABC6AA2156ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636040   (231908) от 28.05.2023
-
-Брюс Экер, Робин Тицик, Лорел Халли | Разблокирование эмоционального мозга. Окончательное устранение симптомов при помощи реконсолидации памяти (2023) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагается новый, основанный на результатах новейших исследований в нейронауке подход, помогающий добиться глубинной трансформации губительных неявных эмоциональных представлений в работе с самыми разными проблемами и ситуациями. Отражены новейшие нейропсихологические исследования, описывающие способность мозга изменять давние болезненные воспоминания. Авторы обучают (   Читать дальше...   )Жанр: Психотерапия, нейробиология, психологияПеревод: Т.Е. КондратенкоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C9B18F9F46676A0F0B629FE37FEE7FDE4FB1B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581029   (231568) от 03.10.2022
-
-Михаил Бажмин | Секс, смерть и галоперидол. Как работает мозг преступника. Судебная психиатрия как она есть (2022) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сумасшедшие истории из практики судебного психиатра с точными и искрометными комментариями автора. Каждая история пробирает до мурашек и никого не оставит равнодушным.Жанр: Научно-популярная литература, Врачи о врачах и пациентах, Криминальная психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D00C8BAAB7F4327CED8E6AC9B95CEFD58091CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581187   (231492) от 04.10.2022
-
-Л.П. Финкельштейн | Домашний репетитор (1995) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "Домашний репетитор. Избранные главы конкурсной математики в методах и задачах" состоит из четырех книг:
-- Уравнения, неравенства и системы в школьном курсе алгебры;
-- Тригонометрия. Доказательство тождеств, упрощение выражений, решение уравнений и систем;
-- Задачи с модулем; Задачи на построение;(   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69994DB8934A3E84BCD7E6ADBF6299976D6E3EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636571   (231433) от 31.05.2023
-
-В.М. Пасецкий | Арктические путешествия россиян (1974) [DJVU]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231433.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге воссоздается картина отечественных исследований на севере России с начала до 60-х годов прошлого века. Автор показывает становление и развитие научных представлений о Северном Ледовитом океане, по-новому освещает важнейшие историко-географические вопросы: о северном проходе между Атлантическим и Тихим океанами, об экспедициях на северо-восток Сибири и на (   Читать дальше...   )Жанр: научно-популярнаяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A320492ACAD2FE220A4445F53A8747BE62547D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636572   (231402) от 31.05.2023
 
 В.М. Пасецкий | Путешествия, которые не повторятся (1986) [PDF]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231402.jpg" />
 </div>
 
 
@@ -169,7 +33,7 @@ DK | Complete Atlas of the World, 3rd Edition: The Definitive View of the Earth 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231366.jpg" />
 </div>
 
 
@@ -195,7 +59,7 @@ Dohan Ibrahim | Circuit Simulation with TINA Design Suite and TINACloud (2022) [
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231281.jpg" />
 </div>
 
 
@@ -221,7 +85,7 @@ Tom Jackson | The Periodic Table Book - A Visual Encyclopedia (2017) [PDF]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231268.jpg" />
 </div>
 
 
@@ -247,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231175.jpg" />
 </div>
 
 
@@ -273,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231109.jpg" />
 </div>
 
 
@@ -300,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231065.jpg" />
 </div>
 
 
@@ -327,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231063.jpg" />
 </div>
 
 
@@ -353,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231057.jpg" />
 </div>
 
 
@@ -379,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231002.jpg" />
 </div>
 
 
@@ -406,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230932.jpg" />
 </div>
 
 
@@ -432,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230917.jpg" />
 </div>
 
 
@@ -459,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230901.jpg" />
 </div>
 
 
@@ -485,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230851.jpg" />
 </div>
 
 
@@ -512,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230825.jpg" />
 </div>
 
 
@@ -539,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230811.jpg" />
 </div>
 
 
@@ -565,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230788.jpg" />
 </div>
 
 
@@ -591,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230772.jpg" />
 </div>
 
 
@@ -618,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230743.jpg" />
 </div>
 
 
@@ -644,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230688.jpg" />
 </div>
 
 
@@ -670,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230600.jpg" />
 </div>
 
 
@@ -681,6 +545,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41780DD8679488336AEB9E6389DCD031CD638FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582521   (230504) от 10.10.2022
+
+С.К. Годунов | Уравнения математической физики (1971) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет изложение оригинального курса лекций, которые автор читал в Московском и Новосибирском университетах. Нетрадиционный выбор материала связан с тем, что автор много занимался приложениями дифференциальных уравнений к механике сплошных сред и разработкой численных методов для решения этих уравнений. Автор стремился отобрать материал, который к настоящему (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5F95E9060603B3EB1EFE863A1E43A077BA3DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649143   (230404) от 26.07.2023
+
+М.Я. Выгодский | Основы высшей математики (1963 - 1965) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее руководство составлено применительно к действующей программе по основному курсу высшей математики механико-машиностроительных технических учебных заведений и специально предназначено для студентов, обучающихся заочно. Поэтому уделено особое внимание примерам, поясняющим теоретические выводы, а зачастую и предваряющие последние.Жанр: МатематикаИздательство: ФизматгизФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8FBF46C2553DC9BB99B5B66FC14F2D6FEDF98A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649153   (230392) от 26.07.2023
+
+Ю.Н. Дементьев и др. | Электротехника и электроника. Электрический привод (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230392.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии изложены основы теории электропривода. Рассматриваются принципы действия разомкнутых и замкнутых систем электроприводов постоянного и переменного тока. Представлена методика и примеры расчета параметров двигателей, статических и динамических характеристик электроприводов.
+Пособие предназначено для студентов, обучающихся по специальностям укрупненной группы (   Читать дальше...   )Жанр: Электротехника, электроникаИздательство: ПрофобразованиеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86908C64E1C2EF334EF40BC3689CBAA04E649629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582997   (230311) от 12.10.2022
+
+Галина Турецкая | Теория большого срыва. Как похудеть без диет, тренажеров и дожоров (2021) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230311.jpg" />
+</div>
+
+
+###  Подробнее
+
+В проблемах с лишним весом главное - признаться себе в том, что он у вас есть. Благодаря практикам, собранным в этой книге, более 400 000 людей уже смогли избавиться от переедания и лишних килограммов.
+Книга сделана в форме игры, в ней вы найдете 25 психологических упражнений, которые откроют вам причины набора веса и помогут побороть Его Величество Срыв не в теории, (   Читать дальше...   )Жанр: Красота и здоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764F44B4E77854688B61707F898C0D22973B3A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556847   (230251) от 11.06.2022
+
+Сергей Криволапов, Марина Хрипунова | Математика на Python (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит инструкцию по установке языка на ПК, большое количество практических примеров использования языка Python для решения математических задач. Каждая тема включает примеры решения типовых задач и задачи для самостоятельного решения. Логически связан с программой курса математики, утвержденной в Финуниверситете, и состоит из двух основных частей: математического (   Читать дальше...   )Жанр: Компьютерная литература, математикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D7360A58380A4C07C09464D5740342DDF955F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

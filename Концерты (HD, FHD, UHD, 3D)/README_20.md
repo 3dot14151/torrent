@@ -6,7 +6,7 @@ Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585992.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nightwish - Showtime, Storytime (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583628.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583352.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582279.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Metallica - Fan Can Six, Copenhagen(2010) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581797.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Whitesnake - Made In Japan (2011/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579924.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Metallica - Orgullo Pasion Y Gloria - Tres Noches En Mexico (2009) BDRip [H.264/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579921.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578938.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Led Zeppelin - Celebration Day (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578630.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Hidden Tribe - Live at RTC-Fest @ Da:Da (2013) [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578406.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Rammstein - Live aus St. Petersburg (2012) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578367.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Stomp: Live (2009) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_576577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576577.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576429.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bon Jovi - Live at Madison Square Garden (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575372.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Dio - Live In London - Hammersmith Apollo (1993/2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575216.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ U.D.O. - Live in Sofia (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573647.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Status Quo - Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573583.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Liquid Tension Experiment: Live in L.A. (2008) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_572886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572886.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ The Rolling Stones - Totally Stripped (1995) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571887.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Aerosmith - Rock For The Rising Sun (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571607.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ U.D.O. – Steelhammer - Live from Moscow (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571594.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Blackmore's Night - A Knight In York (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571426.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Styx - The Grand Illusion / Pieces of Eight Live (2010/2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569821.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Fare Thee Well - Weekend One / Grateful Dead Live Jun 27 & 28, 2015 at Levi's St
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568060.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Shakira - Oral Fixation Tour (2007) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565954.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565837.jpg" />
 </div>
 
 

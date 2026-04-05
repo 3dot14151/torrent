@@ -1,3 +1,32 @@
+###  Публикация: 1332006   (314037) от 20.10.2019
+
+JD Miller - Afterglow (2019) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314037.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Inside a Dream (4:41)
+ 2 - Game Of Love (4:49)
+ 3 - Inception (4:26)
+ 4 - Icarus (3:12)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC71C4C441FBA03A75D300896D208E0D8E8F5B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332387   (314013) от 20.10.2019
 
 Dream Company - The Wildest Season (2019) [MP3|320 Kbps] <Melodic Hard Rock>
@@ -6,7 +35,7 @@ Dream Company - The Wildest Season (2019) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314013.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Danger Zone - Don't Count on Heroes (2019) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313999.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Chef Aid - The South Park Album (1998) Compilation [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313990.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Amatory - Doom (2019) [FLAC|Lossless|Web-DL|tracks] <Alternative, Nu-Metal, Mode
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313882.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ LaScala - Agonia (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313880.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Burning Point - The Blaze (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313857.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313855.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Lindemann - Ich weiß es nicht (2019) Single [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313656.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Celebrity Sex Scandal - The Fundamental (2020) [MP3|320 Kbps] <Avant-Garde, Prog
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313395.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Eternal Champion - Ravening Iron (2020) [MP3|320 Kbps] <Epic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313279.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313277.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313274.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Lords Of Black - Alchemy Of Souls (Part I) (2020) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313273.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313154.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313152.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ Tony Carey's Planet P Project - G.O.D.B.O.X. 4CD (2014) [FLAC|Lossless|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313144.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313017.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ AC/DC - Johnson City 1988 (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312851.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Sergey Golovin - Changes (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312585.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ Angelo Perlepes' Mystery - Fatal Passion (2001) [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312557.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312546.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ Deep Purple - The Battle Rages On… (1993) [FLAC|tracks+.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312408.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312398.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ Vhaldemar - Against All Kings (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312346.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ Rainbow - Long Live Rock 'N' Roll (1978) [FLAC|tracks+.cue]<Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312268.jpg" />
 </div>
 
 
@@ -708,35 +737,6 @@ Rainbow - Long Live Rock 'N' Roll (1978) [FLAC|tracks+.cue]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF83B247335A504BE1DD2B662A31A45CD39AB115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260263   (312182) от 07.11.2018
-
-Svartby - Elemental Tales (2012) [FLAC|Lossless|image + .cue] <Folk Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Impby (1:28)
-02-Scum From Underwater (2:53)
-03-Boulder Massacration (3:33)
-04-Sleepy Devils (3:59)(   Читать дальше...   )Жанр: Folk Black MetalПродолжительность: 00:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1163D301ABA589BFD522246F597AE0103E64D69E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1810248   (9473) от 03.08.2025
-
-Balun.Courses, Сергей Венецкий | Глубокий Git (2025) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продвинутый курс по внутреннему устройству Git. Осваиваем лучшие практики и экспертные приемы, а не элементарные команды. Ведет бывший разработчик EPAM.
-
-Подходит для программистов любого уровня, стека и языка
-(   Читать дальше...   )Производство: Balun.CoursesЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 11:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC69F7F04EFA7943D06140811220D44B4F0CE9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810607   (9298) от 05.08.2025
 
 Специалист, Сергей Прощаев | Apache Kafka для разработчиков (2025) WEB-DL [RU]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9298.jpg" />
 </div>
 
 
@@ -63,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7809.jpg" />
 </div>
 
 
@@ -92,7 +63,7 @@ Alexander Semenko | Вся необходимая база по Assembler (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7802.jpg" />
 </div>
 
 
@@ -118,7 +89,7 @@ Computer Science Center | Программирование на Rust (2019) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7775.jpg" />
 </div>
 
 
@@ -146,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7750.jpg" />
 </div>
 
 
@@ -175,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7559.jpg" />
 </div>
 
 
@@ -204,7 +175,7 @@ StasPiter | Программирование на Delphi в Rad Studio (2015) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7541.jpg" />
 </div>
 
 
@@ -230,7 +201,7 @@ Udemy, Artsiom Rusau | Тестировщик с нуля 2024. Web/Mobile, Post
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7399.jpg" />
 </div>
 
 
@@ -258,7 +229,7 @@ Rush Academy, Евгений Милованцев, Игорь Бурдуков |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6185.jpg" />
 </div>
 
 
@@ -284,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5890.jpg" />
 </div>
 
 
@@ -312,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5731.jpg" />
 </div>
 
 
@@ -338,7 +309,7 @@ Purpleschool, Антон Ларичев | Feature-Sliced Design (2025) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5436.jpg" />
 </div>
 
 
@@ -366,7 +337,7 @@ Purpleschool, Антон Ларичев | Nuxt - fullstack Vue фреймвор�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5426.jpg" />
 </div>
 
 
@@ -394,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5262.jpg" />
 </div>
 
 
@@ -420,7 +391,7 @@ Purpleschool, Антон Ларичев | Vue.js 3, Vue Router и Pinia (2025) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4713.jpg" />
 </div>
 
 
@@ -446,7 +417,7 @@ Infostart, Владимир Лушников | Новое в 1С: Докумен
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4619.jpg" />
 </div>
 
 
@@ -475,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4194.jpg" />
 </div>
 
 
@@ -501,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3662.jpg" />
 </div>
 
 
@@ -530,7 +501,7 @@ Udemy, YouAccel Training | Learn to Host Multiple Domains on one Virtual Server 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3373.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2878.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2844.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ Stepik, Даниил Беликов | Первая работа в IT. Стра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2827.jpg" />
 </div>
 
 
@@ -638,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2716.jpg" />
 </div>
 
 
@@ -664,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1760.jpg" />
 </div>
 
 
@@ -691,7 +662,7 @@ igoroutine.courses, Игорь Панасюк | The Nature of Concurrency - ку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1207.jpg" />
 </div>
 
 
@@ -702,6 +673,35 @@ igoroutine.courses, Игорь Панасюк | The Nature of Concurrency - ку
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD4F7B268D1B08A03AD20B1B644262FF5B87CB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662883   (1083) от 25.09.2025
+
+Rebrain, Александр Марченко, Артемий Дубовой | Grafana онлайн-практикум (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grafana была создана 7 лет назад для визуализации данных из различных источников: систем мониторинга, реляционных баз данных, аналитических баз и других.
+
+- Сейчас этот инструмент используют более 300 тысяч пользователей в день для визуализации и мониторинга состояния инфраструктуры, а также аналитики технических атак и бизнес-аналитики.
+- Интересно, что использование (   Читать дальше...   )Производство: RebrainЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 01:04:03Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E33B706632DE70D5F371D19CAC889D5818EC6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

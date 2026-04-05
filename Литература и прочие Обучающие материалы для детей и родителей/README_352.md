@@ -1,3 +1,57 @@
+###  Публикация: 1541681   (242593) от 03.04.2022
+
+Вера Иванова | Что такое? Кто такой? Как устроен человек? (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга популяризатора науки Веры Ивановой "Как устроен человек?" расскажет и объяснит, для чего человек дышит, зачем бьётся сердце, из чего состоит кровь, как устроен организм человека в целом. Книга проиллюстрирована подробными схемами.
+Также, благодаря практическим советам, вы сможете оставаться здоровым и бодрым на протяжении всей жизни.
+Для младшего (   Читать дальше...   )Жанр: Детская познавательная и развивающая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBD122C73E8ABEA5E4CAEA9B31A437DA12AAF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457900   (242543) от 27.03.2021
+
+Галина Гордиенко | Кошмары 21-й школы (2021) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242543.jpg" />
+</div>
+
+
+###  Подробнее
+
+К третьекласснице Тайке по ошибке попадает волшебная шкатулка ее прабабушки-ведьмы, и девочка становится ученицей деревенской колдуньи. Она начинает «вершить правосудие» по своему усмотрению: сурово наказывает тех, кто ее обижает, и вознаграждает тех, кто ей дорог. Однако за свое всемогущество Тайке придется заплатить дорогой ценой.Жанр: Фантастика, Приключения для детей, Книги для подростковФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B364BC7223547A518C74481A2561BDC276CE7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623991   (242536) от 04.04.2023
 
 Различные | Сборник сказок для младшего школьного возраста [16 книг] (1976-1986) [PDF]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242536.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242517.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242507.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242497.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242380.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242353.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242339.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242298.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242283.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242270.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242211.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242045.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242035.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241977.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241966.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241836.jpg" />
 </div>
 
 
@@ -436,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241794.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241762.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241723.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241706.jpg" />
 </div>
 
 
@@ -545,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241661.jpg" />
 </div>
 
 
@@ -574,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241562.jpg" />
 </div>
 
 
@@ -600,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241507.jpg" />
 </div>
 
 
@@ -626,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241424.jpg" />
 </div>
 
 
@@ -637,61 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4CBB552B3B2549761FDA1FC4D02F27D53B86BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460208   (241335) от 04.04.2021
-
-Эмили Родда | Все о волшебной стране Тилоаре [сборник] (2007) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, полная приключений, загадок и неожиданностей!
-Много лет Повелитель Теней стремился покорить страну Тилоару, но ее оберегал волшебный Пояс с драгоценными камнями. И вот камни похищены слугами Повелителя Теней. Сын кузнеца Лиф, бывший стражник Барда и девушка-дикарка Жасмин отправляются в опасный путь, чтобы найти камни и спасти свою страну. А читатель сможет (   Читать дальше...   )Жанр: Фэнтези, СказкаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B266848686F509F826BA4904F24F2A5160B91AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461598   (241275) от 10.04.2021
-
-Томас Леннон | Ронан Бойл и Мост загадок. Книга 1 (2020) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ронан Бойл – самый молодой и самый скромный новобранец секретного отдела полиции, который расследует преступления магических существ.
-Родители Ронана в тюрьме, и он убежден, что в этом виноваты лепреконы. Несмотря на свой небольшой рост, плохое зрение и мягкий характер, парень полон решимости раскрыть правду и освободить родных.
-Но не все так просто: на его пути (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: Д.В. ШляпинФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761160B444705D768890375E540EDB79A6F9491F
 ```
 
 https://mybot314.ru/tekegram_catalog/

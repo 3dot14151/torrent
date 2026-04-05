@@ -1,3 +1,119 @@
+###  Публикация: 1352734   (243242) от 15.01.2020
+
+Tiga - You Gonna Want Me (2005) [FLAC|Lossless|image + .cue] <House, Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243242.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 You Gonna Want Me (Radio Edit) 3:09
+2 You Gonna Want Me (12 Inch Dance Mix) 5:44
+3 You Gonna Want Me (Isolee In-My-Bee Remix) 6:13
+4 Do It Don't Stop 4:15Жанр: House, Techno, ElectroПродолжительность: 00:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF00F3F5BDCCE6654A28803360736DEA641429B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539882   (243233) от 27.03.2022
+
+VA - My Free Hour: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FIN PROJECT – It's Gonna Be Fine (06:12)
+02. Jane Maximova – Novel (Lemongrass remix) (04:08)
+03. Dreamhunter – Boarding Gate (original mix) (04:27)
+04. Marga Sol – Falling (original mix) (06:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E71680D2EF516E152888AB77B3D3B3AF0EE4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079495   (243185) от 04.12.2016
+
+VA - Winter Chillout Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Voyage - Magic of the Senses (The Secret Garden Mix) 5:36
+02. Jazz Boutique - Crystalline Ice (Patagonia Cut) 4:10
+03. Frank Borell - 1001 Dreams (Fairytale Mix) 5:02
+04. Cafe Americaine - Bella's Ballad (Quiet Night Mix) 5:06(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6BF3BFCA195644B4D5BDC746BD37E6B8FE94EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079483   (243155) от 04.12.2016
+
+Mark Dwane - The Euphonic Collection (2016) [MP3|320 Kbps] <Chill out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Symbiosis (Remastered) [00:05:03]
+02 -  Supernatural (Remastered) [00:04:36]
+03 -  Haven (Remastered) [00:04:58]
+04 -  Transhuman Nature (Remastered) [00:05:18](   Читать дальше...   )Жанр: Chill outПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E95A1E1F73B7C3F6C2DC9F54B514015E4D18CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627279   (243138) от 18.04.2023
 
 Florian Kruse - Nordic Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Tech House>
@@ -6,7 +122,7 @@ Florian Kruse - Nordic Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243138.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Lostly - Trance Academy: Acid Revolution (Mixed By Lostly) (2015) [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243097.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - EDM Deejay Compilation 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243031.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - The London Chillout (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243022.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Summer Mood 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243012.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Truncate & Dotdat - HYD (2021) Truncate [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242986.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Ibiza! - The Sound Of The Summer 2023 (2023) [MP3|320 Kbps] <Dance, Club, H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242971.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Yorobi - Eden (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breakbeat, Dr
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242793.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Diary Of Dreams - Melancholin (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Darkwave,
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242733.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Spring Break Escalation 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242584.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Armin van Buuren - A State Of Trance 1117 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242549.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Ibiza Opening Party 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242481.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Armin van Buuren - A State Of Trance 1121 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242437.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Coastal Breeze: Chillout Your Mind (2023) FLAC [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242432.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Chilled & Timeless Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242393.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Twelve Inch Nineties 90s - Loaded (2017) 3 CD [OGG Vorbis|480 Kbps] <Electr
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242376.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Black Hole House Music 02-17 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242371.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Blue Lounge Chillout Your Mind (2017) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242365.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Women Secrets (A Lounge & Chill Out Deluxe Collection), Vol. 2 (2017) [MP3|
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242349.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Spring Cardio Dance Hits 2021 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242329.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Nothing But... Trancetopia, Vol. 03 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242310.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ XZICD - NIVIVIИ (2018) Kaer‘Uiks [FLAC|Lossless|WEB-DL|tracks] <Experimental,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242274.jpg" />
 </div>
 
 
@@ -629,120 +745,6 @@ XZICD - NIVIVIИ (2018) Kaer‘Uiks [FLAC|Lossless|WEB-DL|tracks] <Experimental,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46A11D3EE9E5328968AF360D1C9A732499718851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634945   (242272) от 23.05.2023
-
-Mandy, Indiana - i've seen a way (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Theme (4K VHS) (3:17)
-02. DragЖанр: ElectronicПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41B3620845264354C798F0D32DC45ADB452A5DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105692   (242271) от 18.02.2017
-
-VA - Deep House Resort (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archi Nova - At A Depth 03:25
-02. Geogor Dansis - Re 04:21
-03. Lashch - Other 09:33
-04. Mizkan - Perfect Future 06:47(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62047EADB4CA15C84AD0323EF9B5B48881986313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278179   (242262) от 12.04.2022
-
-Dawn Of Ashes + Kristof Bathory: solo album  + URILIA: side project - Discography 16 Releases (2005-2022) [MP3|320 Kbps] <Industrial Metal, Harsh EBM, Dark Electro, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242262.jpg" />
-</div>
-
-
-###  Подробнее
-
-2005 - Sacred Fever (2018 Reissue Remastered Edition)
-2006 - In The Acts Of Violence
-2007 - The Crypt Injection
-2010 - Genocide Chapters(   Читать дальше...   )Жанр: Industrial Metal, Harsh EBM, Dark Electro, IndustrialПродолжительность: 14:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5D31A3412CCA2CAEC9685451E52B85A04D3E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458242   (242241) от 28.03.2021
-
-VA - Daniel Kandi Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mat Zo - The Lost (Extended Mix) (8:57)
-02. Velvetine - Safe (Wherever You Are] (Rank 1 Extended Mix) (8:02)
-03. Ilan Bluestone; Sunny Lax - 43+86=129 (Extended Mix) (7:02)
-04. Boom Jinx; KEY - Eternal Reminiscence (Oliver Smith Extended Mix) (8:16)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C263453A182F60D06446A1F3FDE5429267D077
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1436613   (1043005) от 01.01.2021
+
+Eternium v1.5.32 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eternium - ролевая игра для устройств на платформе Андроид, в которой нужно сражаться с полчищами скелетов, демонов и прочей нечисти. В бою необходимо использовать разнообразное вооружение и амуницию, которая приобретается у местного торговца.Тип издания: Пиратка (Мод: Много рубинов)Релиз состоялся: 28 декабря 2020 г.Разработчик: Making FunПоддерживаемая ОС: Android 4.4 и вышеЖанр: РПГ, Ролевая играЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A014FB97E9D7D44B404B4C20818CDD95641A4544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609646   (1042860) от 05.02.2023
+
+Справочник рыбака v1.1.4 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042860.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Справочник рыбака» - полезное приложение, содержащее в себе подробное описание наиболее известных видов рыб, обитающих в водоёмах России и ближнего зарубежья. Оно будет полезно как начинающим, так и опытным рыболовам-любителям.Тип издания: AdfreeРелиз состоялся: 04.02.2023Разработчик: VT LabsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732B5DAC2B674F9141DAA6B4328F65FECB174391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436718   (1042785) от 02.01.2021
+
+Stickman Dragon Fight v1.1.3 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stickman Dragon Fight - Super Stick Warriors - экшн-файтинг с элементами RPG, который обязательно понравится фанатам жанра. В нем игрока ждут многочисленные битвы с сотнями противников в режиме сюжетной кампании, в которых для победы предстоит использовать комбинации из трех приемов.Тип издания: Пиратка (Мод) Много денег!Релиз состоялся: 29 декабря 2020 г.Разработчик: Azura GlobalПоддерживаемая ОС: Android 5.0 и вышеЖанр: ЭкшенЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A671D4BB88187688C4FBADE7ECA57773BD82C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436678   (1042730) от 02.01.2021
+
+Solar System Scope v3.2.4 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Solar System Scope - представляет собой виртуальный 3D планетарий и обсерваторию для Android устройств. Пользователи смогут наблюдать за положением планет и планетарных орбит в режиме реального времени.Тип издания: Пиратка (Premium)Релиз состоялся: 7 апреля 2020 г.Разработчик: INOVE, s.r.o.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6550B0541E4F4DCD0FB4A1488B4C80E410F95C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437060   (1042423) от 03.01.2021
 
 Дороги России ТОПО 6.35 (FID3332 ) [Ru]
@@ -6,7 +110,7 @@
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042423.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Free Guitar Tuner v4.0.0 Premium [En] - Fender Tune
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042261.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ MobiDic Guitar Chords v2.6 Pro [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042250.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042236.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ FINAL FANTASY III v2.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042212.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Garmin: TOPO Great Britain v2 PRO [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042098.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Garmin: Adria TOPO v5 PRO [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042089.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ Folio v3.6.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042006.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ GnaCAD v2.8.48 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041995.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041987.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ Best Fiends Stars v2.5.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041941.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041704.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ DAILY NOTE v4.2.2 Premium [Ru/Multi] - Ежедневные заметки, дн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041697.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ Grand War European Conqueror v3.3.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041686.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ CHUCHEL v2.0.14 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041597.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041553.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ Don't Push The Wrong Button 2 v1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041458.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041308.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ Bike Computer v1.8.4.2 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041041.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ Levelhead v100.0.38 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040848.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ Vengeance RPG v1.2.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040731.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ Clash of Robots v3.8 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040538.jpg" />
 </div>
 
 
@@ -570,114 +674,6 @@ Clash of Robots - настоящие роботизированные глади
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:083932371F481DEC4784FAC0C979391FB13E4884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960543   (1040467) от 10.01.2021
-
-Слова любимым v1.3.5 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярное WinPhone приложение теперь на Android! В преддверии праздников или просто так, подарите своим любимым, родным или близким, самые теплые и нежные слова. Приложение "Слова любимым" позволит Вам подобрать лучшие SMS из огромного количества поздравлений и пожеланий, а также Вы можете отправить его по смс, e-mail, WhatsApp Messenger и поделиться с (   Читать дальше...   )Тип издания: Ad-Free (удалена реклама)Релиз состоялся: 02.06.2019Разработчик: Suslov AlexanderПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7D3D92CCB158C4B890C1F0E986AD7E0F74E498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438838   (1040452) от 10.01.2021
-
-AGAMA Car Launcher v2.7.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Car Launcher AG - Никогда еще управление мультимедиа вашего автомобиля не было столь удобным. Встречайте новый автомобильный лаунчер AGAMA. Все самые полезные функции и необходимая информация на расстоянии одного клика от вас. Лаконичный дизайн и простота управления, не будут помехой в гибкости настройки. AGAMA меняется в зависимости от интерьера автомобиля и вашего (   Читать дальше...   )Тип издания: Пиратка (Мод) Premium версияРелиз состоялся: 16 декабря 2020 г.Разработчик: altergames.ruПоддерживаемая ОС: Android 4.1 и вышеЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308462580EE82C573D3EAC025705A7E177FE9A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439022   (1040290) от 11.01.2021
-
-AI Translate v3.1.1 Premium [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040290.jpg" />
-</div>
-
-
-###  Подробнее
-
-AI Перевести поможет вам перевести любой текст на экране одним щелчком мыши.
-AI Перевести поддерживает более 100 языков.
-Вы выбираете область на экране, и выбранные тексты будут переведены.
-• переводить тексты в других приложениях(   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 14 декабря 2020 г.Разработчик: AI EduПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58BF34FCCE91C1151ECA08AC19A2226EFC29C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410699   (1040289) от 11.01.2021
-
-Old Movies v1.13.09 Premium [En] - Oldies but Goldies
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040289.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Бесплатные полные фильмы из эпохи классического голливудского кино (с 1910 по 1960 годы).
-• Наслаждайтесь выступлениями великих актеров и актрис , таких как Чарльз Чаплин (Бродяга), Джон Уэйн, Гари Купер, Марлон Брандо, Ингрид Бергман, Ширли Темпл или Дебби Рейнольдс, и восхищайтесь выдающейся работой, проделанной такие известные режиссеры как: Орсон Уэллс или (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 14 ноября 2020 г.Разработчик: Cast ToolsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8759D9336B2939299AF5812181336C587280DC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

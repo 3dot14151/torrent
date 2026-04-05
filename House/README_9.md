@@ -1,3 +1,61 @@
+###  Публикация: 1371488   (888587) от 01.04.2020
+
+VA - Spring Break 2020 (Best of Dance, House & Electro) (2020) [MP3|320 Kbps] <House, Deep House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Combo - Happy Every Day (Original Mix) [03:27]
+02. Alpha Squad - All About The Music (Radio Edit) [03:12]
+03. YA-YA - Stay With Me (Radio Edit) [02:59]
+04. Allenx feat. Itto and Norah B. - No Time (Spikaa Remix) [03:59](   Читать дальше...   )Жанр: House, Deep House, Progressive House, Future House, DanceПродолжительность: 01:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB307BDB20C0983E1EF8FF4F645ADF94AC71A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371712   (888573) от 01.04.2020
+
+VA - Armada Music - Decade (2010-2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loud Luxury feat. Brando - Body 2:43
+02. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like 3:24
+03. Lost Frequencies & Zonderling - Crazy 2:33
+04. Thomas Gold feat. Jillian Edwardss - Magic 2:51(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FBA697CA3D1F19012BB783991C1B40E883E29F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994437   (888175) от 09.03.2016
 
 VA - Minimal Daydream (2016) [MP3|320 кб/с] <House>
@@ -6,7 +64,7 @@ VA - Minimal Daydream (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888175.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Dance Essentials (Armada Music) (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887787.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Vocal House Sessions Vol.14 (2017) [MP3|320 Kbps] <House, Vocal House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885972.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Big Room Party Here (2017) [MP3|320 Kbps] <House, Electro House, Big Room>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885953.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Dance 2017 (Armada Music) (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885912.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Workout Music 2020 [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885389.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Schickimicki (2017) [MP3|320 Kbps] <Tech House, Deep House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883630.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Best Love Winter Music (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881895.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - All About The Bass (20 Electro Monsters) Vol 1 (2017) [MP3|320 Kbps] <Elect
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881886.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Future House 2017-01 - Armada Music (2017) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880072.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Glamour Chill House - Fashion and Rafinated Beats (2016) [MP3|320 кб/с] 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879413.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Cycles 7 (Mixed By Max Graham) (2016) [MP3|320 кб/с] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879412.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - This Is Our House Music Miami- Finest Groovy House Tunes (2016) [MP3|320 к
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879410.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Fitness Beats (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879293.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - 50 Best Tracks For Your Car 5 (2016) [MP3|256-320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879277.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Nu Disco & House Dreams Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878289.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Pump Up The House Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878286.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - EDM Invasion 5 (2017) [MP3|320 Kbps] <House, Electro House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878127.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Gai Barone - Towards (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877681.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Vocal House Maniacs Vol.1 (2017) [MP3|320 Kbps] <House, Vocal House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871664.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Melodic Progressive House Vol.09 (2017) [MP3|320 Kbps] <House, Progressive 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871562.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Melbourne Bounce Sound Selection Vol.2 (2017) [MP3|320 Kbps] <House, Melbou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870144.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Best Fall Hits For Aerobic & Cardio 2021 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869925.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Various Artists - Horenswert Vol. 10 (2016) [MP3|320 кб/с] <Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868643.jpg" />
 </div>
 
 
@@ -687,62 +745,6 @@ VA - Various Artists - Horenswert Vol. 10 (2016) [MP3|320 кб/с] <Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89013E0056B8C4B46F6556C6057DF540EDAE6652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998612   (868590) от 20.03.2016
-
-Flash Cartel - Elevate (2012) [MP3|320 кб/с] <Progressive House, Drum & Bass, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevate (Original Mix) [05:56]
-02. Elevate (Three20 Remix) [05:36]
-03. Breakaway (Original Mix) [06:46]
-04. Boulevard (Original Mix) [04:12]Жанр: Progressive House, Drum & Bass, Electro HouseПродолжительность: 00:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29DA6534A3453BAC43455A286C2D2E78615E565D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997862   (868576) от 20.03.2016
-
-VA - We Love Deep Vol. 1 (2016) [MP3|320 кб/с] <Tech House, Indie Dance, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phunk Investigation - Cadillac Man (Radio Edit)
- 02. Mart - Hollywood (Short Edit)Жанр: Tech House, Indie Dance, Nu DiscoПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A80DA118C937C9420C2A9B83BB93CF1224D9A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

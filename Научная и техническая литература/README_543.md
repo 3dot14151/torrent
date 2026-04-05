@@ -1,135 +1,3 @@
-###  Публикация: 1593536   (180200) от 27.11.2022
-
-В.В. Янцев | JavaScript. Готовые программы (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавая сайт, программист вынужден решать множество задач. Нужно настроить меню, продумать работу с фотографиями, создать форму для отправки сообщений, сделать удобную систему редактирования страниц, адаптировать сайт к просмотру на мобильных устройствах. Книга предлагает множество уже готовых решений для самых разнообразных проектов. Вам не придется создавать код (   Читать дальше...   )Жанр: УчебникиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976177BCDC4592BC995BA4C41B378FA9DFA35412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666096   (180149) от 03.10.2023
-
-А.В. Погорелов | Лекции по аналитической геометрии (1963) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит краткое изложение основных методов и приёмов аналитической геометрии и рассчитана на студентов физико-математических факультетов и педагогических институтов.Жанр: МатематикаИздательство: Издательство Харьковского университетаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026305BFD29067D3C6F8B139462033352EE13C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666296   (180046) от 03.10.2023
-
-В.И. Полищук | Общая энергетика (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180046.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии изложены общие вопросы энергетических систем, теоретические основы преобразования различных видов энергии (тепловой, ядерной, гидравлической, солнечной, ветровой, геотермальной и т.п.) в электрическую энергию, объяснены устройство, принципы функционирования, режимы работы тепло- и электрогенерирующего оборудования и освещены основные вопросы, связанные (   Читать дальше...   )Жанр: ЭнергетикаИздательство: Инфра-МФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545A79044390BD8E457D0837FF3F59AFE0693A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428429   (179928) от 02.12.2020
-
-Т.В. Анчарова, М.А. Рашевская | Приемники электроэнергии (2021) (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержит сведения об основных видах приемников электроэнергии, их конструктивных особенностях, особенностях подключения, требованиях к электрической сети и влиянии на сеть, а также о связанных с воздействием электроприемников проблемах качества электроэнергии.
-Соответствует ФГОС ВО последнего поколения.
-Для студентов бакалавриата, обучающихся по направлениям «Электроснабжение» (   Читать дальше...   )Жанр: Электротехника, электроснабжениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB1B0A8AB13E17018B7071A04B2BB3BA375C665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428499   (179916) от 02.12.2020
-
-Игорь Иванов | Объясняя науку. Руководство для авторов научно-популярных текстов (2021) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популяризация науки и расцвет научных коммуникаций – яркая тенденция последних лет в культурной жизни на русскоязычном пространстве. Но как писать грамотный научпоп? Необходимо ли для этого быть ученым? Правомерно ли сравнивать популяризатора с переводчиком с «птичьего научного языка» на общепонятный? Почему новость может оказаться некорректной, даже если она не (   Читать дальше...   )Жанр: Искусство и творчество, Писательское мастерствоФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1319FE4A2DAE3B69F303820DDD5AC59A01E0F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428495   (179890) от 02.12.2020
 
 Скотт Брюс | Ад. История идеи и ее земные воплощения (2021) [EPUB]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179890.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179886.jpg" />
 </div>
 
 
@@ -191,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179836.jpg" />
 </div>
 
 
@@ -217,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179786.jpg" />
 </div>
 
 
@@ -243,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179721.jpg" />
 </div>
 
 
@@ -269,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179670.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179658.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179646.jpg" />
 </div>
 
 
@@ -348,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179516.jpg" />
 </div>
 
 
@@ -375,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179354.jpg" />
 </div>
 
 
@@ -401,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179344.jpg" />
 </div>
 
 
@@ -428,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179334.jpg" />
 </div>
 
 
@@ -454,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179169.jpg" />
 </div>
 
 
@@ -481,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179153.jpg" />
 </div>
 
 
@@ -508,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179097.jpg" />
 </div>
 
 
@@ -535,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178977.jpg" />
 </div>
 
 
@@ -561,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178908.jpg" />
 </div>
 
 
@@ -587,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178545.jpg" />
 </div>
 
 
@@ -614,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_178536.jpg" />
 </div>
 
 
@@ -641,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178449.jpg" />
 </div>
 
 
@@ -668,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178427.jpg" />
 </div>
 
 
@@ -679,6 +547,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EFB5B1929F8BCF5CBF0BB165AD76DA164F2BD39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428576   (178203) от 04.12.2020
+
+Е.В. Захаров и др. | Уравнения математической физики (2010) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178203.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике представлен материал для первоначального изучения уравнений математической физики: даны математические постановки задач для уравнений в частных производных (теплопроводности, Лапласа, волнового); приведены доказательства теорем единственности, существования и устойчивости их решений; описаны методы построения решений.
+Для студентов высших учебных заведений.Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6ED25F9371A1D0157008EB20071B3CE35C5F3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666808   (178199) от 06.10.2023
+
+Ю.Е. Верёвкин | Усилительно-Преобразовательные устройства (1976) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178199.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге дан подробный анализ электрических схем, выполненных на полупроводниковых приборах и электронных лампах. Особое внимание уделено физическим процессам, происходящим в электрических схемах. Приведенный математический аппарат позволяет производить расчеты параметров различных каскадов. Единая методика построения и анализа электрических схем способствует легкому (   Читать дальше...   )Жанр: ЭлектроникаИздательство: СудостроениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66B41601B7B74BA341394359F8B8F4351F108E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428711   (178162) от 04.12.2020
+
+С.М. Аполлонский и др. | Электрические аппараты управления и автоматики (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие разработано на основании государственных образовательных стандартов высшего профессионального образования и предназначено для студентов заочной и очно-заочной форм обучения, изучающих электрические аппараты управления и автоматики по направлениям подготовки «Электроэнергетика и электротехника», «Автоматизация технологических процессов и производств», (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DA9B185B3CCBD6483C6254712C607AEDE76450B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428972   (178160) от 04.12.2020
+
+Светлана Ульянова, Илья Сидорчук | Пагубные страсти населения Петрограда–Ленинграда в 1920-е годы. Обаяние порока (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поведение, не принимаемое обществом или законом, существует в любом социуме. Проблемы наркомании, алкоголизма, проституции и прочие пагубные страсти являются частью массовой культуры и предметом научного изучения. Книга посвящена асоциальным и нетрадиционным формам свободного времяпрепровождения жителей Петрограда—Ленинграда в 1920-е годы. Этот период выбран не случайно. (   Читать дальше...   )Жанр: Культурология, Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED5AD639E018E018E4CEEA744E921F1D9E8FDF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428772   (178153) от 04.12.2020
+
+М.П. Тропин | Основы прикладной алгебры (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178153.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособие вошли такие разделы, как целые числа, элементы общей алгебры, общая теория многочленов, расширения полей, конечные поля, многочлены над конечными полями, эллиптические кривые. Эти разделы играют важную роль в приложениях. Уровень сложности изложения невысокий, однако предполагается, что читатель имеет математическую подготовку. В конце каждой главы предлагаются (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C62D67E7006C1F397A32DCB61782FE9CCF6455
 ```
 
 https://mybot314.ru/tekegram_catalog/

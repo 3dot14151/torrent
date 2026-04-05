@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734690.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nasty - Клипы (2013-2020) WEBRip [H.264/VP9/1080p/2160p] <Beatdown Hardcore
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734688.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734080.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734067.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734064.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733500.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733188.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733146.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ John Mayall And The Bluesbreakers – Jammin' With The Blues Greats '1982 (1983)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731961.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Asia - Symfonia - Live in Bulgaria '2013 (2017) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731845.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731684.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731681.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731636.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ George Michael: Live in London (2008) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731529.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731401.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730526.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730452.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729407.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Judas Priest - Epitaph (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729331.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729178.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729116.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Mr. Big - Raw Like Sushi 114 (Live At Budokan 2014) (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728579.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728418.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728134.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727988.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Lynyrd Skynyrd - Pronounced Leh - Nerd Skin - Nerd & Second Helping (2015) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727475.jpg" />
 </div>
 
 

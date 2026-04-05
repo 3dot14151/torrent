@@ -1,31 +1,3 @@
-###  Публикация: 1756370   (39797) от 20.10.2024
-
-Ю. Николаева | Тайные травы императоров. Излечение с помощью женьшеня, сабельника и столетника (2021) [DOCX, PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39797.jpg" />
-</div>
-
-
-###  Подробнее
-
-С древних времен известны растения, которые помогают бороться с серьезными заболеваниями. Когда-то лечение такими драгоценными дарами природы было доступно лишь знатным людям, а препараты из них стоили очень дорого.
-В этой книге вы найдете исчерпывающую информацию о способах исцеления с помощью женьшеня, сабельника болотного и столетника.
-Женьшень – это «корень жизни», (   Читать дальше...   )Жанр: лекарственные растения, фитотерапияИздательство: Москва: «Рипол Классик»Формат: DOCX, PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB60C1F26B4123E493ED3A00948CFB5B6D38ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757173   (39209) от 26.10.2024
 
 Сергей Бубновский | Колени и стопы без боли. Как сохранить и восстановить подвижность суставов в домашних условиях (2024) [FB2, RTF]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39209.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39100.jpg" />
 </div>
 
 
@@ -89,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38933.jpg" />
 </div>
 
 
@@ -117,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38846.jpg" />
 </div>
 
 
@@ -143,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38386.jpg" />
 </div>
 
 
@@ -171,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38099.jpg" />
 </div>
 
 
@@ -197,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37127.jpg" />
 </div>
 
 
@@ -225,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36819.jpg" />
 </div>
 
 
@@ -253,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36799.jpg" />
 </div>
 
 
@@ -281,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33772.jpg" />
 </div>
 
 
@@ -307,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33585.jpg" />
 </div>
 
 
@@ -335,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33332.jpg" />
 </div>
 
 
@@ -363,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33301.jpg" />
 </div>
 
 
@@ -389,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33292.jpg" />
 </div>
 
 
@@ -416,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33274.jpg" />
 </div>
 
 
@@ -443,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33255.jpg" />
 </div>
 
 
@@ -470,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33251.jpg" />
 </div>
 
 
@@ -497,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33063.jpg" />
 </div>
 
 
@@ -524,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32748.jpg" />
 </div>
 
 
@@ -550,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32660.jpg" />
 </div>
 
 
@@ -576,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32608.jpg" />
 </div>
 
 
@@ -602,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32117.jpg" />
 </div>
 
 
@@ -631,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32013.jpg" />
 </div>
 
 
@@ -657,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31949.jpg" />
 </div>
 
 
@@ -683,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31930.jpg" />
 </div>
 
 
@@ -696,6 +668,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:588C9427AF71C3E55420CF45D00B0A4DB717A1C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771463   (31815) от 06.01.2025
+
+Энтони Уильям | Как защитить свой мозг от разрушения и истощения и жить полной и здоровой жизнью (2024) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31815.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Хранитель мозга" - первая из двух книг медика-медиума Энтони Уильяма, посвященных здоровью нашего мозга. В этой книге автор бестселлеров "Взгляд внутрь болезни", "Спасение печени", "Секрет щитовидки", "Очищение для исцеления" и обладатель уникального целительского дара раскрывает причины более чем 100 симптомов, (   Читать дальше...   )Жанр: МедицинаИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DF160DCCA3E2449DFDDCD76FAFE5347B16DC02
 ```
 
 https://mybot314.ru/tekegram_catalog/

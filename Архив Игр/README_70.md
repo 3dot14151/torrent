@@ -1,3 +1,58 @@
+###  Публикация: 495584   (252702) от 13.05.2012
+
+Stacking + DLC [Ru] (RePack) 2012 | R.G. PowerPack
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stacking – приключение с элементами головоломок, которое способно развеселить любого и заставить мозг работать активнее.
+
+Сюжет игры рассказывает о том, как семья русских матрешек была разъединена в связи с тяжелым экономическим положением. Самый младший представитель этого семейства, Чарли Блэкмор, отправляется в путешествие, чтобы снова объединить свою родню. Однако он – самая маленькая матрешка во всем мире и это поначалу оказывается немалой проблемой. Игрокам предстоит научиться правильно использовать эту особенность Чарли. Как оказывается, маленький размер совсем не минус, и только помогает ему во время нелегкого путешествия. Малыш Чарли может без проблем запрыгнуть в любую из больших матрешек, пока та не смотрит в его сторону и контролировать ее.
+Если под управлением игрока уже находится какая-то матрешка, можно взять под контроль еще одну, но только большую по размеру. У каждой из матрешек, которую можно взять под контроль, есть особое умение. Одна, например, сможет открывать двери, а другая – приманивать другие куклы. Пользоваться можно только способностью самой большой контролируемой на данный момент куклы. Используя различные способности, игроку предстоит проходить уровни-головоломки, причем некоторые из них будет иметь множество способов решения различными способами.(   Читать дальше...   )Тип издания: RepackРазработчик: Double Fine ProductionsЖанр: Adventure (Puzzle) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE83D62A792821C2F6D912F3104F7ACCF3B2E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613102   (252014) от 26.05.2023
+
+Wild West Dynasty (2023) [Ru/Multi] (0.1.8238) License GOG [Early Access]
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочетание RPG и симулятора с открытым миром, действие которого происходит на Диком Западе. Ковбои, колонисты и стрелки. Приготовьтесь исследовать, выживать, строить на Диком Западе и написать свою собственную историю! Сумеете ли вы построить империю на Диком Западе или кончите свои дни на виселице?Тип издания: LicenseРазработчик: Moon Punch StudioЖанр: Симулятор, Приключение, ExplorationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194B85461E925754C71C2F5E6AE2976EAFE9A601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637132   (251830) от 02.06.2023
 
 STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.2b) License GOG
@@ -6,7 +61,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.2b) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251830.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251606.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ The Walking Dead: Episode 1 (P) [Ru/En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251532.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ Realms of Chaos [En] (RePack) 1995 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251374.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ King Arthur 2: The Role-Playing Wargame / Король Артур 2 + DLC [Ru] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251346.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ Ridge Racer Unbounded + 1 DLC [Ru/En/Multi6] (RePack/1.09) 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251257.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ Adventures of Robin Hood [En] (RePack) 1992 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251167.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250642.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249235.jpg" />
 </div>
 
 
@@ -248,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249201.jpg" />
 </div>
 
 
@@ -274,7 +329,7 @@ Angry Birds Space {1.1.0} (L) [En] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248937.jpg" />
 </div>
 
 
@@ -300,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248640.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248357.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ Nancy Drew: Tomb of the Lost Queen [En] (RePack) 2012 | R.G ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248347.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ Bram Stoker's Dracula [En] (RePack) 1993 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248257.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ Elf [En] (RePack) 1992 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248176.jpg" />
 </div>
 
 
@@ -432,7 +487,7 @@ Resident Evil: Operation Raccoon [Multi8\+] 2012 | SHARINGAN [Lossless RePack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248075.jpg" />
 </div>
 
 
@@ -462,7 +517,7 @@ MariaRo Ragnarok-Online Renewal (P) [En/Ru] 2002 (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248064.jpg" />
 </div>
 
 
@@ -488,7 +543,7 @@ Street Fighter x Tekken [Ru] (RePack) 2012 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248052.jpg" />
 </div>
 
 
@@ -514,7 +569,7 @@ Smashing Toys [Ru] (P) 2009
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248020.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.237.6/dlc) Repack R.G. Меха
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226736.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ Sker Ritual (2022) [En] (0.1.3/dlc) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225959.jpg" />
 </div>
 
 
@@ -592,7 +647,7 @@ Baldur's Gate Enhanced Edition [En] (RePack/1.0) 2012 | R.G ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225441.jpg" />
 </div>
 
 
@@ -618,7 +673,7 @@ Castle Crashers [En] (RePack/1.0/2DLC) 2012 | Luminous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225319.jpg" />
 </div>
 
 
@@ -629,58 +684,6 @@ Castle Crashers - двумерный платформер от студии Behe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAFE953A11481306D133B422EA55C6A2FAE29F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944700   (224866) от 14.12.2015
-
-Fragoria (2007) [Ru] (3.3.1019) License
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрагория - имеет игровую вселенную созданную в жанре фэнтези в старославянском стиле. Игра сочетает в себе возможности таких игр, как Diablo и World of Warcraft (WOW). Игровой мир населён разнообразной живностью, в игре доступны как PVE (игрок против монстров), так и PVP (игрок против игрока) составляющие, которые дополняют друг друга. С девятого уровня игроку предстоит (   Читать дальше...   )Тип издания: LicenseРазработчик: РуСофтвареЖанр: MMORPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9F51503D17CA03D6FE1F4DFF8E98BF85C02867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940346   (223126) от 15.12.2015
-
-Aion: Эра Льда (2009) [Ru/En] (4.9.0715.39) License
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aion: Эра Льда — это виртуальный мир, в котором тысячи игроков отправляются на поиски приключений в компании верных друзей или в составе целого легиона. С помощью разнообразных настроек игроку в Aion предоставляется возможность создать уникального персонажа с неповторимой внешность. В момент генерации героя можно изменить множество параметров: от формы носа и разреза (   Читать дальше...   )Тип издания: LicenseРазработчик: NCSoftЖанр: MMORPG, 3rd Person, Online-onlyЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B66EC58A381EF1814D18809DE07F4595518CCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

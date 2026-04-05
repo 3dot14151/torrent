@@ -1,83 +1,3 @@
-###  Публикация: 943842   (443104) от 06.10.2015
-
-А. П. Скрипник | Моральное зло в истории этики и культуры (1992) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сущность и происхождение зла — одна из вечных проблем человечества. К ней обращались мифология, религия, этика, мыслителе разных эпох в народов. Свойственно ли зло природе человека? Как рождается гуманность и что побуждает людей быть бесчеловечными? Какие факторы стимулируют несправедливость? Эти и другие вопросы, касающиеся морального зла, рассматриваются в книге (   Читать дальше...   )Жанр: История, философия, этика, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6299D7F84096BEE5308544EA31FE74E46C58A659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944022   (442961) от 06.10.2015
-
-Ф. Ф. Вяккерев и. др. (отв. ред.) | Материалистическая диалектика [5 томов] (1981-1985) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многотомное издание по материалистической диалектике в нашей стране предпринимается впервые.
-
-В 1-м томе дается характеристика предмета и принципов материалистической диалектики, излагается диалектическое понимание материи, анализируется природа материального объекта и его атрибутов, исследуются категории количества, качества, меры, движения, времени, закона, случайности, (   Читать дальше...   )Жанр: История, философия, логика, науковедение, математика, физика, химия, астрономия, геология, кибернетика, биология, социология, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39544EB157C435182244AAB34E2A9204E65B3253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943321   (442960) от 06.10.2015
-
-М. Розенталь, П. Юдин (ред.) | Краткий философский словарь (1955) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее, четвертое, издание "Краткого философского словаря" дополнено рядом новых слов, понятий и терминов, отсутствовавших в предыдущих изданиях. Пересмотрена в целях с целью улучшения текста часть старых статей, некоторые статьи написаны заново, сделаны необходимые дополнения. В издании учтены критические замечания и пожелания, высказанные в печати (   Читать дальше...   )Жанр: История, философия, словарьФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C54ABFC3C0167CEC180B659D1274328F92A537E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943868   (442653) от 06.10.2015
 
 В. Ж. Келле и др. (отв. ред.) | Современная западная социология науки: Критический анализ (1988) [PDF]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442653.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442544.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442537.jpg" />
 </div>
 
 
@@ -168,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442516.jpg" />
 </div>
 
 
@@ -194,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442403.jpg" />
 </div>
 
 
@@ -222,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441825.jpg" />
 </div>
 
 
@@ -248,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440678.jpg" />
 </div>
 
 
@@ -274,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440674.jpg" />
 </div>
 
 
@@ -300,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440508.jpg" />
 </div>
 
 
@@ -329,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439882.jpg" />
 </div>
 
 
@@ -357,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439876.jpg" />
 </div>
 
 
@@ -385,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439871.jpg" />
 </div>
 
 
@@ -411,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439244.jpg" />
 </div>
 
 
@@ -437,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439133.jpg" />
 </div>
 
 
@@ -465,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_438807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438807.jpg" />
 </div>
 
 
@@ -491,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437658.jpg" />
 </div>
 
 
@@ -517,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436149.jpg" />
 </div>
 
 
@@ -545,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436102.jpg" />
 </div>
 
 
@@ -573,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436100.jpg" />
 </div>
 
 
@@ -599,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433981.jpg" />
 </div>
 
 
@@ -625,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433979.jpg" />
 </div>
 
 
@@ -653,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433930.jpg" />
 </div>
 
 
@@ -679,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433830.jpg" />
 </div>
 
 
@@ -690,6 +610,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A66CE04E9EBFDB9B9859F7205F57B737199B822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945444   (433828) от 10.10.2015
+
+Роман Светлов, Иван Гончаров (сост.) | Книга Государя. Антология политической мысли (2009) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433828.jpg" />
+</div>
+
+
+###  Подробнее
+
+В антологию вошли замечательные памятники политической мысли, посвященные искусству государственного управления. Среди них – знаменитый трактат Н. Макиавелли «Князь» и не менее знаменитый опыт опровержения – «Анти-Макиавелли», малоизвестное в России сочинение прусского короля Фридриха Великого.Жанр: Политика, политологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918234A74D9BB72813012E2F254BFE7798DDA3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945481   (433826) от 10.10.2015
+
+Сергей Светлов | Книга Вина (2009) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виноделие и винопитие – неотъемлемая часть европейской культуры. Их разнообразные проявления – от мистических до бытовых – составляют суть рассказа. Мифологические представления, философские и поэтические свидетельства позволяют проследить всю изменчивость давней традиции – от глубин античности до первых веков христианства.Жанр: Всеобщая история культурыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D3FD2F38A13B69935769D9471A30895511810E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410785   (433627) от 22.09.2020
+
+Алексей Вдовин, Майя Кучерская, Наталья Калинникова (сост.) | Литературная мастерская. От интервью до лонгрида, от рецензии до подкаста (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами руководство по нон-фикшн от школы литературного мастерства Creative Writing School. Каждая глава – практическое введение в какой-либо жанр, написанное признанным мастером. Среди авторов – известные писатели, журналисты и блогеры, преподаватели Creative Writing School и Высшей школы экономики. В книге рассмотрены классические жанры документальной литературы (   Читать дальше...   )Жанр: Литературоведение, Писательское мастерство, Творческая деятельностьФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811AB9DCBDA100FB2A4A01DADCA551C150D43CE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

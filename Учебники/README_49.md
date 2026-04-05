@@ -1,3 +1,56 @@
+###  Публикация: 1299562   (597515) от 02.05.2019
+
+Е.А. Черткова | Программная инженерия. Визуальное моделирование программных систем (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597515.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике изложены ключевые понятия программной инженерии — методы, технологии, модели процесса разработки программного обеспечения. Рассмотрены инструментальные средства программной инженерии, предназначенные для автоматизации процессов разработки программного обеспечения. Описаны методы и инструментальные средства визуального моделирования программных систем с (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5C04C048A4A3C91B1C4E1F461DF518BD4CA453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299543   (597203) от 02.05.2019
+
+Д.Ю. Федоров | Программирование на языке высокого уровня Python (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597203.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассматриваются теоретические основы современных технологий и методов программирования, практические вопросы создания программ, а также основные алгоритмические конструкции и их реализация на языке высокого уровня Python.
+Соответствует актуальным требованиям Федерального государственного образовательного стандарта среднего профессионального образования (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FD3C5D98F6B8FA452312D75F92D401FD9935DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914603   (596209) от 03.07.2015
 
 В. Д. Павлидис, М. В. Чкалова | Курс теории вероятностей и математической статистики (2013) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596209.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594933.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594785.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594556.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594451.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594345.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593872.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593700.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593619.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593615.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592634.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591895.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591342.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589923.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589879.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589527.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589341.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589031.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588617.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588421.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587834.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587226.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586169.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586110.jpg" />
 </div>
 
 
@@ -623,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF29DDC2A3FB638EAEC221FF7D573E3ABACA2678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552889   (585620) от 22.05.2022
-
-Никольский С.М. | Курс математического анализа [2 книги] (1990 - 1991) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник для студентов физических и механико-математических специальностей ВУЗов написан на основе курса лекций, читаемого автором в Московском физико-техническом институте. Фактически принят как учебное пособие в некоторых ВТУЗах с повышенной программой по математике.
-
-Книга содержит дифференциальное и интегральное исчисления функций одной и многих переменных, теорию (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C21210A7AE338AAAFB809987B0CB4F7AC79D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301321   (585125) от 11.05.2019
-
-М.Ю. Рачков | Физические основы измерений (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585125.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены общие аспекты измерения, основные понятия о метрологическом обеспечении измерений, а также в области наноизмерений. Представлена информация о принципах измерения различных физических величин на примерах измерения параметров автомобильных систем. Отдельная глава содержит практические работы по составлению измерительных схем на базе резистивных, (   Читать дальше...   )Жанр: Учебное пособие, ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7ED1508ACFDD7E2FA560D15D78FB271F8866336
 ```
 
 https://mybot314.ru/tekegram_catalog/

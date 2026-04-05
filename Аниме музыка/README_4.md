@@ -6,7 +6,7 @@ Akino Kawamitsu / AKINO with bless4 - сross the line (2016) [FLAC|Lossless|imag
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218410.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fate／kaleid Liner PRISMA ILYA OST (2013-2015|FLAC|tracks) <OP|ED|OST|Character
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217866.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fate Stay Night Unlimited Blade Works (2014) OST (2014-2015|FLAC) <OP|ED|OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217491.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Prima Doll OST (2022) [FLAC|tracks] <5CD+OP+ED+OST+Character Song>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207339.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Prima Doll OST (2022) [MP3|320 kbps] <5CD+OP+ED+OST+Character Song>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207334.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Kareshi Kanojo no Jijou / His and Her Circumstances / С его стороны -
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203062.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Selection Project OST (2021) [MP3|320 kbps] <4CD+OP+ED+OST+Character Song>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147955.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Selection Project OST (2021) [FLAC|tracks] <4CD+OP+ED+OST+Character Song>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147867.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru OST (2019) [FL
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144330.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Various - Call Me Tonight (1986) [MP3|320 Kbps] <Boogie, Funk, Pop Rock, Synth-p
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141306.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Aho Girl | Дурочка (2017) [FLAC|Lossless] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137783.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mahou Shoujo ni Akogarete | Gushing Over Magical Girls | Восхищаясь д
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108305.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Rinne no Lagrange OP&ED Single - TRY UNITE! Hello! [Nakajima Megumi] (2012, FLAC
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77962.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Senpai wa Otokonoko | Senpai is an Otokonoko | Моя Сэмпай — Паре�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69995.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Elfen Lied | Эльфийская песнь (2004) [MP3|320 Kbps] <OST>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63831.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Mahou Shoujo ni Akogarete | Gushing Over Magical Girls | Восхищаясь д
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53943.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Fairy Tail / Фейри Тейл / Сказка о Хвосте Феи [2009-202
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39335.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Jibaku Shounen Hanako-kun Drama CD: Houkago Shounen Hanako-kun | Туалетн�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25723.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Hibi wa Sugiredo Meshi Umashi OST (2025) [FLAC|tracks] <3CD+OP+ED+Character Song
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11918.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Hibi wa Sugiredo Meshi Umashi OST (2025) [MP3|320 kbps] <3CD+OP+ED+Character Son
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11917.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Ef - a Fairy Tale of the Two Original Soundtrack Collection (2007-2009)[FLAC]<OS
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4231.jpg" />
 </div>
 
 

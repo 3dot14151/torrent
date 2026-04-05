@@ -6,7 +6,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811462.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811184.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Львиное королевство / Lion Kingdom (2017) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809842.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806613.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG. Файлы секретных служб: Охрана президента 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805843.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG. Освещённая пучина / Light the Ocean (2011) HDTVRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805678.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG. Взгляд изнутри: Гугл / Inside: Google (2010) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805676.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG. Джон Ф. Кеннеди. Пропавшая пуля / JFK: The Lost Bul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805559.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG. Суперсооружения Третьего рейха / Nazi megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805228.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NGW: Холодные острова / Frozen Islands (2020) WEBRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804245.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ National Geographic: Самые опасные животные: Восьмин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803197.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NGW: Кошачьи приемы / Cat Attack-Tics (2019) WEBRip [H.264/1080p-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801474.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NGW: Южная Африка: Земля контрастов / South Africa: La
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800835.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NGW: Дикие места Ирана / Iran's Wild Side (2019) WEBRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800115.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800043.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NG: Запреты / Taboo (2002-2009) SATRip [30 серий]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_799432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799432.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NGW: Холодное королевство снежного барса / The F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798375.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ NG: Самый опасный наркотик / The World`s Most Dangerous Drug
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798359.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NG. Дикая природа Тайваня: остров джунглей / Wi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797759.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NG. Кунг-Фу – Мастерство убийства / Kung Fu Killers (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797473.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ NGW: Наследие леопарда / The Leopard Legacy (2021) WEBRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797332.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ NG: Дикая природа Филиппин / Untamed Philippines (2018) WEBR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797138.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797132.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797109.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NG: Дикая природа Новой Зеландии: затерянный 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796549.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ NG: Земля под рентгеном / X-Ray Earth (2020) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796541.jpg" />
 </div>
 
 

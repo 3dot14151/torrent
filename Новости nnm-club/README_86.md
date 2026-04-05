@@ -1,3 +1,29 @@
+###  Публикация: 1212792   (772604) от 15.03.2018
+
+Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86) RePack by SPecialiST v18.3 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1A6CE870D586211245C219C978DE36D36D935F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212480   (772601) от 15.03.2018
 
 Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364/dlc) Repack Other s [Deluxe Edition]
@@ -6,7 +32,7 @@ Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364/dlc) Repack Other s [Del
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772601.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Farming Simulator 17 (2016) [Ru/Multi] (1.5.3.0/dlc) License RELOADED [Platinum 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772597.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Windows 7 SP1 44in1 (x86/x64) +/- Office 2019 by Eagle123 (06.2020) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772432.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_772413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_772413.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772218.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772215.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_771481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_771481.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771388.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ CleanMyMac 4.2.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771195.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771193.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771173.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771172.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_771161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_771161.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770939.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Garmin: City Navigator Europe NT 2017.10 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770878.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ March of the Living (2016) [En] (1.1.1) Repack ARMENIAC
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770876.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770867.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ ESET Smart Security 8.0.312.3 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770373.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_770116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_770116.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ NG. Взгляд изнутри: Вторая мировая война / Inside
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770047.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769999.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769992.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ ABBYY FineReader 12.0.101.483 Corporate Full | Lite RePack (& Portable) by D!ako
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769988.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ VA - Melodic Metal Anthems vol.01-34 (2014-2016) [MP3|128-320 кб/с]<Melodic M
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769987.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ CyberLink PowerDVD Ultra 15.0.1510.58 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769667.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ CyberLink PowerDVD - один из самых мощных на данный м�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F6F27B56EF1E0EFE248627AF4FB6E56BEA1F0C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 886526   (769661) от 09.04.2015
-
-Пятьдесят оттенков серого / Fifty Shades of Grey (2015) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анастейша Стил — скромная студентка, живущая вместе с близкой подругой-сокурсницей Кейт. За неделю до выпускного в университете, Анастейша, по просьбе заболевшей Кейт заменить её, берёт интервью у молодого красавца-миллиардера Кристиана Грея. Интервью складывается не очень удачно, и Анастейша не думает, что они когда-либо встретятся вновь. Неожиданно Грей появляется (   Читать дальше...   )Производство: США, Michael De Luca Productions, Focus FeaturesЖанр: Драма, мелодрамаРежиссер: Сэм Тейлор-ДжонсонАктеры: Джейми Дорнан, Дакота Джонсон, Дженнифер Или, Люк Граймс, Виктор Расук, Элоиза Мамфорд, Марша Гей, Харден Рита, Ора Макс Мартини Каллум, Кит РенниПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C288B769690CFC9BF8199905220C747B4408C10E
 ```
 
 https://mybot314.ru/tekegram_catalog/

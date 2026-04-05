@@ -1,61 +1,3 @@
-###  Публикация: 1501085   (837990) от 08.10.2021
-
-Кипелов - Часы Судного Дня (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Огненная Дуга
-02. Часы Судного Дня
-03. Лунный Ковчег
-04. Крик ТишиныЖанр: Heavy MetalПродолжительность: 00:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB78BBCD2C1E40BF89F2D373F80E8E22E2E5D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113601   (836608) от 12.03.2017
-
-VA - Отражения (Tribute to Каталог) (2016) [FLAC|lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чичерина - Куда пропали Звезды (03:20)
-02. Братья Лапенковы - День наоборот (03:51)
-03. Специальный проект 'Сашины товарищи' - Если вас тревожит что-то (03:53)
-04. Настя Полева - Игра без правил (04:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20BAB5670159215F094D5E6DEA4E62C5E5C3C7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501299   (836563) от 09.10.2021
 
 Мураками - Среди акул (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836563.jpg" />
 </div>
 
 
@@ -93,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836558.jpg" />
 </div>
 
 
@@ -122,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836416.jpg" />
 </div>
 
 
@@ -151,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836166.jpg" />
 </div>
 
 
@@ -180,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835037.jpg" />
 </div>
 
 
@@ -209,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_834970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_834970.jpg" />
 </div>
 
 
@@ -238,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834348.jpg" />
 </div>
 
 
@@ -267,7 +209,7 @@ Astirium - Время Перемен (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833748.jpg" />
 </div>
 
 
@@ -296,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833667.jpg" />
 </div>
 
 
@@ -331,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833650.jpg" />
 </div>
 
 
@@ -360,7 +302,7 @@ Digimortal - Дети галактики (2015) [FLAC|Lossless|tracks + .cue] <I
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830815.jpg" />
 </div>
 
 
@@ -389,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828315.jpg" />
 </div>
 
 
@@ -418,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826757.jpg" />
 </div>
 
 
@@ -447,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825326.jpg" />
 </div>
 
 
@@ -476,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825023.jpg" />
 </div>
 
 
@@ -505,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823422.jpg" />
 </div>
 
 
@@ -540,7 +482,7 @@ Devil-May-Care - Awe (2003) [FLAC|Lossless|image + .cue] <Sympho Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822780.jpg" />
 </div>
 
 
@@ -569,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822544.jpg" />
 </div>
 
 
@@ -604,7 +546,7 @@ bAbA yAgA - bAba yAgA (1992) [APE|Lossless|image + .cue] <Folk-Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820917.jpg" />
 </div>
 
 
@@ -633,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820914.jpg" />
 </div>
 
 
@@ -662,7 +604,7 @@ Animal ДжаZ - 15 (2003) Single [FLAC|Lossless]<Rock, Alternative>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819926.jpg" />
 </div>
 
 
@@ -691,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816315.jpg" />
 </div>
 
 
@@ -726,7 +668,7 @@ PARALINE - Demonstration record Vol.1 (2021) [FLAC|Lossless|Web-DL|tracks] <Alte
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816133.jpg" />
 </div>
 
 
@@ -755,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815050.jpg" />
 </div>
 
 
@@ -769,6 +711,64 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA6CFFF53E0F12A3671AFBE53917355950C7D8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382486   (813742) от 14.05.2020
+
+Modern Blues Band - Блюз опадающих листьев (2006) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайна
+02. Преследование
+03. Мамин блюз
+04. Его блюз(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FD2DC846DD8344DD1C9F66D66B0AA66D298E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882916   (812835) от 31.03.2015
+
+Александр Чернецкий (Разные Люди) - Чёрный ворон - я не твой! Том I. Студия (2014) 21 CD box [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная студийная антология творческого пути Александра Чернецкого. 21 CD (включая неизданный материал) в конвертах + 2 буклета: 40 и 44 страницы.01. Становись!
+02. Тревожная
+03. Бесы
+04. Чернец(   Читать дальше...   )Жанр: RockПродолжительность: 20:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF652A6BD8D4DBDB41F6E8E1E0D3C8660A6585BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Reggie Lucas - Survival Themes (1975) Remaster, 2015, Universal[FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916046.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Irakere - Jazzcuba: volumen 5 (1970) 2007, Rhino[FLAC|Lossless|tracks + .cue] <L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915896.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Matthieu Bore - Naked Song (2015) Bonsan Music[FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915890.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jimmy Smith - Rockin' The Boat (1963) 1994, Blue Note[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915885.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Marcus Shelby Orchestra - Transitions (2019) Self-Released [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915811.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Robert Drasnin - Voodoo II (2007) Dionysus Records[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915798.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Laurindo Almeida - Outra Vez (1992) [FLAC|Lossless]<Jazz, Brazilian Jazz, Guitar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915744.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Stan Kenton - Jazz Anthology (1952-1956) Remaster, 2007, Promo Sound[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914500.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Kenny Burrell - Soul Call (1964) 1995, Original Jazz Classics[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914498.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Paolo Fresu - Wanderlust (1997) RCA Victor [FLAC|Lossless|tracks + .cue] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914368.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ John Scofield - That's What I Say: John Scofield Plays the Music of Ray Charles 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914354.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Hot Sardines - The Hot Sardines (2014) [FLAC|Lossless|tracks + .cue] <Modern
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914254.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tommy Ladnier - Giants Of Jazz (1923 - 1939) 1997, Promo Sound[APE|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914134.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Prince - N.E.W.S (2003) [FLAC|Lossless|image + .cue] <Jazz fusion, funk, instrum
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914046.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Don Cherry - Live In Stockholm (1968/1971) 2013, Caprice Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_913702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_913702.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Diana Krall - Wallflower (2015) Deluxe Edition [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912955.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Kenny Werner Trio - A Delicate Balance (1997) BMG [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912522.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Meg Okura - Meg Okura's Pan Asian Chamber Jazz Ensemble (2006) Megumi Okura[APE|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912340.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Oscar Peterson - The London Concert 1978 (1993) 2CD, Pablo [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911077.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Various Artists - Relax! (1999) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911026.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Prince - The Rainbow Children (2001) [FLAC|Lossless|image + .cue] <Jazz, Funk / 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911017.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Karen Blixt - Spin This (2006) HiFli Records[FLAC|Lossless|image + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910998.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Lou Donaldson - The Artist Selects (1952-1968) 2005, EMI[FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910996.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Donny McCaslin - Casting For Gravity (2012) Greenleaf Music[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910989.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Michael Maxwell and His Orchestra - In The Big Band Mood (1997) Avalon Music[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910986.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Zoot Sims With The Joe Castro Trio - Live At Falcon Lair (1956) 2004, Pablo[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910984.jpg" />
 </div>
 
 

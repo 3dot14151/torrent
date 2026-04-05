@@ -1,3 +1,32 @@
+###  Публикация: 1086719   (149871) от 25.12.2016
+
+Europe - Best ballads (1995) Compilation [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Arena rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open your heart [4:08]
+02. Carrie [4:34]
+03. Dreamer [4:30]
+04. Words of wisdom [4:08](   Читать дальше...   )Жанр: Melodic Hard Rock, Arena rockПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7562E223732074B69C3578CF7ABEE79A216A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434690   (149868) от 25.12.2020
 
 Skrizhali - Взгляд изнутри (2020) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ Skrizhali - Взгляд изнутри (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149868.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Aborted - ManiaCult (2021) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149843.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Kreator - Love Us Or Hate Us - The Very Best Of The Noise Years 1985-1992 Years 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149824.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Distemper - На троих (2020) [MP3|320 Kbps] <Ska Punk, Acoustic>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149812.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149797.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149759.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ JETE - Заживое (2021) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149731.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Animal ДжаZ - Раритеты (2021) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149713.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Pink Floyd Tribute (2021) 2xSet [MP3|320 Kbps] <Psychedelic Rock, Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149502.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Lacrimosa - Leidenschaft (2021) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149487.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Полигон Records. Всё самое лучшее 2020 [MP3|320 Kbps] 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149481.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Darkness Ablaze - It All Shall Burn (2023) [MP3|320 Kbps] <Melodic Death, Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149451.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Asia - Live at the Teatro Colegiales, Buenos Aires, Argentina, 2011 (2023) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149438.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Bon Jovi - Have A Nice Day (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149427.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Frank Zappa - Over-Nite Sensation (1973) 50th Anniversary, 2023, Frank Zappa Cat
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149381.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Bucovina - Nestramutat (2015) [MP3|320 кб/с] <Folk Metal, Pagan Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149351.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Jethro Tull - Too Old To Rock 'N' Roll: Too Young To Die! (1976) 2CD Box Set, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149336.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ This Dying Hour - Longest Memory From The Shortest Life (2007) Delux Edition, 20
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149271.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Frank Zappa - Over-Nite Sensation (1973) 50th Anniversary, 2023 [FLAC 24/96|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149259.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Adler - Back From The Dead (2012) [MP3|320 кб/с]<Hard Rock / Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149232.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ David Bowie - The Rise And Fall Of Ziggy Stardust And The Spiders From Mars (197
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149175.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Roxy Music - The Best Of Roxy Music (2001) SACD, Compilation, 2003, Virgin [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149159.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ The Allman Brothers Band - 5 Classic Albums (2015) Universal Music [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149132.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149129.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Mark Knopfler - Shangri-La (2004) SACD [FLAC|Lossless|tracks + .cue] <Folk Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149115.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Mark Knopfler - Shangri-La (2004) SACD [FLAC|Lossless|tracks + .cue] <Folk Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6397448BE094A7615D7126339846377DAE90EFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677780   (149078) от 19.11.2023
-
-The Jack - Tribute to ACDC (2023) Live [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live Wire [05:56]
-02. Shoot to Thrill [05:31]
-03. Givin' the Dog a Bone [03:59]
-04. Intro [00:43](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1047375741803CA4DA0FF969A960D3484857DBAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

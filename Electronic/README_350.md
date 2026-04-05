@@ -1,3 +1,119 @@
+###  Публикация: 955909   (332457) от 12.11.2015
+
+VA - Goa Music (2015) [MP3|320 кб/с]<Psy, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonic Species - Bend the Future [08:34]
+02. Earthling - Lost in Trance-Nation [07:01]
+03. Refract - Other Planet [08:21]
+04. Pixel - Technology & Spirit & Mind [08:03](   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 08:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F0323B51957C5E2C269E252184BF7378AFA3E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331477   (332342) от 15.10.2019
+
+VA - SYNTH JUNIPERO - A Retrowave Compilation (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth, Cyberwave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AM 1984 - Miami Days (4:25)
+02. Ace Buchannon - Buns of Steel (3:41)
+03. CJ Burnett - Excess (4:13)
+04. Mark Dee - Space Ryder (5:00)(   Читать дальше...   )Жанр: Synthwave, Retrosynth, Cyberwave, OutrunПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1A256C21A0DB611026E57F8C79D865B5E9DC48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331506   (332339) от 15.10.2019
+
+VA - Amsterdam 2019 - Presents By Parquet Recordings (Mixed by Solee) (2019) [FLAC|Lossless|WEB|tracks|image] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rinzen & Evan Casey - Fractal (6:31)
+02. Oliver Winters - Obscurity (6:47)
+03. Alyne - No One Saves You (8:40)
+04. Room Service (DE) - White Line (7:41)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 04:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F73A9E5FF3AE1734015A634381CBF97C9F67B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240328   (332210) от 01.11.2020
+
+Doug Kaufman (D.P. Kaufman, Charm Days, magus_opus) - Discography 12 Releases (2013-2020) SunSeaSky [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Modern Classical, IDM, Chillwave>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. v i l l a v i s t a ヴィラビスタ (01:22)
+ 02. Hainan Industrial Complex (02:07)
+ 03. 03. ｗｈｅｒｅｖｅｒ ｙｏｕ ｗ ◊ ｎｔ (02:29)
+ 04. simulation_LsH04s8 (01:06)(   Читать дальше...   )Жанр: Downtempo, Ambient, Modern Classical, IDM, Chillwave •Продолжительность: 05:09:03 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A1504BD5884F67FCBFD1F5BDA66A94E0B18680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580162   (332138) от 30.09.2022
 
 Surge - Wings of Fury (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
@@ -6,7 +122,7 @@ Surge - Wings of Fury (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332138.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ The Prodigy - The Day Is My Enemy (2015) Expanded Edition [FLAC|tracks|WEB-DL]<B
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332082.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Surge - Tales from a Lost Universe, Pt. 1-2 (2019) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332012.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Avto-Graf - Этот мир... (2022) [MP3|320 Kbps] <Electronic>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332002.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ The Prodigy - The Day Is My Enemy (2015) Expanded Edition [MP3|320 кб/с]<Brea
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331944.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Beautiful Vocal Trance Progressive 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331844.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Tony Igy - Gold Collections 2010  [MP3|320 kbps]<Electro, House, Techno>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331552.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ EKS.Center - Murmurations (2020) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, El
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331357.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ Drumcorps - Falling Forward (2015) [MP3|320 кб/с]<Breakcore, Metal, Electroni
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331218.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ Kaya Project - Seed EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Dub, Down
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331200.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ NIGHT TRAVELER - Dreams You Don't Forget (2020) EP [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331195.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ VA - Cafe Del Mar: ChillWave (2015) [MP3|320 кб/с]<Electronic, Lounge, Deep>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330911.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ VA - Suanda Music 2022 - Mixed by Roman Messer [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330814.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Contagion - Infectant (2000) [MP3|320 кб/с]<EBM, Industrial, Rock>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330602.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ Jeremiah Kane - Ronin (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Industria
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329927.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ Extize - MonStars (2022) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, EBM, Electro-I
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329923.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ VA - Audio Treasures (Healing & Soothing Chillout Vol 1) (2015) [FLAC|tracks]<Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329409.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ VA - Deep House Sexy Collection (2015) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329407.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Macrocosm - Second Voyage (2005) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329051.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ Macrocosm - First Mission (2002) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328984.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Ludovico Technique - 4 Albums (2012-2022) [MP3|320 Kbps] <Industrial Rock, Synth
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328971.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ VA - Recoverworld Radio 002 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327667.jpg" />
 </div>
 
 
@@ -635,120 +751,6 @@ VA - Recoverworld Radio 002 (Mixed by Rich Smith) (2015) [MP3|320 кб/с]<Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC620BB9D169309BA9E1214715216AB3D16548AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957476   (327562) от 17.11.2015
-
-Guy J - The Trees, The Sea & The Sun (2015) [FLAC|Lossless|WEB-DL]<Tech House, Progressive House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Trees, the Sea & the Sun (Continuous Mix 1)
-02. The Trees, the Sea & the Sun (Continuous Mix 2)
-03. Argeman
-04. Bungalow(   Читать дальше...   )Жанр: Tech House, Progressive House, TechnoПродолжительность: 05:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23B0333849A4D659BA256150A71A07E8F80C94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581410   (327290) от 05.10.2022
-
-Abbsynth - Starlines (2009) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlines (Single)
-02. End Of Space (2009 Mix)Жанр: Electronic, Synth-popПродолжительность: 00:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71667CC55C934B02D9F4C558796119A975B501A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581347   (327287) от 05.10.2022
-
-VA - Daybreakerz (Trance & Souls) Vol.3 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Dust & DJ Eternity - World In Your Hands (Instrumental Radio Mix)
-02. Thomas Lloyd & Dave Joy - Captain Future (Extended Mix)
-03. DJ Simple - Mainstation Theme (Wavetraxx Remix)
-04. Eclipse - Future Sequence (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC5167B11EA6385441141A96280B4B4559810E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581341   (327225) от 05.10.2022
-
-VA - FSOE - October (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila x Billy Gillies - Kings (FSOE750 Anthem) (Extended Mix)
-02. Sean Tyas & Victoriya - Perfect World (Amos & Riot Night Extended Remix)
-03. Omar Sherif & Susie Ledge - Here With Me (Extended Mix)
-04. Stoneface & Terminal - Moonraver (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4CAEAA87238B38F71051F2E7D5DBD273D80F3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1440473   (1038755) от 17.01.2021
+
+Denoise it v1.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваша камера всегда создает на ваших фотографиях этот мешающий шум? "Denoise it" может исправить это за вас! "Denoise it" - это приложение, которое использует нейронные сети и методы искусственного интеллекта для автоматического удаления шума с фотографий. Он эффективен для всех видов шума и подходит для любого уровня шума. Вам просто нужно выбрать (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 25.11.2020Разработчик: reAImagineПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B9D76279439FAB424F0F3155A4F5D1C85CE1F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587078   (1038707) от 21.02.2023
+
+Настольные и карточные игры v17.0 Mod by Timozhai [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во все игры можно играть как против компьютера, так и по bluetooth, wifi или онлайн на интернет сервере. Общение на сервере возможно как в общем чате, так и лично с игроками. Все игры, собранные в этом приложении не являются азартными играми. В приложении используется только виртуальная валюта без реального вывода денег.Тип издания: FullРелиз состоялся: 17.02.2023Разработчик: Strict gamesПоддерживаемая ОС: Android 5.0+Жанр: Настольные игрыЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96FABB153E7E8673B2A6C856A3F0C49BD93F214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430352   (1038703) от 21.02.2023
+
+Dub Music Player Premium v5.6 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dub Premium музыкальный плеер - потрясающий проигрыватель для андроид с кристально чистым качеством звучания, отличным графическим оформлением, с возможностью выбора тем, эквалайзером и своими уникальными функциями. Программа без труда умеет проигрывать любые современные форматы аудио: FLAC, MP3, AAC, может играть песни папками или плейлистами.Тип издания: ModРелиз состоялся: 02.12.2022Разработчик: Dub Studio ProductionsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE712EEA01488860028C7DEAFB49BCA8CB6B831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440809   (1038440) от 18.01.2021
+
+Мир Славян v28 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся информация тщательно проверена и представлена в максимально достоверном и полном варианте, но могут быть и некоторые неточности, которые впоследствии устраняются.
+Сборник из десяти рубрик на славянскую тематику. Все собрано в одном приложении.
+Гой еси! Представляем Вашему вниманию приложение Мир Славян.
+Это сборник из десяти связанных приложений:(   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 21 сентября 2020 г.Разработчик: VodiaПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1AF76B7F3FB40C6ED9BFEAD6C6F9815C32BCA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439955   (1038413) от 18.01.2021
 
 ПДД РФ 2021 v1.1.2 [Ru] (обновляемая)
@@ -6,7 +113,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038413.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ Titan Workouts / Сила Титана v3.2.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038405.jpg" />
 </div>
 
 
@@ -64,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038220.jpg" />
 </div>
 
 
@@ -92,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038212.jpg" />
 </div>
 
 
@@ -118,7 +225,7 @@ Dark Days: Zombie Survival v1.5.12 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038177.jpg" />
 </div>
 
 
@@ -144,7 +251,7 @@ Angry Birds Journey v1.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038165.jpg" />
 </div>
 
 
@@ -170,7 +277,7 @@ AR Plan 3D v4.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037967.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ OTT Navigator IPTV v1.6.3.8 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037621.jpg" />
 </div>
 
 
@@ -223,7 +330,7 @@ Carmin v4.1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037424.jpg" />
 </div>
 
 
@@ -249,7 +356,7 @@ Another World v1.2.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037392.jpg" />
 </div>
 
 
@@ -275,7 +382,7 @@ Crimsonland v1.3.8 + Mod [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037338.jpg" />
 </div>
 
 
@@ -301,7 +408,7 @@ VPN Private v1.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037318.jpg" />
 </div>
 
 
@@ -327,7 +434,7 @@ Ski Tracker v2.3.01 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037173.jpg" />
 </div>
 
 
@@ -353,7 +460,7 @@ Adobe Master Collection For Android [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037030.jpg" />
 </div>
 
 
@@ -379,7 +486,7 @@ ePSXe for Android v2.0.14 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037023.jpg" />
 </div>
 
 
@@ -407,7 +514,7 @@ RuStore 1.3.6 (159) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036921.jpg" />
 </div>
 
 
@@ -433,7 +540,7 @@ FPse для Android v11.212 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036781.jpg" />
 </div>
 
 
@@ -460,7 +567,7 @@ Baldur's Gate: Enhanced Edition v2.5.17.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036773.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ Constellation Eleven v1.28 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036521.jpg" />
 </div>
 
 
@@ -512,7 +619,7 @@ LocalCast v33.1.2.8 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036517.jpg" />
 </div>
 
 
@@ -538,7 +645,7 @@ Drive Ahead! v3.2.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036510.jpg" />
 </div>
 
 
@@ -564,7 +671,7 @@ Hill Climb Racing 2 v1.42.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036502.jpg" />
 </div>
 
 
@@ -575,110 +682,6 @@ Hill Climb Racing 2 - студия разработчик Fingersoft за вре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCC671415544E33852ED2024B7B8146D4DB720D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443091   (1035962) от 27.01.2021
-
-FRACTER v1.1.1 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035962.jpg" />
-</div>
-
-
-###  Подробнее
-
-FRACTER - оригинальная логическая игра для Андроид с мрачной атмосферой, постепенно развивающимся сюжетом и чёрно-белой стилистикой графики. В процессе прохождения пользователь узнает, почему в мире исчезло множество источников света, и сможет вернуть их обратно. Для этого ему предстоит пройти множество уровней, которые предложат для решения не один десяток головоломок.Тип издания: Пиратка (Мод) Куплена!Релиз состоялся: 13 января 2020 гРазработчик: 4L GAMES LTD.Поддерживаемая ОС: Android 6.0 и вышеЖанр: ГоловоломкаЯзык интерфейса: Русский есть (меняется в настройках)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222A287517AA3D62DE4BC9167BFC0330C179AABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443171   (1035954) от 27.01.2021
-
-Galaxy Genome v11.0.7 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Galaxy Genome - нападения с космоса на Землю начали происходить регулярно, и тогда большинство решило узнать что под ними кроется и отправиться в бесконечную галактику, вы тоже следовали этим примерам. Но на космический корабль нужны большие деньги, поэтому в начале пути контрабанда - единственный выход. Однажды вас словила власть, но вы заключили с ними сделку на (   Читать дальше...   )Тип издания: Пиратка (Мод) Куплена!Релиз состоялся: 20 января 2021 г.Разработчик: SKVGamesПоддерживаемая ОС: Android 4.0 и вышеЖанр: Симулятор, стратегияЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F668196F93D939F9559D7D9BA19C693099203DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442879   (1035929) от 27.01.2021
-
-Mindustry v6-official-122.1 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mindustry – захватывающая игра на андроид, где вы будете создавать свой неповторимый мир. В этой игре вы откроете для себя многочисленные карты, на которых вам предстоит строить свои базы и защищаться от врагов. Добывайте различные материалы и ресурсы, которые вы сможете использовать в строительстве.Тип издания: Пиратка (Мод)Релиз состоялся: 21 января 2021 г.Разработчик: AnukenПоддерживаемая ОС: Android 4.0 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661A2AE7621519890E3B47864AEE9FD110DD3229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616976   (1035834) от 04.03.2023
-
-DailyArt - Daily Dose of Art v2.9.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное приложение для изучения творчества и биографии художников. Выполнено в виде ленты работ для ознакомления. Каждый день вдохновляйтесь прекрасными произведениями классического, модерн и современного искусства и читайте о них короткие истории. Присоединяйтесь к сообществу более 1.000.000 любителей искусства, для которых DailyArt - это то, что скрасит ваш (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 21.02.2023Разработчик: MoiseumПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9933FC393240613CD76AF66D93794D67429373BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

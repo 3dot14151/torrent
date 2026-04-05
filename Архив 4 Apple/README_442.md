@@ -6,7 +6,7 @@ Luminar 2018 v1.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323243.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Path Finder 7.6.2 (1729) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323192.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Grid 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322319.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Slidepad 1.0.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322314.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ iThoughtsX 5.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322304.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Mirror for Panasonic TV 3.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322300.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Color Wheel 4.8 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322292.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Money Pro - Personal Finance 2.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322223.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ DxO PhotoLab 4 ELITE Edition 4.0.1.44 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322221.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Movist 2.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322217.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ ON1 Photo RAW 2020.5 v15.0.0.9735 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322207.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Axure RP 9 v9.0.0.3721 Pro / Team / Enterprise Edition macOS [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322114.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Flume Pro 2.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322031.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Audirvana 3.5.42 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321998.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Tweetbot for Twitter 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321972.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Flume Pro 2.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321926.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ PDF Squeezer 3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321922.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Quiver 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321747.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Vox 2.6.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321621.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321407.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Elmedia Player Pro 6.1 (788) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321370.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Wirecast Pro 11.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321269.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321190.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Guitar Hero [3.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321015.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ iMazing 2.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321000.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Name Mangler 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320801.jpg" />
 </div>
 
 

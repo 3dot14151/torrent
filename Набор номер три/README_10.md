@@ -1,3 +1,161 @@
+###  Публикация: 1437986   (1040699) от 09.01.2021
+
+Секс будущего: голограммы, виртуальность и одиночество
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Размышление о сексуальности будущего. Что это — очередная статья, полная щенячьего восторга по поводу секса с киборгами, или мрачный прогноз о грядущем киберпанк-одиночестве, разбавленном виртуальными суррогатами? Мой текст — попытка понять, каким образом будут строиться отношения между новейшими технологиями и человеческим желанием. Так что скорее — второе.Впрочем, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437908   (1040695) от 09.01.2021
+
+В Telegram обнаружен способ определить местонахождение пользователя
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря функции «Люди рядом» можно с точностью до нескольких десятков метров определить местоположение неосторожного пользователя Telegram. Это открывает широкий простор для действий злоумышленников. Единственный способ обезопасить себя — контролировать использование геолокации мессенджером.Сообщение о найденной уязвимости опубликовал в своем блоге энтузиаст Ахмед (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438327   (1040683) от 09.01.2021
+
+Windows 8.1 (x86/x64) 40in1 +/- Office 2019 SmokieBlahBlah 08.01.21 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040683.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 редакций Windows 8.1 (русские и английские) с обновлениями по декабрь 2020 и интегрированными системными библиотеками + 10 таких же редакций со встроенным Office 2019 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС. Начиная с версии 08.01.21 файлы Office вынесены в отдельный образ office.esd, (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5589DE669BB871EDBFF95E4F4DB730B16FDCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438745   (1040682) от 09.01.2021
+
+Udemy, Владилен Минин | JavaScript 2021 - Полное Руководство с Нуля до Профи (2020) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для новичков в JavaScript. С нуля мы разберем все концепции, которые есть в языке и закончим самыми актуальными знаниями, которые нужны для всех разработчиков на JavaScript
+В кусе 16 часов основного контента и еще 6 больших бонусов
+В курсе показана разработка с нуля 2-х полноценных веб-приложений, реализованных в форме условной веб-игры и блога. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 32:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81199AAA629ACDBC2BD304CD34397BB7F5593E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438307   (1040680) от 09.01.2021
+
+На острие (2020) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшая саблистка мира, Александра Покровская, знаменита, богата и счастлива. Чтобы войти в историю, ей остается сделать последний шаг – взять олимпийское золото. Но путь ей преграждает девятнадцатилетняя Кира Егорова, девушка из провинции, в одночасье покорившая Москву. Кира побеждает на всех соревнованиях и не сходит с обложек глянцевых журналов. Ее цель – занять (   Читать дальше...   )Производство: Россия / ТелестоЖанр: Драма, спортРежиссер: Эдуард БордуковАктеры: Светлана Ходченкова, Стася Милославская, Сергей Пускепалис, Алексей Барабаш, Евгений Сытый, Софья Эрнст, Хильда Кармен, Кирилл Дегтярь, Павел Колобков, Мария КиселеваПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCC00DE90773C5FE4232D834F5C587F542FD359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370607   (1040679) от 09.01.2021
+
+Последний министр (2020) WEBRip (сезон 1, серии 1-16 из 16 + Новогодняя)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда министром перспективного планирования назначают деятельного неудачника, никто представить не может, к чему это приведёт. Оказывается, новый министр действительно хочет изменить жизнь людей к лучшему и для этого вместе с командой активно продвигает собственные инициативы. Правда, инициативы эти не всегда разумны, а результат — крайне непредсказуем.Производство: Россия / Продюсерская компания «Среда»Жанр: комедияРежиссер: Роман ВолобуевАктеры: Ян Цапник, Ольга Сутулова, Нелли Уварова, Сергей Епишев, Анна Шепелева, Софья Лебедева, Алексей Золотовицкий, Дарья Носик, Екатерина Носик, Сергей Степин и др.Продолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECCF05887C1CE08342165D22A2E5EEC570E0694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611112   (1040660) от 13.02.2023
 
 Ночная пташка / Nightbird (2023) WEB-DLRip [DVO]
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040660.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ FuckYouBill 2009 2xDVD5 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040659.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040420.jpg" />
 </div>
 
 
@@ -86,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040415.jpg" />
 </div>
 
 
@@ -112,7 +270,7 @@ CorelDRAW Graphics Suite 2020 22.2.0.532 RePack by PooShock [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040407.jpg" />
 </div>
 
 
@@ -139,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040406.jpg" />
 </div>
 
 
@@ -165,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040251.jpg" />
 </div>
 
 
@@ -191,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040249.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040231.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040230.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040226.jpg" />
 </div>
 
 
@@ -296,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040223.jpg" />
 </div>
 
 
@@ -322,7 +480,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.050/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040201.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ Windows 7 SP1 (x86/x64) 52in1 +/- Office 2019 by SmokieBlahBlah 09.01.21 [Ru/En]
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040199.jpg" />
 </div>
 
 
@@ -374,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040198.jpg" />
 </div>
 
 
@@ -400,7 +558,7 @@ Samsung SSD 990 Pro получил новую прошивку, которая �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040020.jpg" />
 </div>
 
 
@@ -426,7 +584,7 @@ Kage no Jitsuryokusha ni Naritakute! / The Eminence in Shadow / Восхожде
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040012.jpg" />
 </div>
 
 
@@ -452,7 +610,7 @@ Windows 11 Pro x64 Build 22621.1105 Version 22H2 [Updated 31.01.2023] ESD by Igo
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040004.jpg" />
 </div>
 
 
@@ -478,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040002.jpg" />
 </div>
 
 
@@ -504,7 +662,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.6-404-504czj3/dlc) License GOG 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040000.jpg" />
 </div>
 
 
@@ -515,163 +673,6 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.6-404-504czj3/dlc) License GOG 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E71F2F6D4C045CA0CD25BAC8DFCC8429955069B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438690   (1039974) от 12.01.2021
-
-Какие наушники могут повредить слух
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сами по себе наушники – это весьма безопасное средство для прослушивания музыки. Конечно, если речь идет о качественной продукции известных брендов, где на различные R&D выделяются внушительные суммы, а производители дорожат своим именем, рассказал агентству «Прайм» вице-президент по развитию бизнеса маркетплейса СПУТНИК, вице-президент коммуникационной группы (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438932   (1039965) от 12.01.2021
-
-10 бесплатных программ, которые нужно скачать сразу после установки Windows
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039965.jpg" />
-</div>
-
-
-###  Подробнее
-
-После покупки нового компьютера или очередной переустановки ОС не обойтись без установки определённого набора сторонних приложений, ведь одними системными ограничиться нельзя. Количество программ, доступных для загрузки, огромное множество, но в этой статье собраны лишь самые полезные и бесплатные приложения, которые пригодятся каждому пользователю ПК на Windows (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438325   (1039961) от 12.01.2021
-
-Windows 10 32in1 (20H2 + LTSC 1809) x86/x64 +/- Office 2019 x86 by SmokieBlahBlah 08.01.21 [Ru/En]
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039961.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 редакций Windows 10 (русские и английские) с обновлениями по декабрь 2020, основанных на образах версий 20H2 и LTSC 1809 и интегрированными системными библиотеками
-+8 таких же редакций со встроенным MS Office 2019 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Начиная с версии 08.01.21 (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDF716478D6CDB8E1BD59B85A05284A3FB2291E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437684   (1039959) от 12.01.2021
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2021.01.05 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B67CCEBEEA98B9151D5C4BC6B36481A34D27A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612771   (1039716) от 17.02.2023
-
-Windows 11 Pro VL x64 22Н2 (build 22621.1265) by ivandubskoj 16.02.2023 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская сборка Windows 11 Pro VL (x64), без METRO-приложений, с отключенной телеметрией, службами, обходом ограничений - требований к TPM, SecureBoot, RAM и Storage, и с актуальными обновлениями на момент создания релиза.Разработчик: MicrosoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51074544DAD9E28210A882CE550F7BF49B57512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438818   (1039704) от 13.01.2021
-
-China Telecom запускает телефонные звонки с квантовым шифрованием для смартфонов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039704.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью специальной SIM-карты и приложения некоторые пользователи смартфонов China Telecom в провинции Аньхой могут совершать телефонные звонки, защищенные квантовым шифрованием. Гонка за разработку квантовой технологии может угрожать традиционному шифрованию и привести к новым, более безопасным формам криптографии.На прошлой неделе компания объявила, что некоторые (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

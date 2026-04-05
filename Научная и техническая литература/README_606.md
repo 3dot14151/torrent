@@ -1,145 +1,3 @@
-###  Публикация: 460976   (79616) от 02.03.2012
-
-Подборка книг | Финансовый менеджмент [1995-2010] [DJVU, PDF, DOC]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка отечественной и переводной литературы по различным вопросам финансового менеджмента1995-2010Формат: DJVU, PDF, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43D1E3069AD6FA5906644CB9F95EF1E00229C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460914   (79604) от 02.03.2012
-
-Н.И. Жукова | Шведский без репетитора (2004) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель этого учебного пособия — помочь вам
-• овладеть разговорной речью;
-• освоить чтение шведской периодики.
-Первая часть книги дает основы базовой грамматики шведского языка и лексический минимум,(   Читать дальше...   )Жанр: Изучение иностранных языковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C464798D73D00ACA8A7B64095E4C0864583244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460388   (79508) от 01.03.2012
-
-Межиздательская серия - «Историческая библиотека»
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжная серия "Историческая библиотека" выпускается несколькими издательствами (АСТ, Астрель, Полигон, Ладомир, Люкс, Транзиткнига, Дело, Лениздат) с 2001 года и имеет оформление нескольких типов. В серии публикуются как известные исторические труды, так и художественная историческая литература.2001-2011Жанр: Историческая литератураФормат: FB2, CHM, PDF, DjVu, RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519611AC61CDFA2BDD61D73EA0351AFADD925865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459335   (79457) от 01.03.2012
-
-BBK | Сборник схем и сервис-мануалов по ремонту техники BBK [Eng] [2008] [PDF, doc, xls, exe, BIN, txt, ppt]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник прошивок, схем и сервис-мануалов по ремонту техники BBK
-- Инструкция по созданию диска для прошивки DVD и апгрейда;
-- Схема программатора и программу MTK Tools для заливки прошивок;
-- Набор прошивок схем и сервис-мануалов следующих изделий:
- LCD-телевизоров
- DVD-плейеров
- Флэш-плейеров
- Портативных DVD-проигрывателей
- Домашних кинотеатров
- Сабвуферов(   Читать дальше...   )2008Формат: PDF, doc, xls, exe, BIN, txt, ppt
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10A56E8F0B93B5C3DA19EB2746E75726C57EA90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459370   (79242) от 29.02.2012
-
-Sony-Eriсsson | Sony-Eriсsson. Схемы и сервис-мануалы мобильных телефонов [2010] [PDF, (xls, gif, mht, doc, jpg)]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sony-Eriсsson. Схемы и сервис-мануалы мобильных телефонов2010Формат: PDF, (xls, gif, mht, doc, jpg)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48B01E3C0C27783C6A2E41A7EB0C0227BB2B0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459366   (79228) от 29.02.2012
 
 Nokia, Samsung | Сервис мануалы мобильных телефонов Nokia и Samsung [2009] [PDF, txt] [Eng]
@@ -148,7 +6,7 @@ Nokia, Samsung | Сервис мануалы мобильных телефоно
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79228.jpg" />
 </div>
 
 
@@ -175,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79197.jpg" />
 </div>
 
 
@@ -202,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78941.jpg" />
 </div>
 
 
@@ -231,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78826.jpg" />
 </div>
 
 
@@ -260,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78788.jpg" />
 </div>
 
 
@@ -288,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78753.jpg" />
 </div>
 
 
@@ -314,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78723.jpg" />
 </div>
 
 
@@ -340,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78068.jpg" />
 </div>
 
 
@@ -366,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77911.jpg" />
 </div>
 
 
@@ -392,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77878.jpg" />
 </div>
 
 
@@ -418,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77874.jpg" />
 </div>
 
 
@@ -444,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76600.jpg" />
 </div>
 
 
@@ -473,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76346.jpg" />
 </div>
 
 
@@ -499,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76225.jpg" />
 </div>
 
 
@@ -528,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75817.jpg" />
 </div>
 
 
@@ -554,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75154.jpg" />
 </div>
 
 
@@ -580,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75121.jpg" />
 </div>
 
 
@@ -607,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74328.jpg" />
 </div>
 
 
@@ -634,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74096.jpg" />
 </div>
 
 
@@ -660,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72627.jpg" />
 </div>
 
 
@@ -689,7 +547,7 @@ Izaak Maurits Kolthoff | Potentiometric titrations (1931) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71747.jpg" />
 </div>
 
 
@@ -700,6 +558,136 @@ Izaak Maurits Kolthoff | Potentiometric titrations (1931) [PDF] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F0F7E2D21AD23E2C7D82B6AF60FFCDD5C415D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774008   (71642) от 18.01.2025
+
+Г.М. Баренбойм, А.Г. Маленков | Биологически активные вещества. Новые принципы поиска (1986) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые излагаются научные и технологические основы, необходимые для создания высокопроизводительных систем определения основных видов биологической активности больших массивов химических соединений. В оригинальных теоретических разработках и экспериментальных исследованиях авторы широко использовали методологию и достижения биофизики, молекулярной биологии, кибернетики, (   Читать дальше...   )Жанр: БиохимияИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41AFB25042C0F10ACECB00F8A045CEC7A73C1F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775183   (71494) от 25.01.2025
+
+В.С. Шипачев | Задачник по высшей математике (1998) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие написано в соответствии с программой по высшей математике для вузов. Содержит задачи и примеры по следующим важнейшим разделам: теория пределов, аналитическая геометрия на плоскости и в пространстве, дифференциальное и интегральное исчисления функций одной и нескольких переменных, высшая алгебра, ряды и дифференциальные уравнения. Приведены основные теоретические (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6815DB72FE8316F1C340FEEBA3AD16D81E7FBB82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775292   (71453) от 26.01.2025
+
+С.И. Новоселов | Специальный курс тригонометрии (1967) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга предназначается в качестве учебного пособия для физико-математических факультетов педагогических институтов по разделу «Тригонометрия» специального курса элементарной математики. ее следует рассматривать как продолжение книги «Специальный курс элементарной алгебры», поэтому вопросы (например, общие положения теории уравнений и неравенств), содержащиеся (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1236BDBF6A8B1E3417F2A9DE25D7F8AD3A0D3D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775291   (71448) от 26.01.2025
+
+С.И. Новоселов | Специальный курс элементарной алгебры (1965) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга предназначается в качестве учебника для физико-математических факультетов педагогических институтов по разделу «Алгебра» специального курса элементарной математики. Книга содержит весь учебный материал, предусмотренный программой указанного раздела.Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0838DF3C0F60EFB81D4D8493FCFD2B37964DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776140   (71357) от 30.01.2025
+
+C.П. Костычев | О брожениях (1914) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Павлович Костычев - российский и советский физиолог, биохимик и анатом растений, микробиолог, академик Российской Академии наук. В книге описаны виды брожения: молочнокислого, уксусного, спиртового, маслянокислого.Жанр: БиологияЯзык: Русский (дореформенный)Издательство: издательство А. С. ПанафидинойФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C26D470C724F77DEB655D48614A8C73E3F1D52F
 ```
 
 https://mybot314.ru/tekegram_catalog/

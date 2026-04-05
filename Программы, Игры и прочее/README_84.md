@@ -1,3 +1,108 @@
+###  Публикация: 1837275   (256815) от 15.11.2025
+
+Sense Flip Clock & Weather v8.99.8 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнофункциональное погодное приложение с набором виджетов погоды и часов. Приложение предоставляет прогнозы погоды для вашего текущего местоположения или любого другого места по всему миру. Вы можете добавить до 10 мест и проверить погоду и время для любого места в мире.Тип издания: PremiumРелиз состоялся: 14.11.2025Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5368DD14456F7F27F39D9F195B07F341092BC0EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837274   (256814) от 15.11.2025
+
+Sense V2 Flip Clock & Weather v8.91.0 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнофункциональное погодное приложение с набором виджетов погоды и перекидных часов.
+Приложение предоставляет прогнозы погоды для вашего текущего местоположения или любого другого места по всему миру. Вы можете добавить до 10 мест и проверить погоду и время для любого места в мире.Тип издания: PremiumРелиз состоялся: 14.11.2025Разработчик: MACHAPP Software LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED326CAD291725CF077439995DC5B10001060C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837180   (256810) от 15.11.2025
+
+Smart Tools v2.1.16 mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Tools® это набор инструментов состоящий из 6 индивидуальных приложений. Он имеет 6 комплектов состоящих из 15 инструментов. Одним словом, всё-в-одном.Тип издания: ModРелиз состоялся: 11.11.2025Разработчик: Android boy's LabПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский/ Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3080AE81416D8A6B20F4C6F5FA0AF32FA2D03AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837164   (256809) от 15.11.2025
+
+ProShot v8.32.1.3 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в ProShot, полное решение для фото- и видеосъемки на Android. Являетесь ли вы опытным профессионалом или только начинаете, в ProShot есть что-то для вас. Его обширный набор функций и уникальный интерфейс открывают неограниченные возможности, гарантируя, что вы никогда не пропустите идеальный снимок.Тип издания: Pro / PatchedРелиз состоялся: 13.11.2025Разработчик: Rise Up GamesПоддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C92ED9DBC6612C2307580270722812D408BCFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837208   (256808) от 15.11.2025
 
 DRM-Play v1.45 / v1.56.2 Lite Mod by ajrys [Ru/Multi]
@@ -6,7 +111,7 @@ DRM-Play v1.45 / v1.56.2 Lite Mod by ajrys [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256808.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Lighting calculations / Расчеты освещения v6.1.10 Mod by Balatan
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256754.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Electrical Calculations Pro / Электрические расчеты v11.0.3.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256753.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Ocean Match / Рыбки: Три в ряд v3.3.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256747.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256740.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256739.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ Photo Studio PRO v2.8.7.4631 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256734.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256733.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ PictureThis - Plant Identification v5.16.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256728.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256727.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ MIUI Hidden Settings Activity v1.6.11 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256717.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ All File Reader and Viewer v55 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256716.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ SnapEdit - AI photo editor v7.5.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256683.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ FBReader Premium v3.8.21 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256682.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ PhotoDirector v20.7.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256625.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ Bria Mobile: VoIP Softphone v6.21.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256609.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ Mary’s recipes: рецепты, меню v6.7.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256605.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ Vanced Tube v5.5.80.151 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256599.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256589.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ Lexilize FlashCards v4.8.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254906.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ RAR for Android v7.20 build 128 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252439.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ Beat Find / Распознавание музыки v1.6.61 Mod by NURIK [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252356.jpg" />
 </div>
 
 
@@ -565,110 +670,6 @@ Beat Find / Распознавание музыки v1.6.61 Mod by NURIK [Ru/Mul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D986AABD5C819604FEBFCF277B9821F7304271D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835944   (252300) от 08.11.2025
-
-Background Video Recorder Pro v13.9.77 Mod by NURIK kz [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Background Video Recorder Pro — это приложение, которое помогает записывать видео также в фоновом режиме. Оно имеет много полезных функций, например: обнаружение движения, наблюдение за ребенком, запись по расписанию и захват изображения. Вы даже можете использовать кнопки громкости или множество вспомогательных виджетов для управления камерой.Тип издания: ProРелиз состоялся: 07.11.2025Разработчик: Arbel SolutionsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF21113163878C6A10EDDCBAF6D42C185C96797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836035   (252299) от 08.11.2025
-
-Photo Studio PRO v2.8.7.4631 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 08.11.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9329F7EB6EB248DACCA5D96D8D7050C66CB1F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835781   (252298) от 08.11.2025
-
-Words of Wonders: Игра в слова v5.3.5 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в мир 7 чудес Words of Wonders! Эта замечательная игра в жанре «кроссворд» с элементами соединялки позволит вам не только улучшить запас слов и их написание, но и путешествовать, пересекать земной шар, искать скрытые тайны 7 чудес. найти слова соединить буквы в 7 чудес и увеличить свой запас слов запас.Тип издания: ModРелиз состоялся: 06.11.2025Разработчик: Fugo GamesПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BEE0A5C1CCE5920551424568B7D3BEE822881F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835971   (252297) от 08.11.2025
-
-Лайм HD STB v1.12.17 Mod by vadj [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровое ТВ (ЦТВ) для Android телевизора и приставок. Телеканалы для всей семьи! Смотрите  фильмы, сериалы и ТВ-каналы онлайн на большом экране телевизора вместе с Лайм HD TV онлайн! Лайм HD TV online — это приложение c трансляцией более 330 телеканалов для современных телевизионных приставок, которое предоставляет пользователям доступ к широкому спектру мультимедийного (   Читать дальше...   )Тип издания: Mod / AdFreeРелиз состоялся: 01.11.2025Разработчик: ООО Лайм Эйч ДиПоддерживаемая ОС: Android TV 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A40C2EDC42821484AC24DF3AB5A4EA5BC264010
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1001312   (853901) от 28.03.2016
-
-Война с Евгением Поддубным (27.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853901.jpg" />
-</div>
-
-
-###  Подробнее
-
-В программе - рассказ о том, как проходило освобождение "жемчужины пустыни", сирийской Пальмиры, и эксклюзивные кадры из освобожденного древнего города.Телекомпания: Россия 24Жанр: ТелепередачаПродолжительность: 00:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596F73E9F2ECB3AF7AAEE88393103B129122C79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001521   (853382) от 28.03.2016
 
 Без обмана. Змеиный супчик (2016.03.28) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853382.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852735.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850891.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850479.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850291.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848983.jpg" />
 </div>
 
 
@@ -189,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848764.jpg" />
 </div>
 
 
@@ -215,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848152.jpg" />
 </div>
 
 
@@ -241,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847966.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847949.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847819.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847213.jpg" />
 </div>
 
 
@@ -345,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847211.jpg" />
 </div>
 
 
@@ -371,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847209.jpg" />
 </div>
 
 
@@ -397,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847116.jpg" />
 </div>
 
 
@@ -423,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847013.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847006.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846929.jpg" />
 </div>
 
 
@@ -501,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846919.jpg" />
 </div>
 
 
@@ -527,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846689.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846642.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846300.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846182.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846177.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845405.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66CF618780FB7F15081D09BAA5C76E8D2B4E4674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002883   (845400) от 02.04.2016
+
+Человек и закон (01.04.2016) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цены на продукты, бензин, образование детей, медицинские услуги, жилье. Опросы показывают, что именно эти вопросы волнуют всех в первую голову. На днях появилась информация о новых возможных налогах. В частности, о налоге на холостяков, одиноких и малосемейных граждан. Параллельно с этим активно обсуждается идея обнуления процентов по ипотеке в случае рождения детей. (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A3ACF1B21D95D31DF217A7ABB33278828E89F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

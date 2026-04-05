@@ -1,3 +1,116 @@
+###  Публикация: 1568857   (457777) от 10.08.2022
+
+VA - Kontor Festival Sounds 2022 - Resurrection (2022) [MP3|320 Kbps] <Club, House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Blasterjaxx feat. 24H - Superman (Extended Mix) (6:19)
+02. AXMO x Jerome - To the Moon (Extended Mix) (3:52)
+03. Martin Garrix & ZEDD feat. Emily Warren - Follow (Extended Mix) (4:25)
+04. Alok feat. John Martin - Wherever You Go (Alle Farben Remix) (3:24)(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 06:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF14691B35AE077AA4CD867996252C9475C52FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568786   (457444) от 10.08.2022
+
+VA - ZYX Music - TechnoBase.FM Vol. 34 (2022) 3CD, Compilation, Box Set [MP3|244-283 Kbps, VBR] <Techno, Hardstyle, Hard Trance, Dancecore>
+
+>>Electronic
+>>Hardstyle, Jumpstyle, Hardcore
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Techno, Hardstyle, Hard Trance, DancecoreПродолжительность: 03:53:56 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DA9BD7CDC9AC57A8B9EFE4FE1CE3FD4357E947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060106   (457238) от 06.10.2016
+
+VA - Female Vocal Trance Anthems (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance ,Uplifting Trance,Vocal Trance >
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Stoneface & Terminal - My Heart Won't Tell You No (Radio Edit) [04:35]
+02 Liam Wilson - Let Healing Begin (Radio Edit) [03:01]
+03 Susana, Aly & Fila, Roger Shah - Unbreakable (Radio Edit) [03:59]
+04 4 Strings - When The Lights Go Down (Communion) (Radio Edit) [03:29](   Читать дальше...   )Жанр: Trance ,Uplifting Trance,Vocal TranceПродолжительность: 02:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B764C01CEB2FF7F373D2E9FEEF7BDFBABD3C9D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247085   (456932) от 13.09.2018
+
+VA - A State Of Trance Top 20 - September (Selected By Armin Van Buuren) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Alok & Vini Vici - United feat. Zafrir (Original Mix)
+02. ARTY -Tim (Original Mix)
+03. Gareth Emery feat. Evan Henzi - Call To Arms (Original Mix)
+04. Rank 1 -L.E.D. There Be Light (Cosmic Gate Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B2EB83FE93144B6B8D634FB4B146C76E5A5D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162762   (456905) от 02.09.2017
 
 VA - Oriental Touch (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -6,7 +119,7 @@ VA - Oriental Touch (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456905.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ VA - Vocal Radio Hits (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456904.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ Scooter - Instrumental: The Best Hits (2002) Compilation, Mixed [FLAC|Lossless|i
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456840.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Psy Trance Vol.1 (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456808.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ Astral Projection | SFX - Discography 30 Releases (1995-2019) Phonokol, Trust In
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456301.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ VA - A Long Hot Summer (Mixed & Selected by Chris Brann from Ananda Project) (20
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456181.jpg" />
 </div>
 
 
@@ -186,7 +299,7 @@ Bitcrush - Shipwrecked (2015) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Post Rock>
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455959.jpg" />
 </div>
 
 
@@ -215,7 +328,7 @@ Lemongrass - Soulful (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455902.jpg" />
 </div>
 
 
@@ -244,7 +357,7 @@ VA - Sounemot State 007 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455806.jpg" />
 </div>
 
 
@@ -273,7 +386,7 @@ VA - The Sound Of Progressive Trance Vol.14 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455801.jpg" />
 </div>
 
 
@@ -302,7 +415,7 @@ Ben Haydie - Molecules (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455799.jpg" />
 </div>
 
 
@@ -331,7 +444,7 @@ VA - Ultra Step Pop Hits 2020 Fitness Session [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455778.jpg" />
 </div>
 
 
@@ -360,7 +473,7 @@ Jjos - Balearic Chill Оut Vibes Compilation (2015) [FLAC|tracks]<Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455763.jpg" />
 </div>
 
 
@@ -389,7 +502,7 @@ Robert Miles - Dreamland (1996) [OGG|485 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455695.jpg" />
 </div>
 
 
@@ -418,7 +531,7 @@ VA - Sexy Chillout (Selection Erotic Sensation Chillout Music) (2020) [MP3|320 K
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455579.jpg" />
 </div>
 
 
@@ -447,7 +560,7 @@ VA - Maretimo Sessions: Sunset Del Mar (2016) [MP3|320 Kbps] <Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455186.jpg" />
 </div>
 
 
@@ -476,7 +589,7 @@ VA - Future Sound Of Egypt 450 (Mixed By Aly & Fila, Ferry Tayle & Dan Stone, Mo
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455184.jpg" />
 </div>
 
 
@@ -505,7 +618,7 @@ Delerium - Mythologie (2016) [MP3|320 Kbps] <Ambient, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455183.jpg" />
 </div>
 
 
@@ -534,7 +647,7 @@ Blank & Jones - Dom (2016) [MP3|320 Kbps] <Downtempo, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455182.jpg" />
 </div>
 
 
@@ -563,7 +676,7 @@ VA - EnTangled Vol.03 (Mixed By Latex Zebra) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455114.jpg" />
 </div>
 
 
@@ -592,7 +705,7 @@ VA - Ori Uplift & Luis A. Moreno - Uplifting Only 292 (2018) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455113.jpg" />
 </div>
 
 
@@ -620,7 +733,7 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2018) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455110.jpg" />
 </div>
 
 
@@ -634,122 +747,6 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2018) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:484B7E97E0BEB00CC43C7D35E0ECBB072525A26E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060454   (455045) от 07.10.2016
-
-VA - Enhanced Chill - Volume Four (2016) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BRKLYN feat. Mariah McManus - Can't Get Enough (Unplugged) (3:09)
-02. APEK & Shanahan feat. Andrew Jackson - Broken Souls (Unplugged) (3:00)
-03. Arno Cost feat. Eric Lumiere - Again (Acoustic Mix) (2:46)
-04. Cuebrick & APEK feat. Linney - Safe (C-Systems Alternative Mix) (3:50)(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA90CF5DC9FF76F2CF2CC30A715FA6E68941CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162817   (454995) от 03.09.2017
-
-VA - Chillhouse At The Beach Vol.1 (2017) [MP3|320 Kbps] <House, Chillhouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bed Shop Toys - Himmelhochjauchzend (Radio Version)  3:32
-02.  Max Gabani & J. Paes - I Just Need To Know (Original Mix)  3:31
-03.  Deep Azur - Sunset Island (Chillhouse Radio Version)  3:53
-04.  Markus Teschner - Carabain (Original Mix)  3:24(   Читать дальше...   )Жанр: House, ChillhouseПродолжительность: 02:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99A8B0F4B782CB4EDFA29AE9151A23CC33342F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247204   (454944) от 14.09.2018
-
-Francisco Aguado - Infinite love (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Downtempo, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aimless Dreams (6:14)
- 02. Sea of Clouds (8:18)
- 03. Waves of Hope (6:16)
- 04. Return of the Essence (6:58)(   Читать дальше...   )Жанр: Deep Techno, Downtempo, MinimalПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41287D230DE3A4151ED0F60DE43F8D39916E7884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247158   (454941) от 14.09.2018
-
-Marcel Dettmann - Test-File (2018) Ostgut Ton [FLAC|Lossless|WEB-DL|tracks] <Techno, Leftfield, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Test-File (03:03)
- 02. Ascending (04:44)
- 03. Autumn77 (04:50)
- 04. Torch (03:26)(   Читать дальше...   )Жанр: Techno, Leftfield, HouseПродолжительность: 00:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236122E4DFF080A7610D3B02AB56FE94CA1C3BB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

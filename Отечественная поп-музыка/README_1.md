@@ -1,32 +1,3 @@
-###  Публикация: 1455042   (1017179) от 07.05.2021
-
-VA - Маска. Выпуск 1-12 (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017179.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Заяц - Белая ночь
-2. Крокодил - Uptown Funk
-3. лама - Ave Maria
-4. Крокодил - Вдвоём(   Читать дальше...   )Жанр: PopПродолжительность: 05:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F259C4F10FBA049B6D848FDABBF91C7CC98395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468896   (1016925) от 09.05.2021
 
 Los Havtanos - Иди ко мне (2020) [MP3|320 Kbps] <Latino, Pop>
@@ -35,7 +6,7 @@ Los Havtanos - Иди ко мне (2020) [MP3|320 Kbps] <Latino, Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016925.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016084.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015135.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014961.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013838.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013812.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Little Big - COVERS (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012694.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011648.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009962.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009259.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008303.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005806.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - veLvETОвый движ (Vol. 1) (2021) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004858.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999591.jpg" />
 </div>
 
 
@@ -447,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998821.jpg" />
 </div>
 
 
@@ -482,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998540.jpg" />
 </div>
 
 
@@ -517,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998309.jpg" />
 </div>
 
 
@@ -552,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997979.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997439.jpg" />
 </div>
 
 
@@ -619,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996912.jpg" />
 </div>
 
 
@@ -654,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994056.jpg" />
 </div>
 
 
@@ -689,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991102.jpg" />
 </div>
 
 
@@ -724,7 +695,7 @@ Hi-Fi - Звездная серия (2008) [MP3|320 кб/с]<pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991014.jpg" />
 </div>
 
 
@@ -759,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991001.jpg" />
 </div>
 
 
@@ -794,7 +765,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990939.jpg" />
 </div>
 
 
@@ -814,6 +785,41 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AF50155B9CA568BA36928B88F04643BFB346E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607673   (989991) от 29.01.2013
+
+Женя Белоусов - Звездная серия (2003) [MP3|256-320 кб/с]<pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989991.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Подожди меня 04:14
+ 2. Вечером на лавочке 04:15
+ 3. Ночное такси 04:50
+ 4. Девчонка-девчоночка 04:49
+ 5. Алешка 03:54
+ 6. Голуби целуются 04:30
+ 7. Карина 03:59
+ 8. Слушай, девчонка 04:59
+ 9. Вечерок 05:24
+ 10. Облако волос 05:31(   Читать дальше...   )Жанр: popПродолжительность: 01:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8B3DA68B010965A1F7101B159B032C401EB57F
 ```
 
 https://mybot314.ru/tekegram_catalog/

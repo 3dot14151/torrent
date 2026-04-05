@@ -1,3 +1,81 @@
+###  Публикация: 1714604   (111698) от 10.04.2024
+
+Никита Прохоров, Дмитрий Сидорин | 50 ошибок, которые убьют твой стартап (2024) [MP3, Максим Киреев]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создать свою корпорацию, собрать лояльную команду, стать медийной личностью – цель всех стартаперов. Как ее достичь? Авторы книги, ведущие российские интернет-эксперты и основатели нескольких компаний, опираясь на свой опыт, помогут будущим предпринимателям избежать многих ошибок на старте. Прочитав книгу, вы рационально оцените ресурсы для запуска, научитесь делегировать (   Читать дальше...   )Жанр: БизнесИздательство: Синергия СторПродолжительность: 05:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9563AD75D984A13033E48650DEAE065C97A5F6EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715665   (111506) от 13.04.2024
+
+Роберт Шиллер | Нарративная экономика (2024) [MP3, Павел Корицкий]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мировой экономикой управляют не только деньги, но и истории. Например, цена биткоина достигла тысяч долларов благодаря тому, что люди поверили в его ценность. Роберт Шиллер, лауреат Нобелевской премии, предложил теорию о том, что экономические модели, основанные на вирусных историях, более точны. Он утверждает, что изучение таких историй, которые распространяются (   Читать дальше...   )Жанр: БизнесИздательство: БОМБОРАПродолжительность: 11:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5111C75F3AFA0B60F8141A3304F5B355FF4D5FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716076   (111409) от 14.04.2024
+
+Ави Голдфарб | От предвидения к власти (2024) [MP3, Всеволод Богомольный]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развитие ИИ полностью трансформирует экономику, а прогнозирование становится главным инструментом власти и умножения прибыли. Эта книга адресована каждому лидеру, который хочет найти новые возможности и использовать технологии в своих целях.Жанр: БизнесИздательство: МИФПродолжительность: 10:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6619A5843EBA352ADC6E05D869CC67F523EAE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719370   (110575) от 29.04.2024
 
 Александра Хорват | Дайте жалобную книгу! (2024) [MP3, Анна Киршина]
@@ -6,7 +84,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110575.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110413.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110266.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110175.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109583.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109545.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109050.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109030.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108876.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108715.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108349.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107644.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107555.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100920.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100579.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94526.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87502.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86752.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73518.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71146.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70584.jpg" />
 </div>
 
 
@@ -569,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70478.jpg" />
 </div>
 
 
@@ -596,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69710.jpg" />
 </div>
 
 
@@ -607,85 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60A97B1F3D4B17AFB587E016232ABD14F2E87C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785009   (69451) от 14.03.2025
-
-Евгений Жигилий | Мастер звонка (2023) [MP3, Евгений Жигилий]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вам стать настоящим мастером телефонного общения. В ней вы найдете систему для работы с разными видами звонков: входящими, исходящими, горячими и холодными. Освоите массу разнообразных приемов ведения диалога и работу с возражениями, рассмотрите более 100 сценариев для различных ситуаций продаж по телефону. Это полный арсенал инструментов для реального (   Читать дальше...   )Жанр: БизнесИздательство: МИФПродолжительность: 09:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1413FC6437084B6747196749BC1157A7DBA56DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789605   (68272) от 05.04.2025
-
-Анастасия Веселко | Девушка с деньгами (2020) [MP3, Анастасия Веселко, Татьяна Бур]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фраза «Я девочка, я не хочу ничего решать» совершенно не про современных девушек, которые хотят и умеют зарабатывать.
-Но почему-то все равно выходит так, что деньги вроде бы есть, но их не хватает на важное. На жизнь достаточно, но сбережений нет. Крупные покупки приходится делать в кредит. Про будущее вообще думать страшно. Дело усугубляют стереотипы: финансы – (   Читать дальше...   )Жанр: БизнесИздательство: АльпинаПродолжительность: 04:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9691318C98BAA86F4399EB51D4D89311FA3AE26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793992   (67395) от 27.04.2025
-
-Джейсон Дель Рей | Победитель продает всё (2024) [MP3, Илья Дементьев]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67395.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение многих лет компании Walmart и Amazon работали в разных сферах: одна была крупнейшим физическим ретейлером, другая – онлайн-гигантом. Но в 2016 году Walmart агрессивно вторглась в мир электронной коммерции, а Amazon сделала ставку на физическую розничную торговлю. Это противостояние вылилось в беспощадную схватку за власть, в которой каждый титан пытается (   Читать дальше...   )Жанр: БизнесИздательство: Азбука-АттикусПродолжительность: 11:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6EEA5D775AAE6E6F873AF04895A27BBCA890FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

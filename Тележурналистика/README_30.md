@@ -1,29 +1,3 @@
-###  Публикация: 1389990   (783673) от 13.06.2020
-
-Живая еда с Сергеем Малозёмовым (13.06.2020) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чайный гриб, кимчи, соевый соус, сыры, квашеная капуста: почему ими лучше не злоупотреблять и правда ли, что ферментированные продукты продлевают жизнь? Может ли натуральное оливковое масло стоить дешево или нужно покупать только дорогое? И можно ли распознать подделку по лайфхакам из Интернета? Вся правда о щавеле: полезнее ли он, чем другие листовые салаты? И правда (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E466252A34102F43E1BBB3CF1658B677DDAAD49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390292   (783405) от 14.06.2020
 
 Следствие вели... (14.06.2020) "Бесценный мужчина" WEBRip [H.264/1080p-LQ]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783405.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783360.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781290.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780589.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779935.jpg" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778689.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778528.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778394.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777999.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777985.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777776.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777680.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777675.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777350.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_777218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_777218.jpg" />
 </div>
 
 
@@ -426,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776968.jpg" />
 </div>
 
 
@@ -452,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776963.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776567.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776208.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776199.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776196.jpg" />
 </div>
 
 
@@ -583,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776167.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776090.jpg" />
 </div>
 
 
@@ -635,7 +609,7 @@ Eвгений Малкин. Русский среди "Пингвинов" (2016
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775831.jpg" />
 </div>
 
 
@@ -661,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774842.jpg" />
 </div>
 
 
@@ -672,6 +646,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B41DD8BE94583B1A5C06F8A33E3579B7B052A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015724   (774276) от 11.05.2016
+
+Тайный мир золота / The secret world of gold (2013) DVB
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Золотом украшены храмы и соборы, оно встроено в телефоны, золото покрывает наши пальцы. Однако за золотом может скрываться черное прошлое. Но после переплавки этого не поддающегося коррозии металла прошлое испаряется. Вполне вероятно, что вы носите в ушах золото конкистадоров, инков и даже нацистов. Вместе с кладоискателями вы сможете проникнуть на рынки Дубаи, а (   Читать дальше...   )Телекомпания: Канада, CMF-FMCЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE178C46855906CB8C80F0277303732822B8FA6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

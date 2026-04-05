@@ -6,7 +6,7 @@ DreadOut 2 (2020) [Ru/Multi] (1.1.7/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021058.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LEFT ALIVE (2019) [Multi] (1.0) License EMPRESS
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014734.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LEFT ALIVE (2019) [Multi] (1.03/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014578.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BIOMUTANT (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014100.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Evil Within (2014) [Ru/Multi] (1.05/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013738.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tunguska: The Visitation (2021) [En] (1.0) License Fairlight
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012318.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ninja Gaiden Σ (Sigma) (2021) [Multi] (1.0) License CODEX [Master Collection]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011755.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ninja Gaiden Σ (Sigma) 2 (2021) [Multi] (1.0) License CODEX [Master Collection]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011750.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ninja Gaiden 3: Razor's Edge (2021) [Multi] (1.0) License CODEX [Master Collecti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011732.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Scarlet Nexus (2021) [Ru/Multi] (1.02) Repack SpaceX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008192.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Shattered - Tale of the Forgotten King (2021) [Ru/Multi] (1.3.00) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006213.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BIOMUTANT (2021) [Ru/Multi] (1.5.1/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005953.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Gods Will Fall (2021) [Ru/Multi] (35/dlc) License GOG [Valiant Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005547.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Gene Rain: Wind Tower (2020) [Multi] (1.0/dlc) Repack Mr_Weegley
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003079.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Alienautics (2019) [En] (1.0) Repack Mr_Weegley
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002631.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Star Wars Battlefront II (2017) [Ru/Multi] (Build 5433720) OriginRip =nemos= [Ce
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002440.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ REFUGE (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001203.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Mafia II / Мафия 2 (2011) [Ru] (1.0.0.1/upd5a/dlc) Repack Other s [Director
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000723.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Kane & Lynch Dilogy [Ru/En] (RePack) 2007 - 2010 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000575.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Kane & Lynch Dilogy [Ru/En] (Rip) 2007 - 2010 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000570.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ I Am Alive [Ru/En] (Lossless Repack/1.01) 2012 | R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999491.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Driver: San Francisco [Ru/En/Multi10] (L/1.0.04.1114) 2012 | *PROPHET*
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998464.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Prison Break: The Conspiracy / Побег. Теория заговора [Ru/En]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998189.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Orcs Must Die Dilogy / Дилогия Бей орков [Ru] (RePack/1.0r14, 1.0
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997102.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Binary Domain [Ru/Multi6] (Lossless RePack/2DLC) 2012 l R.G. Games
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997087.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Devil May Cry 4 [Ru] (RePack/1.5) 2008 | R.G. REVOLUTiON
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996800.jpg" />
 </div>
 
 

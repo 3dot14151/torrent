@@ -1,3 +1,119 @@
+###  Публикация: 1011402   (796121) от 28.04.2016
+
+The Animals - The Best Of (2000) compilation [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The House Of The Rising Sun  [1964]  4:31
+02.  Don't Let Me Be Misunderstood  [1964]  2:28
+03.  We've Gotta Get Out Of This Place  [1965]  3:14
+04.  Roadrunner  [1965]  2:49(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028B454885EA3D23DD791F94F4D4B07DEFDE86B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200588   (795698) от 21.01.2018
+
+The Black Noodle Project - Divided We Fall  (2017) [FLAC|Lossless|image + .cue] <Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isolation
+02. Memorial
+03. Ashes To Ashes
+04. Under A Black Sky(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9EC63641DFF5B5A7A17A4ACD1E6A8CBFDBD62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011912   (795577) от 29.04.2016
+
+Billy Squier - Absolute Hits (2005) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stroke
+02. In The Dark
+03. My Kinda Lover
+04. She's A Runner(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7FEC9CECAB76C3A123ED1640B18C08D533C2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509413   (795009) от 12.11.2021
+
+Groundbreaker - Soul To Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_795009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standing On The Edge Of A Broken Dream
+02. Soul To Soul
+03. Captain Of Our Love
+04. Evermore(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C185907390D51142BA38C5C64C943427992546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509428   (794959) от 12.11.2021
 
 T. Rex - Bolan Boogie (1988) [FLAC|Lossless|image + .cue]<Glam Rock>
@@ -6,7 +122,7 @@ T. Rex - Bolan Boogie (1988) [FLAC|Lossless|image + .cue]<Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794959.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Placebo - Covers (2003) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794907.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Jethro Tull - Benefit (1970) 4xCD, The 50th Anniversary Enhanced Edition, Compil
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794888.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ The Jimi Hendrix Experience - Radio One (1989) [FLAC|Lossless|tracks + .cue]<Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794821.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Essential Collection - Rock and Roll volume 1 (1995) 2CD [APE|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794720.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Zucchero - Black Cat (2016) [FLAC|Lossless|image + .cue] <Rock, Blues Rock, Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794638.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Capital Gold British Legends (2003) Box Set, 2CD [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794306.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Robert Reed - Sanctuary II 2 CD+DVD (2016) [FLAC|Lossless|tracks + .cue]<Crossov
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794113.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Brain Echoes - Blackbird (On A White Oak Tree) (2021) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794083.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Nancy Wilson - You And Me (2021) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794076.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Jack Johnson - All the Light Above It Too (2017) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794019.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Sam Spades - Wolf (2014) [FLAC|Lossless|WEB-DL|tracks] <Rock, Rockabilly, Rock &
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793821.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Tim Buckley - Goodbye And Hello (1967) Reissue, 2000, Elektra [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793797.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Paul Revere & The Raiders - Midnight Ride (1966) Reissue, 2000, Sundazed Music [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793795.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Monks - Black Monk Time (1966) Remastered, 1997, Infinite Zero [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793787.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ YOAV - Blood Vine (2012) [FLAC|Lossless|tracks + .cue] <Alternative, Electronic,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793752.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ YOAV - A Foolproof Escape Plan (2010) [FLAC|Lossless|tracks + .cue] <Indie, Pop,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793730.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ The Electric Prunes - I Had Too Much To Dream (Last Night) (1967) Reissue, 2000,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793659.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ Fats Domino - This Is Fats Domino! (1957) [FLAC|Lossless|tracks] <Rock, Blues, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793641.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ Christie - Christie (1970) Reissue 1996 [APE|Lossless|image + .cue] <Rock, Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793638.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ The Young Rascals - Groovin' (1967) Reissue, 2007, Collectors' Choice Music [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793636.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Love - Forever Changes (1967) Stereo [FLAC|Lossless|tracks + .cue] <Rock, Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793574.jpg" />
 </div>
 
 
@@ -627,119 +743,6 @@ Love - американская рок-группа конца 60-х и нача
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:325CD70B2CDF520E90FD167CEA1733679F2D8B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386563   (793566) от 30.05.2020
-
-Jerry Lee Lewis - Live At The Star-Club Hamburg (1964) Reissue, 1984, Bear Family Records [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mean Woman Blues (4:02)
-02. High School Confidential (2:26)
-03. Money (4:39)
-04. Matchbox (2:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA6DD9EA0FB52FA68A7FC222C632C8AE9A931BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 244146   (793534) от 13.11.2021
-
-Pink Floyd - 1st Press Collection (1967-1994) [CUE+FLAC|Lossless]<Progressive Rock / Psychedelic Roсk>
-
->>След.
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive Rock / Psychedelic RoсkПродолжительность: 01:06:34
-01. Cluster One
-02. What Do You Want From Me
-03. Poles Apart(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7DC95FCC661F3A9ED47A7A27BC33B141397582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442479   (793525) от 13.11.2021
-
-Pink Floyd - The Dark Side Of The Moon, Wish You Were Here, The Wall: Immersion Box Set (1973,1975, 1979) / 2011 [FLAC|Lossless]<Progressive rock, Psychedelic>
-
->>След.
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive rock, PsychedelicФормат: Flac (image+.cue+tracks)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F46B1F930208691D9FE03C6989F03BF9B156FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386821   (793459) от 30.05.2020
-
-Donovan - Sunshine Superman (1967) Remastered, 2005, Mono [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sunshine Superman — третий студийный альбом британского певца-исполнителя Донована. Релиз пластинки состоялся в сентябре 1966 года в США, но альбом не был выпущен в Великобритании из-за контрактных споров. Вместо этого там в июне 1967 года был издан сборник, состоявший из материалов альбомов Sunshine Superman и Mellow Yellowruen, но вышедший под названием Sunshine (   Читать дальше...   )01. Sunshine Superman (3:17)
-02. Legend of a Girl Child Linda (6:54)
-03. Three Kingfishers (3:18)
-04. Ferris Wheel (4:15)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11ABF99E956AA64D9C7CED9BDF8DFFCBFFEEDFBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

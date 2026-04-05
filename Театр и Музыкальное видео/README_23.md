@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927012.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926989.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926028.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925912.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925843.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925801.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Зимний марафон № 224: Зимняя Волна Новинок
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925751.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925674.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925657.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925067.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Pitbull ft. Christina Aguilera - Feel This Moment (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924873.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Stevie B feat. Pitbull - Spring Love (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924846.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924251.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Schiller: Zeitreise Live (2016) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923977.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Blank & Jones - The Videos (2007) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923621.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923176.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Housewives Of Miami - Halloween (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923002.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922857.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Nervenbeisser - 6 Music Videos (2015-2018) WEB-DLRip [H.264/1080p-LQ] <NDH, Goth
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922344.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921728.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921577.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920681.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920566.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Billy's Band. Живые концерты. / Billy's Band Live (2006, 2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920318.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920186.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Lasgo feat. Taylor Jones - Something (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920013.jpg" />
 </div>
 
 

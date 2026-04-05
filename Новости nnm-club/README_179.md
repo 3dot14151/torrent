@@ -1,3 +1,55 @@
+###  Публикация: 146508   (420517) от 16.10.2009
+
+Суррогаты / Surrogates (2009) DVD-5
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в будущем, в 2057 году, — когда люди практически перестанут общаться между собой и полностью возложат эту функцию на плечи роботов-заменителей. Они сильнее, моложе, привлекательнее своих обладателей и даже могут быть другого пола. Но находится террорист, начинающий уничтожать идеальных андроидов. Полицейскому Харви Гриру предстоит узнать, (   Читать дальше...   )Жанр: фантастика, боевик, триллерРежиссер: Джонатан МостоуАктеры: Брюс Уиллис, Рада Митчел, Розамунд Пайк, Борис Коджо, Джеймс Джинти, Джеймс Кромуэлл, Винг Рэймс, Джек Ноузуорти, Девин Рэтрей, Майкл КудицПеревод: ДублированныйСубтитры: нетПродолжительность: 01:24:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065099   (420350) от 22.10.2016
+
+BELOFF 2016.10 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный сборник программ, распределённых по категориям, с автоматической установкой на операционные системы Windows. В сборник дополнительно добавлены портативные приложения, которые можно будет легко использовать как с диска и виртуального привода, так и с USB-накопителей, включая установку MInstAll и WPI. Для большего удобства использования сборника добавлено (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E41FD701BA336F9C62CDFC102161D1BA965CCC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065209   (420338) от 22.10.2016
 
 Полный расколбас / Sausage Party (2016) BDRip [H.264/1080p-LQ] [Line]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420338.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ tinyCam Monitor PRO v7.1.1 [Ru/Multi] - Мобильное видеонаблю�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420337.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Ancestors: The Humankind Odyssey (2019) [Ru/Multi] (1.1) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420309.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420305.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420150.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_419995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_419995.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Deep Purple - Machine Head (1972) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Rock, Heav
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419776.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Cowon jetAudio 8.1.4.303 Plus Retail [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419627.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ DisplayFusion Pro 7.3.1 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419624.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Call Of Duty: Advanced Warfare (2014) [PS3] [EUR] [3.55] [Cobra ODE / E3 ODE PRO
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419615.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419274.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418995.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418721.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418698.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418594.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418318.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Spellforce (2005) [Ru/En] (1.54.75000/dlc) License GOG [Platinum Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418017.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418011.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418010.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417823.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_417792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_417792.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ Adobe Photoshop 2020 21.2.4.323 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417636.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417635.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417438.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3DC7948655713D0855C97FBCA52CEBEFF51DB82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947210   (417412) от 17.10.2015
-
-DriverPack Solution 17.1.0 Final [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417412.jpg" />
-</div>
-
-
-###  Подробнее
-
-DriverPack Solution - это самая популярная программа для автоматической установки, обновления и поиска драйверов. Это универсальный менеджер установки драйверов для всех версий Windows. В отличие от встроенной в Windows 7 функции обновления драйверов, этой программой можно пользоваться даже без наличия Интернета и для поиска/установки драйверов не только на устройства (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD70C07BCBE350812C3CA27DCEF3618DCD6677C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870073   (417409) от 17.10.2015
-
-Starcraft 2. Профессиональная корейская лига (сезон 2015) WEBRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417409.jpg" />
-</div>
-
-
-###  Подробнее
-
-трансляции GSL, Proleague, Starleague турниров по StarCraft II на русском языке. Комментирует Евгений Magik  Смирнов. В раздаче сезон 2015 года.Производство: Корея, SpoTV Games HD, GoMTV HDЖанр: Игровое видеоАктеры: Корейские прогеймерыПеревод: Одноголосый закадровый - Евгений  Смирнов (m is for magiK)Продолжительность: 12:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20134A279064A4814B23A98084693813FFB3E27C
 ```
 
 https://mybot314.ru/tekegram_catalog/

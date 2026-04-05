@@ -1,3 +1,29 @@
+###  Публикация: 1185429   (290629) от 22.11.2017
+
+Наёмник / American Assassin (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайный наёмник ЦРУ Митч Рэпп раздавлен потерей невесты в результате теракта. Заместитель директора ЦРУ назначает Стэна Хёрли обучать убитого горем, но серьёзно настроенного Митча для предотвращения террористических операций и охоты на преступников. Вместе они исследуют волну, на первый взгляд, случайных нападений на военные и гражданские объекты. Но позже напарникам (   Читать дальше...   )Производство: США, CBS Films, Lionsgate, Di Bonaventura PicturesЖанр: Боевик, ТриллерРежиссер: Майкл КуэстаАктеры: Дилан О’Брайен, Майкл Китон, Санаа Лэтэн, Шива Негар, Тейлор Китч, Дэвид Суше, Навид Негабан, Скотт Эдкинс, Шарлотта Вега, Кристофер УэбстерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Forced)Продолжительность: 01:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB4398655ABB354E28E98392AB3F53BBB2A3FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185575   (290628) от 22.11.2017
 
 Сделано в Америке / American Made (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290628.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289402.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289399.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288725.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288281.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288120.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287636.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287626.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287368.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287182.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286960.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286264.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286112.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285934.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285581.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285324.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285209.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285120.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284443.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) WEB-D
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283573.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283488.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283370.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280263.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277503.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277242.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B178FBD98EAFF84929EE4BA6E2AC2D859348EC3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082591   (277126) от 13.12.2016
-
-Ласточки и амазонки / Swallows and Amazons  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277126.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о детях-мечтателях, бегущих на парусной шлюпке от скучной домашней жизни. Они разбивают лагерь на диком острове, играют в робинзонов и пиратов, соперничают с экипажем сестер-«амазонок», но главное – узнают ценность дружбы, мужества и ответственности, готовясь к проблемам и угрозам взрослого мира.Производство: ВеликобританияЖанр: семейныйРежиссер: Филиппа ЛоуторпАктеры: Келли Макдоналд, Рейф Сполл, Эндрю Скотт, Джессика Хайнс, Гарри Энфилд, Ричард Бреммер, Джон Хеншоу, Орла Хилл, Тедди-Роуз Маллсон-Аллен, Серен Хоукс, Дэйн Хьюз, Ханна Джейн ТорпПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF99D02F2683259F541195900B4DE286E170DB08
 ```
 
 https://mybot314.ru/tekegram_catalog/

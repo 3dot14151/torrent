@@ -1,55 +1,3 @@
-###  Публикация: 1199560   (797856) от 17.01.2018
-
-Мир, полный чудес / Wonderstruck (2017) WEB-DLRip [H.264] [AVO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797856.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Бена и Роуз, которые живут в разные эпохи и не могут смириться с окружающим их миром. Бен мечтает найти своего отца, а мысли Роуз заняты загадочной актрисой. Однажды судьба толкает их на поиски того самого недостающего их жизни элемента.Производство: США, Amazon Studios, Cinetic Media, FilmNation EntertainmentЖанр: Драма, Детектив, СемейныйРежиссер: Тодд ХейнсАктеры: Милли Симмондс, Джулианна Мур, Кори Майкл Смит, Джеймс Урбаняк, Дэмиэн Янг, Патрик Мёрни, Лорен Ридлофф, Энтони Натали, Кэрол Аддаббо, Говард СаэгоПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Субтитры: нетПродолжительность: 01:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5278815E609345C213BE121667A25B82AC4D93EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199685   (797852) от 17.01.2018
-
-Пила 8 / Jigsaw (2017) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797852.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городе обнаруживают несколько тел, обладатели которых встретили определенно не лучший конец. Все улики указывают на одного человека: Джона Крамера. Но как это возможно? Человек, известный как Пила, мертв уже более десяти лет. Неужели все-таки нашелся тот, кто рискнул подобрать мантию жестокого маньяка?Производство: США, Канада / A Bigger Boat, Serendipity Productions, Twisted PicturesЖанр: Ужасы, Триллер, Криминал, ДетективРежиссер: Майкл Спириг, Питер СпиригАктеры: Мэтт Пассмор, Тобин Белл, Каллум Кит Ренни, Ханна Андерсон, Кле Беннетт, Лора Вандервурт, Пол Браунштейн, Мандела Ван Пиблз, Бриттани Аллен, Джозиа Блэк, Эдвард Раттл, Майкл Бойсверт, Сэм КоулесПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F1032794E7831AEC5145B8479553FA672EFA24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199526   (797850) от 17.01.2018
 
 Пила 8 / Jigsaw (2017) HDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797850.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797845.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797839.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797838.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797820.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797721.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797718.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797717.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797715.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797464.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797424.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797411.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797403.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797402.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797314.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797300.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797295.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797266.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797256.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797251.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797248.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797244.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797240.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797172.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5983855B50D137694552D4CEA0E58E42BFCCE40D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385557   (797091) от 25.05.2020
+
+Неаполитанские мошенники / Il Ladro di Cardellini (2019) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797091.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ковбой» Паскуале, Дон Франко и парень по имени Тоторе — экстравагантное трио браконьеров, которые охотятся за певчими птицами. Их будни полны опасности и красоты — например, когда они поставляют голубей на пышные неаполитанские свадьбы. Чтобы подзаработать, они решают совершить «преступление века» и поймать очень редких и дорогих белых щеглов, но еще не знают, к (   Читать дальше...   )Производство: Италия / Minerva Pictures, Bronx Film, PFA FilmsЖанр: КомедияРежиссер: Карло ЛульоАктеры: Нандо Паоне, Эрнесто Махье, Лука Де Гильо, Вивиана Канджано, Лино Муселла ...Перевод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A01D44052091C82DB1F4D6D62C8BF94FAE0B4C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385562   (797077) от 25.05.2020
+
+Любовнички / The Lovebirds (2020) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супруги на грани развода во время поездки в Новый Орлеан оказываются подозреваемыми в убийстве и, чтобы спастись, теперь вынуждены работать сообща.Производство: США / Quinn's House, 3 Arts Entertainment, Media Rights CapitalЖанр: Боевик, триллер, мелодрама, комедия, криминал, детективРежиссер: Майкл ШоуолтерАктеры: Кумэйл Нанджиани, Пол Спаркс, Анна Кэмп, Исса Рэй, Кайл Борнхаймер, Джо Крест, Кеннет Кинт Брайан, Махди Коччи, Андрин Уорд-Хэммонд, Келли МуртаПеревод: Двухголосый закадровый, профессиональный (Ideafilm)Субтитры: Русские (Full), английские (Full), украинские (Ful)Продолжительность: 01:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3247D17FDED8B79B422283D6A356A874D25E87DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

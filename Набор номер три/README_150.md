@@ -1,3 +1,165 @@
+###  Публикация: 18746   (843896) от 04.10.2021
+
+Мирзакарим Норбеков | Оздоровительный мультимедиа курс [2 диска] (2007) DVD9 [ISO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система, которая помогла миллионам людей обрести здоровье, впервые выпущена в виде полностью самостоятельного курса. Автор оздоровительной системы Мирзакарим Норбеков назвал этот продукт эталонным курсом — за исключительную точность передачи всех практик, на которых основывается методика.
+
+Вас ждут 40 дней удивительных занятий один на один с Мирзакаримом Норбековым, (   Читать дальше...   )Производство: Мирзакарим НорбековЖанр: ЗдоровьеПродолжительность: 13:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5E45E2BEA6689D82C19EAF122B1A3EF2275FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 308530   (843769) от 14.03.2011
+
+BitDefender Internet Security 2011 14.0.23.312 х86 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_843769.jpg" />
+</div>
+
+
+###  Подробнее
+
+BitDefender Internet Security - решает все задачи по обеспечению безопасности при работе в интернете. Он обеспечивает защиту от вирусов, шпионов, спама, попыток фишинга, вторжений и вредоносного веб-контента.
+Антивирус. Гарантирует обнаружение и удаление всех вирусов, находящихся в обращении. Использует мощные сканирующие механизмы, сертифицированные ICSA, Virus Bulletin, Checkmark, CheckVir и TUV.
+Брандмауэр. Фильтрует сетевой трафик и контролирует время доступа пользователей в интернет и разрешения на запуск приложений. Режим Стелс позволяет «скрыть» ваш компьютер от вредоносного программного обеспечения и хакеров.
+Антишпион. Отслеживает и предупреждает потенциальную возможность проникновения шпионских объектов в режиме реального времени до того, как они нанесут вред вашей системе. Используя обширную базу известных сигнатур шпионских объектов, ваш компьютер останется защищенным от шпионов.
+Родительский контроль. Модуль Родительского контроля BitDefender блокирует доступ к веб-сайтам, которые вы расцениваете (   Читать дальше...)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 875003   (843374) от 14.03.2015
+
+Corel VideoStudio Ultimate X8 18.0.0.181 (x64) + Content [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843374.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoStudio Pro X8 создана для обработки видео и позиционируется в качестве простого решения для пользователей. Среди нововведений последней версии можно выделить поддержку Blu-ray Disc Movie Video (BDMV). Пользователи могут импортировать файлы BDMV непосредственно с Blu-ray-видеокамер, работать с HD-видео, добавлять анимированные меню и записывать проекты на диски (   Читать дальше...   )Язык интерфейса: Русский (by PooShock), Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D91A7874E7B5F1D7117FB495EE49ACE019A436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846989   (843371) от 14.03.2015
+
+Звёздные войны: Повстанцы / Star Wars: Rebels (2014-2015) WEB-DLRip [1080p] (Сезон 1, серий 14 из 14) (LostFilm)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миновало 14 лет с того момента, как канцлер Палпатин отдал "Приказ 66", спровоцировавший Великое истребление джедаев. Кейнан Джаррус, один из последних адептов светлой стороны Силы, вынужден объединить усилия с молодым воришкой, опытным головорезом, экспертом по взрывчатке, ворчливым дроидом и пилотом космического корабля «Призрак» в борьбе против Империи. (   Читать дальше...   )Производство: США, Lucasfilm Ltd, DisneyXDЖанр: Фантастика, мультсериал, приключенияРежиссер: Стюарт Ли, Дэйв Филони, Стивен Дж. ЛиПерсонажи: Фредди Принц-младший (Кейнан Джаррус), Тейлор Грэй (Эзра Бриджер), Стивен Блум (Зеб Ореллиос), Тия Сиркар (Сабина Рен), Ванесса Маршалл (Гера Синдулла), Дэвид Ойелово (агент Каллус), Джейсон Айзекс (Инквизитор)Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: студия "LostFilm"Продолжительность: каждая ~ 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB57EB8B71681A1BEA82E8F4DBD3DD58F91FFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 873673   (843370) от 14.03.2015
+
+Navitel / Навител Навигатор v9.5.30 RePack [Ru/En] - только программа навигации
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, сообщить актуальную скорость движения, проложить маршрут в объезд пробок, предложить множество статистической информации благодаря сотням встроенных (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 14.03.2015Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2A83360E6B7328A975ED735C5BDC7FA5D4A3B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631199   (843226) от 30.04.2013
+
+Игра Престолов / Game Of Thrones (2012) [1080p] BDRemux [Сезон 2, 1-10 из 10]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843226.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Вестеросе наступила осень — предвестник долгой зимы, когда Белые ходоки пробудятся ото сна. Но Стена и её защитники позабыты: три короля претендуют на Железный трон и два верховных лорда провозгласили себя королями над своими землями. Никто из них не желает заключить союзы, и каждый считает свое право на трон священным. И воцарился над миром кровавый хаос войны. (   Читать дальше...   )Жанр: Фэнтези, ДрамаРежиссер: Дэвид Бениофф, Д.Б. УайссАктеры: Николай Костер-Вальдау, Лина Хиди, Айэйн Глен, Питер Динклэйдж, Эмилия Кларк, Мишель Фэйрли, Эйден Гиллен, Кит Харингтон, Лиам Каннингам, Альфи Аллен, Мэйси Уильямс, Стивен Дилленй и др.Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: Студия "AlexFilm" | Студия "Kravec" | FoxLife | BBC Saint-Petersburg | UATEAM|Язык субтитров: Russian (forced), Russian (7Kingdoms.ru), Russian (Opel при участии сайта WESTEROS.RU), Ukrainian, English, French, Spanish, Spanish, Portuguese, Polish, Dutch, Danish, Finnish, Norwegian, SwedishПродолжительность: 10 x ~00:54:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003392   (843127) от 03.04.2016
 
 Марсоход Opportunity взял самый крутой подъем за всю историю исследований Марса
@@ -6,7 +168,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_843127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_843127.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_842724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842724.jpg" />
 </div>
 
 
@@ -59,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_842588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842588.jpg" />
 </div>
 
 
@@ -85,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_842542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842542.jpg" />
 </div>
 
 
@@ -111,7 +273,7 @@ Battlefield: Bad Company 2 (2010) [Ru] (1.0.1/dlc/multiplayer) Repack LEON
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842488.jpg" />
 </div>
 
 
@@ -137,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842479.jpg" />
 </div>
 
 
@@ -163,7 +325,7 @@ Shards of War (2014) [Ru/Multi] (40.3.84179) License
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842477.jpg" />
 </div>
 
 
@@ -189,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842427.jpg" />
 </div>
 
 
@@ -215,7 +377,7 @@ Windows 8.1 with Update 3 RUS-ENG x64 -16in1- (AIO)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842425.jpg" />
 </div>
 
 
@@ -241,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842424.jpg" />
 </div>
 
 
@@ -267,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842421.jpg" />
 </div>
 
 
@@ -293,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_842274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842274.jpg" />
 </div>
 
 
@@ -319,7 +481,7 @@ Promt 20 (Professional, Expert, Master, Freelance, MS Office) + Dictionaries Col
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842252.jpg" />
 </div>
 
 
@@ -345,7 +507,7 @@ W10 Digital Activation 1.3.7 Portable by Ratiborus [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842246.jpg" />
 </div>
 
 
@@ -371,7 +533,7 @@ Edens Zero | Нулевой Эдем [2021, TV, 25 эп.] HDTVRip 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842204.jpg" />
 </div>
 
 
@@ -397,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_842202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842202.jpg" />
 </div>
 
 
@@ -423,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842032.jpg" />
 </div>
 
 
@@ -451,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841808.jpg" />
 </div>
 
 
@@ -477,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841802.jpg" />
 </div>
 
 
@@ -503,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841801.jpg" />
 </div>
 
 
@@ -514,164 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE55DB1297921A533B1BF1FBB01C54A2EC9E1045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 877224   (841799) от 15.03.2015
-
-Гарри Поттер / Harry Potter (2001-2011) BDRemux [VC-1, H.264/1080p] [Антология]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия англо-американских фильмов, основанных на романах о Гарри Поттере английской писательницы Д. К. Роулинг. Серия выпущена компанией Warner Bros. и состоит из 8 фильмов в жанре фэнтези, начиная с Гарри Поттер и философский камень и заканчивая Гарри Поттер и Дары Смерти: часть 2.Серия англо-американских фильмов, основанных на романах о Гарри Поттере английской писательницы Д. К. Роулинг. Серия выпущена компанией Warner Bros. и состоит из 8 фильмов в жанре фэнтези, начиная с Гарри Поттер и философский камень и заканчивая Гарри Поттер и Дары Смерти: часть 2.Производство: США, Великобритания, Warner BrosЖанр: Приключения, Фэнтези, СемейныйРежиссер: Дэвид ЙэтсАктеры: Дэниел Рэдклифф, Эмма Уотсон, Руперт Гринт, Ричард Харрис, Алан Рикман, Мэгги Смит, Робби Колтрейн, Саундерс Триплетс, Фиона Шоу, Гарри Меллинг, Ричард Гриффитс, Дерек Дэмэн, Ян ХартПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 02:38:50, 02:54:25, 02:21:42, 02:37:05, 02:18:14, 02:33:31, 02:26:05, 02:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6546E771E52C170DB57F9B460D39C836798393EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688332   (841446) от 30.03.2014
-
-Nuance VocalizerEx TTS Milena Rus v1.0.2.3j - система озвучивания текста голосом (30.03.2014) <Ru/Multi>
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Nuance представила новый голос на русском языке для 5-ой версии программы Nuance Vocalizer. Созданный с применением последних разработок, новый женский голос Milena может использоваться для синтеза высококачественной и естественно звучащей речи в call-центрах и в различных сетевых речевых системах, а также в автомобильных, настольных и мобильных приложениях. (   Читать дальше...   )Разработчик: Nuance Communications Inc.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF56DBBA3B0589ACACEA50F93981A610F71A91FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529054   (841441) от 30.03.2014
-
-Загрузка антивирусных утилит 9.0.0.0 [Ru]
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта программа позволит выкачивать лечащие утилиты от Dr. Web, Касперский, Malwarebytes' Anti-Malware, AVZ, Hijack This,  Universal Virus Sniffer, GMER, McAfee Avert Stinger, COMODO Cleaning Essentials, Emsisoft Emergency Kit, VirusTotal Uploader, Hitman Pro, ComboFix, AnVir Task Manager без посещения их сайтов.
-А так же LivCD от Dr.Web, Kaspersky, Avira, ESET, BitDefender, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0082C450C790714C29A5148D072BDACB70119889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110864   (841404) от 18.04.2010
-
-Maxthon 2.5.12.4586 [Русский] (Updated 18.04.2010) (TechnicsKuzya mod)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxthon - это мощный многооконный браузер, предназначенный для массового пользователя. Кроме основной функциональности интернет-обозревателя Maxthon предоставляет богатый набор функций для увеличения удобства навигации в сети.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193180   (841321) от 18.04.2010
-
-Безумцы / The Crazies (2010) [Лицензия|Дубляж] DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841321.jpg" />
-</div>
-
-
-###  Подробнее
-
-В окрестностях небольшого городка падает самолёт, на борту которого чрезвычайно опасный вирус. Зараза попадает в водную систему города, люди один за другим «заболевают» и начинают яростно набрасываться на всех подряд. Военные оперативно запирают город на карантин, периодически отстреливая заразных.Жанр: ужасы, фантастика, триллерРежиссер: Брек Эйснер / Breck EisnerАктеры: Тимоти Олифант, Рада Митчел, Джо Андерсон, Даниэль Панабэйкер, Кристи Линн Смит, Бретт Рикаби, Престон Бэйли, Джон Эйлуорд, Джо Риган, Гленн Моршауэр...Формат: AVI  //СОВМЕСТИМО С БЫТОВЫМИ ПЛЕЕРАМИ//Продолжительность: 01:33:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003536   (840935) от 04.04.2016
-
-Windows 10 – самая популярная ОС среди геймеров
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_840935.jpg" />
-</div>
-
-
-###  Подробнее
-
-В марте 2016 Windows 10 стала самой популярной операционной системой в Steam
-В Steam появились очередные статистические данные относительно железа и платформ, на которых работает сервис. Пришел тот день, когда Windows 10 стала самой популярной операционной системой среди ПК-геймеров. Крупнейший магазин игр для ПК, Steam, опубликовал статистику используемых операционных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

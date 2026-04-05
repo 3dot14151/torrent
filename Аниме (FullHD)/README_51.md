@@ -6,7 +6,7 @@ Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131210.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mahou Kishi Rayearth 2 | Magic Knight Rayearth 2 | Рыцари магии 2 [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130986.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mahou Kishi Rayearth | Magic Knight Rayearth | Рыцари магии [1994, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130971.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Maou 2099 | Повелитель демонов 2099 [2024, TV, 12 эп.] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128582.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Amrita no Kyouen | Праздник Амриты [2023, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128451.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mashin Eiyuuden Wataru: Nana Tamashii no Ryuujinmaru | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125844.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125843.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125842.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Mashin Eiyuuden Wataru 2 | Mashin Hero Wataru 2 | Маленькие спаса�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125841.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Shin Mashin Eiyuuden Wataru Majinzan | Маленькие спасатели [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125840.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Mashin Eiyuuden Wataru | Mashin Hero Wataru | Маленькие спасате�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125839.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125592.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Tokyo Revengers: Tenjiku Hen | Tokyo Revengers: Tenjiku Arc | Токийские
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125115.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Pokemon Concierge | Покемон: Консьерж [2023, TV, 4 эп.] WEB-DL 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125080.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Akuma-kun (1989) | Дьяволёнок (1989) [1989, Movie] WEBRip 1040p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123944.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Akuma-kun: Youkoso Akuma Land e!! | Дьяволёнок (1990) [1990, Movie] WE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123939.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Ooyuki Umi no Kaina: Hoshi no Kenja | Kaina of the Great Snow Sea: Star Sage | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123166.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Seishun Buta Yarou wa Odekake Sister no Yume o Minai | Rascal Does Not Dream of 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123146.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Shuumatsu no Walkure II | Record of Ragnarok II | Повесть о конце �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117819.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! | Мой «комплекс бр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117280.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Isekai de Cheat Skill o Te ni Shita Ore wa, Genjitsu Sekai o mo Musou Suru: Leve
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115914.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kono Subarashii Sekai ni Bakuen o! | Konosuba: An Explosion on this Wonderful Wo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115913.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115912.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Princess Principal: Crown Handler | Принцесса-шпионка: Укро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115901.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Tsundere Akuyaku Reijou Liselotte to Jikkyou no Endou-kun to Kaisetsu no Kobayas
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115895.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Tondemo Skill de Isekai Hourou Meshi | Campfire Cooking in Another World with My
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115885.jpg" />
 </div>
 
 

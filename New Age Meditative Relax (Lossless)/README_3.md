@@ -6,7 +6,7 @@ Celtic Woman - Celebration (2020) [FLAC|Lossless|WEB-DL|tracks] <Celtic, New age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918981.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918210.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917522.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Jonn Serrie - Sunday Morning (2005) [FLAC|Lossless|image + .cue] <New Age, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916968.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Space – Just Blue (1978) [FLAC|Lossless|tracks] <Electronic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916820.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Conjure One - 12 albums (2002-2011) [FLAC|Lossless] <Chillout, Ambient, New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916690.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Space - Magic Fly (1977) Remastered, 1998, Bastien Music [FLAC|Lossless|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915090.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Klaus Schulze & Lisa Gerrard - Farscape (2008) 2CD Digipack Edition [FLAC|Lossle
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913569.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Era - The Essential (2010) [FLAC|Lossless|tracks + .cue] <Enigmatic, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913486.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Enya - Best Hits 1988-1994 (1996) Compilation, Unofficial Release [FLAC|Lossless
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913176.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Jamie Dupuis - Tonalism (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumen
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912054.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Gordon Giltrap - Pofacetilly (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909160.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Holly Davis - Animal Healing Workshop (2006) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908944.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Fionnuala Sherry - Songs From Before (2011) [FLAC|Lossless|tracks + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908862.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Tom Barabas - The Very Best Of (2004) Compilation [FLAC|Lossless|tracks + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908812.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Sacred Earth - Inyan (2005) [FLAC|Lossless|image + .cue] <Meditative, New Age, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908721.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Greg Maroney - 2 альбома (2003, 2005) [FLAC|Lossless|image + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908569.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Jean Michel Jarre - Greatest Hits (2008) 2CD [APE|Lossless|image + .cue] <Electr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908494.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908465.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908437.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Cornelius + Cretu - Cornelius + Cretu (1992) [FLAC|Lossless]<Downtempo, Enigmati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907002.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905644.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Jean Michel Jarre - Zoolook (1984) [FLAC|Lossless|tracks + .cue] <Electronic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904665.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Russill Paul - P.M. Yoga Chants (2001) [FLAC|Lossless|tracks + .cue] <World Musi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904238.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903376.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903278.jpg" />
 </div>
 
 

@@ -1,3 +1,121 @@
+###  Публикация: 1117218   (819266) от 22.03.2017
+
+Huis - Neither In Heaven (2016) [FLAC|Lossless|tracks + .cue] <Neo Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neither in Heaven (2:40)
+02. Synesthesia (13:09)
+03. Insane (5:48)
+04. Even Angels Sometimes Fall (5:29)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 01:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D581EB2C24D29C06EFB036BFF4129767C02AF46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117008   (818934) от 22.03.2017
+
+Albert Hammond - Original Album Classics (2016) 5CD Box Set [FLAC|Lossless|image + .cue] <Pop-Rock, Soft-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818934.jpg" />
+</div>
+
+
+###  Подробнее
+
+А́льберт Ха́ммонд (англ. Albert Hammond, род. 18 мая 1944) — британский певец и музыкант. Наибольшего успеха добился в качестве автора песен для других исполнителей — в 1960-е и 1970-е годы на этом поприще он был одним из самых успешных англичан. Свободно владеет английским и испанским, поэтому как певец работает на двух языках
+
+Всемирной популярности как (   Читать дальше...   )Список альбомов:
+1972 - It Never Rains In Southern California
+1973 - The Free Electric Band
+1975 - 99 Miles From L.A.(   Читать дальше...   )Жанр: Pop-Rock, Soft-RockПродолжительность: 02:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86933CE553FDFBEDD0EF3D308D12F463A9F2D927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278977   (817373) от 12.05.2020
+
+Inkubus Sukkubus - Wytches (1994) Reissue, 2003, CD-Maximum [FLAC|Lossless|tracks + .cue] <Pagan Rock, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Wytches (3:08)
+02.Queen of the May (3:22)
+03.Pagan Born (3:04)
+04.Gypsi Lament (2:50)(   Читать дальше...   )Жанр: Pagan Rock, Gothic RockПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04BF1B64B5B8FF0451B6A4961E42B4F8B1C87635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116944   (816891) от 23.03.2017
+
+Harry Nilsson - The RCA Albums Collection (2013) 17xCD Box Set [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарри Нильссон Эдуард III (15 июня 1941 года — 15 января 1994 года) американский песенник, певец, пианист и гитарист, обладатель трехоктавного диапазона голоса, очень популярный в течение 1960-1970гг. У Нильссона были впечатляющие успехи, в том числе две награды «Грэмми» и два Топ 10 синглов. Среди его наиболее известных записей являются «Without You», «Everybody’s (   Читать дальше...   )Список альбомов:
+1967 - Pandemonium Shadow Show
+1968 - Aerial Ballet
+1969 - Harry(   Читать дальше...   )Жанр: RockПродолжительность: 14:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1895F56A3E6DC6BBF12CCBA3A35A2661AA3FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 197368   (816447) от 03.05.2010
 
 The Sensational Alex Harvey Band - 2 альбома (1974-1975) 2CD BoxSet /2002, Mercury/ [APE|Lossless]<Rock>
@@ -6,7 +124,7 @@ The Sensational Alex Harvey Band - 2 альбома (1974-1975) 2CD BoxSet /2002
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816447.jpg" />
 </div>
 
 
@@ -32,7 +150,7 @@ Santana - Blessings and Miracles (2021) [FLAC|Lossless|image + .cue] <Latin Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815947.jpg" />
 </div>
 
 
@@ -61,7 +179,7 @@ VA - Heavy Nuggets MOJO Presents (2007, 2013) 2CD [FLAC|Lossless]<Rock,  Blues R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815845.jpg" />
 </div>
 
 
@@ -91,7 +209,7 @@ The Glam Band - Glam Rock Megamix (1998) [FLAC|Lossless|image + .cue] <Glam>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815811.jpg" />
 </div>
 
 
@@ -120,7 +238,7 @@ Anti-Depressive Delivery (Antidepressive Delivery) [ADD] - 2 albums (2004-2008) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815592.jpg" />
 </div>
 
 
@@ -149,7 +267,7 @@ Eric Clapton and The Yardbirds - At Their Best (2000) 2CD [FLAC|Lossless]<Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814148.jpg" />
 </div>
 
 
@@ -178,7 +296,7 @@ Crowded House - Temple of Low Men (1988) [FLAC|Lossless|tracks + .cue] <Pop-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813919.jpg" />
 </div>
 
 
@@ -207,7 +325,7 @@ Elton John - Blue Moves (1976) Reissue 1988 [APE|Lossless|image + .cue] <Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813799.jpg" />
 </div>
 
 
@@ -236,7 +354,7 @@ ZZ Top - The Very Baddest (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813418.jpg" />
 </div>
 
 
@@ -265,7 +383,7 @@ Dion Bayman - Alive (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812357.jpg" />
 </div>
 
 
@@ -294,7 +412,7 @@ Brian May - Back To The Light (1992) Deluxe Edition, Remastered, 2021, UMC [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812218.jpg" />
 </div>
 
 
@@ -323,7 +441,7 @@ Elton John - The Lockdown Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812102.jpg" />
 </div>
 
 
@@ -352,7 +470,7 @@ Once and Future Band - Once and Future Band (2017) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812028.jpg" />
 </div>
 
 
@@ -381,7 +499,7 @@ Prefab Sprout - Jordan: The Comeback (1990) [FLAC|Lossless|tracks + .cue] <Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812020.jpg" />
 </div>
 
 
@@ -410,7 +528,7 @@ Nestor - Kids In A Ghost Town (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811985.jpg" />
 </div>
 
 
@@ -439,7 +557,7 @@ Stuart Smith - Heaven & Earth (1999) [FLAC|Lossless|image + .cue] <Hard Rock, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811817.jpg" />
 </div>
 
 
@@ -468,7 +586,7 @@ Kaprekar's Constant - Fate Outsmarts Desire (2017) [FLAC|Lossless|WEB-DL|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811813.jpg" />
 </div>
 
 
@@ -497,7 +615,7 @@ Different Light - The Burden Of Paradise (2016) [FLAC|Lossless|image + .cue] <Cr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811680.jpg" />
 </div>
 
 
@@ -526,7 +644,7 @@ Santana - 54 albums, 5 Box sets, 137 CD (1968-2021) [FLAC|Lossless|image + .cue 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811527.jpg" />
 </div>
 
 
@@ -556,7 +674,7 @@ Barock Project - Detachment (2017) [FLAC|Lossless|tracks + .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811482.jpg" />
 </div>
 
 
@@ -585,7 +703,7 @@ Paul McCartney - Flowers In The Dirt (1989) 2CD, Remastered, 2017 [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811073.jpg" />
 </div>
 
 
@@ -614,7 +732,7 @@ The Yardbirds - Collection Gold (1989) [FLAC|Lossless|tracks + .cue]<Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810433.jpg" />
 </div>
 
 
@@ -628,119 +746,6 @@ The Yardbirds - Collection Gold (1989) [FLAC|Lossless|tracks + .cue]<Classic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3366A78BF75044B1A88B947605A216A484872AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504745   (810353) от 24.10.2021
-
-Cat Stevens - Tea For The Tillerman (1970) Reissue, 1987 [FLAC|Lossless|tracks + .cue]<Folk Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Do The Children Play ?
-02. Hard Headed Woman
-03. Wild World
-04. Sad Lisa(   Читать дальше...   )Жанр: Folk Rock, Pop RockПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72656F5070ADCE10E583810839334E10FA2EF2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009502   (810162) от 21.04.2016
-
-Manfred Wieczorke (ex. Eloy, Jane, Firehorse) - Transfer (1987) [FLAC|Lossless|image + .cue]<Progressive rock
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive rock, New AgeПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E075FB25DE4ACDA6AFA8EB33EC622287400A7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504656   (810072) от 24.10.2021
-
-Electric Light Orchestra - Vocoder (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Art.Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Blue Sky (2012 Version) [00:03:42]
-02. Steppin' Out [00:04:40]
-03. Sweet Talkin' Woman [00:03:49]
-04. Confusion [00:03:41](   Читать дальше...   )Жанр: Progressive Rock, Art.Pop RockПродолжительность: 00:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D4BD635EEFB6A26AE26E27B4A915051D84143C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009341   (810026) от 21.04.2016
-
-Satriani, Vai, Petrucci - G3 Live In Tokyo (2008) 2CD, Album, Unofficial Release [APE|Lossless|image + .cue] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810026.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. John Petrucci - Glasgow Kiss
-02. John Petrucci - Damage Control
-03. Steve Vai - The Audience Is Listening(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85592DF40C71A7B8EA47B1BE91E07E2ABF16467E
 ```
 
 https://mybot314.ru/tekegram_catalog/

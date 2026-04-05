@@ -1,3 +1,118 @@
+###  Публикация: 1467422   (239821) от 03.05.2021
+
+Biodub - Minutenschlaf EP (2012) Tiefenrausch [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7pm September Light (10:36)
+ 02. Mangroove (05:41)
+ 03. Minutenschlaf (07:48)Жанр: Dub TechnoПродолжительность: 00:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE3FE5A21331D8113C15E140CAC96946C5DA0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626778   (239759) от 17.04.2023
+
+Cybermode Beats - 3 Albums (2023) [MP3|320 Kbps] <Cyberpunk, Dark Electro, Dark Techno>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Splinter Mind [00:04:34]
+02. Anarchy Shards [00:05:05]
+03. Mindmelt [00:04:09]
+04. The Void Overlord [00:05:06](   Читать дальше...   )Жанр: Cyberpunk, Dark Electro, Dark TechnoПродолжительность: 3 CD, 04:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24ACD7AD029A1181618DA403F243CE61994895B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635219   (239709) от 26.05.2023
+
+VA - Silent Shore Trance - Essential Classics Vol. 2 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ReOrder & JayCan - Sunset On Biana Beach (Original Mix) [7:59]
+02. Estigma & Irena Love - Cinnamon Sunday (ReOrder Sunrise Mix) [7:33]
+03. Dave Deen - Footprints (Original Mix) [7:00]
+04. Norland - Cloudwalking (Original Mix) [7:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A0BAD6D6F6E30765DA6779D4025AFC74B1F780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635336   (239693) от 26.05.2023
+
+VA - Levitated - Trance Essentials Vol. 2 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen Belg - Hammamet (Original Mix) [6:32]
+02. Derek Palmer - Sands Of Time (Mhammed El Alami Remix) [7:06]
+03. Blue5even - Island Paradise (Beatsole Remix) [7:48]
+04. Bernis - Constellation (Original Mix) [7:14](   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D52A3BC4570692BBE20680F9BBDA152567CEAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635362   (239642) от 26.05.2023
 
 VA - Hypnotised: A Journey Through British Trance Music [1993 - 2002] (2023) [MP3|320 Kbps] <Trance>
@@ -6,7 +121,7 @@ VA - Hypnotised: A Journey Through British Trance Music [1993 - 2002] (2023) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239642.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ William Control - Sex Cult (2023) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239628.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Public Domain Resource - AntiGravity (2018) [FLAC|Lossless|image + .cue] <Synth-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239569.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Speakers Corner Quartet - Further Out Than The Edge (2023) [FLAC 24/44.1|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_239410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_239410.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ VA - Top 8 May 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239373.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ Lostly - Fav Tracks Mix (Mixed And Comliped By Jerbi) (2023) WebDLRip [MP3|320kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239358.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Fridge - Happiness (Anniversary Edition) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239313.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ Blank & Jones - Milchbar - Seaside Season 15 (2023) [FLAC 2.0|44.1/24|tracks|WEB
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239097.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239057.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ VA - Total EDM Invasion 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239027.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ VA - Armin van Buuren - A State Of Trance 1124 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239017.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ VA - Sola Presents: Miami (2023) [MP3|320 Kbps] <House, Funky House, Tech House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239014.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ Menschdefekt - Empty World (2020) [FLAC|Lossless|image + .cue] <EBM, Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238987.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ IzangoMa - Ngo Ma (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238907.jpg" />
 </div>
 
 
@@ -412,7 +527,7 @@ Rafael Osmo - Allure (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238791.jpg" />
 </div>
 
 
@@ -441,7 +556,7 @@ VA - Beach Vibes (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238766.jpg" />
 </div>
 
 
@@ -470,7 +585,7 @@ Biodub - Discography 21 Releases (2008-2021) Ki Records, Tiefenrausch [FLAC|Loss
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238747.jpg" />
 </div>
 
 
@@ -496,7 +611,7 @@ VA - Top 7 March 2023 Emotional And Uplifting Trance (2023) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238664.jpg" />
 </div>
 
 
@@ -525,7 +640,7 @@ V.A. - Cafe del Mar Ibiza Chillout Mix II (DJ Mix) (2023) 2CD [FLAC|Lossless|WEB
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238641.jpg" />
 </div>
 
 
@@ -554,7 +669,7 @@ VA - Cafe Del Mar Ibiza Chillout Mix II (DJ Mix) (2023) [MP3|320 Kbps] <Chillout
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238619.jpg" />
 </div>
 
 
@@ -583,7 +698,7 @@ VA - Global Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238604.jpg" />
 </div>
 
 
@@ -612,7 +727,7 @@ System Glow - Cities (2022) EP [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238600.jpg" />
 </div>
 
 
@@ -626,122 +741,6 @@ System Glow - Cities (2022) EP [MP3|320 Kbps] <Synthwave, Retrowave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86E13A0426F7984626E5040DE8C2DAB7C1336BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623273   (238587) от 01.04.2023
-
-VA - Seaside Serenade: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weber & Weber - Close to Nature (5:08)
-02. Lounge Groove Avenue - On the Other Side (2:53)
-03. Digby Jones - Chameleon (Original Mix) (3:45)
-04. Lounge Groove Avenue - Westside (3:49)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB427DCD7EC6E0E7512547D9ED92199DB2C8C398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628205   (238563) от 23.04.2023
-
-Tiesto - DRIVE (2023) EXPLICIT [MP3|320 Kbps] <House, Electropop, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto - All Nighter (2:14)
-02. Tiesto, Ava Max - The Motto (2:44)
-03. Tiesto, Tate McRae - 1035 (2:52)
-04. Tiesto - The Business (2:44)(   Читать дальше...   )Жанр: House, Electropop, Progressive HouseПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242192C9527D7F9518F7FDD59B640DDEB7F94C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637063   (238404) от 03.06.2023
-
-VA - Armin van Buuren - A State Of Trance 1123 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane feat. C-Systems & Hanna Finsen – Let The Universe Surround You (Extended Mix) (Modena)
-02. Trending Track: DJ Misjah & DJ Tim – Access (Joris Voorn Remix) (Armada)
-03. KASIA – Universal Nation (Sezer Uysal Remix) (Armada Electronic Elements)
-04. Armin Van Buuren & The Stickmen Project – No Fun (Goom Gum Remix) (Armada)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E9A0F2B7CF05F8D9E9F4D641EE02604D7D1276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637089   (238388) от 03.06.2023
-
-VA - Best Vocal Tracks Hype SFR (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keistep - Guardians Of Light (Original Mix) [6:29]
-02. Eddy Tango & Sundrej Zohar - The Space (Original Mix) [7:12]
-03. Marco De Nor - Passing Lights (Original Mix) [6:07]
-04. George Ledakis - Girl From Nowhere (Original Mix) [6:51](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C389ECD7AE924A74777F92C8FE1C419ABB2AEABB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1506781   (799375) от 01.11.2021
+
+Кристофер М. Бишоп | Распознавание образов и машинное обучение (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот совершенно новый учебник отражает современные достижения распознавания образов и машинного обучения и представляет собой всеобъемлющее введение в эту область. Он предназначен для студентов старших курсов и аспирантов первого года обучения, а также исследователей и практиков. От читателей не требуется предварительных знаний в области распознавания образов и машинного (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Д.А. КлюшинФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8FF2A71EACD211F476964058E5D96B05CFFDF8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273669   (799369) от 03.01.2019
+
+С.И. Макаренко | Проектирование электрооборудования объектов гражданского назначения (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799369.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии изложены цели, задачи и методика проектирования; сформулированы требования к содержанию расчетной, текстовой и графической частям проекта, к оформлению электротехнической проектной документации в соответствии с требованием государственных нормативных документов по состоянию на 01.01.2019г; рассмотрены основные этапы расчета и выбора элементов системы электроснабжения (   Читать дальше...   )Жанр: Строительство, электротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE018890A68278E8C06295BF91C1ECAD08054A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199302   (797436) от 18.01.2018
 
 Е. Константинова и др. | История мирового фотоискусства (2015) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797436.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796988.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796322.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796311.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796266.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796254.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796192.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796190.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794988.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794932.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794811.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794752.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794578.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794254.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794124.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794099.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794050.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794047.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793941.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793420.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793416.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793306.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793298.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793243.jpg" />
 </div>
 
 
@@ -624,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:682EFDC4438FD4EDFDDF71E24D8C89C055E62651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274586   (792963) от 07.01.2019
-
-А.А. Трухан, Т.В. Огородникова | Обыкновенные дифференциальные уравнения и методы их решения. Ряды. Элементы вариационного исчисления (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит подробное изложение основных вопросов курсов «Обыкновенные дифференциальные уравнения», «Операционное исчисление», «Ряды» и «Вариационное исчисление», соответствующее требованиям к минимуму основной обязательной программы по подготовке дипломированных специалистов.
-Рассматриваются методы решения дифференциальных уравнений (ДУ) первого и второго (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B02C1F01BADC0DCABFF1307F82F2C684EE0706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274485   (792956) от 07.01.2019
-
-А.В. Строгонов | Цифровая обработка сигналов в базисе программируемых логических интегральных схем (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792956.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассматривается проектирование устройств цифровой обработки сигналов для реализации в базисе ПЛИС. Даются практические примеры проектирования цифровых фильтров с использованием высокоуровневого языка описания аппаратурных средств VHDL и мегафункций в САПР ПЛИС Altera Quartus II и Xilinx ISE Design Suite.
-Издание соответствует требованиям Федерального (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226DE9FAFC5E87EBFDA684FCA5511DC13CDEDDC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

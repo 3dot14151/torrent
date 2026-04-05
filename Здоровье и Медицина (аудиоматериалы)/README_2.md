@@ -1,3 +1,29 @@
+###  Публикация: 1120865   (801201) от 01.04.2017
+
+Павел Себастьянович | Новая книга о сыроедении, или Почему коровы хищники [2 разных озвучки] (2011) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801201.jpg" />
+</div>
+
+
+###  Подробнее
+
+У автора этой книги, как и у большинства советских людей, к 30 годам сформировалось стандартное меню: яичница и бутерброды на завтрак, первое-второе-третье на обед и плотный ужин с бутылочкой пива. Поэтому к 40 годам он подошел с лишним весом и целым букетом болезней — такова цена «сбалансированного» питания, которое организм не в состоянии переварить и полноценно (   Читать дальше...   )Жанр: Сыроедение, диетическое и раздельное питание, нетрадиционная медицинаПродолжительность: 06:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F5681C66380B598C9BBB309518C31BD2E9830CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120890   (801174) от 01.04.2017
 
 Ю.С. Николаев и др. | Голодание ради здоровья (1988) [MP3]
@@ -6,7 +32,7 @@
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801174.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800979.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797126.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793780.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792664.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792448.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790646.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790625.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789632.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776798.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771705.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769090.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764529.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764251.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759727.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757548.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755815.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755738.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755728.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751389.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751369.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748562.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743097.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741944.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741807.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:064FE7404715A79FE9CE0D132517D9BACD38DF14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020872   (741715) от 28.05.2016
-
-Александр Мясников | Как жить дольше 50 лет: Честный разговор с врачом о лекарствах и медицине (2014) [MP3]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта аудиокнига - откровение. Она - о том, как без особых болячек дожить до седин в условиях отечественной медицины. Ее автор - потомственный российский врач, внук и полный тезка доктора, который лечил Сталина. Александр Мясников практиковал медицину в США, Африке, Франции, а сейчас он главврач крупнейшей российской больницы. Это дало ему право вывести формулу выживания (   Читать дальше...   )Жанр: Популярная медицинаПродолжительность: 04:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC2A1E328A844BF33CA6A047C303F79EA45A054
 ```
 
 https://mybot314.ru/tekegram_catalog/

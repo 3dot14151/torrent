@@ -1,3 +1,32 @@
+###  Публикация: 1257306   (347937) от 25.10.2018
+
+VA - Rock Sound: Sound Check No. 112 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulfly - Unleash (05:09)
+02. Alesana - This is Usually the Part Where People Scream (03:43)
+03. We are the Ocean - Don't be Careless (03:05)
+04. Harvey Milk - Barn Burner (02:17)(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560D0452386DC92AD8205D142178C27DD3D1FFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257299   (347934) от 25.10.2018
 
 VA - Rock Sound: Sound Check No. 115 (2008) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
@@ -6,7 +35,7 @@ VA - Rock Sound: Sound Check No. 115 (2008) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347934.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Rock Sound: Sound Check No. 113 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347932.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347931.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ Ian Anderson - 6 Альбомов (1983 - 2005) [FLAC|Lossless]<Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347822.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ Deftones - Koi No Yokan (2012) [FLAC|Lossless]<Progressive / Nu Metal / Alt. Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347814.jpg" />
 </div>
 
 
@@ -158,7 +187,7 @@ Agenda - Genetic Arts (2016) [MP3|320 Kbps] <Heavy Metal, Speed Metal, Thrash Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347796.jpg" />
 </div>
 
 
@@ -187,7 +216,7 @@ Superjoint - Caught up in the Gears of Application (2016) [MP3|320 Kbps] <Sludge
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347787.jpg" />
 </div>
 
 
@@ -216,7 +245,7 @@ VA - Rock Sound: Sound Check No. 114 (2008) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347786.jpg" />
 </div>
 
 
@@ -245,7 +274,7 @@ The Rasmus - 1 Single, 1 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347764.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ Stratovarius - Survive (2022) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347763.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347754.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ And Now The Owls Are Smiling - Epitaph (2022) [FLAC|Lossless|WEB-DL|tracks] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347750.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ No Devotion - 2 Albums, 1 EP (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347747.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ Freedom to Glide - 3 альбома (2012-2016) [MP3|320 Kbps] <Progressive rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347662.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Millenium - Tales From Imaginary Movies (2022) [FLAC|Lossless|image + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347610.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ Rammstein - Raritaten (Chinese Edition) (2019) [FLAC|Lossless|tracks + .cue] <In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347535.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Krokus -  12 Альбомов (1977 - 2003) Non-remastered, 1st Press [WavPack|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347507.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ Sirenia - Arcane Astral Aeons (2018) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347477.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ Trees Of Eternity - Hour Of The Nightingale (2016) [MP3|320 Kbps] <Doom Metal, G
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347404.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347367.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ The Rolling Stones - GRRR! (2012) Super Deluxe Edition, 5CD+7” Vinyl [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347258.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347146.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347105.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347097.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ Low & Behold - Uppers (2015) [OGG| 467-519 кб/с]<Alternative, 80's Darkwave, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346965.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ Low & Behold - Uppers (2015) [OGG| 467-519 кб/с]<Alternative, 80's Darkwave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42F04627B2BF615DA0237AA8A4FB0C29B1D93263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179512   (346954) от 01.11.2017
-
-700 кг Золота - Снежное лето (2012) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Поверь
-02.Города сны
-03.Звонок
-04.Когда нибудь(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0269131D0CB6EDA92D59C4C51343500D443ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

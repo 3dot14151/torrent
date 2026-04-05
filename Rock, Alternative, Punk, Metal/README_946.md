@@ -1,3 +1,32 @@
+###  Публикация: 1514388   (217952) от 03.12.2021
+
+Blackhearth - The Wrath Of God (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betrayal
+02. Into The Unknown
+03. My Bornless Child
+04. Rotten To The Core(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DA8C94FCBE9FE198A94D77EC1D5C426889D1DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514384   (217934) от 03.12.2021
 
 Suite Clarity - Duality (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock, Female Vocal>
@@ -6,7 +35,7 @@ Suite Clarity - Duality (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217934.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Psychoprism - R.I.S.E. (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217927.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Custard - Imperium Rapax (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217914.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Alchemia - New Reality (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217900.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Kryptos - Afterburner (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217818.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217761.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Unanimated - Victory In Blood (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217757.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Пауки - Шторм идёт (2021) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217743.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ John Mellencamp - Whenever We Wanted (1991) [FLAC|Lossless|tracks + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217735.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Dire Straits - On Every Street (1991) Remastered, 1996, Vertigo [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217706.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Peter Gabriel - The Late Show - New York Broadcast 1978 (2021) Reissue, 2023, Go
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217658.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217649.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Silverchair - 5 Альбомов (1995 - 2007) дискография, студ�
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217623.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Unheilig - Lichter der Stadt (2012) Winter Edition [MP3|320 кб/с]<Gothic Rock
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217612.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217576.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217508.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ The Jimi Hendrix Experience - Are You Experienced (1967) Remaster, Blue-Spec CD2
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217473.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ The Hatters - Golden Hits (2021) [MP3|320 Kbps] <Rock, Ska>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217471.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Alan Parsons - The NeverEnding Show: Live In The Netherlands (2021) 2xCD [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217459.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Blutspiel - Die Zeit läuft (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217344.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217340.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Daeva - Through Sheer Will and Black Magic (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217326.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Descent - Order of Chaos (2022) [FLAC|Lossless|tracks + .cue] <Death, Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217321.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Elimination - Destroyed by Creation (2010) [FLAC|Lossless|image + .cue] <Power, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217283.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Correra - Human Chaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217277.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Correra - Human Chaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Groove Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8F8E1E931707CBDF005C813079D55979AB9167B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652627   (217265) от 12.08.2023
-
-Eternal Ascent - Reclamation (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - From Darkness (00:01:52)
-02 - March to the Light (00:05:46)
-03 - Blight of Dragons (00:05:14)
-04 - Celestial Homeland (00:05:58)(   Читать дальше...   )Жанр: Symphonic, Power MetalПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1E0BEC9064F36041CC829BF5393B9880DA3273
 ```
 
 https://mybot314.ru/tekegram_catalog/

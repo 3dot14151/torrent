@@ -1,3 +1,57 @@
+###  Публикация: 1146550   (614128) от 29.06.2017
+
+Брайсон Пэйн | Python для детей и родителей (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программирование – одна из самых востребованных профессий в наше время, и она останется таковой в ближайшем будущем.
+
+Научите своих детей программировать уже сейчас с помощью этой книги! В книге представлен язык Python, один из самых популярных и простых. Вы найдете здесь много упражнений – полезных, интересных и забавных, поэтому ваш ребенок не заскучает. Материал (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15FC0C6E92C8E4914B7E7470D39D8CC5BBADA71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 804286   (613999) от 13.07.2014
+
+Николай Болгаров | Что такое Красный флот (1927) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613999.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 февраля 1918 года по флотам и флотилиям был разослан подписанный Народным комиссаром по морским делам П.Е. Дыбенко приказ, в котором был объявлен ленинский декрет: "Флот, существующий на основании всеобщей воинской повинности царских законов, объявляется распущенным и организуется Социалистический Рабоче-Крестьянский Красный Флот...".Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F902FE3CA8409042F7CFA405EE8D9AD83109E4CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 804292   (613998) от 13.07.2014
 
 Николай Платоныч | Журка (1929) [DJVU]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613998.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613978.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613963.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613959.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613897.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613895.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613875.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613774.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613662.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613577.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613573.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613566.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613561.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613372.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613369.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613274.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613272.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613173.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613035.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612988.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612986.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612847.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612801.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612389.jpg" />
 </div>
 
 
@@ -629,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:132C19B54C05A048EDB8090D0363025B3C7C83A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912195   (612385) от 25.06.2015
-
-Елена Тихомирова | Домашняя работа по русскому языку. 2 класс (2013) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемое учебное пособие содержит образцы выполнения всех заданий и упражнений из учебника "Русский язык. 2 кл. В 2 ч.: учебник / Т.Г.Рамзаева. - 12- изд., дораб. - М.: Дрофа, 2011".
-Пособие адресовано родителям, которые смогут проконтролировать детей, а в случае необходимости помочь им в выполнении домашней работы по русскому языку.Жанр: Дополнительные учебные пособия, Русский язык, Правила и упражненияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C584BB9624424E4804F136CD3B958C4ABCF537E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912199   (612308) от 25.06.2015
-
-Т. Г. Рамзаева | Русский язык. 1 класс [+ Тетрадь для упражнений по  русскому языку и речи] (2009) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник предназначен для занятий в 1 классе после периода обучения грамоте. Он поможет подготовить учащихся к изучению курса русского языка, который представлен в учебниках для 2, 3 и 4 классов.
-В комплекте с учебником издаются "Тетрадь для упражнений по русскому языку и речи" (авторы Т.Г.Рамзаева, Л.П.Савинкина), справочник "Русский язык в начальной (   Читать дальше...   )Жанр: Учебная литература, Школьникам и абитуриентамФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98F34E3E9AE0AD679901FD6B7EA27313EFCBF65
 ```
 
 https://mybot314.ru/tekegram_catalog/

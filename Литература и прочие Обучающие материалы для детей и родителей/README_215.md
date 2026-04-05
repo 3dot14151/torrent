@@ -1,3 +1,55 @@
+###  Публикация: 1299705   (597415) от 02.05.2019
+
+А.Ш. Алимов, Ю.М. Колягин | Алгебра и начала анализа. 10-11 класс (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597415.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном учебнике завершается развитие основных идей курса алгебры 7-9 классов авторов Ш.А. Алимова и других. Элементарные функции изучаются в 10 классе классическими элементарными методами без привлечения производной; числовая линия и линия преобразований развиваются параллельно с функциональной; начала математического анализа рассматриваются в 11 классе. Система (   Читать дальше...   )Жанр: УчебникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E25217F756169DA4F6EE7CB1B015B01A02C63B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299520   (597403) от 02.05.2019
+
+Л.Д. Вайткене, М.Д. Филиппова | Это невероятно. Невероятная наука (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание содержит множество невероятных фактов, которые помогут увлечь ребенка естественными науками. Здесь представлена полезная занимательная информация об истории астрономии, биологии и естественных наук и их современных достижениях. Результаты усилий ученых, работающих в этих областях, мы, порой не задумываясь, используем в повседневной жизни. Усвоить предложенные (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8CC361989D6C323E7732AD43028A40E8EA58CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039344   (597257) от 31.07.2016
 
 В.П. Бутромеев, В.В Бутромеев (ред.) | Детский плутарх. Великие и знаменитые [4 книги] (2011) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597257.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597175.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596584.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596569.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596534.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596528.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596502.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596498.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596370.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596296.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596099.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596086.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596076.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596068.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596063.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595998.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595981.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595975.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595954.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595948.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595920.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595908.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595899.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595898.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:480F1250FFE62094BA05882B59AE9D9B5ED8530C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039568   (595818) от 01.08.2016
-
-Джеймс Саймон | Древний Рим (1994) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595818.jpg" />
-</div>
-
-
-###  Подробнее
-
-В седьмом веке до н.э. Рим был небольшим итальянским поселением на реке Тибр. Со временем он превратился в огромный миллионный город, который стал главенствовать над большей частью окружающих его земель. В книге описана история Древнего Рима от рождения до заката великой Империи. Красочное и познавательное издание. Перевод Левиной Марии и Нониной Аллы. Художественный (   Читать дальше...   )Жанр: ИсторияПеревод: М. Левина, А. НонинаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEA98CBFAF1966D10C51EDEFF23FD59A137AC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039459   (595806) от 01.08.2016
-
-М. Салье (пер.) | Тысяча и одна ночь. Арабские сказки (2001) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга из серии «Лучшие сказки мира». Пересказ с арабского Салье М. из книги «Тысяча и одна ночь». Иллюстрации Чекмарёв П. Мы благодарим наших читателей за поддержку. Приятного Вам чтения!Жанр: Детская проза, сказкаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81C52F4910F53E67F78320C0184D2EFFC3091A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

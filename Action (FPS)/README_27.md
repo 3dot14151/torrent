@@ -1,3 +1,55 @@
+###  Публикация: 1169658   (402093) от 28.09.2017
+
+Home Sweet Home (2017) [Ru/Multi] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Тима кардинально изменилась с тех пор, как его жена таинственно исчезла. В одну ночь, после долгого страдания, он просыпается в незнакомом месте, не в своем доме. Но выбраться из этого места мешает призрак неизвестной женщины.Тип издания: LicenseРазработчик: YGGDRAZIL GROUЖанр: Action, Horror, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF38E7815A22CE1388C4C3193C17AC6555518FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169605   (402078) от 28.09.2017
+
+RAID: World War II / RAID: World War 2 (2017) [Ru/En] (1.0) Repack =nemos=
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402078.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAID: World War 2 - это захватывающий кооперативный шутер для четырех игроков, отправляющий вас в Европу времен Второй мировой войны. Только вы с друзьями сможете остановить безжалостный натиск нацистского зверя. Четверо военнопленных - Стерлинг, Ривит, Курган и Вольфганг - получили свободу благодаря «миссис Уайт», тайному агенту британской разведки: ей нужны бойцы, (   Читать дальше...   )Тип издания: RepackРазработчик: Lion Game LionЖанр: Action, Shooter, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A2A0693599144D2CE29FEDA07E85BEAB0E2E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169666   (401991) от 28.09.2017
 
 Dishonored: Death of the Outsider (2017) [Ru/En] (1.142.3.8) Repack R.G. Механики
@@ -6,7 +58,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.142.3.8) Repack R.G. Мех�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401991.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398270.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391425.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391390.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.3.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390962.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru] (1.2.208) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390952.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Putrefaction 2: Rumble in the hometown (2017) [Ru/En] (1.0а) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388760.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Putrefaction 2: Rumble in the hometown (2017) [Ru/En] (1.0а) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388705.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Crysis Warhead (2008) [Ru/Multi] (1.1.1.711) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388534.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Crysis / Wreckage [Ru/En/De] (RePack/Mod) 2012 | dr.Alex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386656.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Wolfenstein (2009) [Ru] (1.2) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383313.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Bulletstorm (2011) [Ru] (1.0.7147/dlc) Rip R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382510.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Homefront: The Revolution (2016) [Ru] (1.0781467/dlc) Repack Other s [Freedom Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382494.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381370.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381235.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ CyberMage: Darklight Awakening [En] (RePack) 1995 | dimonstrer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380580.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Crysis 2 (2011) [Ru] (1.9/dlc) Repack xatab [Maximum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380167.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Turok [Ru] (L) 2008
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379700.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ ALICE VR (2016) [Ru/Multi] (1.0) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379558.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Killing Room (2016) [Ru/Multi] (1.37.1/u1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379557.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Red Alliance (2018) [Ru/En/Fr] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378940.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Red Alliance (2018) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378928.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Borderlands: Game of the Year Edition (2009) [Ru/En] (1.5.0.0/dlc) Repack R.G. �
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378709.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376761.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4D7EF7A5FB8B70C55151453CC97944F79F3F1AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174106   (376751) от 12.10.2018
-
-Gold Rush: The Game (2017) [Ru/Multi] (1.5.10373/dlc) License CODEX
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gold Rush: The Game – это симулятор золотодобытчика, в котором вы будете использовать различные методы добычи золота, включая использование тяжёлой техники и различного оборудования. Конечно, вы должны понимать, чем масштабнее ваша добыча, тем больше шансов найти золото, но тем выше стоимость аренды техники.Тип издания: LicenseРазработчик: Code HorizonЖанр: Simulator, 1st Person, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067934ACA16B5F038728B9B80BBD46CD74F7EA56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949470   (376403) от 23.10.2015
-
-Vietcong Anthology (2003-2005) [Ru/En] (1.60/1.1/dlc) Repack R.G. Catalyst
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они называли это битвой за свободу. Они говорили, что выполняют братские обязательства перед гражданами Вьетнама. И их свобода пришла - заключив всех непокорных в жаркие объятия напалма, верхом на неспешных танковых гусеницах, под хлесткий стрекот М-16 и ладный хор пропаганды.Тип издания: RepackРазработчик: Pterodon и Illusion SoftworksЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A17F7B065CABA06A5FA1ABFAB987DF70ECAABE
 ```
 
 https://mybot314.ru/tekegram_catalog/

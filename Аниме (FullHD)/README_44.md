@@ -6,7 +6,7 @@ Sidonia no Kishi: Ai Tsumugu Hoshi | Knights of Sidonia: Love Woven in the Stars
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232556.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230988.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Бол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230913.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230850.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230804.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Единств�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230782.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Для ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230755.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Mahou Tsukai no Yome: Nishi no Shounen to Seiran no Kishi | Невеста ча�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230724.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Koukyoushihen: Eureka Seven - Hi-Evolution | Эврика Семь: Высока
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230620.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Healer Girl | Девушка-целитель [2022, TV, 12 из 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228893.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Muteking the Dancing Hero | Герой-танцор Мутэкинг [2021, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227935.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Deji Meets Girl | Девушка встречает дэдзи [2021, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227653.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Lupin Sansei vs. Meitantei Conan The Movie | Lupin III vs. Detective Conan The M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227286.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Aharen-san wa Hakarenai | Непостижимая Ахарэн [2022, TV, 12 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226525.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Shakugan no Shana II / Жгучий взор Шаны [ТВ-2] [2007, TV, 24] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224781.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Shakugan no Shana III Final / Жгучий взор Шаны III Финал [TV3
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224639.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Shin Ikkitousen | Истинная сила тысячи [2022, TV, 3 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224390.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Guin Saga / Сага о Гуине [2009, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223969.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221295.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Tiger & Bunny 2 | Тигр и Кролик 2 [2022, Web, 25 эп.] WEBRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221232.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. + OVA] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220902.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Maou-sama, Retry! | Demon Lord, Retry! | Король демонов, попыт
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_220782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220782.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219616.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mahou Shoujo Ore | Magical Girl Ore | Как я стала мальчиком-в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218656.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ The Big O | Большой О [1999, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216566.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Yuukai Anna | Anna (Kidnapper) | Анна-похитительница [2018, Mo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216198.jpg" />
 </div>
 
 

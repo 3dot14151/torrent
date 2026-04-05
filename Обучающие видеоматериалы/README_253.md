@@ -1,3 +1,29 @@
+###  Публикация: 1597955   (163637) от 17.12.2022
+
+Domestika, Luis Alberto Gayoso Berrosp | Digital Sculpture of Fantastic Creatures with ZBrush (2019) PCRec [ES, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163637.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сфере 3D моделирования специалисты создают не только человекоподобных персонажей но и фантастических, каких можно увидеть в кино или видеоиграх. Луис Гайосо 3D дженералист. Он специализируется на создании фантастических персонажей и у него более 15 лет опыта работы в качестве цифрового художника. С 2014 года он полностью посвятил себя дизайну персонажей, и в своем (   Читать дальше...   )Производство: DomestikaЖанр: 3D моделирование, СкульптингЯзык озвучки: Испанский, Русский (отдельным файлом)Продолжительность: 03:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE0F62C540C76251453D6B3C1A87665086871FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598212   (163624) от 17.12.2022
 
 Нетология | Управление по Agile: Scrum, Kanban, Lean (2021) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163624.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Udemy, Nexttut, Arash Arefnia | Complete Guide to Unreal Engine 5 (2022) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163586.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ All Ears English, Jessica Beck и др. | 3 Keys IELTS Online Course (2020) CamR
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163580.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ Skillbox, Вадим Михалев и др. | Мастер презентаци
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163387.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Skillbox, Анна Марчук и др. | Запуск подкаста с ну
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163384.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ Skillbox, Дарья Макарова и др. | Скетчинг на план�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163376.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ Gumroad, Tim Bergholz | Blade Tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163305.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Gumroad, Tim Bergholz | Blade Tutorial Extended Edition (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163272.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ Cubebrush, Marc Brunet | Drawing and Coloring Techniques (2014) WEB-DLRip [RU, E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163243.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ Udemy | Полный курс немецкого от А1 до С2 (2019) WEBRip
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163206.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ Kalachevaschool, Ирина Артамонова | Цветущая пастел
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163161.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ Skillbox, Владислав Прищепов, Андрей Смагин  | Юн
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163146.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163090.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163031.jpg" />
 </div>
 
 
@@ -395,7 +421,7 @@ CG Cookie, Kenan Proffitt | ASTRAY: Environment Building Workflow in Blender (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162951.jpg" />
 </div>
 
 
@@ -421,7 +447,7 @@ CG Cookie, Kent Trammell | CUBICITY: Creating and Utilizing Asset Libraries with
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162924.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ CG Cookie, Paul Caggegi | PANELS: Create a Comic Book with Grease Pencil in Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162915.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ CG Cookie, Wayne Dixon | OFF-ROAD: Rig and Animate an RC Monster Truck in Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162893.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ CG Cookie, Jonathan Lampel | POTHEAD: Create a Hard Surface Character in Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162840.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162823.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Skillshare, Neil Bettison | Дизайн и рендер стилизованн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162788.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Skillshare, John Knowles | Введение в анимацию: Основы Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162753.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ CG Fast Track | Основы анимации в Blender 2.82 / Blender Animatio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162741.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Softwaretesting , Наталья Руколь | Школа тест-менедж
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162726.jpg" />
 </div>
 
 
@@ -669,7 +695,7 @@ Udemy, А_мир Хамитов | AutoCAD с нуля и до очень даж�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162697.jpg" />
 </div>
 
 
@@ -680,34 +706,6 @@ Udemy, А_мир Хамитов | AutoCAD с нуля и до очень даж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D94BB7F41CDC44C9F14A2FBB573E901F31E58E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673886   (162690) от 03.11.2023
-
-Udemy, 3D Tudor | Blender Beginner’s Bootcamp (2023) WEB-DL [AD] [EN, RU / EN, RU Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите овладеть искусством 3D-моделирования в Blender?
-
-Обратите внимание на наш курс "Blender Beginner's Bootcamp", где мы проведем вас через все этапы процесса создания 20 проектов, охватывающих широкий спектр тем, и гарантируем, что вы покинете этот курс с богатым багажом знаний и уверенностью в себе, чтобы с головой окунуться в мир 3D-моделирования. (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: Английский, РусскийПродолжительность: 13:02:55Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF68D24E469D2C927AABE268CC81D81422FFEB09
 ```
 
 https://mybot314.ru/tekegram_catalog/

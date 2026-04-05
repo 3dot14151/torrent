@@ -1,3 +1,32 @@
+###  Публикация: 1639443   (238295) от 13.06.2023
+
+VA - Music for Running Are You Ready?!? (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pantera -- Cowboys from Hell (4:04)
+02. Disturbed -- Down with the Sickness (4:39)
+03. Billy Talent -- Rusted from the Rain (4:13)
+04. Linkin Park -- One Step Closer (2:37)(   Читать дальше...   )Жанр: RockПродолжительность: 02:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC57F3EA06AE3A2501881D9476DB27795BF6918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580724   (238288) от 02.10.2022
 
 Criminal Madhouse Conspiracy - Criminal Madhouse Conspiracy (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
@@ -6,7 +35,7 @@ Criminal Madhouse Conspiracy - Criminal Madhouse Conspiracy (2022) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238288.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Brethren Hogg - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Southern, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238280.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Tibet - Tibet (1978) Remastered, 2013, Belle Antique [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238277.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Autonoesis - Moon of Foul Magics (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238270.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Toxik - Dis Morta (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Speed, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238263.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Bloodgutter - Death Mountain (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238260.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Wizzerd - Space? Issue No. 001 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238254.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Moribund Dawn - Dark Mysteries Of Time & Eternity (2022) [MP3|320 Kbps] <Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238242.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Tons - 3 Albums (2012-2022) [MP3|320 Kbps] <Sludge Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238238.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Feed the Wolves - Age of Fire (2023) [MP3|320 Kbps] <Power, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238232.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Bestial Sight - 3 Albums (2017-2022) [MP3|320 Kbps] <RMW Black, Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238229.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Fortress of Empyrean - Synchronized Demise (2023) [MP3|320 Kbps] <Progressive Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238225.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Snowblind - Breaking Out (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238218.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Celeste - Assassine(s) (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Sludge Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238216.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Foreseen - Untamed Force (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238209.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Sultan - Check And Mate (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238200.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238197.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Symfonia - In Paradisum (2011) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238190.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ KRITE - Мертв По Прибытии (2022) [MP3|320 Kbps] <Melodic Black Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238180.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238175.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Def Leppard - The Early Years 79 - 81 (2020) (5 CD), Reissue, Remastered, 2020, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238168.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Antaghonist - 4 Relises (2017-2022) [MP3|244-320 kbps/320 Kbps] <Dark Hardcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238161.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Dark Age of Technology - 4 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238154.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Unbowed - Colour The Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238148.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Triskelyon - Downfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238142.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Triskelyon - Downfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28862CB7ECE10510BD96CC76207467A25DA67E88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638154   (238137) от 07.06.2023
-
-Akilla - The Gods Have Spoken (2023) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds Of Winter (05:27)
-02. Serpent And The Son (05:25)
-03. Queen Of Heaven (04:43)
-04. Song Of The Seafarers (05:52)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6479660E4098E27C8BFB2AE5329E781FCA1DBC08
 ```
 
 https://mybot314.ru/tekegram_catalog/

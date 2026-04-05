@@ -1,83 +1,3 @@
-###  Публикация: 1848481   (1052671) от 17.01.2026
-
-Robert C. Martin | Clean Architecture. A Craftsman’s Guide to Software Structure and Design (2018) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Building upon the success of best-sellers The Clean Coder and Clean Code, legendary software craftsman Robert C. "Uncle Bob" Martin shows how to bring greater professionalism and discipline to application architecture and design.
-As with his other books, Martin's Clean Architecture doesn't merely present multiple choices and options, and say "use your (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Pearson EducationФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E701E8498E2F123B0BB6D93C225AE832C036BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848129   (1052573) от 16.01.2026
-
-Бернд Ульман | Программирование аналоговых и гибридных компьютеров (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052573.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мере того как классические цифровые компьютеры приближаются к своим физическим и архитектурным границам, стремительно растет интерес к аналоговым и гибридным вычислениям. Такие компьютеры могут превосходить классические цифровые по скорости работы, общей вычислительной мощности, энергоэффективности, а также обладать чрезвычайно высокой степенью параллелизма. Данная (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA6E23834EF11F0232F47661F7701F43031A057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847668   (1052380) от 13.01.2026
-
-В.Ю. Ачкасов | Программирование на Lazarus. Учебное пособие [4-е  изд.] (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052380.jpg" />
-</div>
-
-
-###  Подробнее
-
-В  учебном  пособии  рассматривается  среда  программирования  Lazarus  и  компилятор FPC. Lazarus —  свободно распространяемая среда программирования на Объектом Паскале, бесплатный  аналог  Delphi.  В  издании  подробно  рассматриваются  все  аспекты  создания Windows-приложений на базе этой среды.
-Учебное  пособие  предназначено  для  студентов,  обучающихся  по  направлениям подготовки, (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Ай Пи Ар Медиа,Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E7166024A3B29AAEBCE01A8BAFBFCFB2A7E49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847678   (1052363) от 14.01.2026
 
 Е.В. Кукушкина | Начальные сведения о языке программирования Visual Basic for Application [3-е издание] (2024) [PDF]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052363.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052000.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051768.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ Andrey Gavrilin, Adrian Ostrowski, Piotr Gaczkowski | Software Architecture with
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051671.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051503.jpg" />
 </div>
 
 
@@ -219,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051143.jpg" />
 </div>
 
 
@@ -245,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051076.jpg" />
 </div>
 
 
@@ -272,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051075.jpg" />
 </div>
 
 
@@ -298,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050551.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048685.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048683.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048682.jpg" />
 </div>
 
 
@@ -402,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048445.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048444.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048403.jpg" />
 </div>
 
 
@@ -483,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048399.jpg" />
 </div>
 
 
@@ -509,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048375.jpg" />
 </div>
 
 
@@ -536,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048373.jpg" />
 </div>
 
 
@@ -562,7 +482,7 @@ Antonio Melé | Django 5 By Example. Build powerful and reliable Python web appl
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048160.jpg" />
 </div>
 
 
@@ -588,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048077.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048049.jpg" />
 </div>
 
 
@@ -641,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047949.jpg" />
 </div>
 
 
@@ -668,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047945.jpg" />
 </div>
 
 
@@ -680,6 +600,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:830E91AEF3FFAC3934DDDF89F2CDAC1E2EC8E325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841206   (1047857) от 14.12.2025
+
+Фабрицио Романо, Генрих Крюгер | Весь Python. Самое актуальное и исчерпывающее руководство [4-е издание] (2026) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всеобъемлющее современное руководство по программированию на Python, охватывающее фундаментальные идеи и практические приемы!
+Вы научитесь писать собственные программы и получите четкое представление о том, куда двигаться дальше и как использовать полученные знания. Изучение Python подкреплено практикой — огромным количеством примеров приложений. К концу книги вы (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3913DE72D9F8D1A18DE2D89DA9E8348A7E34F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840640   (1047514) от 06.12.2025
+
+Джозеф Албахари | С# 12. Справочник. Полное описание языка (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047514.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом уже ставшем бестселлером руководстве читатель найдет все необходимые ответы на разнообразные вопросы по языку C# 12 или библиотекам .NET 8. Язык C# обладает замечательной гибкостью и широким размахом, но такое непрекращающееся развитие означает, что по-прежнему есть многие вещи, которые предстоит изучить. В соответствии с традициями справочников O'Reilly это (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ДиалектикаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C503C839C0452897B5D93E641283872F261E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840468   (1047424) от 05.12.2025
+
+Ханспетер Мёссенбёк | Конструирование компиляторов (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047424.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются практические основы конструирования компиляторов – от лексического и синтаксического анализа до семантической обработки и генерирования кода. В качестве сквозного примера описан и реализован компилятор простого Java-подобного языка программирования (MicroJava). Навыки
+конструирования компиляторов найдут применение всюду, где есть структурированные (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4D3379AE250C8965B59FCD34307CDBEE2B9DA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

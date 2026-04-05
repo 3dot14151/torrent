@@ -1,3 +1,55 @@
+###  Публикация: 1620180   (249447) от 19.03.2023
+
+Журнал | Главбух №3 (2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B60AA176E4910242A2FFA606817CD0F4DD7E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212789   (246751) от 26.07.2023
+
+Подшивка журналов | Мир приключений [Раритет] (1918-1930) [PDF] [Обновляемая]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иллюстрированный журнал повестей и рассказов. «Мир Приключений» – первый журнал в Российской Империи и Советском Союзе, который на своих страницах печатал только произведения приключенческого и фантастического жанра российских и зарубежных писателей, очерки и статьи об интересных достижениях науки и техники. Напечатанные произведения были великолепно проиллюстрированы (   Читать дальше...   )Жанр: Фантастика, приключения, путешествияИздательство: П.П. СойкинФормат: PDFКачество: Хороший скан, OCR с ошибками
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC28E2DD5F7F748D36B978A52338347EDBFA9A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491736   (246502) от 04.05.2012
 
 Журнал | Криминальный отдел №5 [май 2012] [PDF]
@@ -6,7 +58,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246502.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244924.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244835.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244094.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244052.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243025.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242893.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242029.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241785.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241447.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240713.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239848.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236390.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235431.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235276.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235208.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235184.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234178.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234172.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234155.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233286.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233164.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232654.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232590.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BFFEEA36488492C5F2852B89FE7F274F9773EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634269   (232429) от 26.05.2023
-
-Газета | Труд № 31-32 (Май 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из старейших общественно-политических газет (издается с февраля 1921 года). Корреспонденты «Труда» ежедневно рассказывают читателям о политике, культуре, спорте, экономике, жизни общества, самых интересных новостях дня и многом другом. Издание рассчитано на широкий круг читателей.Жанр: общественно-политическихФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E75A7347D729BC7DFDCCEC4C562648B4D2DED1E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634278   (232316) от 26.05.2023
-
-Газета | Комсомольская правда. Москва 37 (Май 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232316.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Комсомольская правда» — информационная, общественно-политическая, развлекательная ежедневная газета, журналисты которой стараются быть интересными самому широкому кругу читателей. Безусловно, конек «КП» - скандальные репортажи, необычные истории из жизни, душераздирающие криминальные истории, светские новости, рассказы о звездах.Жанр: История. Общество. ПолитикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5672178F9FF436C6D704C7DBF37DA73A2EEAF48B
 ```
 
 https://mybot314.ru/tekegram_catalog/

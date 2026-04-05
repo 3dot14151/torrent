@@ -1,3 +1,61 @@
+###  Публикация: 1204117   (785384) от 04.02.2018
+
+Aelyn - Voice Of Suanda Vol. 5 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aelyn & Feel - If You Feel Love (Original Mix)
+02.Aelyn - Game Over (Ruslan Radriges Remix)
+03.Aelyn & Universal Sense - Be Where You Are (Vocal Mix)
+04.Aelyn - Water & Fire (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234A16E83E38ABC99EE3CD08C14C7FC54E194598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277435   (785363) от 20.01.2019
+
+VA - Best Of 2018 (2019) [MP3|320 Kbps] <Drum & Bass, Neurofunk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Facade - Division Of The Synth (04:36)
+02. Vecster - Critical Level (04:36)
+03. Sequential - Time Dilation (05:15)
+04. Distributor - Hypertension (05:18)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755DB103C2392D362391F677234455B788901512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203836   (785272) от 04.02.2018
 
 ScAnDroid Experiment's - Multis Sonorum in Diversis (2018) Авторская раздача [MP3|320 Kbps] <Experimental Electronic, Ethno-Enigmatic, Trance>
@@ -6,7 +64,7 @@ ScAnDroid Experiment's - Multis Sonorum in Diversis (2018) Авторская р
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785272.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Norken - Galaxy Driven (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785166.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Bounce Showcase, Vol.1-2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tran
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785153.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Erotic Lounge Sensual Hot 2020 [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785039.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Various Artists pt.5 (2015) Etoka Records [FLAC|Lossless|WEB-DL|tracks] <Du
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785032.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Feral - Climbing Himalaya: Part II (2018) Hypnus Records [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785029.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Winter Music Top 1 (2019) [MP3|320 Kbps] <House, FutureHouse, Dubstep, Othe
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785028.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Nothing But... The Future Of Trance Vol.11 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785026.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Acronym & Kali Malone - The Torrid Eye (2019) Stilla Ton [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785020.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Abora Recordings Best Of 2018 (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785016.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Aloner Station - Overcreate World (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784997.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - afterlights (2017) [MP3|320 Kbps] <Trance,House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784995.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Chilling Sounds, Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784994.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - United Colours Of Trance Vol.10 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784990.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [MP3|320
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784989.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Bright Light Bright Light - Make Me Believe In Hope (2019) Deluxe Edition [MP3|3
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784979.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784977.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Best Of Progressive House Vol.01 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784975.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Headphone Science (Forbid, HdSc) - Discography 15 Releases (2003-2017) [FLAC|Los
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784956.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Psychedelic Awakening (Compiled by Ace Ventura) (2018) Future Music Records
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784935.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Best Deep House Music 2017 Vol.4 (Mixed by Gerti Prenjasi) (2018) [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784918.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - A State Of Trance 850 (The Official Album) (Mixed by Armin van Buuren) (201
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784860.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Fifty Shades of Jazz, Vol. 1 - Erotic, Sensual, Music Therapy (2017) [MP3|3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784849.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Daniel Deluxe - Exile (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784776.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Daniel Deluxe - Exile (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71D3950A53E4BA3C488BD480CC02B78C8129959A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389044   (784769) от 09.06.2020
-
-VA - Vintage Reggae Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy-listening, Lounge, Reggae>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jamaican Reggae Cuts feat. Pinky Dread - Say My Name (2:41)
-02. The Reggister's - Friends (4:05)
-03. Conkarah feat. Rosie Delmah - Hello (3:58)
-04. Trippynova - Come (3:16)(   Читать дальше...   )Жанр: Easy-listening, Lounge, ReggaeПродолжительность: 03:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F88AF7EB8311B01B6FC9C10D8C533906EED932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234725   (784736) от 09.06.2020
-
-The Ghost Of 3.13 | You're Terribly Late - Discography 20 Releases (2011-2020) Sociopath, Mozyk [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Breakcore, Modern Classical, Experimental, Ambie ...
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anywhere But Here (04:30)
- 02. Night Sky (04:07)
- 03. Childhood Spaceship (04:51)
- 04. Home Is Where The Heart Is (04:07)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Experimental/Glitch/AmbientПродолжительность: 14:05:32 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A2B6640CD93D544904E7EF8957BFB7E52EFBF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

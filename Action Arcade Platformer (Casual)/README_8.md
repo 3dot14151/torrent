@@ -1,3 +1,61 @@
+###  Публикация: 221541   (612873) от 25.07.2010
+
+Toki Tori (ENG) [L] (2010)
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toki Tori представляет собой продукт скрещивания трехмерного платформера и пазла. Главный герой - цыплёнок, в чью честь названа игра, отправляется на поиски похищенных из родного курятника яиц. В благородном деле все средства хороши, в том числе и применение оружия. Впрочем, львиную долю времени придется решать головоломки при помощи специальных предметов и прыгать по платформам, а не стрелять. В игре более 80 уровней в 4 мирах, множество способностей, запутанные головоломки, прекрасное оформление, а также возможность перемотки времени.
+
+Запускаем .ехе файлЖанр: Puzzles, Platformer
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 221536   (612871) от 25.07.2010
+
+Blueberry Garden v.1.1 (Eng) [P] (2009)
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612871.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сказка, рассказанная в подвижной экосистеме. Летите сквозь облака, исследуйте удивительный мир и откройте тайну черничного сада. От вашего присутствия зависит все» — таким текстом приветствует посетителей страничка Blueberry Garden на сайте финалистов Фестиваля независимых игр, где эта игра претендует на Гран-при.
+
+Blueberry Garden — арт-проект до мозга костей. Главный герой — прямоходящая птица в костюме и шляпе. В центре единственного игрового уровня стоит ее дом, вокруг которого бурлит жизнь — плодоносят и сбрасывают листву деревья, прыгают куры и какие-то козявки. Наш герой может бегать вокруг, подбирать опавшие ягоды, кидать их или, по нажатию клавиши Enter, есть. Каждый употребленный в пищу плод оказывает на него определенный эффект: «клюква» чуть приподнимает землю под ногами (самый настоящий терраформинг в реальном времени), желтые звездочки позволяют дышать под водой, ну а собственно черника (размером с добрый арбуз) позволяет дальше лететь.
+
+Летает герой крайне забавно: стоит два раза нажать пробел, (   Читать дальше...)Жанр: Arcade / Logic
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037845   (611519) от 25.07.2016
 
 The Shadowland (2016) [En] (1.0) Repack Other s
@@ -6,7 +64,7 @@ The Shadowland (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611519.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ World of One (2017) [Ru/Multi] (1.2.2 B9) SteamRip Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610898.jpg" />
 </div>
 
 
@@ -58,7 +116,7 @@ Headlander (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609776.jpg" />
 </div>
 
 
@@ -84,7 +142,7 @@ Headlander (2016) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609772.jpg" />
 </div>
 
 
@@ -110,7 +168,7 @@ Shantae Anthology (2014-2018) [En] (1.0.1.5/1.04g/1.0hf21245) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608310.jpg" />
 </div>
 
 
@@ -136,7 +194,7 @@ Terraria (2011) [Ru/Multi] (1.3.2.1) Repack NIK220V
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607792.jpg" />
 </div>
 
 
@@ -162,7 +220,7 @@ ITORAH (2022) [Ru/Multi] (1.1.0.0) License GOG [Save the World Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607307.jpg" />
 </div>
 
 
@@ -188,7 +246,7 @@ Tom vs. The Armies of Hell (2016) [En] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606459.jpg" />
 </div>
 
 
@@ -214,7 +272,7 @@ Tom vs. The Armies of Hell (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606195.jpg" />
 </div>
 
 
@@ -240,7 +298,7 @@ Renoir (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606173.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Supraland (2019) [Ru/Multi] (1.2b) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606156.jpg" />
 </div>
 
 
@@ -292,7 +350,7 @@ SEUM: Speedrunners from Hell (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604387.jpg" />
 </div>
 
 
@@ -318,7 +376,7 @@ Cuphead (2017) [Ru/Multi] (1.2) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604010.jpg" />
 </div>
 
 
@@ -344,7 +402,7 @@ Pinstripe (2017) [Ru/Multi] (2.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603617.jpg" />
 </div>
 
 
@@ -370,7 +428,7 @@ Candle (2016) [Ru/Multi] (1.1.17) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602310.jpg" />
 </div>
 
 
@@ -396,7 +454,7 @@ Cuphead (2017) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602063.jpg" />
 </div>
 
 
@@ -422,7 +480,7 @@ Deputy Dangle (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599179.jpg" />
 </div>
 
 
@@ -448,7 +506,7 @@ Deputy Dangle (2016) [En] (1.0) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599176.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ Pinstripe (2017) [Ru/Multi] (2.1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597784.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Vive le Roi / Vive le Roi 2 (2017-2018) [Ru/Multi] (1.0.10/1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597616.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Fly and Destroy (2016) [En] (1.0) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597164.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ DreamBreak (2016) [Ru/En] (1.11) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596986.jpg" />
 </div>
 
 
@@ -579,7 +637,7 @@ Super Mario Brawl (P) [En] 2011
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596458.jpg" />
 </div>
 
 
@@ -605,7 +663,7 @@ Pinball Yeah (P) [En] 2010
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585904.jpg" />
 </div>
 
 
@@ -616,61 +674,6 @@ Pinball Yeah! – фентези-пинбол с 4-мя столами, кажд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54B9B107847BEE1FE620AC38EDD3750686D1940E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358131   (585765) от 02.07.2011
-
-Goose Gogs (P) [Ru] 2011
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585765.jpg" />
-</div>
-
-
-###  Подробнее
-
-GooseGogs - это забавная игра, созданная 17-летним Фредериком Шиммелпфеннигом из Германии. За создание этого захватывающего платформера, он был номинирован на конкурс разработчиков, спонсируемый немецким правительством и получил престижную премию Компьютерных игр в 2010г.
-   В этом 2D jump’n'run платформере Вы будете управлять шестью различными персонажами (GooseGogs). Вас ждет около 50-ти хитрых уровней с множеством препятствий. Чтобы добраться до финиша, Вам придется полагаться на уникальные умения каждого GooseGog, а также их общее оружие: След Гнева. Заставьте своих врагов пройти через него, и они взорвутся!Тип издания: ПираткаЖанр: Arcade (Platform)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F75FD4F9E9E6A6D1ECCDC714FCABF4623DF8CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920001   (580810) от 21.07.2015
-
-Orbital Gear (2014) [En] (1.3.3) Repack OUTLAWS
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orbital Gear — это динамичный шутер, в котором вы используете гравитацию небесных объектов в качестве движущей силы вашего робота в пространстве. Вооружите своего робота двумя из двенадцати различных видов оружия и уничтожьте своих врагов. Orbital Gear представляет собой классическую аркаду, созданную на основе новых технологий и 3D-графики.
-
-Хотя в основе Orbital (   Читать дальше...   )Тип издания: RepackРазработчик: Night NodeЖанр: Action, Arcade, PlatformerЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC8D3E83F3A4CBFDDAFFCDF24084D9E84E69613
 ```
 
 https://mybot314.ru/tekegram_catalog/

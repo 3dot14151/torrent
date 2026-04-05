@@ -1,3 +1,29 @@
+###  Публикация: 1380614   (833171) от 03.05.2020
+
+Журнал | МастерРужьё №1 (Январь 2020) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833171.jpg" />
+</div>
+
+
+###  Подробнее
+
+«МастерРужьё» - один из старейших журналов на рынке в области оружейной тематики, который стал профессиональным помощником как знатокам, так и любителям оружия и охоты. На его страницах можно познакомиться с последними новинками в мире стрелкового и холодного оружия, узнать о важных спортивных событиях, российских и международных выставках. Важное отличие журнала (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532369778F6D586F90D2DC75FA42A4C0922C870F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114758   (831963) от 15.03.2017
 
 Журнал | Маленькая Diana №4 (апрель 2017) [PDF]
@@ -6,7 +32,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831963.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829883.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829784.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828884.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824750.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824139.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824131.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821843.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821639.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821607.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821536.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821530.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821497.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_821158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_821158.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819748.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817452.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817441.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817402.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816782.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816064.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815985.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815939.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815890.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815821.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815799.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A400C85029B7CBF5EA72A0BD3E9B611DF18459A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197545   (815665) от 07.01.2018
-
-Журнал | Bonsai Focus [English] №1-2 (144) (2017) [PDF] [En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как увлекателен Бонсай Фокус! С информативными докладами и потрясающей фотографией каждые два месяца Bonsai Focus Magazine делает вас свидетелем необычного бонсая, великолепными стилями известных мастеров, образовательными методами и полезными советами по обслуживанию. Мы действительно любим бонсай и думаем, что это настоящая живая форма искусства. Бонсай (   Читать дальше...   )Жанр: УвлечениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187F7D31F9390B0AD37DAB093156705823B33F76
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,56 +1,3 @@
-###  Публикация: 1080667   (286640) от 08.12.2016
-
-Платон Беседин | Ребра (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов "Рёбра" современного украинского писателя Платона Беседина готовился в дни, когда истерии по Украине еще не было в помине. Поменялось все в секунду. И с тем большим удовольствием мы сегодня анонсируем эту книгу. Книгу простую и удивительную одновременно.
-Главное достоинство писателя Платона Беседина в том, что он никогда не бывает одинаковым. (   Читать дальше...   )Жанр: современная проза, рассказыПродолжительность: 06:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591E312866D68BDCF0F98EF10E5CB9FF7DF959CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080453   (286557) от 08.12.2016
-
-Виктория Балашова | Гибель Армады (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286557.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1585 году между Испанией и Англией вспыхнула война за морское господство, растянувшаяся на полтора десятилетия и закончившаяся, по сути, ничем. В начале войны успех сопутствовал войскам Елизаветы Тюдор. К 1588 году испанцы собрали огромный флот и попытались осуществить переброску армии герцога Пармы на Британские острова. Это событие вошло в историю под названием (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 11:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6CC52F796AC17C273957A7A7B9A20D55AFDC79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079992   (286433) от 08.12.2016
 
 Константин Симонов | Товарищи по оружию (2016) [MP3]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286433.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286322.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286297.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286266.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286108.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286102.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284597.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282725.jpg" />
 </div>
 
 
@@ -269,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282428.jpg" />
 </div>
 
 
@@ -295,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282426.jpg" />
 </div>
 
 
@@ -322,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281232.jpg" />
 </div>
 
 
@@ -348,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281027.jpg" />
 </div>
 
 
@@ -374,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280753.jpg" />
 </div>
 
 
@@ -401,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280636.jpg" />
 </div>
 
 
@@ -428,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280421.jpg" />
 </div>
 
 
@@ -455,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279346.jpg" />
 </div>
 
 
@@ -482,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278850.jpg" />
 </div>
 
 
@@ -510,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277488.jpg" />
 </div>
 
 
@@ -536,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277425.jpg" />
 </div>
 
 
@@ -562,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277382.jpg" />
 </div>
 
 
@@ -590,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277240.jpg" />
 </div>
 
 
@@ -616,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276136.jpg" />
 </div>
 
 
@@ -642,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276129.jpg" />
 </div>
 
 
@@ -668,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276112.jpg" />
 </div>
 
 
@@ -679,6 +626,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D9FE75A08EEC742A569D13BB0E85DF476542A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337344   (275011) от 10.11.2019
+
+Николай Блохин | Владимирская (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275011.jpg" />
+</div>
+
+
+###  Подробнее
+
+1395 год. В русские земли вторгаются войска Хромого Тимура (Тамерлана), прославившегося своими военными подвигами и невероятной жестокостью. Уже захвачен и разорен Елец, следующая - Москва. Навстречу его полчищам выдвигается наспех собранное войско молодого князя Василия, сына Дмитрия Донского. Но силы несопоставимы…
+Спасти Русь может только чудо. И оно свершается. (   Читать дальше...   )Жанр: Историческая повестьПродолжительность: 02:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB395F0E4FB4626285B1D15B1E1BFD52FF9180C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315738   (274900) от 10.11.2019
+
+Юлия Крюкова | Из суицида в вечность - спасение длинною в жизнь (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подлинная любовь рождается во времени и устремляется в вечность. Она никогда не прекращается и не ослабевает, но только лишь крепнет, приобретая всё новые и новые краски и оттенки глубоких чувств.
+Как отыскать такую любовь? Как достичь её в мире господства сиюминутных желаний и преходящих ценностей? Как не утратить ее даже если смерть, страшная смерть любимого, разделяет (   Читать дальше...   )Жанр: современная проза, рассказПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E7418E1CD71A6D45C711AF5265CA948A7F7AE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

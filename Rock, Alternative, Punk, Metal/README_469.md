@@ -1,3 +1,148 @@
+###  Публикация: 912096   (612909) от 25.06.2015
+
+William D. Drake - Revere Reach (2015) [MP3|320 кб/с]<Progressive Rock, Alternative Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distant Buzzing (3:26)
+02. In Converse (4:18)
+03. Lifeblood (2:58)
+04. Be Here Steryear (4:48)(   Читать дальше...   )Жанр: Progressive Rock, Alternative Psychedelic RockПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E312EEFAC30FEE2053F1FB8A7739B696BA5BCEB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911228   (612907) от 25.06.2015
+
+Solstice Coil - Commute (2015) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Eyes
+02. Forget You Ever Saw Us
+03. Shuffle the Cards
+04. Her Silent Silhouette(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FBCC381CBAA761FD060387E37D0E0DE9FBACCE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911384   (612898) от 25.06.2015
+
+Lloyd Project - Shelter (2015) [MP3|320 кб/с]<Progressive / Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612898.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Moonrise (4:02)
+2. Black Dove (3:30)
+3. Shelter (3:57)
+4. Vertigo (3:44)(   Читать дальше...   )Жанр: Progressive / Art RockПродолжительность: 00:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3582B7EC2B2E71691F2289D969CBD813E48270B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545372   (612887) от 20.04.2022
+
+Ribbons of Euphoria - You Don't Care (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3/4" Bullet (Running Through My Mind)
+02. You Don't Care
+03. Foundation of Control
+04. Hold on to My Gun(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243A2A55C621D0E9AF54A41FC07DCAA4C904D007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146634   (612862) от 30.06.2017
+
+The Corrs - White Light (2015) [FLAC|Lossless|image + .cue] <Pop-Rock, Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Do What I Like 03:37
+02. Bring On The Night (Andrea Corr, Caroline Corr, Sharon Corr, Jim Corr) 04:16
+03. White Light 03:15
+04. Kiss Of Life 03:59(   Читать дальше...   )Жанр: Pop-Rock, Folk-RockПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1284EADC7CD2AC2E438762244E6CC74F09B7F213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146831   (612848) от 30.06.2017
 
 Deep Purple - In Concert '72 (1972) 2012 Mix, Reissued in 2014 [FLAC|Lossless|tracks + .cue] <Classic Rock, Hard Rock>
@@ -6,7 +151,7 @@ Deep Purple - In Concert '72 (1972) 2012 Mix, Reissued in 2014 [FLAC|Lossless|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612848.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Chaos Synopsis - Seasons Of Red (2015) [MP3|320 кб/с]<Death Metal, Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612811.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Stainless Steel - Red Heat Within (2002) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612806.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Being as an Ocean - Being as an Ocean (2015) [MP3|320 кб/с]<Melodic Hardcore,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612804.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Wilson - Right To Rise (2015) [MP3|320 кб/с]<Hard Rock, Southern Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612802.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Sinister - Dark Memorials (2015) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612797.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Led Zeppelin - Ottawa Sunshine (1998) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612740.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Black Sabbath - The Dio Years (2007) Compilation, Remastered [FLAC|Lossless|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612722.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Dark - Dark (2015) [MP3|320 кб/с]<Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612693.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ The Aristocrats - Tres Caballeros (2015) [MP3|320 кб/с]<Progressive Rock, Jaz
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612692.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Ronnie Montrose - Дискография (24 альбома)(Montrose,Gamma,Solo
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612588.jpg" />
 </div>
 
 
@@ -322,7 +467,7 @@ Pyramaze - Disciples Of The Sun (2015) [FLAC|Lossless]<Heavy Metal / Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612587.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ Strike - Паранойя (2015) EP [MP3|320 кб/с]<Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612579.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ Frank Zappa - Dance Me This (2015) [FLAC|tracks+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612568.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ Thy Art Is Murder - Holy War (2015) [MP3||~245 кб/с (V0)]<Technical Deathcore
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612567.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ Frank Zappa - Dance Me This (2015) [MP3|320 кб/с]<Progressive Rock, Experimen
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612519.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Refused - Freedom (2015) [MP3|320 кб/с]<Hardcore Punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612518.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ VA - Heart Rock vol.2 (1990) 2CD[FLAC|tracks + .cue]<Soft Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612515.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ To/Die/For (To Die For) - Cult (2015) [MP3|320 кб/с]<Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612514.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ VA - Heart Rock - Rock Fur's Herz vol.3 (1991) 2CD[FLAC|tracks + .cue]<Rock, Sou
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612442.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ Antillia (Антиллия) - Древние Силы (2015) [MP3|320 кб/с]<S
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612402.jpg" />
 </div>
 
 
@@ -597,149 +742,6 @@ Antillia (Антиллия) - Древние Силы (2015) [MP3|320 кб/с]<S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:438D32CDB2BD7ABA5234B18369BB2355AAC66635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911819   (612390) от 25.06.2015
-
-Дай Дарогу! - Дай Дарогу! (2015) [MP3|320 кб/с]<Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612390.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом альбоме Дай Дарогу! катком прошлись по многим актуальным темам... "Съемная хата", "Мальдивы", "Общество калек", "Предсмертный хит". Как обычно в альбоме много чисто дайдорожного стеба и юмора - "Передоз", "Митю мы не парим", "18 лет", "Твои каштановые" . Главная лирическая песня (   Читать дальше...   )01. Мальдивы
-02. Митю мы не парим
-03. Танкист
-04. На звездной кочерге(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1488740629F9FCBE79BAD4214D36B980592AF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911781   (612357) от 25.06.2015
-
-Юта - Лучшие песни (2009) [MP3|320 кб/с]<Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хмель и солод
-02. Одинокое шоссе
-03. Имя
-04. Сигнал(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AFFC2A32D98F75135C4DE48A587C7BB65A7ACDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037485   (612223) от 25.07.2016
-
-Periphery - Periphery (2010) Reissue 2012, 2CD [FLAC|Lossless|tracks+.cue]<Progressive Metal, Djent, Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612223.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Original Album
-CD2 - InstrumentalЖанр: Progressive Metal, Djent, Math MetalПродолжительность: 02:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B88A092C143F177F09174997594BB4B20755AF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230707   (612168) от 14.06.2018
-
-Зоопарк, Кино - Лето (Песня для Цоя) (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зоопарк - Лето (Запись 1982)
-02. Кино - Мои друзья...
-03. Зоопарк - Сегодня ночью (Запись 1982)
-04. Кино - Видели ночь(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6295355A777D8DE57F1D136FE7BA75A9620D1D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037487   (612123) от 25.07.2016
-
-Gotthard - Domino Effect (LTD Tour Edition) (2007) 2CD Limited Edition [FLAC|Lossless|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master Of Illusion    03:55
-02. Gone To Far    03:55
-03. Domino Effect    03:48
-04. Falling    03:35(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 01:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14C3144D5BC88C8B885C187CFDFCAB729142BDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

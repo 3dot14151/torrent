@@ -1,3 +1,56 @@
+###  Публикация: 1501639   (829540) от 13.10.2021
+
+FlippedNormals, Maria Puchkova | Real-Time Hair Tutorial (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829540.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 года назад я решила освоить груминг в реальном времени. Я просмотрела каждое видео на YouTube и купила множество курсов, но всё равно в моих знаниях и навыках было много пробелов. Годы отраслевой практики и большая работа помогли мне разобраться во всех моих вопросах и найти решения наиболее распространённых проблем.
+Создание волос в реальном времени расширило (   Читать дальше...   )Производство: FlippedNormalsЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 05:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B9C315ADDDF5A97EB09F1B2A7DB3C7C8A8FEEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381154   (829174) от 05.05.2020
+
+Константин Тимофеев | Blender для всех. Основы работы в редакторе (2019) PCRec [H.265/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фундаментальный авторский видеокурс, рассказывающий об основах работы в 3d редакторе Blender.Производство: grafikana.ruЖанр: Обучающее видеоПродолжительность: 05:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CCA634879565547C19081DC83E5377A16CC550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005548   (828101) от 11.04.2016
 
 Олунин Дмитрий | Базовый курс по моушн-дизайну (2014) PCRec
@@ -6,7 +59,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828101.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ ArtStation, Tautvydas Kazlauskas | Modeling in Blender 2.83 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827949.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Udemy, Connor Gerber | Game Ready Triple Barrel Hand Cannon [Blender 2.93, Subst
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827871.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Schoolism, Sonja Christoph | Introduction to Blender 2.9 [Low Quality] (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827766.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827370.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Skillshare, Greg Wondra | Unreal Engine 4: Character UI Creation (2020) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826331.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ Udemy, CG Boost, Zach Reinhardt | Mastering Sculpting in Blender 2.79 (2018) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826317.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826220.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826130.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824321.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ kalachevaschool, Дарья Остапенко | Построение прост
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822698.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ kalachevaschool, Евгения Мельникова | Скетчи разным
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822687.jpg" />
 </div>
 
 
@@ -332,7 +385,7 @@ kalachevaschool, Дарьей Остапенко | Рисуем человека
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822685.jpg" />
 </div>
 
 
@@ -361,7 +414,7 @@ kalachevaschool, Дарьей Остапенко | Эстетика обнаже
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822576.jpg" />
 </div>
 
 
@@ -387,7 +440,7 @@ YoRender | Курс 3ds Max для начинающих (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820141.jpg" />
 </div>
 
 
@@ -416,7 +469,7 @@ WingFox, Xiao Yan | Lady Gunslinger - A tutorial of production of a model of a f
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817357.jpg" />
 </div>
 
 
@@ -442,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817197.jpg" />
 </div>
 
 
@@ -471,7 +524,7 @@ The Gnomon Workshop | Введение в ZBrush 4R8 / Introduction to ZBrush 4R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812971.jpg" />
 </div>
 
 
@@ -499,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812804.jpg" />
 </div>
 
 
@@ -527,7 +580,7 @@ kalachevaschool, Анна Михеева и др. | Акварель «Ката�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811539.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810930.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ Skillshare, David Jaasma | Animation for beginners: Create spherical animations 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809746.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ Profileschool, Никита Чесноков | Cinema 4D. Базовый уро�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809489.jpg" />
 </div>
 
 
@@ -634,7 +687,7 @@ Kalachevaschool, Ирина Артамоновна и др. | Пастель «�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807818.jpg" />
 </div>
 
 
@@ -648,62 +701,6 @@ Kalachevaschool, Ирина Артамоновна и др. | Пастель «�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDAD2476F220C86896C1897779BFDFF671BAC558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504887   (807811) от 25.10.2021
-
-Kalachevaschool, Анна Эгида и др. | Скетчинг «Каталог мини-курсов» (2016 - 2019) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коротко и ясно
-Лучшие сборники быстрых курсов для отработки одной техники, материала или сюжета.
-Концентрат практической полезности.
-Идеально для тех, кто находится в поисках любимой техники, жанра и материала.Производство: KalachevaschoolЖанр: РисованиеПродолжительность: 30:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5B4B955DD807DF8515B55B0C24CE547CA7ECF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501638   (807670) от 25.10.2021
-
-WingFox, Huifeng Huang | Creating an Advanced Cinematic Character - Vagrant Knight (2018) PCRec [CN, RU / EN Sub]
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807670.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы погрузимся в процесс создания высокодетализированной и реалистичной модели персонажа, охватывая процесс сбора рефернсов, моделирование, лепку деталей лица, методы создания фотореалистичных волос, текстурирование кожи, волос и одежды.
-Вы узнаете, как создать кинематографического персонажа для CG с помощью нескольких 3D-программ. В конце этого курса (   Читать дальше...   )Производство: WingFoxЖанр: 3D моделированиеЯзык озвучки: Китайский, Русский (отдельным файлом)Субтитры: Английские (вшитые, не отключаемые)Продолжительность: 25:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BCF89903A366FBC72FA3BA2121118EFE1720C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

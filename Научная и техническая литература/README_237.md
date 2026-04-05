@@ -1,137 +1,3 @@
-###  Публикация: 899147   (675347) от 18.05.2015
-
-Владимир Бойко | Иностранные подводные лодки в составе ВМФ СССР (2012) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Победа Советского Союза в Великой Отечественной войне досталась дорогой ценой. В ходе боевых действий Военно-Морской Флот СССР потерял более 50% подводных лодок и вышел из войны ослабленным, особенно по подводным лодкам, строительство которых требовало значительных затрат времени и материальных ресурсов. В этих условиях определенные перспективы быстрого восполнения (   Читать дальше...   )Жанр: Военная история, флотФормат: PDF (True)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB17803ECB092239DF4DC4FC93531B783B53179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509519   (675221) от 12.06.2012
-
-Лев Лукьянов | Тысяча и одна бомба [1978] [DOC, FB2, PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675221.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Тысяча и одна бомба" - научно-сатирическая повесть о том, как во время планового патрульного полета над территорией западной Европы стратегический бомбардировщик Б-52 теряет водородную бомбу мощностью сто мегатонн. Данный инцидент, даёт толчок развитию сюжета «Тысячи и одной бомбы» и  становится источником множества происшествий, меняющих судьбы людей и влияющих на ход политических событий весьма крупного масштаба. В добавок ко всему этому в небе над Европой замечены необычные летательные аппараты - "серебряные стрелы"...1978Формат: DOC, FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF4C3598F91D2DC28A874445D1EFA69464ADD44A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136100   (675067) от 22.05.2017
-
-И. И. Иоффе | Кризис современного искусства (1925) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предисловие:
-
-Настоящая работа представляет собой заключительные доклады двухлетнего необязательного курса социологии искусства, читанного в Коммун. Унив. им. т. Зиновьева.
-(   Читать дальше...   )Жанр: История, политика, социология, искусство, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28548BC09AA48A896119AFA24B00F752493BC28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136243   (675066) от 22.05.2017
-
-В. В. Смушков (ред.) | Общедоступный политический словарь (1925) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675066.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем словаре даются понятия наиболее употребительных социально-экономических и политических терминов. Слова, имеющие значение в общественных науках, не дают исчерпывающего материала.Жанр: История, политология, экономика, социология, словарьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7E961AB5AA9214E425B8E3E9C3288E31A13F68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136226   (675063) от 22.05.2017
-
-Д. Ю. Элькина | Очерки по агитации, пропаганде и внешкольной работе в дореволюционной России (1930) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675063.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Очерки» являются попыткой дать обзор агитации, пропаганды и внешкольной работы в дореволюционное время. Этот обзор разумеется не является исчерпывающим: еще не обработаны архивные материалы и не проделана работа по изучению отдельных этапов для того, чтобы можно было дать полную картину массовой агитационно-пропагандистской и внешкольной работы в прошлом.
-Каждый (   Читать дальше...   )Жанр: История, политология, экономика, искусство, педагогикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395F6A7E0D3B945B55414CF77A8E057D00BB8322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136112   (675061) от 22.05.2017
 
 Вл. Виленский-Сибиряков | Чжан-Цзо-Лин. Маньчжурская проблема (1925) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675061.jpg" />
 </div>
 
 
@@ -168,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675033.jpg" />
 </div>
 
 
@@ -194,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674985.jpg" />
 </div>
 
 
@@ -222,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674909.jpg" />
 </div>
 
 
@@ -251,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674908.jpg" />
 </div>
 
 
@@ -279,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674900.jpg" />
 </div>
 
 
@@ -308,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674895.jpg" />
 </div>
 
 
@@ -336,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674891.jpg" />
 </div>
 
 
@@ -362,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674818.jpg" />
 </div>
 
 
@@ -388,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674814.jpg" />
 </div>
 
 
@@ -414,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674786.jpg" />
 </div>
 
 
@@ -440,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674772.jpg" />
 </div>
 
 
@@ -467,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674765.jpg" />
 </div>
 
 
@@ -493,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674760.jpg" />
 </div>
 
 
@@ -522,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674752.jpg" />
 </div>
 
 
@@ -549,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674730.jpg" />
 </div>
 
 
@@ -575,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674694.jpg" />
 </div>
 
 
@@ -603,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674641.jpg" />
 </div>
 
 
@@ -631,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674638.jpg" />
 </div>
 
 
@@ -658,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674629.jpg" />
 </div>
 
 
@@ -684,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674620.jpg" />
 </div>
 
 
@@ -695,6 +561,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CF6ABC3213CD3503FC3EE056FFB35DB04FAD799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030331   (674576) от 30.06.2016
+
+А.И. Лебединский | Кометы (1945) [DJVU]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-популярная брошюра о кометах и их исследовании.
+Серия "Библиотечка естествознания"Жанр: научно-популярнаяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E113980EF523C50A1F8513B45D477665F7A3855E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536458   (674472) от 12.03.2022
+
+Н.А. Проданова и др. | Бухгалтерский учет на предприятиях малого бизнеса (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674472.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии раскрываются особенности нормативно-правового регулирования деятельности субъектов малого бизнеса, их функционирования, которые влияют как на организацию, так и методологию бухгалтерского учета. Рассматриваются основы ведения бухгалтерского учета на предприятиях малого бизнеса. Подробно описываются особенности ведения учета финансово-хозяйственной деятельности (   Читать дальше...   )Жанр: Бизнес, бухгалтерский учетФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF2F8BCDB5C523E05966C10226B854CB88F4228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536556   (674464) от 12.03.2022
+
+М.Н. Конягина (ред.) | Основы цифровой экономики. Учебник и практикум (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник дает возможность получить комплексные знания об основах цифровой экономики и ключевых аспектах ее развития с учетом анализа основных рынков, функционирующих институтов и проблем регулирования их деятельности.
+Учебник содержит материал об особенностях макро- и микроэкономики в условиях цифровой трансформации, изменениях в промышленности, о применении искусственного (   Читать дальше...   )Жанр: ЭкономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788164D9623481CAF782568375E7ED7F6DD1CF25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536470   (674462) от 12.03.2022
+
+К.Н. Корзов | Основы теоретической физики (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник включает в себя обзор четырех разделов теоретической физики: механика Лагранжа, релятивистская механика, квантовая механика, статистическая физика.
+Учебник предназначен для обучающихся средних профессиональных заведений по специальностям 08.00.00 Техника и технологии строительства, 22.00.00 Технологии материалов, 24.00.00 Авиационная и ракетно-космическая (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F62590A20C6F67B48A8CBC5A9B89F67C6BFF25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029613   (674418) от 30.06.2016
+
+П. В. Копнин | Диалектика, логика, наука (1973) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный сборник статей является второй книгой избранных философских трудов крупного советского философа, действительного члена АН УССР, члена-корреспондента, АН СССР, профессора, доктора философских наук П. В. Копнина. В сборнике рассматриваются: важнейшие проблемы диалектической логики — ленинский; принцип существа диалектики, логики и теории познания, предмет философии, (   Читать дальше...   )Жанр: История, философия, политология, логика, гносеология, науковедение, естествознание, языкознание, лингвистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D73E89C59AF445239AB5F614AA2A9FD865B0E94D
 ```
 
 https://mybot314.ru/tekegram_catalog/

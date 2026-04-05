@@ -6,7 +6,7 @@ NG: Осушение океана: Вторая мировая война / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479308.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Осушение океана: Вторая мировая война / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479185.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478586.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ History Channel: Великая Марсианская война 1913-1917 / Th
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477730.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Бахус. Античный бог экстаза / Bacchus Uncovered: Anc
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477007.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477002.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476815.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC: Сказочный замок короля Людвига II / The Fairytal
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476803.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476674.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ DV: Радость победы / The Joy of Winning (2018) IPTVRip [H.264]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476673.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476664.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NGW: Удивительные слоны (Душа гиганта) / Soul of the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476173.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery: Миссия "Эверест" / Mission Everest [чч. 1, 2] (2007) S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476156.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ PBS Nova: Великая тайна математики / The Great Math Myster
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475606.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC: Мир природы. В мире жуков / Natural World. Beetlemania 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474967.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NG. Загадки истории: Королева-девственница / H
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474196.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BBC: Horizon. Таинственные сигналы из космическо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473514.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ NG: Женщина, воспитанная обезьянами / Woman Raised b
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472919.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NGW: Анаконда. Королева змей / Anaconda. Queen of the serpen
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472881.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NGW: Полчища акул / Shark Swarm (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471923.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ NGW: Дикая природа Шотландии: Высокогорье / Wild
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471914.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Доли
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471795.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471658.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471134.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ BBC. В краю муссонов: Экстравагантные изгои / W
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470979.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470954.jpg" />
 </div>
 
 

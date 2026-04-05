@@ -1,3 +1,29 @@
+###  Публикация: 1287092   (706783) от 05.03.2019
+
+Джама Джурабаев | Введение в 3D концепт дизайн / Intro to 3D Concept Design (2016) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концепт-дизайнер и мэтт-пэйнтер Джама Джурабаев научит вас, как создавать потрясающе сложные концепт проекты с помощью множества техник. Учитесь вместе с профессиональными учениками Джамы, развивая различные 2D и 3D навыки для создания финальных рендеров профессионального уровня.Производство: Learn SquaredЖанр: 3D концепт дизайн, Photoshop, 3D-Coat, KeyShot, MarmosetПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 56:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2971DC12BAAAD2C4052E69439471AC2845488F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131658   (706728) от 06.05.2017
 
 НТВ | Квартирный вопрос (06/05/2017) SATRip
@@ -6,7 +32,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706728.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706316.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706311.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706308.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706305.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Skillbox | Дизайнер промосайтов (2019) CamRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704898.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704881.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Skillbox | Дизайн мобильных приложений с нуля до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704878.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Skillbox | Работа в командной строке Bash (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704874.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Skillbox | Дизайнер сайтов на Tilda (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704869.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Skillbox | Excel + Google Таблицы с нуля до PRO (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704863.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Andrew Gordon | Animation Foundations Gesture (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703276.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703150.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703147.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ Skillbox | Профессия Интернет-маркетолог (2020) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702987.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702956.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702102.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ Allan McKay | FX Technical Director Transformation Module Extras (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701431.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ Allan McKay | FX Technical Director Transformation Module 1 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701414.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ Allan McKay | FX Technical Director Transformation Module 4 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701410.jpg" />
 </div>
 
 
@@ -550,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701407.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Allan McKay | FX Technical Director Transformation Module 2 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701316.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701208.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ ITVDN | ASP.NET WEB API2 (2018) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700919.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ Udemy, Дмитрий Фокеев | Веб дизайн в Figma 2021 - с ну
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700869.jpg" />
 </div>
 
 
@@ -673,32 +699,6 @@ Udemy, Дмитрий Фокеев | Веб дизайн в Figma 2021 - с ну
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:084C90C0A07F4C0701EDEFBD5FE21D2EE306F80D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792390   (699605) от 07.06.2014
-
-School.php | Пошаговое создание сайта от А до Я (для новичков) (2013) [PCRec]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс подготовлен на молодого бойца, отличия от других курсов это полное построение сайт от А до Я. Автор курса Inpost, человек зарекомендовавший как опытный программист в WEB структуре, рассказывает нюансы построения сайта, ошибки часто встречающие. Начинающему и опытным WEB программиста данный курс будет полезен, они найдут для себя очень много полезной информации, (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 89:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD8D6F49EC2080A60DEE99ADE37E44ACDF2A0CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

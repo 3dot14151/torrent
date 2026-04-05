@@ -6,7 +6,7 @@ VA - Echoes of the 1980s (2025) [MP3|320 Kbps] <Pop, Dance, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824150.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bebu Silvetti - 40 Exitos (2008) 2CD [MP3|320 Kbps] <Pop, Disco, Easy Listening>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820743.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Femme - Debutante (2016) [MP3|320 кб/с] <Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819818.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Izabella - Iza (1992) [MP3|320 кб/с] <Pop, Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819660.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Fancy - Bolero The Hit Collection & More (2012) [MP3|320 Kbps] <Disco, Italo-Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818938.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Montmartre - Hope (2016) [MP3|320 кб/с] <Synthpop, Electropop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817948.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Kylie Minogue - DISCO (Super Deluxe Edition) (2020) [MP3|320 Kbps] <Dance-pop, D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817781.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Marc Seaberg - 2 Albums (1979,1980) LP [MP3|320 Kbps] <Electronic, Pop, Disco, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817046.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Easy like Sunday Morning (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816903.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Adriano Celentano [Андриано Челентано] - Greatest Hits (2009) [
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_816746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_816746.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Eva (ex. Neoton Familia) - Midnight (1986) LP [MP3|320 Kbps] <Electronic, Europo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816061.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - NOW Thats What I Call A Massive Party (2021) 4xCD [MP3|320 Kbps] <Pop, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815954.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Kiss Kiss Play Winter 2018 [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815908.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Top 40 Foute Hits The Ultimate Top 40 Collection (2017) 2CD [MP3|320 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815805.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ GooGooSha - GooGooSha (2012) [MP3|320 кб/с] <ElectroPop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815686.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - MUM: The Collection (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815475.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Elton John - The Lockdown Sessions (2021) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813990.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Lana Del Rey - Blue Banisters (2021) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813979.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Charli XCX - how i'm feeling now (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813740.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Bravo 100 Hits – Das Beste Aus 100 Bravo Hits (2018) 5CD [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813520.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - I Am Woman (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813489.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Cybotron - Enter (1983) Reissue CD, Decision Records, 2013 [MP3|320 Kbps] <Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810261.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - WMC Bonzai Progressive (2017) [MP3|320 Kbps] <Dance, Club, Electro>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809288.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - NRJ Spring Hits (2017) 3CD [MP3|320 Kbps] <Pop, Dance, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808913.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Best Of Love Songs (2017) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808286.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Electro Pop 2020 [MP3|320 Kbps] <Electro Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808269.jpg" />
 </div>
 
 

@@ -1,3 +1,133 @@
+###  Публикация: 711491   (409163) от 17.10.2013
+
+Синий зонтик / The Blue Umbrella (2013) BDRip [720p] [EN / EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409163.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о голубом зонтике, который обомлел, увидев красный зонтик. И если их глазам суждено встретиться, то они поймут, что просто созданы друг для друга.Производство: США / Pixar Animation StudiosЖанр: мультфильм, короткометражкаРежиссер: Сашка УнзельдПеревод: Без слов / НемойСубтитры: АнглийскиеПродолжительность: 00:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303BC589BDEF8378A627BFA557CF2F7380CFDD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067092   (409141) от 27.10.2016
+
+Где дракон? / Long zai na li (2015) WEBRip [Line]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая девочка Дженет отправляется в захватывающее, полное опасностей путешествие в загадочную страну, где живут знаки зодиака. Им грозит страшная опасность, ведь силы зла задумали установить там свой порядок. Дженет вместе со своими новыми друзьями: животными, представляющими разные знаки зодиака — должна найти способ спасти мир от надвигающейся беды.Производство: Гонконг, КитайЖанр: МультфильмРежиссер: Синг-Чунг Фу, Бетти ТэнгПеревод: Дублированный (Чистый звук)Продолжительность: 01:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E84610F98B05EF816F2E025F95638C87B4590B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066775   (409139) от 27.10.2016
+
+В поисках Дори / Finding Dory (2016) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дори — синяя доброжелательная рыбка-хирург, страдающая провалами в памяти. Она упорно стремится избавиться от своего недуга и найти свою семью.Производство: СШАЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Эндрю Стэнтон, Энгус МакЛэйнАктеры: Эллен ДеДженерес, Альберт Брукс, Эд О’Нил, Кэйтлин Олсон, Хайден Роуленс, Тай Буррелл, Дайан Китон, Юджин Леви, Слоун Мюррэй, Идрис Эльба.Перевод: Дублированный (iTunes)Язык субтитров: русский (Full), английский (Full, SDH)Продолжительность: 01:37:03Реклама: Реклама отсутствует!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5B1D1EFFF8005999D59D928B89857470846532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559630   (409103) от 12.10.2012
+
+Мадагаскар 3 / Madagascar 3: Europe's Most Wanted (2012) [1080p] BDRip [Вертикальная анаморфная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лев Алекс, зебра Марти, гиппопотамиха Глория и жираф Мелман, а также король Джулиан, Морис, Морт и Пингвины все еще пытаются вернуться в Нью-Йорк. На этот раз их путь пройдет через Европу, где они откроют свой цирк.Производство: США, DreamWorks Animation, Pacific Data Images (PDI), Legend3DЖанр: МультфильмРежиссер: Эрик Дарнелл, Том МакГрат, Конрад ВернонАктеры: Бен Стиллер, Крис Рок, Дэвид Швиммер, Джада Пинкетт Смит, Саша Барон Коэн, Седрик «Развлекатель», Энди Рихтер, Фрэнсис МакДорманд, Брайан Крэнстон, Мартин ШортПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C413CA5BEE47579D95350ABC5D4C8B8C8F3CB4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559354   (409102) от 12.10.2012
+
+Мадагаскар 3 / Madagascar 3: Europe's Most Wanted (2012) DVD9
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лев Алекс, зебра Марти, гиппопотамиха Глория и жираф Мелман, а также король Джулиан, Морис, Морт и Пингвины все еще пытаются вернуться в Нью-Йорк. На этот раз их путь пройдет через Европу, где они откроют свой цирк.Производство: США, DreamWorks Animation / Pacific Data ImagesЖанр: МультфильмРежиссер: Эрик Дарнелл, Том МакГрат, Конрад ВернонПеревод: ДублированныйЯзык субтитров: Русский, английский, украинский, турецкийПродолжительность: 01:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E20093E52FB92F6D99091EB4D77B7F9691E0362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948648   (409048) от 21.10.2015
 
 Головоломка / Inside Out (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
@@ -6,7 +136,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409048.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409023.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409017.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408935.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408501.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408291.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408184.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407784.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407713.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407661.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407640.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407599.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407449.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407384.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407275.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407237.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407169.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407092.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407055.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407024.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407005.jpg" />
 </div>
 
 
@@ -542,138 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:725DEB125155A987F23A5C53D4F3F6A273530EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560539   (406999) от 14.10.2012
-
-Сурогат / Surogat (1961) HDTVRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о мечтах и смысле жизни на примере маленького кусочка жизни рисованных персонажей, о извечном вопросе взаимоотношения полов.Производство: Югославия, студии "Загреб-фильм"Жанр: мультфильм, короткометражка, комедияРежиссер: Душан ВукотичПеревод: Без слов / НемойПродолжительность: 00:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E4CE51DE62D58FEB9DFADB46A62E26A1527535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560467   (406918) от 14.10.2012
-
-Джек и бобовое зернышко / Jack and the Beanstalk (2000) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дела у мальчика Джека и его матушки шли совсем неважно, и тогда Джек решил отвести корову на базар и продать. Но вся выручка, что ему досталась, были лишь три бобовых зернышка. С досады мать Джека выкинула их во двор.
-
-И вот на утро перед домом выросли 3 гигантских бобовых стебля, упирающихся верхушками в облака. Забравшись по стеблям на самый верх, Джек попал в (   Читать дальше...   )Жанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Мартин ГейтсПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3273E9A7125983CB95E2EAB8E2A0E107367B1357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560268   (406840) от 14.10.2012
-
-Мадагаскар 1,2,3 / Madagascar 1,2,3 (2005,2008,2012) [720p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трилогия замечательных, полюбившихся всем мультфильмов. Захватывающие приключения главных героев и секретные вездесущие агенты - пингвины из Мадагаскара не оставят зрителей равнодушными. Приятного просмотра.Производство: СШАЖанр: МультфильмРежиссер: Эрик Дарнелл, Том МакГрат, Конрад ВернонАктеры: Бен Стиллер, Крис Рок, Дэвид Швиммер, Джада Пинкетт Смит, Саша Барон Коэн, Седрик «Развлекатель», Энди Рихтер, Фрэнсис МакДорманд, Брайан Крэнстон, Мартин ШортПеревод: ДублированныйЯзык субтитров: Русский (х2), Украинский (х2), АнглийскийПродолжительность: 01:33:24 + 01:25:58 + 01:29:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21A1EBBEFACA1C5679AC314013D1BE3E8064221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413811   (406701) от 06.10.2020
-
-Тролль: История с хвостом / Troll: The Tale of a Tail (2018) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далеко-далеко, в дремучем лесу есть маленькое королевство троллей. Случилась беда, во время забега сильнейших король Гром попал в капкан и обратился в камень. На трон взошёл его злой брат… Юный принц Трим, сын короля Грома, может спасти своего отца и всё королевство, но для этого он должен отправиться в опасное путешествие в мир людей.Производство: Норвегия, Канада / Sagatoon ASЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Кевин Манро, Кристиан КэмпПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B77D6CBFE0843DBAE98F7F257640ED6D16D353E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413825   (406698) от 06.10.2020
-
-Тролль: История с хвостом / Troll: The Tale of a Tail (2018) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далеко-далеко, в дремучем лесу есть маленькое королевство троллей. Случилась беда, во время забега сильнейших король Гром попал в капкан и обратился в камень. На трон взошёл его злой брат… Юный принц Трим, сын короля Грома, может спасти своего отца и всё королевство, но для этого он должен отправиться в опасное путешествие в мир людей.Производство: Норвегия, Канада / Sagatoon ASЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Кевин Манро, Кристиан КэмпПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9AC94E6E97464982963C26D69FD693468028E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

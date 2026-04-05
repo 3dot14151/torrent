@@ -1,3 +1,32 @@
+###  Публикация: 1620070   (232264) от 19.03.2023
+
+Negative Plane - The Pact... (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Work To Stand A Thousand Years (10:04)
+02. Poison And The Crucifix (08:16)
+03. Three Turns To The West (08:35)
+04. The Wailing Of The Immured (01:47)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDA657204CD3DFB5FA5EB79A664D5EBAD392D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643438   (232260) от 05.07.2023
 
 Demon Project - Demon Project (2023) [MP3|320 Kbps] <Heavy, Power Metal>
@@ -6,7 +35,7 @@ Demon Project - Demon Project (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232260.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Lesath - There is a profound sense in which we are isolated (2023) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232256.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Seizure - Forbidden Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232249.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Accusator - Trial by Fire (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232246.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Skuggor - Skogshypnos (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232242.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Sirrush - Molon Labe (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232241.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Withering Scorn - Prophets Of Demise (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232237.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Prometheo - Stupor Mundi Vol. I (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232235.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Abstractian - Box Of Frogs (Poison) (2021) [MP3|320 Kbps] <Progressive Metal, Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232230.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Eleine - We Shall Remain (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232229.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Signs Preyer - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232227.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ DethOps - Myślonur (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232224.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Marco Ragni - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232220.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ The Kryptik - A Journey to the Darkest Kingdom (2023) [MP3|320 Kbps] <Black Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232217.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Cave In - Until Your Heart Stops (1999) Deluxe Edition, 2023, Relapse Records [F
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232214.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ AmongRuins - Land of the Black Sun (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232210.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Pandrador - Seidr (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232209.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Crawler - Knight Of The Word (2011) [WavPack|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232207.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Houston - Re-Launch III (2023) [FLAC|Lossless|WEB-DL|tracks] <Vintage-Melodic-Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232206.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Maegi - Skies Fall (2013) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232203.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232198.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Marek Arnold's Artrock Project - same (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232190.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Sculforge - Intergalactic Battle Tunes (2023) [MP3|320 Kbps] <Speed Heavy, Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232183.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Eugene Tooms - Exhale and Ride Along (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232181.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Talvienkeli - In A World Full Of Clouds (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232176.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Talvienkeli - In A World Full Of Clouds (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C2DAC4EBFB492B09616B51867D8F8EDD78A502F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622025   (232174) от 27.03.2023
-
-Secret Discovery - Truth, Faith, Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Truth, Faith, Love (00:05:16)
-02 - I Can't Breathe (00:05:06)
-03 - Battleships (00:05:20)
-04 - Nimm mich mit (00:04:41)(   Читать дальше...   )Жанр: Dark Gothic Rock, DarkwaveПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD768A33EED08473B2E390872271B24D95EAAC80
 ```
 
 https://mybot314.ru/tekegram_catalog/

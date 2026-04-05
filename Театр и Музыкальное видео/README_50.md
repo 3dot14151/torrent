@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746871.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746808.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746684.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Nightwish / From Wishes to Eternity (2001) DVDRip [H.264/720p] [Upscale с Machi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746648.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745685.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Judas Priest - Epitaph (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_745638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_745638.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744439.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743522.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Lisa Stansfield - Live In Manchester '2014 DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743458.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Queen - Rock Montreal & Live Aid (1981) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743296.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ John Fogerty - Live at Stagecoach Country Music Festival (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743098.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742154.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741293.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740710.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Lisa Stansfield. Live at Baloise Session (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740685.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739602.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739033.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Lindsey Stirling - Child of Light (2014) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738913.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738308.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738306.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737011.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736391.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Metallica - Seattle (1989) Blu-ray [MPEG-2/1080i] [AI Remastered]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736297.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735848.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ ABBA - Gimme! Gimme! Gimme! (A Man After Midnight) (1979) WEBRip [H.264/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735329.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734727.jpg" />
 </div>
 
 

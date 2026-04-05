@@ -1,135 +1,3 @@
-###  Публикация: 1483338   (1006893) от 13.07.2021
-
-А.С. Скаридов | Морское право РФ (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие представляет собой анализ систематизированных российских источников в области морского права, сопоставляются и оцениваются различные научные доктрины. Оценивается развитие российского морского права в контексте эволюции национальной морской политики. Рассмотрены положения национальных правовых норм, в частности Кодекса торгового мореплавания РФ, Кодекса (   Читать дальше...   )Жанр: Морское право, учебная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C91C0101C3D355E6672DC00E730C54D8FAB2548B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483391   (1006853) от 13.07.2021
-
-Ефим Кирюшин | Вычисления на счетах (1925) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006853.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу настоящего издания были положены 4-й и 5-й выпуски "Вычисления на счетах". Весь материал этих выпусков был подвергнут автором основательному пересмотру и, где надо, переделке. В связи с обязательным введением у нас метрических мер и весов коренным образом изменена глава о мерах. Параграфы с действиями над именованными числами русской системы мер (   Читать дальше...   )Жанр: Учебники и пособияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0F06D9AB6B017198698793EC53CDA87FD3E0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483378   (1006834) от 13.07.2021
-
-П.Дж. Нахин | Красота простой физики (2021) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги берет на себя задачу простыми словами рассказать о физике повседневного мира. В отличие от многих популяризаторов науки, он предлагает читателю не набор разрозненных фактов для запоминания, а ряд оригинальных примеров, требующих аналитического подхода. В чем особенность приливных волн на Луне? Как рассчитать энергию движущейся воды? Можно ли при помощи (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C10DC88404FB7F9B4F345BAFE6D6A7AE8134C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621681   (1006729) от 14.07.2021
-
-А. Бахтиаров | Петербург - столица России (1904) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь высокого города богата глубокого интереса...
-Когда изъ далекой провинціи въ первый разъ прідете въ Петербургъ и очутитесь среди шумныхе улидъ столицы, —она поражаетъ васъ многолюдствомъ, величиною: городъ является чемъ-то необъятнымъ, подавляющимъ своею безконечной сутолокой ...Жанр: Историко - географическийЯзык: Русский (дореформенный)Издательство: «Синодальная типография» (СПб)Формат: PDFКачество: Удовлетворительный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF1D3CBEDF0AE39335EDF5CFEB9970A88154261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483507   (1006721) от 14.07.2021
-
-Оомия Нобумицу | Замечательные научные теории (2021) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Важные научные открытия делают реальностью то, о чём ещё совсем недавно писали фантасты. Какие идеи в науке можно считать прорывными и как они изменили нашу жизнь? В этой книге затрагиваются концепции, принципы и законы, которые стали ключевыми для развития цивилизации и технологий.
-Автор рассказывает о масштабных достижениях учёных - начиная с изобретений древности (   Читать дальше...   )Жанр: Научно-популярная литература, Естественные науки, АстрономияПеревод: К.В. ПавловскаяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9513C0C1C3A07638318F12BFFFB19D9678D38B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483659   (1006613) от 15.07.2021
 
 Пим ван Ломмель | Сознание за пределами жизни. Наука о жизни после смерти (2021) [FB2]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006613.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006478.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006375.jpg" />
 </div>
 
 
@@ -218,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006369.jpg" />
 </div>
 
 
@@ -244,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006338.jpg" />
 </div>
 
 
@@ -272,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006122.jpg" />
 </div>
 
 
@@ -298,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005917.jpg" />
 </div>
 
 
@@ -324,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005896.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005582.jpg" />
 </div>
 
 
@@ -376,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005408.jpg" />
 </div>
 
 
@@ -403,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005372.jpg" />
 </div>
 
 
@@ -430,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005255.jpg" />
 </div>
 
 
@@ -456,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005181.jpg" />
 </div>
 
 
@@ -482,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005058.jpg" />
 </div>
 
 
@@ -510,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004975.jpg" />
 </div>
 
 
@@ -536,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004973.jpg" />
 </div>
 
 
@@ -563,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004786.jpg" />
 </div>
 
 
@@ -589,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004709.jpg" />
 </div>
 
 
@@ -617,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004643.jpg" />
 </div>
 
 
@@ -643,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004607.jpg" />
 </div>
 
 
@@ -669,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004594.jpg" />
 </div>
 
 
@@ -680,6 +548,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3C588524106A23E0DEDD5FB50A43E9D923DC631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486678   (1004581) от 01.08.2021
+
+С.Г. Агаджанов | Очерки истории Огузов и Туркмен средней Азии IX-XIIIв. (1969) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004581.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемой книге исследуется комплекс проблем истории предков туркменского народа. Значительное место в монографии занимают проблемы социально-экономического строя и военно-политической истории огузов и туркмен. Специальная глава монографии посвящена происхождению сельджукидов и сельджукскому движению X—XI вв. Приводится очерк истории государства сырдарьинских (   Читать дальше...   )Жанр: Историография, История ТуркменистанаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F168062EFB244753798DC2B202444C243EF5D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486819   (1004570) от 01.08.2021
+
+Н.А. Дубова (отв. ред.) | Туркмены (2016) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой очередной том энциклопедической этнологической серии «Народы и
+культуры»: обобщает исторические, этнографические, антропологические материалы, собранные и опубликованные до настоящего времени по различным аспектам истории и культуры туркменского народа.
+В книге освещаются история изучения туркменской этнографии, история туркменского народа, (   Читать дальше...   )Жанр: ЭтнологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6940A72D367DBEFCAD2F155DD45983B48DFFA3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486674   (1004551) от 01.08.2021
+
+А.Н. Кононов | Родословная Туркмен (сочинение Абу-л-Гази Хана Хивинского) (1958) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004551.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге излагает биография Абул-л-Гази, дается общая историческая характеристика положения в Хорезме в XVII в., представляется социальный анализ узбекско-туркменских отношений в это время, вырисовывается картина внутренней жизни туркменских племен, излагается история наиболее крупных из этих племен, показывается роль Ирана в событиях описываемого периода и многое (   Читать дальше...   )Жанр: Историография, История ТуркменистанаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E10163EE0E902DB7BE1A77C42A68C408CC8D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349443   (1004490) от 01.01.2020
+
+М.Д. Евтифьев | Огненные крылья. История создания реактивной авиации СССР (2005) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга историка авиации и ракетной техники М.Д. Евтифьева посвящена малоизвестным страницам истории советской реактивной авиации. В ней впервые рассказывается о выдающихся авиаконструкторах, инженерах и испытателях, самоотверженно трудившихся над созданием отечественной реактивной авиации. Книга адресована не только специалистам авиационной и ракетно-космической техники, (   Читать дальше...   )Жанр: Военная история, Военная техникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4BD13EDBC4E148859EF5D58C2FA1FEC955C442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349438   (1004443) от 01.01.2020
+
+С.А. Воробьева, А.В. Киселева | Деловой английский для гостиничного бизнеса (B1) (2019, 5-е изд.) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее учебное пособие предназначено для студентов, владеющих английским языком на уровне Intermediate. Книга составлена на основе оригинальных источников и материалов зарубежной прессы и дает возможность ознакомиться с практикой гостиничного бизнеса и условиями работы на мировом туристическом рынке.Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC06056A456DE025BC73A96B8F5B2FE6A0C60FB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 320523   (754535) от 11.04.2011
+
+Лилии и тюльпаны. От луковицы до цветка / Lily flower production and tulip flower production under protection (2009) DVDRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный рассказ о технологии выращивания лилий и тюльпанов от луковицы до цветка.
+В больших объемах, для экспорта в другие страны, а также для своего рынка. Показана
+овтаматизация производства, продуманая система вырашивания, и серьезный подход к делу сотрудников в этой области производства.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BCF9F02A0D32F846FED82E544057183CEA4E2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523206   (753156) от 10.01.2022
 
 Голос Океана / Fathom (2021) WEB-DL [H.264/1080p]
@@ -6,7 +34,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753156.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752035.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751962.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749853.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749314.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749089.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746554.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746550.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745829.jpg" />
 </div>
 
 
@@ -241,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743733.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ IMAX. Жизнь глубин (На глубине) / Into the Deep (1994) BDRem
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743505.jpg" />
 </div>
 
 
@@ -293,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742351.jpg" />
 </div>
 
 
@@ -319,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742334.jpg" />
 </div>
 
 
@@ -345,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742239.jpg" />
 </div>
 
 
@@ -371,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741805.jpg" />
 </div>
 
 
@@ -397,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741300.jpg" />
 </div>
 
 
@@ -423,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740198.jpg" />
 </div>
 
 
@@ -449,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739104.jpg" />
 </div>
 
 
@@ -475,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739023.jpg" />
 </div>
 
 
@@ -501,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738749.jpg" />
 </div>
 
 
@@ -527,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738414.jpg" />
 </div>
 
 
@@ -553,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738053.jpg" />
 </div>
 
 
@@ -579,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736800.jpg" />
 </div>
 
 
@@ -605,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735836.jpg" />
 </div>
 
 
@@ -631,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732697.jpg" />
 </div>
 
 
@@ -642,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02B7506074F90BB6711A76A99ACDF40A1EEDD473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711232   (732465) от 29.05.2016
-
-Мир коралловых рифов / Alien Reefs (2013) HDTVRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коралловые рифы насчитывают самое большое количество видов среди всех представителей флоры и фауны. Рифы, находящиеся в теплых водах Тихого океана и Карибского бассейна хорошо всем известны, но известно ли вам, что рифы также произрастают и в холодной воде. Образованные айсбергами глубоководные рифы становятся идеальным основанием для образования там кораллов. Скрытые (   Читать дальше...   )Жанр: Документальный, видовой, природаПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BC1E89033230C854A6D074C75B30FD84A0CA708
 ```
 
 https://mybot314.ru/tekegram_catalog/

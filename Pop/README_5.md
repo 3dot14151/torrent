@@ -1,32 +1,3 @@
-###  Публикация: 1840248   (1047148) от 04.12.2025
-
-VA - 70s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kate Bush - Wuthering Heights (3:25)
-02. Blue Swede - Hooked on a Feeling (2:52)
-03. Christopher Cross - Sailing (4:16)
-04. Rod Stewart - Da Ya Think I’m Sexy (5:31)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC049D878A4157CD9A5B62BFEC1F736BD6C4E9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840108   (1046999) от 03.12.2025
 
 VA - 10s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -35,7 +6,7 @@ VA - 10s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046999.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - 00s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046838.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Ed Sheeran - Play (2025) Deluxe, 2025, Atlantic Records UK [FLAC 24/44.1, FLAC 2
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046633.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Madonna - Bedtime Stories – The Untold Chapter (2025) [FLAC 24/96|Lossless|WEB
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046632.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Baccara - Evolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046624.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Thomas Anders - … Sings Modern Talking: Magic the Long Versions (2025) [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046553.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Jessie J - Don't Tease Me With A Good Time (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046500.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Solar Fake - Enjoy Dystopia (2021) 2CD, Deluxe Edition [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046346.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ The Les Humphries Singers - Greatest Hits (1989) Compilation, WEA [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046332.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Les Humphries Singers - The Best Of (2020) Rerecorded, OVC Media [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046252.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046202.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Celine Dion - Falling Into You (1996) Reissue, 2015, Sony Music [OGG Vorbis|480 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046114.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Stevie Wonder - Fulfillingness' First Finale (1974) Reissue, Remastered, 2011, M
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046113.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Mariah Carey - #1's (1999) [OGG Vorbis|480 Kbps] <Hip Hop, Pop, Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046105.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Duran Duran - Astronaut (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046044.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Bee Gees - Mr. NATURAL (1974) SHM-CD, Japanese Edition, Reissue, 2022, Capitol R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046023.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Bee Gees - Living Eyes (1981) SHM-CD, Japanese Edition, Reissue, 2022, Capitol R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046016.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Roxette - Room Service (2001) Unofficial Release, Remaster, 2003, Roxette Record
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045913.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Bee Gees - One (1989) SHM-CD, Japanese Edition, Reissue, 2022, Capitol Records [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045910.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Hurts - Happiness (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Synth-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045835.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045818.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045798.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ VA - Keep It Disco Vol. 06 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045757.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - Mastermix Essential Hits (2022) CD, Compilation [MP3|320 Kbps] <Afrobeats, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045751.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Keep It Disco Vol. 07 (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045748.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Keep It Disco Vol. 07 (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:474FAA844531228CD61330F31E4B27BD7704BFEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603437   (1045736) от 09.01.2023
+
+VA - Bravo Hits Zima 2023 (2022) [MP3|320 Kbps] <Synthpop, Dance, Disco, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanah - Nic dwa razy (W. Szymborska)
+02. twocolors - Heavy Metal Love
+03. Rosa Linn - SNAP
+04. bryska - kraksa(   Читать дальше...   )Жанр: Synthpop, Dance, Disco, ElectropopПродолжительность: 01:54:51 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA385A15686ACCDE3CFED9F828556EDB5D5FFC2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

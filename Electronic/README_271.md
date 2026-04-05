@@ -1,3 +1,119 @@
+###  Публикация: 1048102   (547415) от 01.09.2016
+
+VA - Chill House Del Mar, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boogeyman - I've Got This Secret [09:10]
+02. Chirimoya - Srewdriver [06:11]
+03. Mario Chris - Sun Comes Up [05:19]
+04. Dub Mars - Morning Sessions [05:22](   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812AA8FFC1275EBD44CD802D6144F7873B53F206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048277   (547409) от 01.09.2016
+
+VA - Pure Ibiza - The Ultimate Deep House & Nu Disco Collection (2016) [MP3|320 Kbps] <Deep House, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrey Exx - Touch Me (5:55)
+02. Selda - The Rain (Zenker Club Mix) (4:46)
+03. Zito - Amazing (Zito's HU On The Rocks Mix) (6:20)
+04. Disco Dice - NYC (Mann & Meer Remix) (5:42)(   Читать дальше...   )Производство: Attractive MusicЖанр: Deep House, Nu DiscoПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4CC6B87098BD0980A553006A35A051D92B06DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048283   (547318) от 01.09.2016
+
+Armin van Buuren - Old Skool (2016) Mini Album [MP3|320 Kbps] <Trance, Progressive, Club>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominator (With Human Resource) (2:30)
+02. The Ultimate Seduction (With The Ultimate Seduction) (2:14)
+03. Pull Over (With Speedy J) (2:26)
+04. Quadrophonia (With Quadrophonia) (3:20)(   Читать дальше...   )Производство: Armada Music BundlesЖанр: Trance, Progressive, ClubПродолжительность: 00:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9772F76B29BEBBDF14F1AC0B5F22E482257A39A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916447   (547273) от 01.09.2016
+
+Random Walkers - No.Real.$.K. (2015) [FLAC|Lossless|WEB-DL]<Techno, Tribal, Industrial, Minimal, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transmutation (07:12)
+ 02. Ariadnes Thread (07:10)
+ 03. The Sleep Of Reason (06:54)
+ 04. Distant Ophelia (06:36)(   Читать дальше...   )Жанр: Techno, Tribal, Industrial, Minimal, ExperimentalПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E143324FD4EC0A4D4300D79528724BFB6CD4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048176   (547240) от 01.09.2016
 
 VA - Vintage Cafe - Lounge & Jazz Blends (Special Selection) Vol. 7 (2016) [FLAC|Lossless|tracks] <Lounge,Jazz,Downtempo>
@@ -6,7 +122,7 @@ VA - Vintage Cafe - Lounge & Jazz Blends (Special Selection) Vol. 7 (2016) [FLAC
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547240.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Dance Solution Summer Compilation 2018 [MP3|320 Kbps] <Hard House, Hands Up
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547132.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Pure Salinas Vol.9 [Compiled by DJ Zappi] (2018) [MP3|320 Kbps] <House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547130.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Modd - Phangan Dreams (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547129.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Hoon & Ryuichi Sakamoto - CBL [Cd Baby Love] (2003) WEA Japan [FLAC|Lossless|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547128.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ VA - Beach Grooves Maretimo Vol.1 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547124.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Ryuichi Sakamoto - Henkaku No Seiki — Century Of Reform (2002) WEA Japan [FLAC
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547121.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Masayoshi Fujita - Book Of Life (2018) Erased Tapes Records [FLAC|Lossless|WEB-D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547117.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ Sachiko M + Ryuichi Sakamoto - Snow, Silence, Partially Sunny (2012) Commmons [F
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547112.jpg" />
 </div>
 
 
@@ -263,7 +379,7 @@ Super8 & Tab - Reformation (2018) Armada Music [FLAC|Lossless|WEB-DL|tracks] <Up
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547028.jpg" />
 </div>
 
 
@@ -292,7 +408,7 @@ Steve Allen & Solis & Sean Truby & XiJaro & Pitch + More - Uplift 050 (Six Hour 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547017.jpg" />
 </div>
 
 
@@ -321,7 +437,7 @@ Melodic Mode - Somewhere (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547016.jpg" />
 </div>
 
 
@@ -350,7 +466,7 @@ Xoki - Specular (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Ambient, D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547015.jpg" />
 </div>
 
 
@@ -379,7 +495,7 @@ VA - A State Of Trance Festival 900 (IEC, Kyiv) (2019-06-22)[MP3|192 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546959.jpg" />
 </div>
 
 
@@ -408,7 +524,7 @@ Patience - Dizzy Spells (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop,  Synth-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546891.jpg" />
 </div>
 
 
@@ -437,7 +553,7 @@ VA - 100 Chillout Tunes Vol. 1 - Best of Ibiza Beach House Trance Summer 2019 Ca
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546839.jpg" />
 </div>
 
 
@@ -466,7 +582,7 @@ VA - House Clubhits Megamix 2018.2 [3CD] (2018) [MP3|320 Kbps] <House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546241.jpg" />
 </div>
 
 
@@ -495,7 +611,7 @@ VA - Global Player Ibiza Vol 2 (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546163.jpg" />
 </div>
 
 
@@ -524,7 +640,7 @@ VA - Sexy Summer (2019) [MP3|320 Kbps] <Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546065.jpg" />
 </div>
 
 
@@ -553,7 +669,7 @@ VA - Suanda Ibiza (2016) [MP3|320 Kbps] <Trance, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545861.jpg" />
 </div>
 
 
@@ -582,7 +698,7 @@ VA - The EDM Party (2016) [MP3|320 Kbps] <House, Dutch House, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545809.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ VA - Trance Aliens (2016) [MP3|320 Kbps] <Trance, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545793.jpg" />
 </div>
 
 
@@ -625,122 +741,6 @@ VA - Trance Aliens (2016) [MP3|320 Kbps] <Trance, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF7D77F9A7E278F9D861EFF07F54873CE7A0085A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048877   (545737) от 03.09.2016
-
-VA - Ibiza Deep House Essentials (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grisha - Ti Amo (feat. Marco Locatelli) (Original Mix) [07:26]
-02. Stephan Voorn - Someone Who Needs You (Original Mix) [06:14]
-03. Diggi Chase - Far Away (Original Mix) [04:58]
-04. Cailum Staats - The Music (Original Mix) [04:32](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 05:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F614C382E2B612FB3CD10D49591339355EBA927C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048870   (545644) от 03.09.2016
-
-VHS Glitch - MORAL DECAY (2016) [MP3|320 Kbps] <Synthwave, Dark Synth, Cyberpunk>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glitch.exe
-02. A Beast Unchained
-03. Corrupt System
-04.Warcry(   Читать дальше...   )Жанр: Synthwave, Dark Synth, CyberpunkПродолжительность: 00:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5E45023256032D1BD6DE3E83FBA8153C16B718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238658   (545506) от 31.07.2018
-
-VA - The Best Of Critical State 003 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Active Limbic System - Intrigue (Original Mix)
-02. Asteria - Whaaat (Asteria Radio Edit)
-03. Brian Flinn - Windmill (Original Mix)
-04. Brian Flinn - Lick The Knife (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F22EC605585AD7A6C2048089B497603AC63C397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238668   (545503) от 31.07.2018
-
-VA - Nothing But... The Future of Trance Vol.08 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VictorV - Space Builder (Original Mix)
-02. Katrin's World - Katrin's World (Original Mix)
-03. Gelvetta - Hello China (Original Mix)
-04. Andrey Gaydukov - Lost Sun (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C14675E9C238BEED86D6BC77C325197DD1AE6E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

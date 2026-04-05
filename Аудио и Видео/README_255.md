@@ -6,7 +6,7 @@ VA - The Forest Chill Lounge, Vol. 5 (2014) [AAC|~318 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173739.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The Forest Chill Lounge, Vol. 7 (2015) [AAC|~305 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173733.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Forest Chill Lounge, Vol. 3 (2013) [AAC|~314 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173730.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Forest Chill Lounge, Vol. 10 (2017) [AAC|~314 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173715.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - The Forest Chill Lounge, Vol. 2 (2012) [AAC|~313 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173705.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Astral Projection - In the Mix (2000) [AAC|329-362 kbps] <Goa Trance, Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171720.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Forest Chill Lounge, Vol. 1 (2012) [AAC|~315 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170775.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - A Tribe Called Kotori 1 (2018) [AAC|~330 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170608.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - A Tribe Called Kotori 2 (2018) [AAC|~333 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170591.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - syncmusic - Essentials, Vol. 2 (2017) [AAC|~337 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170583.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - syncmusic - Essentials, Vol. 3 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170572.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - A Tribe Called Kotori 3 (2019) [AAC|~328 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170551.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - syncmusic - Essentials, Vol. 1 (2013) [AAC|~335 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170540.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Calm Winter Sea: Chillout Your Mind (2021) [AAC|~339 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170515.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ David Knopfler - Shooting for the Moon (2021) [AAC|~306 Kbps] <Rock, Folk>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170433.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Deep Purple - Turning to Crime (2021) [AAC|~328 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170425.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169987.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169973.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169970.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sody - real growth takes time (2020) [AAC|~273 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169945.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169906.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169889.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169880.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169876.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169871.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169861.jpg" />
 </div>
 
 

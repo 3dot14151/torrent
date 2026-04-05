@@ -1,3 +1,29 @@
+###  Публикация: 1621275   (240038) от 24.03.2023
+
+Библейские животные / Animals of the Bible (2022) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240038.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Библии присутствует множество разных животных. Наверняка вы уже вспомнили змея или ослика Девы Марии. А вы знали, что в Библии упоминаются газели, львы, киты, скорпионы и прочие "твари земные"? Некоторые животные действительно обитали в Святой земле, другие же удостоились упоминания благодаря своим качествам, которым можно придать символическое значение.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаРежиссер: Фил КоулзПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE651E6152641B91902E389CE1D59CA6B238EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621803   (239632) от 26.03.2023
 
 Сулавеси: Увидеть и сохранить / Sulawesi, expedition au coeur de l'ile mystere (2020) HDTV [H.264/1080i]
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239632.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239281.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239279.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ RTG. Птицы Юго-Запада Сибири (2012) HDTV [H.264/1080i]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239149.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238671.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ NG. Львиная династия / Lion Dynasty (2021) HDTVRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238662.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238510.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238501.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238456.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238439.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238384.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238366.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238364.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237881.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237873.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237773.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237764.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237754.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237719.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237562.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237432.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237334.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237269.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237257.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237206.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67985672AF413E0B023AA4CABA787795447B9F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630464   (237175) от 02.05.2023
-
-Большой Кавказ; Малый Кавказ / The Greater Caucasus; The Lesser Caucasus (2014) HDTVRip [H.264/720p] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кавказские горы образуют мистическую границу между Европой и Азией. Кинорежиссер Генри М. Микс и его съемочная группа провели больше года в Кавказских горах и создали впечатляющий документальный фильм о невероятной природе этой уникальной горной системы, расположенной между Черным и Каспийским морями.Телекомпания: ARTE, Terra Mater, Doclights, NDRЖанр: документальный, природа, фауна, флораРежиссер: Генри МиксПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: 00:49:22 + 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF70DAFE0E0DBD3E2B4869664974DDE5FFFCD8F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

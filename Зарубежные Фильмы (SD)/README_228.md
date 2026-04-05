@@ -1,81 +1,3 @@
-###  Публикация: 663583   (752502) от 01.06.2013
-
-Лангольеры / The Langoliers (1995) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пассажиры самолета, летящего в Бостон из Лос-Анджелеса, попадают в «дыру во времени» и оказываются в ином мире, переживая невероятные приключения. Удастся ли им вернуться назад…Производство: СШАЖанр: Фантастика, Триллер, ДрамаРежиссер: Том ХоллэндАктеры: Патришиа Уэттиг, Дин Стокуэлл, Дэвид Морс, Марк Линдсэй Чэпман, Фрэнки Фэйзон, Бакстер Харрис, Кимбер Риддл, Кристофер Коллет, Кэйт Мэберли, Бронсон ПинчотПеревод: Многоголосый закадровый, Авторский (одноголосый) Юрий ЖивовЯзык субтитров: ОтсутствуютПродолжительность: 02:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A314CB5DAD4BA5BCF3798572A5861CD4195A8B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206117   (752445) от 31.05.2010
-
-Телепорт / Jumper (2008) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток из неблагополучного района Дэвид Райс всегда считал себя обычным парнем, пока однажды он не узнал, что он может телепортироваться с места на место. Новые способности открыли перед ним весь мир. Он может побывать в Нью-Йорке и Токио, посетить античные развалины в Риме, увидеть «крышу мира» с горы Эверест, увидеть 20 рассветов и 20 закатов. И все — в один (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Даг Лайман.Актеры: Хейден Кристенсен, Джэми Белл, Рэйчел Билсон, Дайан Лэйн, Сэмюэл Л. Джексон, Майкл Рукер, Анна-Cофия Робб, Макс Тириот, Джесси Джеймс, Том Хульц и др.Язык субтитров: 1. Русские 2. Английские 3. Комментарии (rus)Продолжительность: 01:28:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206110   (752436) от 31.05.2010
-
-Телепорт / Jumper (2008) [H.264] BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток из неблагополучного района Дэвид Райс всегда считал себя обычным парнем, пока однажды он не узнал, что он может телепортироваться с места на место. Новые способности открыли перед ним весь мир. Он может побывать в Нью-Йорке и Токио, посетить античные развалины в Риме, увидеть «крышу мира» с горы Эверест, увидеть 20 рассветов и 20 закатов. И все — в один (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Даг Лайман.Актеры: Хейден Кристенсен, Джэми Белл, Рэйчел Билсон, Дайан Лэйн, Сэмюэл Л. Джексон, Майкл Рукер, Анна-Cофия Робб, Макс Тириот, Джесси Джеймс, Том Хульц и др.Язык субтитров: 1. Русские 2. АнглийскиеПродолжительность: 01:28:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 206159   (752347) от 31.05.2010
 
 Банды Нью-Йорка / Gangs of New York (2002) [H.264] BDRip
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752347.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751894.jpg" />
 </div>
 
 
@@ -139,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751743.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751633.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751625.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751511.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751499.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751455.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751453.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751443.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751383.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751380.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751377.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751299.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751297.jpg" />
 </div>
 
 
@@ -477,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751294.jpg" />
 </div>
 
 
@@ -503,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751270.jpg" />
 </div>
 
 
@@ -529,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751186.jpg" />
 </div>
 
 
@@ -555,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751182.jpg" />
 </div>
 
 
@@ -581,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751170.jpg" />
 </div>
 
 
@@ -607,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751120.jpg" />
 </div>
 
 
@@ -633,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750986.jpg" />
 </div>
 
 
@@ -659,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750983.jpg" />
 </div>
 
 
@@ -670,6 +592,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:653D8E422271708E53901C54F33F014350EA253B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523279   (750980) от 11.01.2022
+
+Измена / Доверие / Trust (2021) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брук и Оуэн — идеальная, на первый взгляд, пара. Молодые, красивые и успешные — она владеет частной галереей, а он работает телеведущим. Идиллию нарушает появление чертовски соблазнительного художника Ансгара, чьи откровенные картины предстоит продавать Брук. Одна деловая поездка Брук и Ансгара в Париж может изменить всё: между ними нарастает сексуальное напряжение, (   Читать дальше...   )Производство: США / DeCubellis Films, Untravelled WorldsЖанр: Мелодрама, триллер, драмаРежиссер: Брайан ДеКьюбелисАктеры: Виктория Джастис, Мэттью Даддарио, Кэтрин МакНамара, Люсьен Лависконт, Ронни Чиэн, Линдси Броад, Роза Гилмор, Клэр Кэтрин, Хилари Эдсон, Александр БлэйзПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: Русские (forced, full) - отдельноПродолжительность: 01:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC0B0F8952682977C3937F478F61DC2430FF7BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523410   (750978) от 11.01.2022
+
+Проклятие пиковой дамы / Queen of Spades (2021) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за того что мама всё время на работе, 13-летняя Анна проводит много времени со своей бебиситтершей и её приятелями. Однажды компания становится свидетелем страшного случая и после решает проверить правдивость старинной русской легенды о пиковой даме. Ребята уговаривают Анну провести ритуал со свечой и зеркалом, и когда злобная сущность начинает сильно портить (   Читать дальше...   )Производство: Канада / Engine 5 Films, evelFILMЖанр: УжасыРежиссер: Патрик УайтАктеры: Ава Престон, Дэниэл Кэш, Эрик Осборн, Джэми Блох, Кэйлен Ом, Набил Рахо, Криста Маршан, Мишель ЛеБланк, Микаэль Конде, Генри КвоПеревод: Дублированный (Кипарис)Язык озвучки: РусскийСубтитры: Русские (forced) - отдельноПродолжительность: 01:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACC044B52C337D822AC7CDA9EF41D3A0FE303FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523364   (750974) от 11.01.2022
+
+Спенсер / Spencer (2021) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брак принцессы Дианы и принца Чарльза трещит по швам. Злые языки судачат о романе на стороне и прогнозируют развод. Тем не менее, на рождественские праздники в поместье Сандрингем королевская семья изображает мир. Они едят и пьют за одним столом, традиционно выезжают на охоту, но сможет ли Диана продолжать эту игру?Производство: Великобритания, Германия, США, Чили / FABULA, FilmNation Entertainment, First Look Media, Komplizen Film, Shoebox FilmsЖанр: Биография, драма, мелодрамаРежиссер: Пабло ЛарраинАктеры: Кристен Стюарт, Джек Фартинг, Тимоти Сполл, Джек Нилен, Фредди Спрай, Шон Харрис, Стелла Гонет, Рихард Заммель, Элизабет Беррингтон, Лоре СтефанекПеревод: Дублированный (Кириллица)Язык озвучки: РусскийСубтитры: Русские (full) - отдельноПродолжительность: 01:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE24A423C66863122EA031FA4E468F00DAC59CC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

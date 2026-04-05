@@ -1,3 +1,56 @@
+###  Публикация: 765131   (290693) от 17.11.2018
+
+Истории папы Кролика / La Famille Passiflore (2001-2008) (52 серии из 52) SATRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рисованная анимация, Детский, КомедияРежиссер: Эрик Бертье, Moran CaouissinПерсонажи: Четыре брата, сестричка, папа по имени Тимьян и тётя Азалия.Перевод: Многоголосый закадровый, профессиональныйПродолжительность: 52 х ~ 00:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CD0D32F8028D408FEBDB24733B574EC33D3704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181104   (288869) от 23.11.2017
+
+Щенячий патруль / PAW Patrol (2016) WEB-DL [H.264/720p-LQ] (Сезон 3, 26 серий из 26) [UKR, EN]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зик Райдер — озорной десятилетний мальчик, талантливый не по годам. Он отлично разбирается в электронике и технике и умело с ней обращается. Его жизнь насыщена и полна бесстрашных приключений. Вместе с шестью веселыми и храбрыми щенятами он создал отважную команду под названием «Щенячий патруль».
+Сообща они выполняют спасательные миссии: с удовольствием помогают (   Читать дальше...   )Производство: Канада, СШАЖанр: Детский, ПриключенияРежиссер: Кейт ЧепмэнПеревод: ОтсутствуетЯзык озвучки: украинский (дубляж ТК Плюс Плюс), английскийСубтитры: английскиеПродолжительность: 00:23:22 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24BA658DEEEE3AA7BB929D3D7AB8C1BA7888974E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180270   (288746) от 01.11.2019
 
 Симпсоны / The Simpsons (2017) WEB-DLRip (сезон 29, серии 1-21 из 21) [MVO]
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288746.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288737.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287026.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285023.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284014.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283848.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282290.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282057.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280285.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280084.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279796.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279637.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277336.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276618.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276270.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276265.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275900.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275639.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275575.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275493.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274177.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273553.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271732.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271302.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB2D6D6CE2020B219C7DD33FB09EE4867AA88FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266376   (267536) от 05.12.2018
-
-Суперкнига / Superbook (2013) DVD9 (Сезон 1, серии 4-6 из 13)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крис Квантум - обыкновенный школьник из городка Велливью, вот только один из его лучших друзей - робот по имени Робик. А еще у него есть подруга Джой Пеппер. Вот и троица, с которой гарантированы происшествия. Приключения для друзей начались, когда появился загадочный устройство, отправляет их путешествовать по страницам Библии. «Суперкнига» - увлекательный мультипликационный (   Читать дальше...   )Производство: США, The Christian Broadcasting Network, Inc.Жанр: Религия, мультсериал, семейный, история, приключения.Режиссер: Брайан Пол РичардсонПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25727F3147A8FCA893C44573841B3FCF6A2CB82C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266032   (267529) от 05.12.2018
-
-Суперкнига / Superbook (2013) DVD9 (Сезон 1, серии 1-3 из 13)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крис Квантум - обыкновенный школьник из городка Велливью, вот только один из его лучших друзей - робот по имени Робик. А еще у него есть подруга Джой Пеппер. Вот и троица, с которой гарантированы происшествия. Приключения для друзей начались, когда появился загадочный устройство, отправляет их путешествовать по страницам Библии. «Суперкнига» - увлекательный мультипликационный (   Читать дальше...   )Производство: США, The Christian Broadcasting Network, Inc.Жанр: Религия, мультсериал, семейный, история, приключения.Режиссер: Брайан Пол РичардсонПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B8D052611EB6EA7F6F4F590115F6F8186A6E4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

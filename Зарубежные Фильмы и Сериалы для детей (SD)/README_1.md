@@ -1,3 +1,55 @@
+###  Публикация: 973720   (977988) от 10.01.2016
+
+Принцесса для гусей / Die Gänsemagd (2009) DVB
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королева-мать отправляет дочь Елизавету в далёкое королевство, с принцем которого девушка должна обручиться. Принцессу сопровождает её служанка Магдалена. По дороге она принуждает Елизавету поменяться ролями, чтобы обманом выйти замуж за принца Леопольда. А настоящая принцесса вынуждена служить пастушкой гусей...Производство: Германия, Hessischer Rundfunk (HR), KinderfilmЖанр: Семейный, ФэнтезиРежиссер: Сибилла ТафельАктеры: Каролине Херфурт, Флориан Лукас, Сюзанне Борманн, Юлиус Рёмер, Петра Келлинг, Хенри Хюбхен, Рихард ван Вейден, Юле Дорманн, Паулина Рюммеляйн, Катрин ФильценПеревод: Многоголосый закадровыйПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684A8AEA612666F5E0220D09669442E2F5664B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974260   (976877) от 11.01.2016
+
+Девочка из океана / Ocean Girl (1996-1997) IPTVRip (3 сезон, 1-26 из 26)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал о прекрасной Нери, ее друзьях, Джейсоне и Бретте, юных жителях подводной научно-исследовательской станции ОРКА. Нери, девочка из океана — смелая и находчивая, может плавать с необычайной скоростью. Но самая необычная ее способность — телепатически разговаривать и понимать 40-тонного горбатого кита по имени Чарли.Производство: АвстралияЖанр: Фантастика, Фэнтези, Приключения, СемейныйРежиссер: Марк Дефрист, Колин Баддс, Брендан МахерАктеры: Марцена Годецки, Дэвид Хоффлин, Джеффри Уолкер, Алекс Пиндер, Керри АрмстронгПеревод: Многоголосый закадровый (Арк-ТВ по заказу ГТРК "Культура")Субтитры: ОтсутствуютПродолжительность: 00:24:00 х серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B075F693572934564496C5E76086EBA03D79A293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974246   (976874) от 11.01.2016
 
 Девочка из океана / Ocean Girl (1995) DVDRip (2 сезон, 1-13 из 13)
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976874.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976814.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974121.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970955.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970811.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970648.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970439.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969707.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969598.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969564.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968593.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966510.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966049.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965958.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965952.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965495.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965288.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965162.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965044.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963360.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960865.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960864.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956316.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954590.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DCE72DA7D366F28477C8255998C4C8024717D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980923   (954442) от 30.01.2016
-
-Принцесса на горошине / Die Prinzessin auf der Erbse (2010) DVB [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевству грозит катастрофа: жадная и нечестная на руку сестра короля вознамерилась унаследовать трон. Согласно старинному договору, король в свой семидесятый день рождения должен уйти в отставку, чтобы освободить трон для своего сына. Однако для того, чтобы стать королём, молодой принц должен жениться в день своей коронации. До дня рождения короля осталось не (   Читать дальше...   )Производство: Германия, ANTAEUS Film- und Fernsehproduktionsgesellschaft mbH, Rundfunk Berlin-Brandenburg (RBB)Жанр: Фэнтези, СемейныйРежиссер: Бодо ФюрнайзенАктеры: Рик Клостер, Роберт Гвиздек, Айрис Бербен, Михаэль Гвиздек, Давид К. Буннерс, Рената Рихтер, Ульрих Виггерс, Томас Арнольд, Питер Циммерман, Альфонс ЕшеПеревод: Многоголосый закадровыйПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332896A6EFD3E45015B07CCCD0EB715A7E58BE6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856323   (952987) от 08.01.2015
-
-Мэри Поппинс / Mary Poppins (1964) HDRip [h.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейство Бенкс озабоченно поисками няни для своих детей. И как это бывает только в сказке, она появилась прямо из воздуха, прекрасная, ни на кого не похожая. Как раз такая, какую мечтали бы иметь в своем доме всякие любящие родители. У неё не просто цветущий вид. Она непросто лучше всех умеет готовить, ходить по магазинам, одеваться, танцевать и воспитывать детей. (   Читать дальше...   )Жанр: Музыкальный, СемейныйРежиссер: Роберт СтивенсонАктеры: Джули Эндрюс, Дик Ван Дайк, Дэвид Томлинсон, Глинис Джонс, Гермиона Бадделей, Рита Шоу, Карен Дотрис, Мэттью Гарбер, Эльза Ланчестер, Артур Тричер, Реджинальд Оуэн, Эд Винн, Джейн Дарвелл, Артур Мэлет, Марни НиксонПеревод: ДублированныйПродолжительность: 02:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6172D7CA3C1FEC3627B3DBFC3BBE1726CD3AEAEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

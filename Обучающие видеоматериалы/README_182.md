@@ -1,3 +1,29 @@
+###  Публикация: 1632588   (254468) от 10.05.2023
+
+kontentica, Сергей Беляк | Нейросети. Старт (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254468.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЧТО НЕЙРОСЕТИ УЖЕ МОГУТ ДЕЛАТЬ ЗА ТЕБЯ:Производство: kontenticaЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 05:38:09Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04BF3EB9C2138200AB153E4D3D461E9E289FD7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632484   (254464) от 10.05.2023
 
 Network for Everyone (NFE, N4E), Алексей Гусев | Подписка уровня Эксперт (2020-2022) WEB-DL [RU] [Часть 1]
@@ -6,7 +32,7 @@ Network for Everyone (NFE, N4E), Алексей Гусев | Подписка у
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254464.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Thinknetica, Роман Спиридонов | Асинхронный Python: к
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254448.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254447.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254444.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ Network for Everyone (NFE, N4E), Алексей Гусев | Подписка у
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254443.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ n4e.ru | Docker (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254442.jpg" />
 </div>
 
 
@@ -175,7 +201,7 @@ Udemy, Otto Lai | Intro to Geometry Nodes using Blender 3.3 (2022) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254429.jpg" />
 </div>
 
 
@@ -204,7 +230,7 @@ Udemy, Rob Tuytel | Creating 3D Environments in Blender 3.2 (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254410.jpg" />
 </div>
 
 
@@ -231,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254329.jpg" />
 </div>
 
 
@@ -257,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253334.jpg" />
 </div>
 
 
@@ -287,7 +313,7 @@ ProFinansy, Юлия Ченцова | Как инвестировать в Бе�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253073.jpg" />
 </div>
 
 
@@ -313,7 +339,7 @@ ProFinansy, Наталья Котовская | Как инвестироват�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253072.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ ProFinansy, Наталья Котовская, Ольга Гогаладзе | �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253071.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ ProFinansy, Наталья Котовская | Как инвестору сле
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253070.jpg" />
 </div>
 
 
@@ -391,7 +417,7 @@ ProFinansy, Юлия Ченцова | Ошибки инвестора. Как и
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253069.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252784.jpg" />
 </div>
 
 
@@ -443,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252776.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ ProFinansy, Наталья Котовская | Облигации: как бе�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252518.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ plc-edu, Дмитрий Громов | Прикладной курс по АСУ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252502.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ ProFinansy, Наталья Котовская, Юлия Ромашевская |
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252501.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252437.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252432.jpg" />
 </div>
 
 
@@ -599,7 +625,7 @@ Sculpt Art, Александр Спиридонов, Сергей Носолюк
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252339.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252331.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252282.jpg" />
 </div>
 
 
@@ -665,33 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F81A2D33813ACA4BE8B6325257710D4E409C290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836095   (252280) от 08.11.2025
-
-Diodov.net, Дмитрий Забарило | Программирование микроконтроллеров STM32 для начинающих (2024) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный мир электроники уже неразрывно связан с цифровыми устройствами, наиболее яркими представителями которых являются микроконтроллеры (МК).
-И если пару-несколько десятилетий назад можно было быть вполне успешным электронщиком, особо не разбираясь ни в микроконтроллерах, ни в микропроцессорах, то сейчас любой уважающий себя электронщик должен иметь достаточный (   Читать дальше...   )Производство: Diodov.netЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 124:51:43Реклама: наложение на видео и в презентации (плашка спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50700D3F5207B0767709F77504844C7C6C6BFBF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

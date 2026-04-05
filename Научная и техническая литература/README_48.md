@@ -1,137 +1,3 @@
-###  Публикация: 1473541   (1013658) от 29.05.2021
-
-Джеймс Скотт | Против зерна. Глубинная история древнейших государств (2021) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему люди отказались от охоты и собирательства ради оседлой жизни в сообществах, которые были основаны на зерновых культурах и животноводстве и управлялись предшественниками нынешних государств? Большинство из нас уверено, что одомашнивание растений и животных позволило людям окончательно перейти к оседлости и основать жившие сельским хозяйством деревни, города (   Читать дальше...   )Жанр: Всемирная историяПеревод: Ирина ТроцукФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FBEECC0C74EEA0AC8CB558309D60E90D5A3868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473626   (1013519) от 30.05.2021
-
-Матвей Бронштейн | Солнечное вещество и другие повести, а также Жизнь и судьба Матвея Бронштейна и Лидии Чуковской [сборник] (2018) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть книги – легендарные работы выдающегося советского физика Матвея Бронштейна (1906–1938). Увлекательно и доступно он рассказывает о том, почему гелий, являющийся компонентом многих земных минералов, найден был вовсе не на Земле, а на Солнце и какие фантастические изобретения были созданы на пути к ""солнечному веществу"". Как совершенно (   Читать дальше...   )Жанр: Научно-популярная литература, Физика, Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9590AFA95EE09846BC6EA42BDB9FDC015A42233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473731   (1013487) от 30.05.2021
-
-Николай Стяжин | ВСД, панические атаки, неврозы: как сохранить здоровье в современном мире (2021) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вам лучше узнать себя, научиться отделять важное от второстепенного и бороться со своими недостатками. Разумеется, это не пособие по самолечению и не суперуниверсальная панацея от всех невротических расстройств. Это просто полезная книга, которая поможет вам жить спокойнее и понимать – что к чему, зачем и почему.
-
-Но будьте осторожны – в процессе (   Читать дальше...   )Жанр: Неврология, Популярно о медицине, ПсихотерапияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F10FB116E6F4C092DA5E9F6A77BAA91D0D26757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473822   (1013455) от 30.05.2021
-
-Ю.Л. Хотунцев (ред.) | Электротехника [2 части] (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как учебный предмет электротехника занимает значительное место в подготовке учителей физики и технологии. Предлагаемое учебное пособие написано в соответствии с действующей программой по курсу «Электротехника». Оно знакомит будущих учителей с электрическими линейными и нелинейными цепями и приборами. Описаны принципы действия, конструктивные особенности и характеристики (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7ABFD9E4E4BED96D23DC7E4AFAB5B0F645A87B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473974   (1013359) от 31.05.2021
-
-Виктория Салтыкова | История тебя. Восстанови родословную с XVII века (2021) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013359.jpg" />
-</div>
-
-
-###  Подробнее
-
-История рода – это знакомство с собой. За именами и датами наших предков, отголосками их прошлого, о котором многие из нас ничего не знают, стоят целые судьбы с большими и маленькими событиями, которые сложились в пазл нашей собственной жизни.
-
-Эта книга станет вашим помощником в исследовании родословной. Вместе с вами мы проложим маршрут от старенького документа (   Читать дальше...   )Жанр: История, Генеалогия, Научно-популярная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3953B00B0FB9F9C0AA23291726855DF94C20FF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 241971   (1013290) от 31.05.2021
 
 И.Е.Гусев | Современная энциклопедия. Этикет (2000) [DJVU]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013290.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013118.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012965.jpg" />
 </div>
 
 
@@ -218,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012371.jpg" />
 </div>
 
 
@@ -245,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012238.jpg" />
 </div>
 
 
@@ -271,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012213.jpg" />
 </div>
 
 
@@ -297,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012205.jpg" />
 </div>
 
 
@@ -323,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012113.jpg" />
 </div>
 
 
@@ -349,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011961.jpg" />
 </div>
 
 
@@ -375,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011820.jpg" />
 </div>
 
 
@@ -401,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011582.jpg" />
 </div>
 
 
@@ -427,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011480.jpg" />
 </div>
 
 
@@ -453,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011445.jpg" />
 </div>
 
 
@@ -479,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011293.jpg" />
 </div>
 
 
@@ -505,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011253.jpg" />
 </div>
 
 
@@ -533,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011228.jpg" />
 </div>
 
 
@@ -559,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011087.jpg" />
 </div>
 
 
@@ -585,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011076.jpg" />
 </div>
 
 
@@ -611,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011065.jpg" />
 </div>
 
 
@@ -637,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010912.jpg" />
 </div>
 
 
@@ -663,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010770.jpg" />
 </div>
 
 
@@ -674,6 +540,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7689577FC4AD3B1DA1CFCF04943E931D93B10F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478095   (1010647) от 17.06.2021
+
+Г.К. Жуков и др. | Берлинская операция. Сборник воспоминаний (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Берлинская операция стала кульминацией Великой Отечественной войны, ее отсроченным финалом, к которому Советская армия рвалась долгих четыре года. Наша страна заплатила миллионами жизней за то, чтобы над рейхстагом развивался красный флаг.
+Удивительно, но подробности взятия Берлина не очень хорошо известны широкому читателю до сих пор. Есть простой смысловой ряд (   Читать дальше...   )Жанр: Биографии и мемуары, Военная историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F352F7327A5CCB2D01EF7506015E6A1324CDBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478089   (1010645) от 17.06.2021
+
+Борис Соколов | Рейх. История германской империи (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германская империя существовала с 1871 по 1945 г., хотя она и восходит к империи Карла Великого и Священной Римской империи. Созданная волей «железного канцлера» Бисмарка, она объединила разрозненные немецкие земли в сильное государство, которое разбило Францию, захватило ряд колоний. В дальнейшем Третий рейх под руководством Гитлера cмог подчинить себе почти всю (   Читать дальше...   )Жанр: Общая историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D074C9C12A42B93AE08B197C1EE4AE4FC9AD46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478127   (1010609) от 17.06.2021
+
+Александр Прокопович | Курс начинающего автора [5-е издание] (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010609.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Читателям этого знать не надо, но авторы должны отдавать себе отчет, что мастер слова – это нечто большее, чем человек, который написал некую историю. Некую историю раз в жизни может написать любой нормальный человек. Скорее всего, это будет автобиографический текст, и, скорее всего, он будет неплох: ведь если выжать в одну книгу все самое забавное, что было в жизни, (   Читать дальше...   )Жанр: Литературоведение, Руководства, Писательское мастерствоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6B2CF5E0BC48BEE381BCB4B7AAF325E0AB8C52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621266   (1010558) от 17.06.2021
+
+Настольный энциклопедический словарь [8 томов] (1895-1901) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Речь идёт о восьмитомном настольном энциклопедическом словаре товарищества А.Гранат. Уже существовала энциклопедия Брокгауза и Ефрона. Последняя, состоявшая из 82-х томов, не всем была по карману. Компактное и более демократичное издание братьев Гранат изначально предназначалось для средних слоев населения. За 1896-1903 годы вышло шесть стереотипных изданий словаря, (   Читать дальше...   )Жанр: Раритеты, энциклопедический словарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE40406F863853655BBBF6D1198DA32DAD6C0A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458706   (1010461) от 18.06.2021
+
+Ф.Д. Соседко | История 72-го Пехотного Тульского полка (1901) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010461.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге излагается история 72-го Пехотного Тульского полка с 1769 по 1901 год : Сформирование Тульского полка, сражение под Бырладом, сражение при Максимени, Польская война 1792-1794 гг., Италийский и Швейцарский походы 1799 года, война с Наполеоном 1806-1807 гг., сражение под Прейсиш-Эйлау, война со Швецией 1808-1809 гг., Отечественная война 1812 года, поражение (   Читать дальше...   )Жанр: Военная история, раритетФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E4F8CB6D791042BA53BB389E64CF2A7793A800
 ```
 
 https://mybot314.ru/tekegram_catalog/

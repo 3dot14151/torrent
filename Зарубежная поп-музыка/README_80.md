@@ -6,7 +6,7 @@ Ace Of Base - Cruel Summer (1998) Remastered, 2015, Mega Records [MP3|320 кб/�
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148885.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The Ratpack At Christmas (2012) [MP3|320 Kbps] <Jazz, Pop, Folk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148738.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Morning Motivation Pop (2021) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148709.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Adriano Celentano - 20 Greatest Hits (2005) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147978.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Tasty Recordings: Best Of 2018 (2018) [MP3|320 Kbps] <Funk, Soul, Diisco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147638.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147610.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Hit News Vol. 1'96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147468.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Female Pop Ballads (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147457.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Hit News Vol. 2 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147454.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147386.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ James Last - The Best Of Non Stop Dancing (1998) Remastered, Reissue, 2023, Poly
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147298.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - $uper DISCOteka 70s/80s (2015) 5CD [MP3|320 кб/с] <Disco, Pop, Dance, Ba
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146902.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Big Pig - Bonk (1988) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146779.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Big Pig - You Lucky People (1990) [MP3|320 Kbps] <Electronic Pop Rock, Funk, Fem
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146704.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Sarah Brightman - Gala: The Collection (2016) Limited Edition [MP3|320 Kbps] <Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146299.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ KAZKA - NIRVANA (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146098.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Hit News Vol. 3 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145978.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - 110 Hits 2019 (2018) 5CD [MP3|320 Kbps] <Pop, Folk, Indie, Dancehall>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145705.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Falco - Meisterstucke (1995) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145231.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Abba Revival Band - Thank You For The Music (1992) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145070.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - 100 Greatest Workout Songs (2019) [MP3|320 Kbps] <Pop, Rock, EDM>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144863.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - 100 Greatest Ballads (2019) [MP3|320 Kbps] <Pop, Rock, Ballads>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144718.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144553.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Alizee - Remixes (2018) [MP3|320 Kbps] <Deep House, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144267.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Wincent Weiss - Irgendwas gegen die Stille (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144260.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Dalida - 50 De Succese Disco (1978) LP [MP3|320 Kbps] <Pop, Funk-Soul, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144045.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Exposure X7 v7.1.5.197  [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573766.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Color Finale 1.5.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572209.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sketch 3.3.3 AppStore [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571330.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Movavi Photo Focus 1.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568538.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Picture Collage Maker 3.6.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567133.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Redacted 1.2.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567094.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Movavi Photo DeNoise 1.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557576.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Red Giant Magic Bullet Suite 12.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557431.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ LRTimelapse Pro 4.7.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556790.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ CollageIt 3 v3.6.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536578.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ PicGIF 2.0.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536446.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Pano2VR Pro 5.0.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534155.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Nik Complete 5 Collection by DxO v5.0.4 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533542.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ TurboMosaic Pro 3.6.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532037.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Adobe Illustrator CC 2015.3.1 (20.1.0) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530095.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ xScope 4 v4.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527839.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ JPEGmini Pro 2.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526971.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525517.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Nik Complete 5 Collection by DxO v5.0.1 CR2 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521836.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ PowerPhotos 1.9.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519774.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Affinity Photo 1.3.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518286.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Noiseless Pro 1.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516901.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ IconKit 4.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512926.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ PowerPhotos 2.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503817.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.20.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499740.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ SILKYPIX JPEG Photography 10 v10.2.20.0 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499719.jpg" />
 </div>
 
 

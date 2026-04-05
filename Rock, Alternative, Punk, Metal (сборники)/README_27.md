@@ -1,3 +1,235 @@
+###  Публикация: 924981   (542563) от 05.08.2015
+
+VA - Новый Русский Рок Vol.2 (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Светотень - Как снег (feat. Тэм)
+02. Северный Флот - Революция на вылет
+03. Сектор Газовой Атаки - Шабаш
+04. СерьГа - Время готовить костёр(   Читать дальше...   )Жанр: RockПродолжительность: 05:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C15E65574EFAE7D0E532970CC531B0D9BFD92972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239161   (542274) от 03.08.2018
+
+Sheryl Crow - Full Moon Cowgirl (Live Radio Broadcast) (2018) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Cry Anymore (Live)
+02. Leaving Las Vegas (Live Acoustic Session)
+03. Love Is A Good Thing (Live)
+04. Leaving Las Vegas (Live)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160649DAADD8B2AB38E527B0361DC7A30CD85985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925310   (540679) от 06.08.2015
+
+VA - Украинский Рок (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Океан Ельзи - Африка
+02. O.Torvald - Все з початку
+03. Сергей Бабкин - Сокровище
+04. Антитіла - Молоком(   Читать дальше...   )Жанр: RockПродолжительность: 06:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE2DA80B1A19EF15ECC22CE55945824BF2B684D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 837402   (538520) от 07.08.2015
+
+VA - Monster Ballads vol. 01-06(2014-2015) [MP3|320 кб/с]<Hard rock, AOR>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chemia - Hero [00:03:59]
+02. House Of Lords - Another Day From Heaven [00:04:30]
+03. Adam Bomb - You Take Me Away [00:04:31]
+04. H.E.A.T. - The One And Only [00:05:06](   Читать дальше...   )Жанр: Hard rock, AORПродолжительность: 07:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A85DC1730E82E5B4BCB9745639D0093530A1C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050533   (538083) от 08.09.2016
+
+Rod Stewart - Story (2016) (2CD) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Off Dead
+02. Passion
+03. Human
+04. Tear It Up(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656CC71EC2FC9DF6C0BA6E7C39638783E4374FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 227308   (535617) от 16.08.2010
+
+VA - Лучшие ремиксы на песни группы КИНО и Виктора Цоя (2010) [MP3 | 320 kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535617.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В Наших Глазах (Remix 2009) (3:36)
+2. Война (D Max Korovaev remix) (3:11)
+3. Война (3:55)
+4. Восьмиклассница (Neo Romantic) (2:40)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:59:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557082   (535451) от 18.06.2022
+
+Joe Satriani - Collection (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люблю творчество этого гениального гитариста. Его музыка похожа на полёт. Энергетика лёгкая, открытая, но с элементами стратегии. Даже если вы не любите рок музыку, включите например в машине и погромче, и удивитесь насколько легко ваш разум воспримет гитарный драйв. Весь материал взят с фирменных Hi Res изданий. Звучание просто высшее. Сборник лучших композиций (   Читать дальше...   )01. Flying in a Blue Dream
+02. The Mystical Potato Head Groove Thing
+03. Can't Slow Down
+04. Headless(   Читать дальше...   )Жанр: RockПродолжительность: 06:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1662D3D9636092BBE0F2F4DF525E20A5BFC80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312255   (534388) от 03.07.2019
+
+VA - Erozion: Metal Collection (2019) 2CD [MP3|320 Kbps] <Death, Black Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534388.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+001. Autovoid Redemption - My Choice
+002. Brainoil - Preface To Madness
+003. Leo - Hold The Line(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 15:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773F4A39DD32FA328CF62B22491EEAEB7864C570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312303   (534293) от 03.07.2019
 
 VA - Retribution Therapy: Hard Rock Aggregation (2019) [MP3|320 Kbps] <Hard Rock, Alternative>
@@ -6,7 +238,7 @@ VA - Retribution Therapy: Hard Rock Aggregation (2019) [MP3|320 Kbps] <Hard Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534293.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ VA - Conversations With Myself (2016) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532575.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Fair Warning - Beautiful Rock Ballads (Compiled by Виктор31Rus) (2017) [MP
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529465.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ VA - Recursion Abyss: Metal Meeting (2019) [MP3|320 Kbps] <Metall, Power, Black>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528280.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ VA - August Rock Digest (2017) [MP3|192-320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526382.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Robert Plant - The voice of Led Zeppelin (Essential Collection) (2014) [MP3|265-
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523892.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523345.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ VA - Легенды Нашего Рока (2015) [MP3|278-320 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523089.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Tumbleweed Wanderers - Collection (2012 - 2015) [MP3|320 кб/с]<Classic Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522537.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Rock Ballads - New Collection (3CD) (2000 - 2010) [MP3|320 кб/с]<Rock, Art Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522414.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ VA - Brinstone Sorcery: Metal Compilation (2019) 2CD [MP3|320 Kbps] <Metal, Powe
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522319.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Axel Rudi Pell - Greatest Hits (2019) 2CD, Compilation [MP3|320 Kbps] <Heavy Met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522178.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ VA - Destroy Order: Hard Rock Symphony (2018) [MP3|320 Kbps] <Hard Rock, Alterna
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522087.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Family Of The Year - Collection (2010 - 2015) [MP3|320 кб/с]<Alternative, Ind
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521753.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ VA - Tree Of Life: Rock Digest June (2019) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521419.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Rock Ballads - Collection (7CD) (1991-1997) [MP3|320 кб/с]<Rock, Art Rock, So
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521371.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ VA - Лучшие хиты НАШЕ РАДИО-3 (2010) [MP3|128 kbps]<pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521299.jpg" />
 </div>
 
 
@@ -496,7 +728,7 @@ VA - Sin Compromiso: Indie Punk Rock (2019) [MP3|320 Kbps] <Indi, Punk Rock, Alt
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513898.jpg" />
 </div>
 
 
@@ -510,244 +742,6 @@ VA - Sin Compromiso: Indie Punk Rock (2019) [MP3|320 Kbps] <Indi, Punk Rock, Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86D3408D1DA002118115A1AE9D1B60C8A47F9B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314797   (513810) от 19.07.2019
-
-VA - Punk Rock Favourites (2019) [MP3|320 Kbps] <Punk Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513810.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angel Du$t - Big Ass Love
-002. As We Go - City
-003. Be Still - Not Into You
-004. Better Than Never - Sharks(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 08:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9DEA4FE9D02D44A50F29C8B035B5AB7106C673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 230025   (511859) от 28.08.2010
-
-VA - Наше радио - Чартова дюжина ТОП-13  (24.08.2010)  [MP3|320 kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Серьга - Валера ты где?
-02. АлисА - Работа
-03. Музыкальный коллектив Петра На - Баба Люба
-04. Король и Шут - Фокусник
-05. Найк Борзов - Тени и мерцания
-06. Вася Обламов - Еду в Магадан
-07. Илья Чёрт и The Stokes - По плану
-08. Тайм Аут - Ночь Луна
-09. Ю-Питер/В.Бутусов - Дети минут
-10. F.P.G. - Ночь(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315876   (510837) от 22.07.2019
-
-VA - Soft Rock Ballad (2019) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gram Parsons - Love Hurts
-02. Robert Plant - Big Log
-03. Andrew Gold - Never Let Her Slip Away
-04. Ambrosia - Biggest Part Of Me(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 04:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00786195C183BD05A6368051A407642C93ECBB4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316194   (507755) от 24.07.2019
-
-VA - Lost Magic Alchemy (2019) [MP3|320 Kbps] <Hardcore, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507755.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ghost - Faith
-002. Angel Of Damnation - Gospel Of The Serpent
-003. Dedpool - Bacteria
-004. Aburden - Don't Say(   Читать дальше...   )Жанр: Hardcore, MetalПродолжительность: 10:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19EC04E649EDF19DFD628285B7DC4BBB6CC35A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933336   (506064) от 01.09.2015
-
-VA - Rock Collection 1982 (2015) [MP3|320 кб/с]<Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1Жанр: Rock, MetalПродолжительность: 01:13:41
-
-01. Girlschool - Screaming Blue Murder
-02. Aerosmith - Lightning Strikes(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC5547B379D5BA147FA224F5A0DE5BCB2A57292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933329   (506011) от 01.09.2015
-
-VA - Rock Collection 1983 (2015) [MP3|320 кб/с]<Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1Жанр: Rock, MetalПродолжительность: 01:14:22
-
-01. Journey - Chain Reaction
-02. Europe - Memories(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C2B897FB86243870C03C3DCFD737C05A5DC789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933422   (505999) от 01.09.2015
-
-VA - Рок-Весна (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ДДТ – Весна
-02. Мумий тролль - Новая луна апреля
-03. ПилОт - Девочка весна
-04. Кино – Весна(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6BA391633A28DB98F4CA54B2C8A9F7225301F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316537   (505805) от 26.07.2019
-
-Nirvana - Come As You Are (2019) (Compilation) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smells Like Teen Spirit
-02. The Man Who Sold The World
-03. Come As You Are
-04. About A Girl(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4450EDF9F56CB9B50E21FBE351D22A2EBE251262
 ```
 
 https://mybot314.ru/tekegram_catalog/

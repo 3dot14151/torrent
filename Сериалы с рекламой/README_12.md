@@ -1,3 +1,55 @@
+###  Публикация: 945070   (731263) от 30.05.2016
+
+Стрела / Arrow (2015-2016) WEB-DLRip (сезон 4, серии 1-23 из 23) NewStudio [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731263.jpg" />
+</div>
+
+
+###  Подробнее
+
+После кораблекрушения плейбой миллиардер Оливер Куин пропадает и считается погибшим в течение пяти лет, после чего его обнаруживают живым на затерянном острове в Тихом океане. Когда он возвращается домой в Старлинг-Сити, его преданная мать Мойра, столь любимая сестра Теа и лучший друг Томми приветствуют его дома, но они видят, что Оливер изменился после испытаний (   Читать дальше...   )Производство: США / Berlanti Productions, DC Entertainment, Warner Bros. TelevisionЖанр: фантастика, боевик, драма, криминал, детектив, приключенияРежиссер: Джеймс Бэмфорд, Джон Беринг, Глен ВинтерАктеры: Стивен Амелл, Кэти Кэссиди, Уилла Холлэнд, Дэвид Рэмси, Пол Блекторн, Эмили Бетт Рикардс, Джон Барроумен, Колтон Хэйнс, Сюзанна Томпсон и др.Перевод: Многоголосый профессиональный - NewStudioЯзык озвучки: Русский, английскийПродолжительность: ~00:42:00 серияРеклама: присутствуют вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F43D1E9403D39CE9E3BE1515103DD424C1AB5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127100   (730486) от 22.04.2017
+
+Человек в высоком замке / The Man in the High Castle (2016) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Германия и Япония выиграли Вторую мировую. Америка разделена пополам между победителями, но, разумеется, спустя много лет после поражения (действие разворачивается в 1962-м) сознательные американцы организуют глубоко засекреченное подполье. Занимаются повстанцы в основном распространением странной кинохроники, на которой показана победа в войне союзнических войск. (   Читать дальше...   )Производство: США / Amazon Studios, Electric Shepherd Productions, Headline PicturesЖанр: фантастика, триллер, драмаРежиссер: Дэниэл Персивал, Карин Кусама, Брэд АндерсонАктеры: Алекса Давалос, Руперт Эванс, Люк Клеинтенк, DJ Куоллс, Джоэль де ла Фуэнте, Кэри-Хироюки Тагава, Руфус Сьюэлл, Ли Шортен, Чела Хорсдэл, Арнольд Чун и др.Перевод: Многоголосый закадровый, профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английские, английские (SDH)Продолжительность: ~01:00:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D2BE6193E3C888D4145032A3F7DEFD43270928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184871   (730421) от 19.02.2019
 
 Ответный удар: Возмездие / Strike back: Retribution (2017) HDTV [H.264/720p-LQ] (сезон 6, серии 1-10 из 10) BaibaKo [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730421.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729500.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728414.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727297.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727295.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726302.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726122.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725736.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724081.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723941.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723939.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723831.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722551.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722283.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720931.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720817.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720731.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720208.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718860.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718631.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717875.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717861.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716262.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715743.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4805360D9FF0998354CD82D00780B16AA5C703AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398135   (712849) от 08.08.2020
-
-Голова / The Head (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международная антарктическая исследовательская станция. Во время длительной полярной ночи учёным из разных стран предстоит столкнуться не только с культурными различиями, но и с неким неведомым ужасом.Производство: Испания / HBO AsiaЖанр: триллер, детективРежиссер: Хорхе С. ДорадоАктеры: Сандра Андреис, Лаура Бах, Джон Линч, Альваро Морте, Крис Райлли, Рихард Заммель и др.Перевод: Двуголосый профессиональный (ViruseProject)Субтитры: русскиеПродолжительность: ~00:50:00 серияРеклама: присутствуют вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A192BCDE61EF27A2A313E810C29B0D174AF06D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275648   (712407) от 02.03.2019
-
-Смерть в раю / Death in Paradise (2019) WEBRip (сезон 8, серии 1-8 из 8) Coldfilm [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712407.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущих сериях инспектора Лондонского управления полиции Джека Муни ждут новые расследования, а верный напарник Дуэйн Майерс покинет его. На замену Дуэйну придет женщина - племянница комиссара Паттерсона.Производство: Великобритания, ФранцияЖанр: триллер, драма, криминал, детективРежиссер: Стюарт СвасандАктеры: Элизабет Буржин, Дон Уоррингтон, Джозефина Жобер, Тоби Бакаре, Ардал О’Хэнлон, Эндрю Тирнан, Дайвин Хенри, Роберт Джеймс-Колльер и др.Перевод: Многоголосый закадровый, любительский-ColdfilmПродолжительность: ~00:57:00 серияРеклама: присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6904110F09F058C77E9DD181BC8B08A00B91502
 ```
 
 https://mybot314.ru/tekegram_catalog/

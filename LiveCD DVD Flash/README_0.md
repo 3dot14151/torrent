@@ -6,7 +6,7 @@
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787905.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Active@ Boot Disk (LiveCD) 10.5.0 RePack by WYLEK (x64) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785485.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762446.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ RusLive 2020.07.07 [Ru/En] (обновляемая авторская разда
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759953.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ AdminPE 4.4++ (RC) (09.08.2020) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738609.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710140.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Ultimate Boot CD 5.3.9 [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689858.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Win10PE-2018 xlx (by xalex) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688836.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ BootPass 4.2.8 Full Native [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676733.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ AdminPE10 2.3 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577510.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Windows 10 PE SE x86 - Acronis 3 in 1 v1 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533783.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487183.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ RusLiveFull by NIKZZZZ CD/DVD (24.09.2015) [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459353.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Acronis BootCD 10PE x86/x64 by naifle (26.09.2018) [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426122.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Hiren's BootCD Pro 2.3 [Русский / Английский]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_423194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_423194.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Live CD7+XP (Seven+Kompact) x86 Update 17.10.2012 [Русский]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405121.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400636.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396500.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396497.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Hiren's Boot CD 15.1 Rebuild by DLC v.2.0 [Английский]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_393362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_393362.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Windows 8 PE (x86/x64) EFI compact by Xemom1 01.11.16 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377470.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Windows 8.1 PE (x64) v.3.5 by Ratiborus [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338823.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Rescue USB 16 Gb (BuTaJ1 Edition) 3.4
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316161.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ WinPE 11-10 Sergei Strelec (x64) 2025.11.19 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257718.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ LEX LIVE 10 v.26.0.17 RC [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255625.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Windows 10 PE (x64) by Ratiborus v.6.2023 [Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254564.jpg" />
 </div>
 
 

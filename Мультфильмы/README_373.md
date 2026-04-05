@@ -1,3 +1,133 @@
+###  Публикация: 485694   (89580) от 20.04.2012
+
+Кто получит ананас? (1978) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тигренок шел в гости к слоненку и нес в подарок ананас, но хитрая обезъяна выманила и съела угощение.Жанр: Детский, Рисованная анимацияРежиссер: Елена БариноваПерсонажи: Андрей Игнатенко, Л. ДзюбПродолжительность: 00:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76402FF340461B9DE8310774CEED79ADEF68B3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485248   (89554) от 19.04.2012
+
+Легенда о Костоломе / Legend of the Boneknapper Dragon (2010) [720p] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иккинг и юные Викинги отправляются в путешествие со своим наставником Плевакой, чтобы помочь ему победить своего заклятого врага - легендарного дракона Костолома.Жанр: мультфильм,Режиссер: Джон ПуглисиАктеры: Джей Барушель, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, ТиДжей Миллер, Кристофер Минц-Плассе, Кристен Уиг, Джон Ди Маджио, Кевин Майкл РичардсонПеревод: Многоголосый закадровыйПродолжительность: 00:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE309C54CCE929360F264E7CC3B08AE8E869624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485009   (89543) от 19.04.2012
+
+Чип и Дейл спешат на помощь / Chip 'n Dale Rescue Rangers (1989-1992) SATRip (1 канал)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый мультсериал Уолта Диснея о захватывающих приключениях отважных спасателей - Чипа, Дэйла, Рокфора, Гайки и Вжика, которые всегда готовы отправиться навстречу неожиданным опастностям и невероятным приключениям лишь бы помочь в беде.Жанр: Рисованная анимация, Детский, ПриключенияРежиссер: Кори Бартон, Питэр Каллэн, Джим Каммингс и другиеПерсонажи: Чип, Дейл, Рокфор, Гайка, Вжик и другиеПеревод: Профессиональный (дублированный): Останкино 1991 (1-23, 25-53) + Невафильм (24, 54-65).Продолжительность: ~ 22:04:00 (65 серий)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB9C7B3E91E1CA62E0492BFD7997E90B5236F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484667   (89222) от 18.04.2012
+
+Ивашко и Баба-Яга (1938) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационный фильм для детей по мотивам русской народной сказки. Баба-Яга похитила Ивашку, который рыбачил на озере, и собралась его зажарить и съесть, но хитрый мальчик усадил вместо себя на печную лопату злого ворона. Гуси-лебеди, благодарные за спасение птенца, отнесли его домой на радость бабе с дедом, дождавшимся внука.Жанр: Детский, Рисованная анимацияРежиссер: Валентина Брумберг, Зинаида БрумбергПерсонажи: Осип Абдулов, Людмила КореневаПродолжительность: 00:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DACA425966D068CC1C997ECECFB0F48E1D8843F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484075   (88932) от 16.04.2012
+
+Легенды и мифы древней Греции (1969-1995) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник мультфильмов, производства киностудии «Союзмультфильм», снятые по мотивам легенд и мифов Древней Греции.Жанр: Детский, Для взрослых, Рисованная анимацияРежиссер: Анатолий ПетровПродолжительность: 00:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29CFF68DE5B49818B62D62AD615986B3204CC226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483398   (88919) от 16.04.2012
 
 Красавица и чудовище (3D) / Beauty and the Beast (3D) 1991 [1080p] BDRip [Горизонтальная анаморфная стереопара]
@@ -6,7 +136,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88919.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88437.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88370.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88093.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87874.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87829.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87696.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87648.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87619.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87252.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86904.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86857.jpg" />
 </div>
 
 
@@ -323,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86813.jpg" />
 </div>
 
 
@@ -349,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86763.jpg" />
 </div>
 
 
@@ -377,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86756.jpg" />
 </div>
 
 
@@ -403,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86750.jpg" />
 </div>
 
 
@@ -429,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86529.jpg" />
 </div>
 
 
@@ -455,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86431.jpg" />
 </div>
 
 
@@ -482,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86199.jpg" />
 </div>
 
 
@@ -511,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86177.jpg" />
 </div>
 
 
@@ -537,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86077.jpg" />
 </div>
 
 
@@ -548,141 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:316FF6AF13B7087C3E9A76E2D39F78DA09E038C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477098   (85982) от 02.04.2012
-
-Глаз бури / Eye of the Storm (2011) HDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще одна отличная, короткометражная анимация в духе стимпанк, снятая известной студией "Oddball Animation". Удивительный клип режиссера Кристофера Алендера на меланхоличную песню музканта Lovett под названием «Eye of the Storm».
-По словам Lovett вдохновением для этого анимированного клипа на тему фэнтэзи стали отношения между людьми и то, как сложно порой (   Читать дальше...   )Производство: Австралия, СШАЖанр: короткометражка, драма, мелодрамаРежиссер: Кристофер АлендерПеревод: Без перевода / Не требуется (музыкальное сопровождение, речь отсутствует)Продолжительность: 00:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C4288CAC118664B81CAD3400826F1789779ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474699   (85730) от 01.04.2012
-
-Новая школа императора / The Emperor's New School (2006) TVRip (1 сезон, серии 20 из 20)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Император Кузко знакомый всем по фильму «Новое обличие императора» продолжает свое шоу, на этот раз действия разварачиваются в школе…. ведь для того чтобы управлять государством нужны твердые знания, и если Кузко их не получит он не станет императорам и как обычно ему хочет помешать завоевать по праву принадлежащий ему трон «наша» старая знакомая колдунья Изма.Жанр: Фэнтези, Комедия, Приключения, Семейный, МультфильмРежиссер: Хови Паркинс / Howy ParkinsПерсонажи: Жан-Поль Ману, Патрик Варбертон, Кертис Армстронг, Боб Берген, Фред Татаскьор, Эрта Китт, Джастин Кауден, Гэбриел Иглесиас, Джессика Ди Чикко, Рип ТейлорПеревод: Дублированный (1 канал)Продолжительность: 20 серий по ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FE65FCA6235C9C34F9DD063249E8946EAABA91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474681   (85125) от 29.03.2012
-
-9,99 долларов / $9.99 (2008)  [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85125.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вы когда-нибудь задавались вопросом, в чем смысл жизни? Теперь вы можете получить ответы на все волнующие вас вопросы,
- заказав красочный буклет всего лишь за $9,99». Это объявление меняет жизнь безработного Дэйва Пека,
- проживающего с отцом и братом в многоквартирном доме. Стремясь поделиться своим открытием с миром,
- Дэйв знакомится с другими обитателями дома, людьми (   Читать дальше...   )Жанр: Для взрослыхРежиссер: Татья РозентальПеревод: Многоголосый закадровыйСубтитры: Вшитые - русский (перевод Сhedap), русский (перевод T.S.Eliot с Феникс-клуба), английскийПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:103F86481AC2F2BFBAFAB85940B77EC5EA7E74AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475287   (85079) от 29.03.2012
-
-Хезарфен / Турецкий Икар / Hezarfen (2010)  HDTVRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хезарфен - историческая турецкая личность. События происходят в 1632 году в Стамбуле, где он и совершит попытку первого полета человека.Жанр: Комедия, Приключения, КороткометражныйРежиссер: Толга Ари, Ромен Бланше, Чанг Ю Хуанг, Реми Харлин (Tolga Ari, Romain Blanchet, Chang Yu Huang, Rémy Hurlin)Перевод: Без слов / НемойПродолжительность: 00:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1033917ED64288A3B2C3A8151747F879242429E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473293   (84585) от 26.03.2012
-
-Вальс с Баширом / Vals Im Bashir / Waltz with Bashir (2008) BDRip [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый полнометражный документальный мультфильм – глубоко личная работа израильского режиссера Ари Фольмана. Друг автора страдает от ночных кошмаров, связанных с 1980-ми годами, когда оба они были юными солдатами израильской армии.
-Сам Фольман понимает, что из его памяти выпали большие куски воспоминаний о том времени. Он начинает разыскивать друзей и сослуживцев, (   Читать дальше...   )Производство: США, Германия, Финляндия, Франция, Швейцария, Австралия, Бельгия, ИзраильЖанр: Военный, драма, исторический, анимационныйРежиссер: Ари ФольманПерсонажи: Рон Бен-Ишай, Ронни Даяг, Ари Фольман, Shmuel Frenkel, Дрор Харази, Ехезкель Лазаров, Мики Леон, Ори Сиван, Захава СоломонПеревод: Профессиональный MVO (лицензия, Кино без Границ)Язык субтитров: Русские (3 вида), английскиеПродолжительность: 01:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40841F7BEA870325B074753529963F25AFEFB9BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

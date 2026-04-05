@@ -1,3 +1,55 @@
+###  Публикация: 1791650   (21446) от 14.04.2025
+
+Лишь один взгляд / Tylko jedno spojrzenie / Just One Look (2025) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще во вполне юном возрасте Грета отправилась на концерт, где случился пожар. ЧП привело к тому, что девушка потеряла память – толком выступление она не помнит. Сейчас Грета счастлива в браке, у нее трое детей и любящий муж. Все изменилось после проявки фото с отдыха, среди которых оказался явно «чужой» снимок. Увидев его, супруг тут же сбежал из дома. Что произошло (   Читать дальше...   )Производство: Польша / ATM Grupa S.A.Жанр: триллер, драма, криминал, детективРежиссер: Марек Лехкий, Monika FilipowiczАктеры: Мария Дембска, Цезары Лукашевич, Marta Malikowska, Мирослав Зброевич, Миросляв Ханишевский, Kalina Górzynska, Maksymilian Stuchlik, Моника Кживковская, Пётр Страмовский, Анджей Зелиньски и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1C3A310FE582CBC3E812AD1A38392919F681FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791665   (21428) от 14.04.2025
+
+Бунтари / Les Revoltes (2023) WEBRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элеонора и Джейкоб - молодые адвокат с принципами и журналист-расследователь - объединяют усилия для обличения недостатков государственных институтов. Борясь с бюрократическим абсурдом, Элеонора и Джейкоб расследуют дела и помогают отчаявшимся людям обрести справедливость.Производство: Канада / Aetios ProductionЖанр: драмаРежиссер: Луи ШокеттАктеры: Сара-Джинн Лабросс, Пьер-Люк Фанк, Родни Александр, Джозеф Антаки, Nelson Coronado, Милен Маккэй, Луи Филипп Дандено, Мари-Ив Борежар, Тетчена Белланж, Randy Simons и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A2220F0FEA14C7C944CD12EFA09F642A9AE91E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784420   (21172) от 17.04.2025
 
 Сорвиголова: Рожденный заново / Daredevil: Born Again (2025) WEBRip (сезон 1, серии 1-9 из 9) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21172.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20898.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19423.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19421.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19410.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19402.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19372.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19370.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19363.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19354.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19344.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19341.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19340.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19302.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19068.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18719.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18705.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18497.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18494.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18428.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18416.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18382.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18379.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18343.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5487E9BF1595D9190A05D26D323A1538ACA9E2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796943   (18320) от 14.05.2025
-
-Вирдэ / Virdee (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив-сикх Гарри Вирдэ расследует похищение подростка Атика Фаруки, связанного с преступной группировкой Брэдфорда. Чтобы найти мальчика, он вынужден обратиться за помощью к шурину Ризе — главе крупнейшего наркокартеля в округе. Вскоре в городе происходит серия жестоких убийств, и все указывает на то, что маньяк нацелился уничтожить азиатскую общину. На фоне разгорающейся (   Читать дальше...   )Производство: Великобритания / Magical Society, British Broadcasting Corporation (BBC), Yorkshire Content FundЖанр: драма, криминал, детективРежиссер: Милад Алами, Мо Али, Марк ТондерайАктеры: Стаз Нэйр, Элизабет Беррингтон, Айша Кала, Викаш Баи, Нина Сингх, Кулвиндер Гир, Томи Мэй, Hussina Raja, Andi Jashy, Рамон Тикарам и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0ABEA121B2F1FF0A3BD51753B69167080CE76FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797303   (18237) от 15.05.2025
-
-Рокко Скьявоне / Rocco Schiavone (2025) WEBRip [H.264/1080p] (сезон 6, серии 1-4 из 4) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рокко Скьявоне, любитель травки и не самый уравновешенный заместитель комиссара полиции, по дисциплинарным причинам был переведен в альпийский город Аоста вдали от его любимого Рима. Рокко презирает горы, холод и провинциальных местных жителей так же, как он презирает своих начальников и их глупые правила. Но он любит раскрывать преступления.Производство: Италия / Cross Production, Rai FictionЖанр: триллер, криминалРежиссер: Симон Спада, Микеле Соави, Джулио Манфредония и др.Актеры: Марко Джаллини, Эрнесто Д’Ардженио, Франческо Аквароли, Кристиан Джинепро, Массимилиано Капрара, Филиппо Дини, Массимо Ольчезе, Gino Nardella, Claudia Vismara, Массимо Реале и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362DE6D1E4D9103A0905AD3D044CB53E20BBF99F
 ```
 
 https://mybot314.ru/tekegram_catalog/

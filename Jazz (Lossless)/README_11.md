@@ -6,7 +6,7 @@ Marbin - Russian Dolls (2020) [FLAC|Lossless|WEB-DL|tracks] <Fusion,Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029576.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fats Waller - 1934 - 1935 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029392.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Willie "The Lion" Smith - 1925 - 1937 (1992) Classics [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029391.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Django Reinhardt - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gy
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029229.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Silje Nergaard - Japanese Blue (Acoustic Version) (2020) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029095.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Keiko Matsui - Euphoria (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029085.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Coleman Hawkins - 1929 - 1934 (1991) Classics [FLAC|Lossless|tracks + .cue] <Ear
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029075.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Red Nichols - 1930 - 1931 (2008) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028569.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ricky Ford - Ebony Rhapsody (1990) Candid [FLAC|Lossless|tracks + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028384.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ella Fitzgerald & Louis Armstrong - Together (1956 - 1957) 2CD, 2009, Not Now Mu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028236.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Jazz Dictionary F (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028234.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Red Heads - 1925 - 1927 (2002) Classics [FLAC|Lossless|tracks + .cue] <Dixie
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028103.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Cristina Branco - Eva (2020) [WavPack|Lossless|image + .cue] <Fado, Tango>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027764.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Dakota Staton - The Complete Early Years (1955 - 1958) 2CD, 2019, Acrobat [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027413.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Angelo Comincini - Misteri Architettonici (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027233.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Willie ''The Lion'' Smith - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027115.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Bud Powell - How High The Moon (1992) Pigeon [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027114.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Willie ''The Lion'' Smith - 1950 - 1953 (2005) Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026977.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Singing With The Stars (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026901.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Singing With The Stars Vol.2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026882.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mezz Mezzrow - 1944 - 1945 (1999) Classics [FLAC|Lossless|image + .cue] <Dixiela
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026805.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Antonio Forcione - Acoustic Revenge (1999) Naim [FLAC|Lossless|image + .cue] <In
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026736.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Jazz Dictionary T (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026441.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Art Pepper - Unreleased Art, Vol.11: Atlanta (1980) 2CD, 2020, Widow's Taste [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026440.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Ahmad Jamal - Tranquility & Outertimeinnerspace (1968, 1972) 2015, Universal [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026268.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Bob Baldwin - Newurbanjazz 3 - an Urbansmooth Suite (2021) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026136.jpg" />
 </div>
 
 

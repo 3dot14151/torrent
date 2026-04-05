@@ -1,3 +1,55 @@
+###  Публикация: 392869   (437962) от 26.09.2011
+
+«Golden Books» | Annabelle's Wish - If You Believe (Coloring Book) (1998) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжка-раскраска со сказкой Annabelle's Wish - If You Believe.Жанр: РаскраскаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C45B883417CEF346E087A43DB167E5CE4BCE65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 392245   (437950) от 26.09.2011
+
+Д. Лемко | Снегурочка. Книжка-раскраска (2003) [JPЕG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжка-раскраска со сказкой Снегурочка. Для детей дошкольного и младшего школьного возраста.Жанр: РаскраскаФормат: JPЕG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B700D32242405FDA827FB1468F2E7843AA6BEF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944821   (437896) от 08.10.2015
 
 Евгений Кащенко, Анна Котенёва | Половое воспитание детей и подростков (2015) [FB2]
@@ -6,7 +58,7 @@
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437896.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437876.jpg" />
 </div>
 
 
@@ -63,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437865.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437837.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437831.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437652.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437579.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437471.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437354.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437280.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437143.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436787.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436721.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436462.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436454.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436401.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436183.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436174.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435998.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435992.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435892.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435891.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435864.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435845.jpg" />
 </div>
 
 
@@ -627,61 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9DA288C8297CD61EEC1F28CFB70BB80C0344019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410547   (435820) от 21.09.2020
-
-Александра Клюкина | Путеводитель для детей. Москва (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вооружившись нашим путеводителем, дети и взрослые могут смело отправляться на экскурсию по Москве! Кремль и окрестности, Китай-город, Тверская улица, Бульварное кольцо и даже прогулка по Москве-реке - всё самое лучшее в нашем замечательном и древнем городе станет близким и понятным! Специальные детские карты и четкие обозначения помогут сориентироваться и приехать (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенка/ПутеводительФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE61FD857EF34DF8960DA00404D6F7E997546CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392959   (435409) от 27.09.2011
-
-М.А. Серебрякова, Н.А. Муратова | Математика для обучения детей в дестком саду и дома [1999] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное  пособие  «Математика»  поможет  ребенку  с  помощью  взрослых  —
-родителей  и  педагогов  —  освоить  «азбучные»  математические  истины,  научит
-его логично  мыслить,  анализировать,  делать  простейшие  математические  обоб­
-щения,  поможет  сформировать  у  малыша  первые  представления  и  понятия(   Читать дальше...   )Жанр: Учебно-методическое пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108056481D22A431B58CBF25EF0F985EF17913D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

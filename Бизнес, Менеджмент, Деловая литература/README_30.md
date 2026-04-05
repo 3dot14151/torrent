@@ -1,32 +1,3 @@
-###  Публикация: 1218716   (719117) от 11.04.2018
-
-Евгений Хата | Блокчейн для бабушки за 60 минут (2018) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое блокчейн? Что такое криптовалюта? Что такое приватный ключ и публичный адрес? Что такое майнинг? Что такое крипто кошельки? Что такое форк? Можно ли убить блокчейн? Куда инвестировать?
-Ответы на эти и другие вопросы вы найдете в данной книге. Чтение не займет много времени и заполнит необходимой информацией пробел в вашем криптообразовании.
-
-Эта книга для (   Читать дальше...   )Жанр: БизнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9EE3FC702CD3F36EC1777CB6059B8022CAF26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400501   (718644) от 05.08.2020
 
 Дэн Лайонс | Евангелие от IT. Как на самом деле создаются IT-стартапы (2020) [FB2]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718644.jpg" />
 </div>
 
 
@@ -63,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717031.jpg" />
 </div>
 
 
@@ -91,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713933.jpg" />
 </div>
 
 
@@ -117,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713419.jpg" />
 </div>
 
 
@@ -144,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713173.jpg" />
 </div>
 
 
@@ -172,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712026.jpg" />
 </div>
 
 
@@ -198,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711427.jpg" />
 </div>
 
 
@@ -224,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711006.jpg" />
 </div>
 
 
@@ -250,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710392.jpg" />
 </div>
 
 
@@ -278,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710311.jpg" />
 </div>
 
 
@@ -305,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710286.jpg" />
 </div>
 
 
@@ -331,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706850.jpg" />
 </div>
 
 
@@ -357,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704588.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704575.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701823.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699514.jpg" />
 </div>
 
 
@@ -464,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699436.jpg" />
 </div>
 
 
@@ -491,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699380.jpg" />
 </div>
 
 
@@ -519,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699373.jpg" />
 </div>
 
 
@@ -545,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699370.jpg" />
 </div>
 
 
@@ -573,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699368.jpg" />
 </div>
 
 
@@ -599,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699365.jpg" />
 </div>
 
 
@@ -625,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699282.jpg" />
 </div>
 
 
@@ -651,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699281.jpg" />
 </div>
 
 
@@ -677,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699280.jpg" />
 </div>
 
 
@@ -690,6 +661,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C59B9F97E625A949D2034FE26C367E16AC655E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287758   (699271) от 09.03.2019
+
+Дон Бек и др. | Спиральная динамика на практике: Модель развития личности, организации и человечества (2019) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идея «бирюзовых» компаний как целостных, эволюционирующих, живых организаций захватила бизнес-сообщество. Существуют ли такие компании на самом деле и можно ли перенять их опыт? Как построить компанию нового типа – без традиционной иерархии и бюрократии, эффективную и гибкую? Почему руководителям принципиально понимать, какие ценности доминируют в человеке, коллективе (   Читать дальше...   )Жанр: Развитие бизнеса, Для руководителяПеревод: Михаил ПоповФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F233D25174365E8E5A7A262E3E75697D716494BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

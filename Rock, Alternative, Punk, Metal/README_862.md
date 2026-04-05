@@ -1,3 +1,32 @@
+###  Публикация: 1502670   (237365) от 16.10.2021
+
+Midnight Phantom - Hollywood Dreams (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forbidden Land (03:21)
+02. Human Race (04:38)
+03. Where I Belong (04:13)
+04. Children Of The 80s (05:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97390A7827959DB19512EB542AE62C8656CC2E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627484   (237364) от 19.04.2023
 
 Tetrao Urogallus - Gulo Gulo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Doom, Funk, Fuzz>
@@ -6,7 +35,7 @@ Tetrao Urogallus - Gulo Gulo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237364.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Animal Ion - Regression (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237362.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Rob Queen - Rivers (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237357.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dragonland - The Power Of The Nightstar (2022) Japanese Edition [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237351.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Heroes And Monsters - Heroes and Monsters (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237346.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Jet skies - 13 (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237340.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Lutharo - Hiraeth (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237337.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Helestios - Your Pain Tastes Good (2020) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237335.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Devoid - Lonely Eye Movement (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237329.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Flood - Hear Us Out (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237325.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Arjen A. Lucassen (Ayreon, Star One, Ambeon, Guilt Machine, The Gentle Storm) - 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237324.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Skyblazer - Infinity's Wings (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237322.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Leaflet - Something Beyond (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237314.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Midnight Phantom - L.A. Nights (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237312.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Killer Be Killed - Killer Be Killed (2014) [FLAC|Lossless|tracks + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237305.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Moloch - Upon The Anvil (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical, Brutal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237302.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Riverside - Riverside 20: The Shorts & The Longs (2021) 2CD, Remastered, Compila
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237301.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sweet Oblivion - Relentless (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237300.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Victor Smolski - Majesty & Passion (2004) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237298.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Secret - Stop This World (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237292.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ The Flaming Bullets - Endless Winter (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237290.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237286.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Witchsister - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237282.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Leverage - Above The Beyond (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237267.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237254.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE8A981AA81DB4EB9DAB2EB51F42F10302230205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639222   (237253) от 12.06.2023
-
-The 69 Eyes - Death Of Darkness (2023) [FLAC|Lossless|image + .cue] <Goth Rock, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Of Darkness
-02. Drive
-03. Gotta Rock
-04. This Murder Takes Two(   Читать дальше...   )Жанр: Goth Rock, Gothic MetalПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD6C38DC561838A190CD6B9D02958C1CB6119FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

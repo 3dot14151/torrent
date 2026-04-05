@@ -1,3 +1,32 @@
+###  Публикация: 1583490   (229140) от 15.10.2022
+
+Decharot - Vemana (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ziggurat Sacrifice (06:08)
+02. Evisceration (04:46)
+03. The Harvest (05:33)
+04. Executed For Their Own Safety (03:52)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07EB8AB6DCE66E7D808DB7A43823A8CBC7A2B5A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646288   (229138) от 28.07.2023
 
 Battle of the Gods - Последняя Песнь Аспида (2023) [FLAC|24/48|tracks|WEB-DL] <Power Metal>
@@ -6,7 +35,7 @@ Battle of the Gods - Последняя Песнь Аспида (2023) [FLAC|24/
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229138.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Devouror - Diabolos Brigade (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229132.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Torian - God Of Storms (2018) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229124.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - 20 Original Debut-Albums by 20 Rock & Roll Stars (2015) 10CD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229114.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Distruster - Sic Semper Tyrannis (2022) [FLAC|Lossless|WEB-DL|tracks] <Crust, Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229112.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Diabology - Father of Serpents (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229105.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Sea Of Snakes - The Serpent & The Lamb (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229098.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ NorthTale - Eternal Flame (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229090.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Diamondback - American Made (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229088.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Jaded Heart - Heart Attack (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229070.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Twilight Aura - For A Better World (2022) [MP3|320 Kbps] <Melodic Progressive Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229063.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Grin - Phantom Knocks (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom, Psych, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229055.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Artifiction - VIVA (2022) [MP3|320 Kbps] <Progressive Metalcore, Djent>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229047.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Scorpions - Blackout (1982) 2018, Remastered, Reissue [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229039.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Decembre Noir - Pale Serenades (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229038.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Roxette - Travelling (2012) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229030.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Killer Kings - Burn For Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229022.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sleeping With Sirens - Complete Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229005.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Perfect Plan - Brace For Impact (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228998.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ LP (Laura Pergolizzi) - Heart to Mouth (2018) [MP3|320 Kbps] <Indie Rock, Pop Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228995.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Hellspike - Dynasties Of Decay (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Spe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228990.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Chris Norman - Definitive Collection: Smokie And Solo Years (2018) 2CD, Compilat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228967.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Uwocaust and the Angry Bois - Das alte Feuer (2022) [MP3|320 Kbps] <Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228960.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228945.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Roxette - Good Karma (2016) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228943.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Roxette - Good Karma (2016) [OGG Vorbis|480 Kbps] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:348BDE4549F14CF657A2E0FDFFF357DF783DB2E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583523   (228939) от 15.10.2022
-
-P.O.D. - When Angels & Serpents Dance (2008) 2022, Remixed & Remastered, Mascot Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addicted (3:33)
-02. Shine with Me (3:32)
-03. Condescending (4:02)
-04. It Can't Rain Everyday (4:43)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F59F6B957BD98F2E4FC3BB09797B626CE2D4AD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

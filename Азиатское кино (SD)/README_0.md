@@ -1,3 +1,81 @@
+###  Публикация: 1601813   (1046340) от 02.01.2023
+
+Одна секунда / Yi miao zhong / One Second (2020) BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китай периода культурной революции. Беглому заключённому трудового лагеря позарез нужно посмотреть кинохронику №22, которую показывают перед картиной «Героические сыновья и дочери», но одну бобину крадёт местная сирота. Отбирая друг у друга контейнер с плёнкой, оба прибывают в городок, где население очень жаждет показа киноленты, но вот незадача — одна из коробок (   Читать дальше...   )Производство: Китай / Huanxi Media Group, Edko FilmsЖанр: драма, историяРежиссер: Чжан ИмоуАктеры: Чжан И, Лю Хаоцюнь, Фань Вэй, Юй Айлэй, Чжан Шаобо, Ли Янь, Юй Ян, Лю Юньлун, Чан Хайцзюнь, Цао ЖуйПеревод: Дублированный (Zone Vision)Язык озвучки: русский, китайский (отдельным файлом)Субтитры: русские, английские - отдельными файламиПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBBCF22DBF552E3AB98967412F940085951D092F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602325   (1046083) от 05.01.2023
+
+Заклятье: 13-й этаж / Pengabdi Setan 2: Communion (2022) WEB-DLRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046083.jpg" />
+</div>
+
+
+###  Подробнее
+
+1984 год. Спасшись от последователей сатанинского культа, семейство Сувоно переехало из деревни в Джакарту и поселилось в социальном многоэтажном доме, одиноко стоящем на пустыре. Жизнь идёт своим чередом: Рини решает отдохнуть от заботы о младших братьях и поехать учиться, Тони пытается подружиться с местной красавицей, Бонди с друзьями находит недалеко от дома (   Читать дальше...   )Производство: Индонезия / Brown Entertainment, Come and See Pictures, Legacy Pictures, Rapi Films, Sky FilmsЖанр: ужасыРежиссер: Джоко АнварАктеры: Тара Басро, Энди Арфиан, Насар Аннус, Бронт Паларэ, Рату Фелиша, Журди Праната, Эги Федли, Музакки Рамдан, Фатих Унру, Икбал СинчанПеревод: Многоголосый профессиональный (ОKKO)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B230726792101CEEF7081D7F3411DF0370A73415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602605   (1045988) от 06.01.2023
+
+Киллер-хранитель / Киллер: Девчонка должна умереть / Deo killeo: jukeodo doeneun ai / The Killer (2022) BDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляясь с подругой в отпуск на остров Чеджу, жена просит И-гана на время их отсутствия присмотреть за 17-летней дочерью подруги Юн-джи. Мужчина не восторге от такой перспективы, поэтому с облегчением разрешает той переночевать у одноклассницы. Но в эту же ночь девушка находит неприятности, И-гану приходится спасать её от местных криминальных элементов, а те в (   Читать дальше...   )Производство: Южная Корея / AscendioЖанр: боевик, криминалРежиссер: Чхве Джэ-хунАктеры: Чан Хёк, Ли Со-ён, Ли Сын-джун, Брюс Хан, Ли Чхэ-ён, Пан Ын-джон, Чхве Ги-соп, Чха Тхэ-хён, Сон Хён-джу, Щин Сын-хванПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: Русские, Английские (SDH)Продолжительность: 01:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CF115019E3E12E350D2E4FCD048B8675B34204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603615   (1045618) от 10.01.2023
 
 Похищение Радена Салеха / Mencuri Raden Saleh (2022) WEB-DLRip [MVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045618.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045586.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045318.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045211.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044831.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044612.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044533.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043932.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043867.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043560.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043523.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043251.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043051.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043010.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042660.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042520.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042408.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042403.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042401.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042282.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042260.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041780.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041648.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:329F7C1A9C2E5DA1111EB31CD55F43B74D002EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 240229   (1041224) от 11.02.2023
-
-Человек за солнцем (Люди позади солнца) / Hei tai yang 731 (Squadron 731 / Men Behind the Sun) (1988) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041224.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 40-х годах японское командование в оккупированной Манчжурии создало концентрационный «Лагерь 731». Узники, чаще китайцы, были материалом для испытаний переносимости экстремальных условий, например, холод, высота, а также для испытаний бактериологического оружия. Среди японцев кто сразу, а кто постепенно привыкает к мысли, что узники не люди, а рассходный материал. (   Читать дальше...   )Производство: Гонконг, Китай / Sil-Metropole OrganisationЖанр: Военный, Драма, УжасыРежиссер: Тун Фей МоуАктеры: Цзяньсинь Чен, Хсю Гоу, Зе Кван, Ганг Ванг, Ти Лонг Джин, Pengyu Liu, Xuhui Liu, Чжаохуа МэйПеревод: Одноголосый закадровыйПродолжительность: 01:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07CA25EF99F48C2E908DA0BD12D9E489CBBD68BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 11735   (1041213) от 11.02.2023
-
-Человек за солнцем (Люди позади солнца) / Hei tai yang 731 (Squadron 731 / Men Behind the Sun) (1988) TVRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041213.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 40-х годах японское командование в оккупированной Манчжурии создало концентрационный «Лагерь 731». Узники, чаще китайцы, были материалом для испытаний переносимости экстремальных условий, например, холод, высота, а также для испытаний бактериологического оружия. Среди японцев кто сразу, а кто постепенно привыкает к мысли, что узники не люди, а рассходный материал. (   Читать дальше...   )Производство: Китай, Гонконг / Sil-Metropole OrganisationЖанр: ужасы, драма, военный, историяРежиссер: Тун Фей МоуАктеры: Цзяньсинь Чен, Хсю Гоу, Зе Кван, Ганг Ванг, Ти Лонг Джин, Pengyu Liu, Xuhui Liu, Чжаохуа МэйПеревод: Одноголосый закадровыйПродолжительность: 01:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E0CF80CCCFC2ECDF209B3F62E3D8E23382BF49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438336   (1041010) от 08.01.2021
-
-Юная девушка / Shojo / An Adolescent (2001) WEB-DLRip [AVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томокава - скучающий полицейский, который проводит большую часть своего времени, посещая одиноких домохозяек и заботясь о больном подростке Сукэмадзэ. Однажды в баре к Томокаве подошла девушка, предлагая секс в обмен на наличные деньги. Хотя он отказывается, но их пути позже снова пересекутся. Оказалось, что девушка является сестрой Сукэмадзы. Томокава скоро берет (   Читать дальше...   )Производство: Япония, Zero Pictures Co., Progressive PicturesЖанр: ДрамаРежиссер: Эидзи ОкудаАктеры: Эидзи Окуда, Маю Одзава, Акира Сёдзи, Мари Нацуки, Хидэо Мурота, Казу Андо, Норико Хамада, Кацухико Хибино, Хидэо Хигасикокубару, Кадзухико КанаямаПеревод: Авторский (Сергей Кузнецов)Субтитры: Английские - отдельным файломПродолжительность: 02:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA21C24AED2D50AC317D359341FEB70F8875056C
 ```
 
 https://mybot314.ru/tekegram_catalog/

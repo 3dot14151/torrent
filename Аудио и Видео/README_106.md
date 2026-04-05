@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730675.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730490.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730346.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730014.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729936.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729920.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Kevin Ayers - Original Album Series (2014) [AAC|~354 Kbps] <Psychedelic Rock, Pr
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729919.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729832.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729731.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729587.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729576.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729453.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729452.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729451.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729450.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729236.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - Maretimo Chill Radio - Best of Vol. 1 - Positive Summer Vibes (2022) [AAC|~
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729028.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - The Soundgarden Winter Collection 2022 (2022) [AAC|~341 Kbps] <Organic Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729024.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Oriental India Chill Lounge - Mystic Buddha Ethnic Cafe Moods (2019) [AAC|~
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729023.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Urban Grooves (Urban Funk Breaks Dub Hip Hop Beats) (2022) [AAC|~311 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729021.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Latin Flavors, Vol. 1 (Latin Chill Music) (2013) [AAC|~349 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729019.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728562.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728529.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Arthur Beatrice - Keeping the Peace (2016) [AAC|256 Kbps]<Alternative Pop, Indie
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728465.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728098.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728097.jpg" />
 </div>
 
 

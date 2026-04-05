@@ -1,3 +1,55 @@
+###  Публикация: 1415780   (373532) от 13.10.2020
+
+Хельдт / Heldt (2013) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив-инспектор из Бохума Николас Хельдт без конца что-то жуёт и применяет довольно нестандартные методы расследования. Он едва соблюдает правила и служебные инструкции, но всегда предпринимает максимально рискованные действия. Регулярные дисциплинарные взыскания также мало его волнуют. А то, что говорят и ждут от него блюстители закона в костюмах, его почти не (   Читать дальше...   )Производство: Германия / Sony Pictures Film und Fernseh ProduktionsЖанр: комедия, криминалРежиссер: Хайнц Диц, Хартвиг Шульц, Stefan BühlingАктеры: Кай Шуманн, Янине Кунце, Тимо Диркес, Стеффен Уилл, Ангелика Барч, Юнус Кумартпай, Феликс Фёртлер, Lili Budach, Сабина Пфайфер, Вита Тепел и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42392957C8A1D64942524F4A8BF6F37D1C2B034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574343   (372903) от 11.09.2022
+
+Истории ходячих мертвецов / Tales of the Walking Dead (2022) WEBRip [H.264/720p] (сезон 1, серии 1-6 из 6) LakeFilms [AD, PR]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372903.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Истории ходячих мертвецов" - сериал-антология, состоящий из отдельных эпизодов, в которых показаны новые интересные персонажи, их предыстории и несвязанные с основным сериалом события во вселенной "Ходячих мертвецов".Производство: США, AMC StudiosЖанр: ужасы, фэнтези, триллер, драмаРежиссер: Майкл Е. Сатраземис, Рон Андервуд, Дебора КампмейерАктеры: Sarah Graham, Паркер Поузи, Джиллиан Белл, Кевин Л. Джонсон, Керсти Брайан, Мэтт Медрано, Патрик Донохью, Veronica Nia, Амир Барака, William J. SimmonsПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: русскийПродолжительность: ~00:47:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B629CCEA28FCCA7FAAA68FD48E80714C5CC06C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047427   (372702) от 04.11.2016
 
 Штамм / The Strain (2016) WEB-DL / WEBRip [H.264/720p-LQ] (сезон 3, серии 1-10 из 10) BaibaKo [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372702.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371757.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371587.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371318.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371306.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369309.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365106.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364974.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363851.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362577.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362460.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360450.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360447.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360443.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360215.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359988.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359984.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359971.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359863.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359720.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359712.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357825.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357795.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357535.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C476E23EA81B1444D9F727B975077450AE42BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409371   (357374) от 20.10.2020
-
-Страна Лавкрафта / Lovecraft Country (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветеран корейской войны Аттикус Фримен возвращается домой, чтобы разыскать пропавшего отца. Призрачная подсказка о том, где он может находиться, - единственное за много лет письмо, полное туманных намёков на загадочное наследие матери Аттикуса, в котором упоминается город Ардхем. Вместе с Аттикусом на поиски мистера Фримена отправляются его дядя Джозеф, любитель (   Читать дальше...   )Производство: США / Bad Robot, Monkeypaw Productions, Warner Bros. TelevisionЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Дэниэл Сакхайм, Ян Деманж, Шерил ДьюнайАктеры: Джонатан Мэйджерс, Джерни Смоллетт, Кортни Б. Вэнс, Майкл Кеннет Уильямс, Чейз Браун, Онжаню Эллис, Маркус А. Гриффин мл., Эбби Ли, Вунми Моссаку, Джада Харрис и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~01:10:00 серияРеклама: присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F1D831409CDAFEE7DBB0DF7FF9589BE6F675FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403275   (357325) от 20.10.2020
-
-Страна Лавкрафта / Lovecraft Country (2020) WEB-DLRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветеран корейской войны Аттикус Фримен возвращается домой, чтобы разыскать пропавшего отца. Призрачная подсказка о том, где он может находиться, - единственное за много лет письмо, полное туманных намёков на загадочное наследие матери Аттикуса, в котором упоминается город Ардхем. Вместе с Аттикусом на поиски мистера Фримена отправляются его дядя Джозеф, любитель (   Читать дальше...   )Производство: СШАЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Дэниэл Сакхайм, Ян Деманж, Шерил ДьюнайАктеры: Джонатан Мэйджерс, Джерни Смоллетт, Кортни Б. Вэнс, Майкл Кеннет Уильямс, Чейз Браун, Онжаню Эллис, Маркус А. Гриффин мл.,Эбби Ли, Вунми Моссаку, Джада Харрис и др.Перевод: Двуголосый профессиональный (ViruseProject)Субтитры: русские (отдельно)Продолжительность: ~01:10:00 серияРеклама: присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBEC8B80B3796793686681C5DC09D6D5CE164FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

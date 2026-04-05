@@ -1,3 +1,61 @@
+###  Публикация: 1438534   (1040944) от 09.01.2021
+
+VA - DreamLife Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grande Piano - Monte Cassino (Intro Mix)
+02. Paul Cartwright - Just Be (Original Mix)
+03. Wayf4rer - Anemone (DreamLife Remix)
+04. Ajie Benno - Passion (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C6EA971A636EB514A7ABF61C8C0BB57EB17A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438681   (1040943) от 09.01.2021
+
+VA - Best Of FSOE Fables (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Stone - Vice Versa (Extended Mix)
+02. Ferry Tayle & Elucidus - Fremont (Extended Mix)
+03. Metta & Glyde - Renaissance (Extended Mix)
+04. Maria Healy - Dreamer (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F4154030AE4FE5F53A53C21707FDFA175E528A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438662   (1040936) от 09.01.2021
 
 VA - Best Of FSOE Parallels (2020) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Best Of FSOE Parallels (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040936.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Henry Moe Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplif
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040935.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Danny Oh Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplift
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040932.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Best Of FSOE (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040930.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Black Hole Recordings - Best Of (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040913.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Cozy Weekend: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040897.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Vocal Trance 2021 (2020) [FLAC|Lossless|tracks] <Trance, Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040818.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Sahara Universe 2022 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040602.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Tyconic - Coastline Nights (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040567.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Monflame - Voyager (2023) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040566.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Hoten - 29 Summers Album Remixes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040560.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ AzizRush - Under Pressure (2023) Debut [MP3|320 Kbps] <Electronic>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040513.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Bob Moses - Коллекция [3 Albums] (2020-2021) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040369.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Orax - Crash (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040360.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Chill & Relax: Chillout Your Mind (2023) [FLAC|Lossless|tracks] <Balearic, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040347.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040333.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040330.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ The Midnight - Heroes (2022) [FLAC|Lossless|tracks + .cue] <Synthwave, Synth-pop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040307.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Dream Dance Vol. 90 (2021) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040298.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Best Of Trancer (Mixed by Nick Turner) (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040160.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - The VERSE Uplifting Trance Journey 2020 (2021) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040156.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Hoten - 29 Summers (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040140.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Dezza - Cosmos (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040121.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Ultra Jogging Platinum Hits 2021 Fitness Session [MP3|320 Kbps] <House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040111.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Ultra Jogging Platinum Hits 2021 Fitness Session [MP3|320 Kbps] <House, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51E5464832EA71CCA9C8117792B9D159BB435257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439448   (1039948) от 13.01.2021
-
-VA - Best Of FSOE Clandestine (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Denton - The Trip (Extended Mix)
-02. Stoneface & Terminal - Berlin '96 (Take Me Back) (Club Mix)
-03. David Forbes & Paul Denton - Out Of Order (Extended Mix)
-04. Stoneface & Terminal - Sequence B (BTR Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED51D41A830E92D2CFD62DCF137D8B5993DBA98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439568   (1039926) от 13.01.2021
-
-Shingo Nakamura - Silk Music Pres. Shingo Nakamura 02 (2017) Compilation, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shingo Nakamura - Always (4:00)
- 02. Shingo Nakamura - Tribute, Chapter II (5:58)
- 03. LOOPer & Andy Wooding - All We Are (Shingo Nakamura Remix) (5:43)
- 04. Shingo Nakamura - Sapporo (8:04)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC9E9F59F55564691FC574039A510EB6E6C8A8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

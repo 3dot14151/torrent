@@ -1,3 +1,57 @@
+###  Публикация: 499702   (306481) от 03.12.2013
+
+Ефим Чеповецкий | Собрание сочинений [7 книг] (1959-1979) [FB2, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ефим Петрович Чеповецкий - русский и украинский детский писатель, драматург.
+Написал несколько великолепных детских книг.
+Кстати, сценарий мультика Приключения капитана Врунгеля (по мотивам повести А. Некрасова) тоже дело рук Чеповецкого.Жанр: СказкиФормат: FB2, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E08F8A4518899C284A6BA3F6806D1C28E83CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729996   (306378) от 03.12.2013
+
+Лев Кассиль | Твои защитники (1970) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы о воинах защитниках РодиныЖанр: Для дошкольного возрастаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FA67E8B57FB0D1D2F7E4B5E94D1827384970EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422861   (306147) от 10.11.2020
 
 Любовь Вайткене, Дмитрий Кошевар, Андрей Мерников | 2016 самых-самых. 2016 вопросов и ответов для настоящих мальчишек (2015) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306147.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306143.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305654.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305626.jpg" />
 </div>
 
 
@@ -117,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305625.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305622.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305621.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305567.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305467.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305210.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305093.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305028.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305014.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304983.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304867.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304866.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304865.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304684.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304677.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304674.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304672.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304431.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304332.jpg" />
 </div>
 
 
@@ -622,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304315.jpg" />
 </div>
 
 
@@ -633,60 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BBFAE64BC27602CBD689495B6ABF14C64734741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423109   (304288) от 11.11.2020
-
-Александр Тихонов | Всё для детского сада. Домашние животные (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домашние животные - следующая замечательная книга из серии "Всё для детского сада". Увлекательный текст, запоминающиеся стихи, яркие рисунки непременно вызовут живой отклик, а ведь это так важно - заинтересовать детей, привить тягу к знаниям, к природе и животному миру в самом маленьком возрасте!
-
-В книге известного биолога Александра Тихонова представлены (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24F5988C1DD50F09DB86B2031C601A30AD71800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423107   (304279) от 11.11.2020
-
-Людмила Доманская, Инна Максимова | Пряталки и находилки. Азбука в картинках (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304279.jpg" />
-</div>
-
-
-###  Подробнее
-
-С первых дней жизни малыши начинают познавать окружающий мир, и наша роль как родителей здесь крайне важна. Как легко, но в то же время увлекательно и не банально познакомить своего ребёнка с азбукой? Вы держите в руках уникальную книгу-игру "Азбука в картинках", которая в ненавязчивой форме поможет вашему малышу не только выучить алфавит, но и не путать (   Читать дальше...   )Жанр: Обучающая литература/АзбукаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CBAD1EFB992FD50260C98390DF48F040858DDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

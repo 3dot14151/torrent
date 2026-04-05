@@ -1,3 +1,55 @@
+###  Публикация: 1209397   (779349) от 26.02.2018
+
+Черная мельница / The Black Windmill (1974) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снят по роману Клайва Эглтона "Семь дней до убийства". Два школьника играют с моделью самолёта на заброшенной военной базе рядом с деревней. К ним подходят двое служащих Королевских военно-воздушных сил Великобритании, которые заявляют об их незаконном вторжении на военный объект, и забирают с собой, чтобы доставить к командиру. Вскоре становится ясно, (   Читать дальше...   )Производство: Великобритания, США / Universal PicturesЖанр: Боевик, триллер, криминал, экранизацияРежиссер: Дон СигелАктеры: Майкл Кейн, Дональд Плезенс, Дельфин Сериг, Клайв Ревилл, Джон Вернон, Джосс Экленд, Джанет Сузман, Кэтрин Шелл, Джозеф О'Конор, Денис Куилли ...Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A36D04FA8C928E7BDCF24967C8B3598494DE25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209169   (779247) от 27.02.2018
+
+Милая Рози О'Грэйди / Sweet Rosie O'Grady (1943) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звезда лондонского мюзик-холла Мадлен Марлоу, приехавшая покорять Нью-Йорк, становится мишенью для едких насмешек местного репортера Сэма Маги. В ответ королева бурлеска устраивает такой переполох, что публичным посмешищем оказывается Сэм.Производство: США / 20th Century Fox Film CorporationЖанр: Мюзикл, КомедияРежиссер: Ирвинг КаммингсАктеры: Бетти Грэйбл, Роберт Янг, Адольф Менжу, Реджинальд Гардинер, Вирджиния Грей, Фил Риган, Сиг Руман, Алан Дайнхарт, Хобарт Кавано, Фрэнк ОртПеревод: Двуголосый закадровый (студия "Акцент-Про" по заказу ГТРК "Культура")Субтитры: ОтсутствуютПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC2AAC9AB34BE5014F94222B9AED536285CB2EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209551   (779058) от 28.02.2018
 
 Паттон / Patton (1970) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779058.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778924.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778811.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778784.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778663.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778648.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778620.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778455.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778210.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777893.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777502.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777434.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777210.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777165.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777155.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776821.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776765.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775992.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775732.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774418.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774399.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774267.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774220.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774141.jpg" />
 </div>
 
 
@@ -623,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6A4C80D6ACF08EC01F87DF62443845D9FC14248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274325   (774084) от 23.01.2019
-
-Великая ночь Казановы / Casanova's Big Night (1954) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это случилось в итальянском городе Парма а 1757 году. Время настоящих страстей, убийства ради мести, признание в любви ради адюльтера, флирт ради легкой победы. И вот в самом центре таких событий оказался один человек, который прославил свое имя на все века — лучший фехтовальщик в Европе и самый знаменитый любовник во всей истории человечества Казанова!
-Но эта история (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: Мюзикл, Комедия, ПриключенияРежиссер: Норман З. МакЛеодАктеры: Боб Хоуп, Джоан Фонтейн, Одри Далтон, Бэзил Рэтбоун, Хью Марлоу, Арнольд Мосс, Джон Кэрредин, Джон Хойт, Хоуп Эмерсон, Роберт ХаттонПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9753B9EDB6D672ED8AA20FFB656E75D69F44E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125015   (773325) от 13.04.2017
-
-Быстрая леди / The Fast Lady (1962) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотрудник муниципалитета, велосипедист, влюбившись в дочь владельца крупной автомобильной фирмы, пересаживается на старенький, но заслуженный «бентли» по имени «Быстрая леди». Обучиться вождению за короткий срок ему помогает приятель, продавец машин, а также возлюбленная; ворчит и противодействует — её отец.Производство: ВеликобританияЖанр: КомедияРежиссер: Кен ЭннакинАктеры: Джеймс Робертсон Джастис, Лесли Филлипс, Стэнли Бакстер, Кэтлин Харрисон, Джули Кристи, Эрик Баркер, Оливер Джонстон, Аллан Катбертсон, Эсма Кэннон, Дик Эмери ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049E39721E53C34EFA86B916CA75578F434D2ACD
 ```
 
 https://mybot314.ru/tekegram_catalog/

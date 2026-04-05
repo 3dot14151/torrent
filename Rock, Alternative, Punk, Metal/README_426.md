@@ -1,3 +1,148 @@
+###  Публикация: 904427   (654459) от 03.06.2015
+
+Todd Rundgren - Global (2015) [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evrybody 03:28
+02. Flesh & Blood 04:50
+03. Rise 03:44
+04. Holyland 04:04(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1514F151F149BDA3E5DF3701606689BB7B3E1FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904347   (654458) от 03.06.2015
+
+Pete Townshend - Psychoderelict (1993) Remastered /2006, Imperial Records/ [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. English Boy 05:07
+02. Meher Baba M3 03:31
+03. Let's Get Pretentious 03:36
+04. Meher Baba M4 (Signal Box) 02:23(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4926279AB4E7504DC97B81166E116D91FA815700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904584   (654392) от 03.06.2015
+
+From First To Last - Dead Trees (2015) [FLAC|tracks + .cue]<Post-Hardcore | Alt.Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heresy...
+02. Straight to the Face
+03. H8 Meh!
+04. Dead Trees(   Читать дальше...   )Тип издания: АльбомЖанр: Post-Hardcore | Alt.RockПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0BA6A4E178115DDD8E4E432BED7E51DC4AAEF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904301   (654391) от 03.06.2015
+
+Пони - Сами по себе (2015) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рокобоги
+ 02. Финсбери-парк
+ 03. Сами по себе
+ 04. Где-то рядом(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E6A8025247D8061D622B99055317051EA103F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904418   (654389) от 03.06.2015
+
+Indigo Girls - One Lost Day (2015) [MP3|320 кб/с]<Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elizabeth (3:36)
+02. Happy In The Sorrow Key (2:56)
+03. Southern California Is Your Girlfriend (4:19)
+04. Texas Was Clean (4:11)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834305CE677EF531EA3A68251D6DA07204EF7BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904422   (654388) от 03.06.2015
 
 Обход - Нормальные (2015) [MP3|320 кб/с]<Rock>
@@ -6,7 +151,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654388.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Circuit Des Yeux - In Plain Speech (2015) [FLAC|Lossless|Web-DL] <Experimental, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654387.jpg" />
 </div>
 
 
@@ -65,7 +210,7 @@ Bay City All Stars - Rock & Roll Diner (1996) Remastered /2001, Menus And Music 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654386.jpg" />
 </div>
 
 
@@ -94,7 +239,7 @@ Caspian - 3 albums (2005-2009) [FLAC|Lossless] <Post-Rock, Instrumental, Experim
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654352.jpg" />
 </div>
 
 
@@ -129,7 +274,7 @@ The Rolling Stones - 2120 South Michigan Avenue (The Unreleased 1964 Blues Album
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654325.jpg" />
 </div>
 
 
@@ -158,7 +303,7 @@ The Dead Daisies - Revolucion (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654324.jpg" />
 </div>
 
 
@@ -187,7 +332,7 @@ Paradise Lost - The Plague Within (2015) Limited Mediabook [FLAC|image+.cue]<Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654261.jpg" />
 </div>
 
 
@@ -216,7 +361,7 @@ Bryan Ferry - Albums Collection (1973-1985) 6 CD Remastered /2015, Universal Mus
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654207.jpg" />
 </div>
 
 
@@ -245,7 +390,7 @@ BrainStorm - 7 Steps Of Fresh Air (2015) [MP3|320 кб/с]<Brit-pop, pop-rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654200.jpg" />
 </div>
 
 
@@ -274,7 +419,7 @@ Architects (UK) - For Those That Wish To Exist At Abbey Road (2022) Abbey Road V
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654034.jpg" />
 </div>
 
 
@@ -303,7 +448,7 @@ ALTERNA - Правда (2012) [MP3|320 кб/с]<Alternative Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653918.jpg" />
 </div>
 
 
@@ -330,7 +475,7 @@ Oceans of Slumber - The Banished Heart (2018) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653865.jpg" />
 </div>
 
 
@@ -359,7 +504,7 @@ Can - Delay 1968 (1981) Reissue, 1989, Spoon Records [MP3|320 Kbps] <Heavy Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653861.jpg" />
 </div>
 
 
@@ -388,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653854.jpg" />
 </div>
 
 
@@ -417,7 +562,7 @@ Lindsey Buckingham & Christine McVie - Lindsey Buckingham & Christine McVie (201
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653850.jpg" />
 </div>
 
 
@@ -446,7 +591,7 @@ Volumes - Different Animals (2017) [MP3|320 Kbps] <Progressive Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653845.jpg" />
 </div>
 
 
@@ -475,7 +620,7 @@ Rise Against - Wolves (2017) [MP3|320 Kbps] <Punk-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653838.jpg" />
 </div>
 
 
@@ -504,7 +649,7 @@ VеSёLый  RоDGеR (Весёлый Роджер) - 2 альбома [MP3|320 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653831.jpg" />
 </div>
 
 
@@ -541,7 +686,7 @@ Panic Room - Skin (2012) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653829.jpg" />
 </div>
 
 
@@ -576,7 +721,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_653721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_653721.jpg" />
 </div>
 
 
@@ -611,7 +756,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653652.jpg" />
 </div>
 
 
@@ -631,151 +776,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6123F106D6A4973BC5A77190F30D291ACF22CBF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904846   (653559) от 04.06.2015
-
-MacIntyre - Live At The Moontower (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bb Shoe-Flay (Live) (4:51)
-02. Leave Me Alone (Live) (4:39)
-03. Deranged (Live) (4:25)
-04. Waitin' Achin' (Live) (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B895DBA65DCFC6D806F520A574405B4FD25BAE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904758   (653557) от 04.06.2015
-
-Jimmy LaFave - The Night Tribe (2015) [MP3|320 кб/с]<Rock, Folk, Americana>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beauty Of You (05:26)
-02. Maybe (05:25)
-03. Journey Through The Past (05:02)
-04. It's Not On Me (03:32)(   Читать дальше...   )Жанр: Rock, Folk, AmericanaПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF818641818E4D59E587841702A6869CB9B7690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904874   (653454) от 04.06.2015
-
-In Virgo - In Virgo (2015) [FLAC|Lossless|WEB-DL]<Alt. Metal | Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set Me Free
-02. The Light At the End
-03. The Chosen
-04. Lost All of You(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | ElectronicПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75F06D0077EC4100E8550D1AB137BEFCC4D3F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904569   (653446) от 04.06.2015
-
-Super Bob - Killer (2015) [FLAC|Lossless]<Alternative Rock | Rapcore | Crossover>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capitan Crunch
-02. Killer
-03. Savior
-04. Preacher(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock | Rapcore | CrossoverПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B104D71BCE54BFE017A4CA61DB3AF6A4D8D188FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904866   (653434) от 04.06.2015
-
-No More Pain - The Post Human Condition (2014) [FLAC|image+.cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nascency 04:09
-02. All As One 04:44
-03. Behold The Screen 06:03
-04. The Spiral 05:05(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DECF93261F1FDB910862FD85507B85F7B74596
 ```
 
 https://mybot314.ru/tekegram_catalog/

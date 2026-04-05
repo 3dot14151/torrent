@@ -1,3 +1,31 @@
+###  Публикация: 1647272   (195635) от 17.07.2023
+
+Дарья Калугина | Интуитивная композиция (2020) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальная композиция — что это?
+В искусстве нет ничего идеального, а если вдруг, появились бы, это разрушило бы всю концепцию художественного видения в целом
+Лёгкий дисбаланс, естественность, не нарочитые линии и акценты — все это основа живого кадра. В своё время один вопрос не давал мне покоя. Как же построить красивый, НЕ идеальный, гармоничный кадр, если нужно (   Читать дальше...   )Жанр: ФотографияЯзык озвучки: РусскийПродолжительность: 02:50:31Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850E43DFBA3583E5A53DA8DB7C4A6124230F57C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647244   (195621) от 17.07.2023
 
 Дарья Калугина | Тайны искусственного света (2020) WEB-DL [AD] [RU]
@@ -6,7 +34,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195621.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195619.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195613.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ Udemy, Michael Pogrebinsky | Software Architecture & System Design Practical Cas
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195607.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195604.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ Maria Yakimova | Фото как кино. Авторский курс по по
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195599.jpg" />
 </div>
 
 
@@ -173,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195585.jpg" />
 </div>
 
 
@@ -201,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195579.jpg" />
 </div>
 
 
@@ -228,7 +256,7 @@ JUG Ru Group | HolyJS 2023 Spring. Конференция для JavaScript - р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195576.jpg" />
 </div>
 
 
@@ -254,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195554.jpg" />
 </div>
 
 
@@ -283,7 +311,7 @@ leerob | Mastering Next.js (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195539.jpg" />
 </div>
 
 
@@ -309,7 +337,7 @@ KkartSchool, Карина Кино | Акварельная иллюстраци
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195537.jpg" />
 </div>
 
 
@@ -338,7 +366,7 @@ FrontendMasters, Jen Kramer | Practical CSS Layouts (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195527.jpg" />
 </div>
 
 
@@ -366,7 +394,7 @@ Granich.Design, Вадим Гранич | Графдизайн Копирайт�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195525.jpg" />
 </div>
 
 
@@ -392,7 +420,7 @@ Stepik, Startgram | Аналитик мобильных приложений: к
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195513.jpg" />
 </div>
 
 
@@ -418,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195510.jpg" />
 </div>
 
 
@@ -444,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195508.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195507.jpg" />
 </div>
 
 
@@ -496,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195504.jpg" />
 </div>
 
 
@@ -522,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195496.jpg" />
 </div>
 
 
@@ -549,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195495.jpg" />
 </div>
 
 
@@ -575,7 +603,7 @@ Vertexschool, Emiel Sleegers | Creating Cinematic Environments in Unreal Engine 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195482.jpg" />
 </div>
 
 
@@ -604,7 +632,7 @@ Geometrium, Павел Герасимов | Стань дизайнером ин
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195481.jpg" />
 </div>
 
 
@@ -630,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195480.jpg" />
 </div>
 
 
@@ -659,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195476.jpg" />
 </div>
 
 
@@ -672,33 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F5F9C26830FBAC75AF8DA01918EC58DADC4E6B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647545   (195468) от 19.07.2023
-
-Digital Art Club, Роман Brumel | Анатомия. Легко! И без боли (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анатомия — это необходимый навык для художника, желающего вкусить свободы творческой самореализации.
-Мы сделали курс, который поможет Вам освоить этот навык c легкостью. В чем секрет? Современный подход, адаптация технологий, и передовой взгляд на задания и процесс обучения! Как бы вы не сопротивлялись, мы вас научим!Производство: Digital Art ClubЖанр: Рисование, анатомияЯзык озвучки: РусскийПродолжительность: 13:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8002D2B3DF3426EB8DECF4E19C6EDA2F9BB0EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

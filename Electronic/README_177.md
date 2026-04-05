@@ -1,3 +1,61 @@
+###  Публикация: 1397272   (741371) от 19.07.2020
+
+Phil Stroud - Australiana (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Deep House, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Australiana (07:50)
+ 02. Zamia Trail (06:02)
+ 03. Morning Breeze (07:16)
+ 04. Eucalyptus (08:36)(   Читать дальше...   )Жанр: Ambient, Deep House, Dub TechnoПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90220EFAA5E8E1F57B0380D304B640AADC6ACC44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397311   (741362) от 19.07.2020
+
+VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Hush - Good Vibrations (3:25)
+02. Orlando - Singing In The Rain (4:06)
+03. Heartclub - Super Trouper (3:53)
+04. DJ Kee - Mamma Mia (3:53)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69750BC0797E214135DE1A7F7D7DED212F7C3251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396934   (741341) от 19.07.2020
 
 VA - Black Hole Trance Music 07-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
@@ -6,7 +64,7 @@ VA - Black Hole Trance Music 07-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741341.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Minddigger - A World For You (2020) AstroPilot Music [FLAC|Lossless|WEB-DL|track
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741335.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741232.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Metropolitan Lounge Selection Amsterdam (2017) [MP3|320 Kbps] <Downtempo, C
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741202.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Chillout AAA Vacation Time Real Set (2017) [MP3|320 Kbps] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741200.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Jungle Essence 11th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741196.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Chilling Poolside (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741192.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Nuta Cookier - Space Age (2017) [MP3|320 Kbps] <Ambient, Drone>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741184.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Beach Party Sunset (2017) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741182.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Felix Magnus Grossmann - Lounge & Chill (2017) [MP3|320 Kbps] <Balearic, Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741180.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 February (2019) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741164.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Airform - Quantum (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741129.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - La Maison La Rue Vol.4 (Pure Lounge For Now People) (2017) [MP3|320 Kbps] <
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741128.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Suanda Classics Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Voca
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741127.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Ori Uplift & Shimotsukei - Uplifting Only 218 (2017) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741126.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Chill Out Amsterdam (Lounge From The Lowlands) (2017) [MP3|320 Kbps] <Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741125.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Chill out Nation Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741122.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Calmness Sky Is The Limit Vol.1 (Waves Of Chill Out) (2017) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741120.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Chriss Ronson - Focus: 003 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741119.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Angelika Yutt - Beautiful Coloratura (Ambient & Chill) (2017) [MP3|320 Kbps] <Ba
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741117.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Deep Ibiza Opening Party (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741114.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Intricate Rec 4 Year Anniversary (2016) [MP3|320 кб/с] <House, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741068.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Workout 2019 Aerobic Hits. Music For Fitness & Workout 128 BPM/32 Count [MP
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741064.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Monoplay - Octopus (2019) Nopassport Records [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741050.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Monoplay - Octopus (2019) Nopassport Records [FLAC|Lossless|WEB-DL|tracks] <Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C0AB59CE6042B4CC65583F808D382CF0CEBF985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217841   (741045) от 06.04.2018
-
-Majed Salih - Medievil-Music Trance Emperor Vol. 2 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Trance Symphony (Original Mix)
-02.Orange Idea (Original Mix)
-03.Psychlortron (Original Mix)
-04.Dolphin (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80613E461129FD222AF9964C08F3FA861FD6116A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217790   (741044) от 06.04.2018
-
-VA - Submission Recordings Presents Miami (Mixed by Atragun) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Modul & Karina Skye - Senses (Intro mix)
-02. Ross Cairns - Here&Back (SHADOWS remix)
-03. Xpectra - Memories (Deepshader remix)
-04. Atragun & Tom Bro - Lost In Dreams (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB237BA9ACB13177D21C0872D5D82B147C73DCFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

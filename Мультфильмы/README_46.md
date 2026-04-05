@@ -1,3 +1,135 @@
+###  Публикация: 622374   (958451) от 23.02.2013
+
+Братец медвежонок - Дилогия: Братец медвежонок / Brother Bear (2003), Братец медвежонок 2: Лоси в бегах / Brother Bear 2 (2006) [H.264/720p-LQ] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это снова мы, но уже в новом мультфильме. Но не только мы, лоси, но также и большой медведь (его зовут Кенаи) и его маленький братец медвежонок (его зовут Кода) и еще новая девочка по имени Нита. Не правда ли от нее столько хлопот? Нита знала Большого Медведя и раньше, когда он еще и не был медведем. Это было в первом мультфильме, помните? В любом случае, они думали, (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Бен ГлюкПеревод: Полное дублирование, Авторский одноголосный (Гранкин)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 01:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDA413444E21F581EB788199A039B54CEC070F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 855885   (958394) от 04.01.2015
+
+Симпсоны / The Simpsons (2005) BDRip [720p] (сезон 17, серии 22 из 22)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симпсоны — самый длинный мультсериал в истории американского телевидения, состоящий из более чем 570 серий в 26 сезонах. Мультисериал в настоящее время знаком телезрителям более чем 100 стран. Это насыщенное сатирой (в том числе социальной) шоу высмеивает многие клише и стереотипы, в частности — стиль жизни «среднестатистического американца», особенности мировых (   Читать дальше...   )Жанр: Рисованная анимация, Для взрослых, КомедияРежиссер: разныеПерсонажи: Гомер Симпсон, Мардж Симпсон, Барт Симпсон, Лиза Симпсон, Мэгги Симпсон и другиеПеревод: Двухголосый закадровыйЯзык субтитров: АнглийскиеПродолжительность: 22 серии по ~ 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4804872132968C8A6D83EFFA8CDB9CC8C629A46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 800315   (958343) от 04.01.2015
+
+Белоснежка и семь гномов / Snow White and the Seven Dwarfs (1937) BDRip [H.264/1080p] [hand made 60fps]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация знаменитой немецкой сказки братьев Гримм о Белоснежке, жившей в замке со злой мачехой-королевой, которая очень гордилась своей красотой. Узнав от волшебного зеркальца, что Белоснежка стала самой прекрасной девушкой на свете, завистница решила погубить прелестную падчерицу. Но бедная девушка не погибла в лесу, а наоборот, встретила там настоящих друзей (   Читать дальше...   )Производство: СШАЖанр: Рисованная анимация, мюзикл, фэнтези, мелодрама, семейныйРежиссер: Уильям Коттрелл, Дэвид Хэнд, Уилфред Джексон, Ларри Мори, Перс Пирс, Бен ШарпстинПерсонажи: Рой Этвелл, Стюарт Бьюкэнэн, Адриана Каселотти, Холл Джонсон Шор, Эдди Коллинз, Пинто Колвиг, Мэрион Дарлингтон, Билли Гилберт, Отис Хэрлан, Люсиль Ла ВернПеревод: Полный дубляж, вкл. песниЯзык субтитров: Русский (форс.), Русский (полные), Английский (полные)Продолжительность: 01:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38AE2A62434601C679023F23F240BCDB348904A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744701   (958248) от 22.01.2014
+
+Суперсемейка / The Incredibles (2004) BDrip [720p] [hand made 60fps]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958248.jpg" />
+</div>
+
+
+###  Подробнее
+
+История семьи супергероев, члены которой уже отошли от больших дел и предпочитают жить непримечательной жизнью обычных землян. В прошлом все они обладали сверхъестественными способностями и относительно легко справлялись с мировым злом.
+
+Но в один прекрасный день папаше и его домочадцам приходится вновь облачиться в прорезиненные костюмы супергероев (а для этого (   Читать дальше...   )Жанр: Компьютерная анимация, Приключения, КомедияРежиссер: Брэд БёрдПерсонажи: Крэйг Т. Нельсон , Холли Хантер , Сэмюэл Л. Джексон , Джейсон Ли , Доминик Луи , Тедди Ньютон , Джин Синсере , Илай Фучиле , Маив Эндрюс , Уоллес ШоунПеревод: ДублированныйЯзык субтитров: Rus (форсированные)Продолжительность: 01:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCFCBD3589AB439F62D2AE1EAC10A752C9DDAF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979836   (958106) от 27.01.2016
+
+Монстры на каникулах 2 / Hotel Transylvania 2 (2015) BDRip [H.264/720p] [hand made 60fps] [Open Matte]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Граф Дракула выдает свою очаровательную дочь замуж за парня из мира людей, и у молодой «смешанной» пары рождается сын. Станет ли этот ребенок человеком или вампиром?Производство: США / Columbia Pictures, Sony Pictures ImageworksЖанр: Мультфильм, фэнтези, комедия, семейныйРежиссер: Генндий ТартаковскийПерсонажи: Адам Сэндлер, Энди Сэмберг, Селена Гомес, Кевин Джеймс, Стив Бушеми, Дэвид Спейд, Кигэн-Майкл Ки, Эшер Блинкофф, Фрэн Дрешер, Молли ШеннонПеревод: Дублированный (Лицензия)Субтитры: Вшитые, отключаемыеЯзык субтитров: Русский (Full), Английский (Full)Продолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9D74E66502C707E13268F566BCE643DDD3F61F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360867   (958042) от 17.02.2020
 
 Семейка Аддамс / The Addams Family (2019) BDRemux [H.264/1080p]
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958042.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958039.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957931.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957927.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957861.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957776.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957768.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957588.jpg" />
 </div>
 
 
@@ -223,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957313.jpg" />
 </div>
 
 
@@ -249,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957265.jpg" />
 </div>
 
 
@@ -275,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957045.jpg" />
 </div>
 
 
@@ -301,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957039.jpg" />
 </div>
 
 
@@ -327,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957032.jpg" />
 </div>
 
 
@@ -353,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957031.jpg" />
 </div>
 
 
@@ -379,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957029.jpg" />
 </div>
 
 
@@ -405,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957028.jpg" />
 </div>
 
 
@@ -431,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956912.jpg" />
 </div>
 
 
@@ -457,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956900.jpg" />
 </div>
 
 
@@ -483,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956811.jpg" />
 </div>
 
 
@@ -509,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956759.jpg" />
 </div>
 
 
@@ -535,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956704.jpg" />
 </div>
 
 
@@ -546,136 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A2E1DF99E80930E87062C67A0D7665BF1335EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361227   (956643) от 18.02.2020
-
-Холодное сердце 2 / Frozen II (2019) BDRip [H.265/1080p] [10-bit] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна, Эльза, Кристоф, его верный олень Свен и никогда не унывающий снеговик Олаф должны будут покинуть уютное королевство Эренделл и отправиться ещё дальше на север, в путешествие, которое приведет их к истокам древних легенд и поможет раскрыть тайны, касающиеся прошлого их родной страны.Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Крис Бак, Дженнифер ЛиПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D0834D91F5277ED1BA9D71E716524EACFCE121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361155   (956614) от 18.02.2020
-
-Семейка Аддамс / The Addams Family (2019) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Папа любит долгие прогулки в ненастную погоду. Мама считает, что черный цвет самый яркий. У детей кладбище — любимая площадка для игр. Бабушка выпивает пару капель яда перед сном. Вы все еще думаете, что ваши родственники странные? Знакомьтесь — семейка Аддамс.Производство: Канада, США / Metro-Goldwyn-Mayer (MGM), Cinesite Animation, BRON StudiosЖанр: Мультфильм, ужасы, фэнтези, комедия, семейныйРежиссер: Грег Тирнан, Конрад ВернонАктеры: Оскар Айзек, Шарлиз Терон, Хлоя Грейс Морец, Финн Вулфард, Ник Кролл, Снуп Догг, Бетт Мидлер, Эллисон Джэнни, Мартин Шорт, Кэтрин О`ХараПеревод: Дублированный, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Songs, Full), украинские (Forced), английские (Full)Продолжительность: 01:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037457B47801E667EE41976192304D726D3C80D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361222   (956609) от 18.02.2020
-
-Холодное сердце 2 / Frozen II (2019) BDRip [H.265] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна, Эльза, Кристоф, его верный олень Свен и никогда не унывающий снеговик Олаф должны будут покинуть уютное королевство Эренделл и отправиться ещё дальше на север, в путешествие, которое приведет их к истокам древних легенд и поможет раскрыть тайны, касающиеся прошлого их родной страны.Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Крис Бак, Дженнифер ЛиПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BADFC90764F6FC4FD1C6731197164F8BC075EF8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361290   (956608) от 18.02.2020
-
-Корпорация монстров / Monsters, Inc. (2001) BDRip [H.265/1080p] [10-bit] [Локализованная версия]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Склизкий гад в сливном бачке, мохнатый зверь, похожий на чудовище из «Аленького цветочка», гигантские мокрицы под кроватью — все они существуют на самом деле. Все, что им нужно — пугать детей, потому что из детских криков они получают электричество.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Пит Доктер, Дэвид Силверман, Ли АнкричПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), английские (полные, SDH-Colored)Продолжительность: 01:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5C7A9A3BA5DCE36B1DF39924935B996F922EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361118   (956601) от 18.02.2020
-
-Полный расколбас / Sausage Party (2016) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая анимационная комедия для взрослых о невероятных приключениях еды из супермаркета. Съедобным друзьям предстоит получить ответ на главный вопрос: есть ли жизнь за стенами супермаркета, и что же происходит с продуктами после того, как они попадают к людям домой?Производство: США / Annapurna Pictures, Columbia Pictures, Point Grey PicturesЖанр: мультфильм, фэнтези, комедия, приключенияРежиссер: Грег Тирнан, Конрад ВернонПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1C20E4A8D3E95EDCE67C5773475BC0B44D9F0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1863101   (1063676) от 
+
+Cactus - Temple Of Blues II (2026) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло два года с тех пор, как легендарный американский барабанщик Кармайн Эппис и его реформированная хард-/блюз-рок группа Cactus впервые открыли двери с "Temple Of Blues" — 15-трековой пластинки тяжёлого блюз-рока, на которой было задействовано множество специальных гостей, каждый из которых горячо любил эту команду. Теперь выходит вторая часть. Альбом (   Читать дальше...   )01. Back Door Man Pt. 1 & 2 (feat. Eric Gales & Billy Sheehan)
+02. 300 Pounds Of Joy (feat. Ty Tabor)
+03. Moanin' At Midnight (feat. Pat Travers)
+04. Down In The Bottom (feat. Dug Pinnick)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA75E5AAFA83A0A54E05CE362DE99F6669E6383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858217   (1060124) от 09.03.2026
 
 Philip Shouse - Side 1 (2026) EP [MP3|320 Kbps] <Hard Rock>
@@ -7,7 +36,7 @@ Philip Shouse - Side 1 (2026) EP [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060124.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ Lash! - Crank It Up (1989) 2026 [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059383.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ Mayhem Mavericks - I Can Feel The Heartache (2026) [MP3|320 Kbps] <Melodic Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054713.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ Nite Stinger - What The Nite Is All About (2026) [MP3|320 Kbps] <Melodic Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053531.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ Peter Criss - Peter Criss (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049607.jpg" />
 </div>
 
 
@@ -153,7 +182,7 @@ Erik Gronwall - Eriksplanations Vol. 3 (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047278.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ Pristine - The Lines We Cross (2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Bluesy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043937.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Arctic Rain - 2 Albums (2020-2023) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043564.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ Electric Mob - 4 Albums (2017-2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043563.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Adapter Adapter - Sleep Spell (2023) [MP3|320 Kbps] <Heavy Rock, Swamp Blues, St
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042876.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Riot After Midnight - Riot After Midnight (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042549.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Gary Schutt - Drastic Measures (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042296.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Sacrifice - Sex With Death (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042283.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Slow Burning Car - Projection (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042037.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Sammy Hagar & The Circle - Lockdown 2020 (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041490.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Be The Wolf - Torino (2021) [MP3|320 Kbps] <Hard Rock, Alt. Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041488.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Scott Seabock & The Unshakables - God Only Knows (2021) [MP3|320 Kbps] <Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041487.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Magnum - Dance Of The Black Tattoo (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041478.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ The Instatute - The Instatute (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041150.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Trust - Recidiv: Trvst I-II-III (2020) 3CD Boxset [MP3|320 Kbps] <Hard-Rock, Hea
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041115.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ The Almas - Truth Sells (2021) [MP3|320 Kbps] <Original Modern Hard Rock, Female
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041077.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Crushing Ground - Digital Vultures (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040915.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Black Cat Moan - 3 Albums (1991-2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040599.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Worldwide Panic - Worldwide Panic (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal,
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040166.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Hessler - When The Sky Is Black (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040113.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Hessler - When The Sky Is Black (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72D0B6F0DE9CE7F04409F0C230E23F185EDA97E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439769   (1039572) от 14.01.2021
-
-Leaving Eden - Fable (2021) [MP3|320 Kbps] <Hard Rock, Male & Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Inside of Me (04:18)
- 02. The Eyes of a Curious Man (03:49)
- 03. Broken (03:53)
- 04. Detached (03:59)(   Читать дальше...   )Жанр: Hard Rock, Male & Female VocalsПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BBAE53306BC54FF660199690633CCF9D9054E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

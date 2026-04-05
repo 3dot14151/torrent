@@ -6,7 +6,7 @@ Grim Facade 11: Broken Sacrament / За гранью жестокости 11: Р
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705988.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Witches Legacy 11: Rise of the Ancient (2017) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705356.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Enchanted Kingdom 7: The Secret of the Golden Lamp / Зачарованное к
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705307.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Legacy 2: Prisoner (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705202.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Surface 12: Project Dawn (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705197.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dawn of Hope 3: The Frozen Soul / Рассвет надежды 3: Ледяна�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705191.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Cursed Fables: White as Snow (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705006.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Harrowed Halls: Lakeview Lane / Обитель Страданий: Лейквь�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704538.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Queen's Quest 3: End of Dawn / Королевский квест 3: Конец �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704470.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Enchanted Kingdom: A Dark Seed / Зачарованное Королевство
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704403.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Enchanted Kingdom 5: Descent of the Elders (2019) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703461.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Paranormal Files 4: Hook Man's Legend / Паранормальные явлен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703384.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Labyrinths of the World 12: Hearts of the Planet (2020) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701574.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Dark Romance 10: Hunchback of Notre-Dame / Мрачная история 10: Г�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699035.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Spirit of Revenge 3: Gem Fury (2015) [En] (1.0) Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698356.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Dark Dimensions 7: Blade Master (2016) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698020.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Spirit of Revenge 3: Gem Fury / Месть духа 3: Самоцвет ярос
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697905.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Haunted Legends 6: The Dark Wishes (2015) [En] Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697410.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Labyrinths of the World 9: Lost Island / Лабиринты Мира 9: Зате
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697269.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Dark Dimensions 5: Homecoming / Темные измерения 5: Возвра�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696988.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Mystery Trackers 11: Train to Hellswich / Охотники за тайнами 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696710.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Nevertales 7: Creators Spark / Несказки 7: Искра Создателя
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696618.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Saga Of The Nine Worlds 2: The Four Stags / Сага о Девяти Мирах 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696499.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Cadenza 5: The Eternal Dance (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694184.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Noir Chronicles: City of Crime (2018) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694183.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Demon Hunter 4: Riddles of Light (2017) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694180.jpg" />
 </div>
 
 

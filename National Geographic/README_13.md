@@ -6,7 +6,7 @@ NGW: Глубоководные убийцы / Deep sea killers (2017) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709859.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Дикая река Конго / Wild Congo (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709850.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708969.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Разобрать до основания. Суперджеты (Больш
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708968.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Смертоносная Африка. Степи / Africa's Deadly Kingdom
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708855.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Возрождение морского шелкового пути / Mariti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708619.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NGW: Самые странные в мире питомцы / World's weirdest p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708105.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NGW: Смертоносная Африка. Калахари / Africa's Deadly K
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706973.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706234.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Истории о Боге с Морганом Фриманом / The Story 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706233.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NGW: Первая тройка самых опасных животных. Ма�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706092.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NGW: Возвращение львов / Return of the lion (2016) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706090.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NGW: Молниеносные акулы / Blitzkrieg sharks (2016) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706089.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NGW: Хищники Аляски. Царство китов-убийц / Alaska'
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706086.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NGW: Укусить. Ужалить. Убить. Монстры в тени / Bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706080.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NGW: Самые странные животные в мире. В толще м�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706079.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NGW: Самые опасные убийцы. Ночные сталкеры / Wor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705994.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ NGW: Заклятые враги. Кошки против собак / Ultimate 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705990.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NGW: Дикая Монголия: страна крайностей. Выжив�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705066.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NGW: Человек против животного / Man V. animal (2017) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704416.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NGW: Южная Африка. Колыбель убийц / South Africa. Cradle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704406.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NGW: Хищники Аляски. Поле боя гризли / Alaska's Deadli
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704314.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NGW: Африка. Убийцы с фантазией / Africa's Creative Killer
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704313.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ NG: Человекообразные обезьяны / Human Ape (2017) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701358.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ NG: Кусать, жалить, убивать / Bite, Sting, Kill (2017) HDTVRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700355.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NG: Прорыв / Breakthrough (2015) SATRip (Серии 1-6 из 6)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700195.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1814008   (3679) от 09.09.2025
+
+Формула-1 / F1: The Movie (2025) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенду гоночного спорта, Сонни Хейза, ушедшего на покой, уговаривают вернуться. Он должен возглавить отстающую команду «Формулы-1» и обучить молодого пробивного гонщика, заодно получая еще один шанс прославиться.Производство: США / Apple Studios, Jerry Bruckheimer Films, Plan B EntertainmentЖанр: боевик, драма, спортРежиссер: Джозеф КосинскиАктеры: Брэд Питт, Демсон Идрис, Хавьер Бардем, Керри Кондон, Тобайас Мензис, Ким Бодния, Сара Найлз, Уилл Меррик, Пепе Балдеррама, Абдул СэлисПеревод: Дублированный (Movie Dubbing официальный; Red Head Sound, Jaskier неофициальные)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full, SDH), английские (Full, SDH)Продолжительность: 02:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6020EC10AAD5BC1A9FB624EC70C31143866B138F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720561   (3676) от 09.09.2025
+
+Серж Винтеркей, Артем Шумилин | Цикл "Ревизор: возвращение в СССР" [43 книги] (2024-2025) [FB2] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не думал, не гадал матерый московский аудитор, что на шестом десятке лет помрет и угодит в СССР, аж в 1971 год. Прощай, раскрученный бизнес и уютная Мазда СХ-5 с трехмесячным пробегом. Зато... здравствуй, молодость! Вот за молодость-то все это не жалко и отдать!Жанр: Попаданцы, Альтернативная историяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14764B9341F5FE7B4B0807DD25E04A0D4E9BECD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816834   (3667) от 09.09.2025
 
 Российский аналог Википедии ликвидируют за 303 млн рублей
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3667.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack Decept
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3417.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3414.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3411.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3266.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.09.07 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3095.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3093.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3091.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.11.371/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3088.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3085.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Starlink обеспечит связь напрямую со смартфона�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3047.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2713.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2712.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Cyberpunk 2077 (2020) [Ru/En] (2.31/dlc) Repack Other s [Ultimate Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2574.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2572.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ NASA представило самые веские доказательства
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2557.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Tempest Rising (2025) [Ru/Multi] (1.4.0+50185/dlc) Repack Let'sРlay [Deluxe Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2424.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2275.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2252.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2130.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Rutube объяснил: пиратский контент на хостинг �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2101.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1924.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1721.jpg" />
 </div>
 
 
@@ -607,66 +659,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1551.jpg" />
 </div>
 
 
 ###  Подробнее
 
 За победу в Международном музыкальном конкурсе вьетнамскому артисту полагается хрустальный кубок и 30 миллионов рублей.Напомним, что в «Интервидении» приняли участие представители 23 стран. Россию на конкурсе представлял певец Ярослав Дронов (Shaman). После своего выступления он попросил членов жюри его не оценивать. Дронов сказал, что по законам гостеприимства он (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790009   (1549) от 22.09.2025
-
-Witch Watch | Ведьмнадзор [2025, TV, 24 из 25 эп.] WEBRip 720 raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нико Вакацуки закончила свое шестилетнее обучение ведьм и возвращается в город одна. Как новая ведьма, она должна выбрать себе спутника. Однако, в отличие от других ведьм, она хочет выбрать неживотного спутника. Нет лучшего спутника, чем Морихито «Мои» Отоги — ее друг детства, который оказался огром. Морихито категорически против того, чтобы быть ее слугой, но он (   Читать дальше...   )Производство: студия Bibury Animation Studios / バイブリーアニメーションスタジオЖанр: комедияРежиссер: Икэхата ХиросиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819687   (1256) от 24.09.2025
-
-Хакеры  SKIDROW сделали сенсационное заявление о взломе антипиратской защиты Denuvo
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа SKIDROW сообщила о том, что им удалось взломать Tourist Bus Simulator, которая была защищена Denuvo.В отличии от стандартных взломов Denuvo, которые не удаляют саму защиту из игры, а лишь обходят её, SKIDROW утверждают, что выполнили полное удаление защиты из EXE-файла игры, что "было чертовски сложной задачей".
-(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

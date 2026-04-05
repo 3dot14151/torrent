@@ -1,3 +1,55 @@
+###  Публикация: 1172917   (391853) от 09.10.2017
+
+Герман Шрайбер | Инфракрасные лучи в электронике (2009) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электроника – взаимодействие заряженных частиц (электронов, ионов) с электромагнитными полями, на котором основана работа электронных приборов и устройств, – не воспринимается ни одним из наших органов чувств. Она позволяет управлять механизмами посредством невидимой для глаза связи, дает службам безопасности возможность вести незаметное наблюдение, выполнять неакустическую (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA32B2ED6F0AB8398360BCE61AD9AF1822420E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172900   (391710) от 09.10.2017
+
+А.С. Храмушин | Hi-end-усилители на «военных» лампах (2017) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Александра Сергеевича Храмушина «Hi-end-усилители на военных лампах» написана для всех любителей «лампового» звука, как умеющих держать в руках паяльник, так и тех, кто только пользуется ламповой аудиотехникой. Не секрет, что ламповая аудиотехника, имеющаяся в продаже, стоит совсем недешево. Расходы можно существенно снизить, если собрать усилитель самому или (   Читать дальше...   )Жанр: АудиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA650B55281DF110CAECAD1E681F468B3B9B81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174060   (388875) от 13.10.2017
 
 Б.Ф. Ширшиков, М.Н. Ершов | Реконструкция объектов. Организация работ. Ограничения. Риски (2010) [PDF]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388875.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385153.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385057.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384511.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383435.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383427.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382837.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382637.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382489.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382350.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380927.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380924.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380795.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379307.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378924.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378476.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378461.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378327.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376003.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376001.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374214.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373799.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372761.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371650.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C3FB7F5F1C00727799DD120BA79D9C421BDC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327811   (369604) от 27.09.2019
-
-Книжная серия | Для любознательных. Просто о сложном! [7 книг + 2CD] (2017-2019) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия предназначена для широкого круга любознательных читателей, увлеченных электротехникой, электроникой, авиацией, беспилотными полетами, микроконтроллерами, техническим творчеством и занимательными самоделками. С модулем Arduino можно успешно работать и в Windows, и в Linux, чему производители сегодня уделяют большое внимание. Но успех приходит только с опытом. (   Читать дальше...   )Жанр: Компьютерная литература, электротехника,электроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17E3913B79F8AFE4650DA0A25CC6D09917D3D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176743   (367234) от 23.10.2017
-
-П.А. Акимов, М.Л. Мозгалева | Многоуровневые дискретные и дискретно-континуальные методы локального расчета строительных конструкций (2014) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены многоуровневые дискретные и дискретно-континуальные методы локального расчета строительных конструкций. Представленные подходы основаны на использовании современных математических средств, в частности элементов функционального анализа, теории обобщенных функций и численных методов, адекватных текущему уровню развития компьютерной техникиЖанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BA625FE6B47DFEC916E9428D6CA0B084CE4F56
 ```
 
 https://mybot314.ru/tekegram_catalog/

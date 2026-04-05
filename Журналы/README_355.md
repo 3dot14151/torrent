@@ -1,3 +1,134 @@
+###  Публикация: 944037   (445064) от 05.10.2015
+
+Журнал | Знание-сила №10 (октябрь 2015) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A59962D2FDABC2737D5ED5C4DF9AE5A30ABD62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 706228   (444886) от 02.10.2013
+
+Газета | Аргументы и факты №40 (октябрь 2013) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная газета «Аргументы и Факты» - одно из самых популярных изданий в России и за рубежом. Основные темы: информация о событиях в России и за рубежом, политика, культура, экология, социальные проблемы и многое другое.В номере - у кого еще из депутатов "мандат в пуху", свинной грипп - уже не миф, а эпидемия, у нас в разведке служат боевые мыши, объединенный (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B485BCB988FE5B1A8829727C4B644CF2365DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248261   (444794) от 19.09.2018
+
+Журнал | Садовод и огородник №17 (сентябрь 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444794.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Только в «Садоводе и огороднике»: самые актуальные и полезные советы от ученых, а также проверенные толковые подсказки от садоводов-любителей. Журнал знакомит своих (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A489AA5CFF239138225A23FF3131E96A256DC13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248264   (444793) от 19.09.2018
+
+Газета | Дача №18 (114) (сентябрь 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Газета "Дача" - верный ассистент для садоводов и огородников. Все ответы на основные вопросы дачников и садоводов Вы просто отыщите на страничках издания. Своими секретами больших урожаев, советами и фуррорами делятся огородники со стажем Воспользуйтесь их опытом и таковым образом Вы убережете высадки от почти всех напастей. На страничках журнальчика - (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E26964646998B0633EE5B645611A756759045B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248466   (444790) от 19.09.2018
+
+Журнал | Story [Россия] №10 (117) (октябрь 2018) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444790.jpg" />
+</div>
+
+
+###  Подробнее
+
+"STORY" не исторический журнал, а журнал историй, которые позволяют увидеть и понять многообразность человеческих судеб.
+Наши герои - исторические и современные, персоны знаковые, определившие лицо своего времени и поколения, сумевшие изменить ход истории, будь то история кинематографа, живописи, литературы, музыки, науки . или же истории в широком понимании (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2810455DE53108AFD2790D8E998384D2256C8D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 706327   (444736) от 02.10.2013
 
 Журнал | Сам [Россия] №10 (октябрь 2013) [PDF]
@@ -6,7 +137,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444736.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444733.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444714.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444673.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444665.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444657.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444507.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444364.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444290.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444169.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444166.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444160.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444144.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444068.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443993.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443835.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443654.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442948.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442930.jpg" />
 </div>
 
 
@@ -501,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442776.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442773.jpg" />
 </div>
 
 
@@ -538,137 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFF984F951249C55D089789B1CD565B449E95A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944191   (442772) от 06.10.2015
-
-Журнал | Прорез №4 (85) (2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442772.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прорез» - самый авторитетный отечественный журнал о ножах, клинковом оружии, инструментах и обо всём, что с ними связано. Даны подробные описания и особенности различных моделей, обзоры новинок и новых технологий, приемы самообороны. «Прорез» - первый журнал о ножах не только в России, но и на всем постсоветском пространстве, продолжает выполнять свою благородную (   Читать дальше...   )Жанр: Журнал о ножах и клинковом оружииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A7DD4763ABEB5AC5A16FB95702A86F1DAA6DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944362   (442771) от 06.10.2015
-
-Журнал | Дарья. Биография №11 (ноябрь 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
-Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: Жизнь знаменитых людейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79367461160FB04D61B5E1278A9EFCD338FDAABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944161   (442765) от 06.10.2015
-
-Журнал | IT Expert №9 (240) (сентябрь-октябрь 2015) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442765.jpg" />
-</div>
-
-
-###  Подробнее
-
-IT Expert - журнал для профессионалов в области IT. На страницах издания можно узнать новости и статьи о последних технологических разработках, о тестировании новых продуктов, оценку рыночной ситуации в различных сегментах IT-индустрии как в России, так и за рубежом.Жанр: Журнал для профессионалов в области ITФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D384AF46F448AE5D6989D65143A3140111258D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944192   (442665) от 06.10.2015
-
-Журнал | Прорез №5 (86) (2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442665.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прорез» - самый авторитетный отечественный журнал о ножах, клинковом оружии, инструментах и обо всём, что с ними связано. Даны подробные описания и особенности различных моделей, обзоры новинок и новых технологий, приемы самообороны. «Прорез» - первый журнал о ножах не только в России, но и на всем постсоветском пространстве, продолжает выполнять свою благородную (   Читать дальше...   )Жанр: Журнал о ножах и клинковом оружииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:850A60E23BEEAB78B46D7D5EF766DA9BBABEB24D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 828016   (442640) от 05.10.2014
-
-Журнал | Chip [Украина] №9 (сентябрь 2014) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B92F631C3EAA006B2DB74F17AA0806A252EE95
 ```
 
 https://mybot314.ru/tekegram_catalog/

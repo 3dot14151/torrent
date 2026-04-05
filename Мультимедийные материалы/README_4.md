@@ -6,7 +6,7 @@
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700313.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cordis Media | Продажи – на максимум! [2005] [unpacked]
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697961.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ CHIP - DVD приложение к журналу CHIP №7 (Июль 2016) [unp
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695909.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Javabegin | RESTful сервисы на SpringBoot + JavaFX (2019) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693764.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Javabegin | Базы данных и SQL в Java: для новичков (2019)
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693620.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Javabegin | Основы Spring Framework (2019) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693600.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Javabegin | Основы Swift c нуля (2018) [unpacked]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691923.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Javabegin | Разработка iOS приложения c нуля - Swift 4, 
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691806.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691775.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ CHIP | DVD приложение к журналу CHIP №06 Июнь 2017 [unpa
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674363.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674055.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673940.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673537.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ CHIP | DVD приложение к журналу CHIP №5 (Май 2018)[unpack
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672958.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ DVD - приложение к журналу Hard' n' Soft №5 (214) Май 201
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664611.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659514.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_652889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_652889.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_652885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_652885.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649915.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ zwook.ru | Мастеринг электронной музыки своими �
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648857.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ zwook.ru | Написание электронной музыки. Полный 
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648794.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648047.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ DVD приложение к журналу "Хакер" №07 (162), 2012 [unpac
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644673.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ CHIP | DVD приложение к журналу CHIP №6 июнь (2018) [unp
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644499.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644224.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642744.jpg" />
 </div>
 
 

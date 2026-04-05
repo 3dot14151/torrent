@@ -1,3 +1,133 @@
+###  Публикация: 1670668   (171331) от 24.10.2023
+
+Космобой / Kid Cosmic (2021-2022) WEB-DLRip [H.264/1080p] (сезон 1-3, серии 1-24 из 24) VSI Moscow, TVShows, HDRezka Studio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик находит пять мощных космических камней, и его мечта стать супергероем сбывается. Но спасать мир всё же не так просто — и одному ему точно не справиться. Эпицентр повествования сюжетной линии мультсериала "Космобой" займет девятилетний малец, поведение которого вызывает определенные странности. Мальчик, проживающий с дедушкой на территории небольшой (   Читать дальше...   )Производство: США, Netflix Animation, Craig McCracken ProductionsЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Крэйг МакКрекен, Дэйв Томас, Роберт Ренцетти, Пол Уотлинг, Бенжамин БалистрериАктеры: Джек Фишер, Аманда Селин Миллер, Лили Роуз Сильвер, Том Кенни, Кит Фергюсон, Фред Татаскьор, Грей ДеЛайл, Ким Ярбро, Кристиан Ланц, Эрик БаузаПеревод: Дублированный (VSI Moscow), многоголосый закадровый (HDRezka Studio, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, forced), английские (full)Продолжительность: 24 x ~ 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5791D3204BDE641E8090F7A322B7958F741D505F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671417   (171319) от 24.10.2023
+
+Однажды в студии / Once Upon a Studio (2023) WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171319.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 октября 2023 года исполнилось 100 лет студии Walt Disney. В честь этого события выпущен короткометражный мультфильм, где все звёздные персонажи Walt Disney собрались для всеобщей фотографии.Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, короткометражка, мюзикл, фэнтези, комедия, семейныйРежиссер: Дэн Абрахам, Трент КорриАктеры: Скотт Эдсит, Стэн Александр, Стефен Дж. Андерсон, Тони Ансельмо, Аквафина, Джейсон Бейтман, Билл Бауком, Питер Бен, Кристен Белл, Джоди БенсонПеревод: профессиональный многоголосый (Jaskier)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 00:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86768DC907AFA633B0D1B270982A62929DA53595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671950   (170998) от 26.10.2023
+
+Павлиний хвост (1946) BDRip [H.264/1080p-LQ] [handmade]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медведь приходит к доктору Айболиту и просит приклеить ему хвост. Из предложенных ему хвостов он выбирает павлиний.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Леонид Амальрик, Владимир ПолковниковАктеры: Леонид Пирогов, Георгий Вицин, Владимир Благообразов, Юлия ЮльскаяСубтитры: ОтсутствуютПродолжительность: 00:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024776AED773DF8451C71811A7A44C872D1CE7ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544518   (170926) от 05.12.2021
+
+Тысяча и одна ночь / Pohadky tisice a jedne noci (1974) DVDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Традиционный сюжет знаменитой восточной сказки про Синдбада-Морехода представлен в безупречном графическом исполнении, живо и образно. Лучшая альтернатива американской анимационной традиции — добрый, спокойный фильм, воспитывающий у юных зрителей чувство вкуса и стиля.Жанр: мультфильм, приключения, семейныйРежиссер: Карел ЗеманПеревод: ДублированныйПродолжительность: 01:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF048111D15146A5D98474E2219F45AFA274996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344254   (170910) от 09.12.2019
+
+Дом / Home (2015) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватив Землю, раса пришельцев Був тут же начинает заниматься её благоустройством и реорганизацией. «Не стоит благодарности!» — заявляют они землянам, собранным на время в отдельных резервациях. Находчивая и рисковая девочка по имени Дар, чудом сбежавшая от пришельцев, встречает на своем пути самого раздражающе-оптимистичного Бува по имени О, отвергнутого своими (   Читать дальше...   )Производство: США / DreamWorks AnimationЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Тим ДжонсонПеревод: Дублированный (Лицензия)Субтитры: Русские, украинские, английскиеПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821563D0FB0098B105DB833944BEAA62E986CD50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053241   (170875) от 05.12.2021
 
 Лев Лео, король джунглей / Leo the Lion: King of the Jungle (1994) DVDRip
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170875.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170855.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170850.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170828.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170818.jpg" />
 </div>
 
 
@@ -139,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170806.jpg" />
 </div>
 
 
@@ -165,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170787.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170779.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170773.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170704.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170445.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170315.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170305.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170257.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170255.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170238.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170208.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170203.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170175.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170132.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170130.jpg" />
 </div>
 
 
@@ -541,137 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30683DB439D02DB11DC13ED9D6AC585F8BE0D064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515242   (170114) от 06.12.2021
-
-Митчеллы против машин / The Mitchells vs. the Machines (2021) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка-подросток Кэти Митчелл всегда считала, что родители не понимают её увлечений — делать странные фильмы про всё вокруг, в том числе про мопса-полицейского с семейным питомцем в главной роли. Поэтому когда она поступила в киношколу на другом конце страны, счастью не было предела. Кэти не могла дождаться, когда же она наконец сядет в самолёт и полетит к понимающим (   Читать дальше...   )Производство: США, Канада, Франция / Columbia Pictures Corporation, Lord Miller, Sony Pictures AnimationЖанр: Компьютерная анимация, Приключения, Комедия, ФэнтезиРежиссер: Майкл Рианда, Джефф РоуАктеры: Эбби Джейкобсон, Дэнни Макбрайд, Майя Рудольф, Майкл Рианда, Эрик Андре, Оливия Колман, Фред Армисен, Бек Беннетт, Крисси Тиган, Джон ЛеджендПеревод: Дублированный (Пифагор)Субтитры: Русские (forced, full) - отдельноПродолжительность: 01:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE59F820843A4DA53E6C99B38E56750621221C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515246   (170040) от 06.12.2021
-
-Дневник слабака / Diary of a Wimpy Kid (2021) WEB-DLRip [DVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анимационная адаптация серии популярных произведений писателя Джеффа Кинни, которые рассказывают о приключениях робкого и неуверенного в себе ученика средней школы Грега Хеффлии, но строящего весьма амбициозные планы на свою дальнейшую жизнь, и его верного друга Роули Джефферсона.Производство: Канада, США, 20th Century Fox Animation, Bardel Entertainment Inc., Walt Disney Company, Twentieth Century AnimationЖанр: Мультфильм, драма, комедия, семейныйРежиссер: Свинтон О. Скотт IIIАктеры: Сайрус Арнольд, Эрика Серра, Лоссен Чэмберс, Кристиан Конвери, Бренда Кричлоу, Крис Диамантопулос, Хантер Диллон, Тесса Эспинола, Брук Д. СинглтонПеревод: Двуголосый любительский (Pazl Voice)Субтитры: Английские - отдельным файломПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F22FF849CAC9810E84D1653BB712DD67457DF15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348790   (170027) от 06.12.2021
-
-Волшебное рождество у Микки: Запертые снегом в мышином доме / Mickey's Magical Christmas: Snowed in at the House of Mouse (2001) WEB-DL [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда из-за снежной бури все вынуждены остаться дома, Микки и гости его Мышиного Дома, включая Пуха, Поросенка, Бэлль, Белоснежку, Ариэль и многих других старых и новых друзей, из всех сил пытаются с помощью печенья и горячего шоколада развеселить Дональда и исправить его испорченное рождественское настроение.
-Веселье начинается, когда Минни предлагает посмотреть (   Читать дальше...   )Производство: США / Disney Television AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Тони Крэйг, Роберт Ганнавей, Рик ШнайдерПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F806DB8C7EF56177A2BDE6613AAF2408DA84EE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672064   (169936) от 27.10.2023
-
-Корпорация «Заговор» / Inside Job (2021-2022) WEB-DLRip [H.264/1080p] (сезон 1-2, серии 1-18 из 18) SDI Media, TVShows, NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169936.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета функционирование секретной американской компании. Люди работают в организации, которая буквально на каждом шагу находится под грифом абсолютно секретно. Персонал предприятия постоянно ведет деятельность, предотвращая всевозможные правонарушения. В основном, герои раскрывают тайны, интриги, заговоры и перевороты мирового уровня. Для обычных пользователей (   Читать дальше...   )Производство: США, Bento Box Entertainment, Neptoon Studios, Netflix AnimationЖанр: для взрослых, фэнтези, комедияРежиссер: Пит Мишелс, Виталий Строкоус, Майк ХоллингсвортАктеры: Уилл Блэгроув, Тиша Кэмпбелл, Лиззи Каплан, Эндрю Дэйли, Джон Ди Маджио, Кларк Дьюк, Бретт Гельман, Бобби Ли, Кристиан СлэйтерПеревод: Дублированный (SDI Media), профессиональный многоголосый (TVShows, NewStation)Язык озвучки: Русский, Английский, УкраинскийСубтитры: русские (full, forced), украинские (full, forced), английские (full, SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CE582F5C1B208E9E71D511CF1DA6DA73D26F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672063   (169879) от 27.10.2023
-
-Корпорация «Заговор» / Inside Job (2021-2022) WEB-DL [H.265/1080p] [HDR10, 10-bit] (сезон 1-2, серии 1-18 из 18) SDI Media, TVShows, NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169879.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета функционирование секретной американской компании. Люди работают в организации, которая буквально на каждом шагу находится под грифом абсолютно секретно. Персонал предприятия постоянно ведет деятельность, предотвращая всевозможные правонарушения. В основном, герои раскрывают тайны, интриги, заговоры и перевороты мирового уровня. Для обычных пользователей (   Читать дальше...   )Производство: США, Bento Box Entertainment, Neptoon Studios, Netflix AnimationЖанр: для взрослых, фэнтези, комедияРежиссер: Пит Мишелс, Виталий Строкоус, Майк ХоллингсвортАктеры: Уилл Блэгроув, Тиша Кэмпбелл, Лиззи Каплан, Эндрю Дэйли, Джон Ди Маджио, Кларк Дьюк, Бретт Гельман, Бобби Ли, Кристиан СлэйтерПеревод: Дублированный (SDI Media), профессиональный многоголосый (TVShows, NewStation)Язык озвучки: Русский, Английский, УкраинскийСубтитры: русские (full, forced), украинские (full, forced), английские (full, SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEAF6C87945CC3D892D5DBCD0ACB520BC6C3FC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

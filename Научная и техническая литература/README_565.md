@@ -1,135 +1,3 @@
-###  Публикация: 1600825   (153765) от 29.12.2022
-
-М.Б.Яворский | Основные вопросы современного школьного курса физики (1980) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основные идеи теории относительности и квантовой механики кажутся при первом знакомстве с ними необычными, противоречащими тому, к чему человек привыкает в повседневной жизни. Сложившееся традиционное обучение физике в школьном курсе во многом способствует тому, что новые идеи трудно усваиваются. Невозможность свести новые идеи к привычным представлениям, отсутствие (   Читать дальше...   )Жанр: физика, пособие для учителейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2B63CE3B834B7D81EC5856B4DA71653E5FCC8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600963   (153755) от 29.12.2022
-
-Б.С. Ишханов | Физика атомного ядра и частиц (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание содержит 13 лекций по курсу Физика атомного ядра и частицЖанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C1D2D4A4A4EED0DBEDB4C0BC09F2324F8BA2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600454   (153652) от 29.12.2022
-
-Марк Крилли | Рисуем мангу 3. Курс по созданию персонажей с Марком Крилли (2022) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречай третью часть популярного руководства по рисованию манги от самого известного американского мангаки Марка Крилли! В этой книге собрано еще больше полезных пошаговых уроков по рисованию в стиле аниме! Ты узнаешь все о рисовании необычных персонажей в уникальных стилях (от мехароботов до милых чиби), научишься создавать правильную раскадровку для комикса, а (   Читать дальше...   )Жанр: Учебник, Рисование, МангаПеревод: М. СавицкийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860B158D8D71A4CB1EA8B8896EABE0D69300FFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600494   (153644) от 29.12.2022
-
-Марк Крилли | Рисуем мангу 2. Учимся создавать комикс с нуля (2022) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед тобой вторая часть популярного издания по рисованию манги, написанная Марком Крилли – известным американским художником и преподавателем. В ней собрано еще больше уроков и полезных материалов, которые помогут каждому желающему стать мангакой. Автор расскажет основные правила рисунка персонажа, построения композиции и выбора дальнего плана, а также поделится (   Читать дальше...   )Жанр: Учебник, Рисование, МангаПеревод: Валерия МалаховаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14395ECEA95259EBB7024EA415D2DAC906B06EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600613   (153639) от 29.12.2022
-
-Кристофер Харт | Fashion манга. Учимся рисовать стильных персонажей (2022) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавай собственных персонажей в жанре манга и аниме, одетых по последнему слову моды. Автор популярной серии книг по рисованию Кристофер Харт поможет разобраться, как рисовать девушек и парней в японском стиле, и пошагово покажет, как выбрать для них соответствующий аутфит.
-
-В этой книге ты узнаешь главные правила создания собственных героев и пройдешь пошаговое (   Читать дальше...   )Жанр: Учебник, Рисование, МангаПеревод: Н. ГерасимчукФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDBEADFCAEA6B725CEF20EB9AA659493C652764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677010   (153272) от 16.11.2023
 
 Н. Мотт, Э. Дэвис | Электронные процессы в некристаллических веществах (1974) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153272.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153261.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153238.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153183.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153169.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153048.jpg" />
 </div>
 
 
@@ -294,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153005.jpg" />
 </div>
 
 
@@ -320,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152989.jpg" />
 </div>
 
 
@@ -346,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152979.jpg" />
 </div>
 
 
@@ -372,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152945.jpg" />
 </div>
 
 
@@ -398,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152928.jpg" />
 </div>
 
 
@@ -424,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152912.jpg" />
 </div>
 
 
@@ -450,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152805.jpg" />
 </div>
 
 
@@ -479,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152798.jpg" />
 </div>
 
 
@@ -505,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152583.jpg" />
 </div>
 
 
@@ -532,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152555.jpg" />
 </div>
 
 
@@ -561,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152537.jpg" />
 </div>
 
 
@@ -587,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152527.jpg" />
 </div>
 
 
@@ -613,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152415.jpg" />
 </div>
 
 
@@ -639,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152414.jpg" />
 </div>
 
 
@@ -665,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152410.jpg" />
 </div>
 
 
@@ -676,6 +544,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C1B2A92D1BCEB0557F7959CA75A72FADAAC8C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518751   (152383) от 21.12.2021
+
+Юлия Андреева | Лёгкий русский совсем без нагрузки (2021) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы все общаемся на одном языке, но не всегда правильно понимаем друг друга. Как это работает, а главное – как это исправить? Ведь наше умение владеть речью влияет на качество рабочих и личных отношений.
+Перед вами квинтэссенция семилетней практики в обучении взрослых грамотности и культуре речи. Кому-то эта книга поможет восполнить пробелы в знании русского языка, (   Читать дальше...   )Жанр: Научно-популярная литература, Русский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F7D24D1B2C84938F4DEBE9CFE0FD817B433F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271172   (152380) от 22.12.2018
+
+А. С. Бубнов и др. (общ. ред.) | Гражданская война 1918-1921 [3 тома] (1928-1930) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гражданская война в истории человечества — явление не новое, так как вся история до сих пор существующего общества была историей борьбы классов, а классовая борьба, обостряясь до своего наивысшего предела, превращалась в гражданскую войну.
+
+Но если гражданская война в истории человеческого общества представляет из себя явление не новое, то гражданская война 1918—1921 (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3067B7BF80E5CFFF43FE6590BDA587B7A34124C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347394   (152376) от 23.12.2019
+
+Л. Я. Зиман | Капиталистический мир. Экономическая и политическая география (1934) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для буржуазной экономической и политической географии характерны, с одной стороны, грубый эмпиризм, нагромождение массы фактов без их обобщения и осмысливания, а с другой стороны, голые абстракции, максимально отрываемые от конкретной действительности. После того, как т. Сталин своим письмом в редакцию «Пролетарской революции» мобилизовал большевистскую бдительность (   Читать дальше...   )Жанр: История, политология, экономика, географии, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8780BE3699BD86BF4C03B26BF36E79CC90A9D91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271268   (152371) от 22.12.2018
+
+Барри Уилкинсон | Основы проектирования цифровых схем (2004) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена вопросам проектирования цифровых логических схем. В краткой, но строгой форме в ней излагаются методы проектирования основных классов логических схем - от вентилей до схем на программируемых логических матрицах. Данная книга будет особенно полезной для студентов, изучающих электронику и вычислительную технику. Великолепная методика изложения, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13C91EB398F3BB25183DD82ED576E2747FC7DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601289   (152321) от 30.12.2022
+
+Н.С. Фролова | Тектонофизика (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены 16 лекций по курсу ТектонофизикиЖанр: Физика, геологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150A998711ABD47E30A1EE66CF32FAEC28DDD78F
 ```
 
 https://mybot314.ru/tekegram_catalog/

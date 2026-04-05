@@ -1,3 +1,119 @@
+###  Публикация: 1306343   (555669) от 04.06.2019
+
+K-Man & The 45s - Stand With The Youth (2019) [FLAC|Lossless|tracks + .cue] <Rock, Punk, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand With the Youth (3:12)
+02. Hero With a Death Ray (1:36)
+03. Watcha Doing to Me (2:49)
+04. Get Outta My Head (2:08)(   Читать дальше...   )Жанр: Rock, Punk, SkaПродолжительность: 33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD0901BFD8CA06BD6F487B03D8698C5BECBA996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306508   (555582) от 05.06.2019
+
+Elvenking - Two Tragedy Poets and a Caravan of Weird Figures (2008) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Caravan Of Weird Figures
+02. Another Awful Hobs Tale
+03. From Blood To Stone
+04. Ask A Silly Question(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF9E0979B1F9EFDE9D1EA94072301A3A2CBB364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306552   (555580) от 05.06.2019
+
+Departure Chandelier - Antichrist Rise To Power (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (Napoleon's Sword) (02:28)
+2. Life Escaping through the Candle's Smoke (04:22)
+3. Forever Faithful to the Emperor (04:54)
+4. Catacombs Beneath the Castle of the Marquis (04:58)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5015F2E150E8348B8D98DAC268EDDD75E2FD66FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306498   (555570) от 05.06.2019
+
+The Hawkmen - The Hawkmen (2019) [MP3|320 Kbps] <Rhythm & Blues, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love is blind (02:53)
+02. Soulful dress (02:59)
+03. Acai (02:44)
+04. Chemistry of love (03:07)(   Читать дальше...   )Жанр: Rhythm & Blues, RockabillyПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D732793FF3E283EACE467C2656FB682EC64F827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306671   (555493) от 06.06.2019
 
 Genghis Tron - Triple Black Diamond (2007) EP, Limited Edition [FLAC|Lossless|tracks + .cue] <Grindcore, Experimental>
@@ -6,7 +122,7 @@ Genghis Tron - Triple Black Diamond (2007) EP, Limited Edition [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555493.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Texas Hippie Coalition - Dark Side Of Black (2016) [FLAC|Lossless|tracks + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555490.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Texas Hippie Coalition - Peacemaker (2012) [FLAC|Lossless|tracks + .cue] <Southe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555485.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Santana - Africa Speaks (2019) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555450.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Rammstein - Rammstein (2019) [FLAC|Lossless|tracks + .cue] <Neue Deutsche Härte
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555391.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Le Orme ‎ - Sulle Ali Di Un Sogno (2019) [FLAC|Lossless|tracks + .cue] <Prog R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555374.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Awaken - Identity (2019) [MP3|320 kbps] <Modern Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555360.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Eyes Wide Open - The Upside Down (2019) [MP3|320 kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555359.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Mike + The Mechanics - Out of the Blue (2019) [FLAC|Lossless|tracks + .cue] <Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555353.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Phil Collins - Other Sides (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555325.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Witchfinder General - Buried Amongst The Ruins (2007) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555253.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Witchfinder General - Resurrected (2008) [FLAC|Lossless|image + .cue] <Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555252.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Sopor Aeternus & The Ensemble Of Shadows - Sanatorium Altrosa (Musical Therapy F
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555224.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Dope - The Early Years - 1997/1998 (2017) Compilation, Remastered [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555082.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Darkthrone - Old Star (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555054.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Phil Collins - Remixed Sides (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555011.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Soulskinner - Crypts of Ancient Wisdom (2014) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554932.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ The Lovemongers - Here Is Christmas (1998) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554930.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Taste Of Blood - My Dragon (2007) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554929.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Hermetica - Hermetica & Interpretes (1991) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554928.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Dead to a Dying World - Elegy (2019) [FLAC|Lossless|tracks + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554921.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ The Head and the Heart - Living Mirage (2019) [FLAC|Lossless|tracks + .cue] <Ind
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554918.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ The Head and the Heart - Living Mirage (2019) [FLAC|Lossless|tracks + .cue] <Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5A6DF587788C07FC469E75FDF83BCE321454CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306937   (554907) от 10.06.2019
-
-Jordan Rudess - Wired for Madness (2019) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554907.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wired for Madness - Part 1 (11:48)
-2. Wired for Madness - Part 2 (22:40)
-3. Off the Ground (4:51)
-4. Drop Twist (4:10)(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315B32C42B39D79C8116370199748E2492D5C0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307083   (554882) от 10.06.2019
-
-Santana - Africa Speaks (2019) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Latin Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554882.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Africa Speaks (feat. Buika)[4:48]
- 2 - Batonga (feat. Buika)[5:43]
- 3 - Oye Este Mi Canto (feat. Buika)[5:59]
- 4 - Yo Me Lo Merezco (feat. Buika)[6:13](   Читать дальше...   )Жанр: Classic Rock, Latin RockПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6552C4B22B22C7BEC77563492ADAB3B68101B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307062   (554878) от 10.06.2019
-
-Gloryhammer - Legends from Beyond the Galactic Terrorvortex (2019) 2CD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554878.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Into the Terrorvortex of Kor-Virliath
-  2. The Siege of Dunkeld (In Hoots We Trust)
-  3. Masters of the Galaxy
-  4. The Land of Unicorns(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF7B6E43514F06138ABA8F3CA28784A5E1E5A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307469   (554861) от 10.06.2019
-
-Mono Inc. - Symphonic: Live (2019) 2CD [FLAC|Lossless|image + .cue] <Gothic Rock, Darkwave, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to Hell [4:04]
-02. Kein Weg zu weit [4:43]
-03. Long live death [4:23]
-04. If i fail [6:02](   Читать дальше...   )Жанр: Gothic Rock, Darkwave, Alternative RockПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289FD484201ECD3B3BC503E59B8077DF9ECBBEB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

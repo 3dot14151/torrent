@@ -1,3 +1,32 @@
+###  Публикация: 1445939   (1033242) от 07.02.2021
+
+Keda.Z | Post-Processing Online Class 1.0 (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свадебный и портретный онлайн-класс постобработки KEDA.Z для
+членов Z-Global Group.
+Мастер KEDA.Z делится навыками, знаниями, опытом с каждым участником Z.Global! Это будет практично, эффективно, результативно.
+Растем вместе в Z.Global Group!Производство: kedazglobalЖанр: Обработка фотоЯзык озвучки: АнглийскийПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F26CA7B62721083637A4886916B8852875600E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446028   (1033188) от 07.02.2021
 
 Марина Уланова | Как настроить готовые пресеты в Camera Raw (2019) PCRec
@@ -6,7 +35,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033188.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033171.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Udemy, Ben Tristem и др. | RPG Core Combat Creator: Learn Intermediate Unity 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033169.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033140.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ Udemy, YouRa Allakhverdov | Основы Современного JavaScript с 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033117.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ WDI Design School | Распродажа всех видеоуроков шко�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033110.jpg" />
 </div>
 
 
@@ -173,7 +202,7 @@ Alexander Gol | Full-Stack разработка веб приложений с J
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033096.jpg" />
 </div>
 
 
@@ -200,7 +229,7 @@ David Lesperance | Environment Sculpting (2012) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032979.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ Daniel Thiger | Substance Fundamentals Tutorial Part 1-5 (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032924.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ Kurt Williams | Creating an Alpha Pack in ZBrush (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032923.jpg" />
 </div>
 
 
@@ -278,7 +307,7 @@ Vincent Dérozier | Mosaic Creation Techniques with Substance Designer (2019) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032897.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ David Lesperance | Environment Creation Techniques (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032895.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ Daniel Thiger | Creating Roof Tiles in Substance Designer (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032888.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032878.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Pablo Munoz Gomez | Booleans In ZBrush 4R8 (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032870.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Lena Mint | Последняя распродажа пакета из 10 веб�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032864.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032856.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032855.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032854.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032853.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Udemy, Andrei Neagoie и др. | Complete Machine Learning & Data Science Bootca
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032847.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032811.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032800.jpg" />
 </div>
 
 
@@ -635,7 +664,7 @@ Stormy Solis | All Heart Access Online Workshop - Winter [En] (2020) PCRec [En]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032695.jpg" />
 </div>
 
 
@@ -661,7 +690,7 @@ Daniel Danielsson | The Process of Motion (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032668.jpg" />
 </div>
 
 
@@ -675,32 +704,6 @@ Daniel Danielsson | The Process of Motion (2020) PCRec [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B30E550740C3EB66F5D90EFD557D70F7D16FDDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446459   (1032658) от 09.02.2021
-
-Дмитрий Фокс | Master of Light (2020) PCRec
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучитесь авторским способам работы со светом, получите новые источники вдохновения и найдите свой стильЖанр: ФотографияПродолжительность: 04:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E71817FAB66A44C5C7029B27A13C8D6749F73B
 ```
 
 https://mybot314.ru/tekegram_catalog/

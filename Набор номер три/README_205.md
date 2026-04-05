@@ -1,3 +1,161 @@
+###  Публикация: 1013666   (777015) от 05.05.2016
+
+CorelDRAW Graphics Suite X8 18.0.0.448 Special Edition RePack by -{A.L.E.X.}- [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непревзойденные возможности CorelDRAW Graphics Suite X8 в сочетании с вашими творческими способностями — прекрасная основа для проектов по созданию макетов, разработке веб-сайтов и редактированию фотографий. Пакет оснащен расширенной поддержкой Windows 10, мультидисплейным режимом просмотра и поддержкой мониторов 4K. Продукт позволяет дизайнерам самых разных уровней (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9700A7F5DAD2B370316995C1E174787FE3C5916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013874   (777014) от 05.05.2016
+
+Adobe Audition CC 2015.1 8.1.0.162 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F265C0627EA16E9AF76DE0CEDCAE606F6EE272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013894   (777012) от 05.05.2016
+
+Adobe After Effects CC 2015.2 13.7.1.6 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777012.jpg" />
+</div>
+
+
+###  Подробнее
+
+After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DCDE3AA9DA7E101F47CC94F4EECFCEBF40337F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011506   (777010) от 05.05.2016
+
+Нонамки ищут дизайнера - Голосование [Завершено]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_777010.jpg" />
+</div>
+
+
+###  Подробнее
+
+  Большое спасибо за ваши голоса и информативные отзывы!
+Очень приятно было читать вдумчивые комментарии и понимать, что вам не всё равно.
+Каждая работа была интересна по-своему, было очень сложно выбрать что-то одно :)Итак, вот итоговая таблица распределения ваших голосов:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013888   (777008) от 05.05.2016
+
+Adobe Premiere Pro CC 2015.2 9.2.0 (41) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CC 2015 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K x 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A671EE40DB0C8A4FE8E9ECC08DA099ACFF8DEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013792   (777007) от 05.05.2016
+
+Avira Antivirus Pro 15.0.17.273 Final RePack by Alker [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avira Antivirus Pro - простой, легкий и надежный антивирус. Включает комплексную защиту от вирусов, кражи личных данных и финансовых потерь. Этот отличный набор инструментов безопасности является идеальным решением для обеспечения защиты пользователя, компьютера и важных данных. Новый Avira Antivirus Pro использует передовые и эффективные функции антивирусной защиты, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F389DA490CB8A8A82D4500A4DC69FAF41C9874D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211570   (776988) от 08.03.2018
 
 Adobe Premiere Pro CC 2018 (12.0.1.69) Portable by XpucT [Ru/En]
@@ -6,7 +164,7 @@ Adobe Premiere Pro CC 2018 (12.0.1.69) Portable by XpucT [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776988.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ CyberGhost VPN 6.5.0.3180 RePack by elchupacabra [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776986.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776984.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776983.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776982.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776981.jpg" />
 </div>
 
 
@@ -165,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776979.jpg" />
 </div>
 
 
@@ -191,7 +349,7 @@ Tom Clancy's Rainbow Six: Siege (2015) [Ru/Multi] (11726982/dlc) Repack =nemos= 
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776978.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_776701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_776701.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_776669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_776669.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_776666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_776666.jpg" />
 </div>
 
 
@@ -296,7 +454,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.3) License CODEX [patch]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776628.jpg" />
 </div>
 
 
@@ -322,7 +480,7 @@ ACDSee Photo Studio Ultimate 2018 11.2.1309 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776617.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ Ultimate Final Cut Pro X Plugin pack by joinqwerty 0.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776616.jpg" />
 </div>
 
 
@@ -377,7 +535,7 @@ Kingdom: New Lands (2016) [Ru/Multi] (1.2.8) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776613.jpg" />
 </div>
 
 
@@ -403,7 +561,7 @@ MInstAll Enter-Soft Free v12.0 by Dead Master [Ru/En]
 >>24
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776612.jpg" />
 </div>
 
 
@@ -431,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776589.jpg" />
 </div>
 
 
@@ -457,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776588.jpg" />
 </div>
 
 
@@ -484,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776587.jpg" />
 </div>
 
 
@@ -510,7 +668,7 @@ MAGIX Vegas Pro 15.0 Build 321 RePack by KpoJIuK  [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776269.jpg" />
 </div>
 
 
@@ -521,163 +679,6 @@ MAGIX Vegas PRO — профессиональная программа для �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:845100AC36A7DAB804BB1EC7CC1DB6316C11A677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211798   (776266) от 10.03.2018
-
-12 000 спутников Илона Маска дадут всем землянам доступ в интернет, и отключить его будет невозможно
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_776266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для сравнения — сейчас в космосе работают 1740 аппаратов различного назначения. Еще 2600 выведены из эксплуатации, они превратились в космический мусор. Но в орбитальной группировке Starlink уже к середине 2020 годов планируется использование 11925 (!) спутников связи. Они должны будут работать как единая система в виде ячеистой сети, равномерно покрывающей поверхность (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212189   (776263) от 10.03.2018
-
-Need for Speed: Payback (2017) [Ru/En] (1.0.51.15364) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed, одна из ведущих игровых серий возвращается ради мести в новой Need for Speed: Payback. Действие происходит в теневом мире Фортуна-Вэлли. Вы и ваша команда разделены предательством и объединены заново местью.Тип издания: RepackРазработчик: Ghost GamesЖанр: Racing (Cars), Action, Arcade, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F768510BA55C205938D99DC926125422E7D33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212179   (776258) от 10.03.2018
-
-Интервью Владимира Путина телеканалу NBC (10.03.2018) WEB-DL [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Путин ответил на вопросы журналистки американского телеканала NBC Мегин Келли. Интервью записывалось 1 марта в Кремле и 2 марта в Калининграде. Самые волнующие мировые темы, мнимое вмешательство России в выборы президента в США, внутриполитическая обстановка в России.Производство: США / NBC, Россия / Президент.РФЖанр: ПолитикаСубтитры: ОтсутствуютПродолжительность: 01:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28826DE60FC18B0537EAF86A9E7EE8207ADF8407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211997   (776253) от 10.03.2018
-
-Звёздные войны: Последние джедаи / Star Wars: Episode VIII - The Last Jedi (2017) WEB-DLRip [H.264/720p-LQ] [Line, AD]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая история о противостоянии света и тьмы, добра и зла начинается после гибели Хана Соло. В Галактике, где Первый Орден и Сопротивление яростно сражаются друг с другом в войне, героиня Рей пробудила в себе Силу. Но что произойдет, когда она встретится с единственным оставшимся в живых рыцарем-джедаем — Люком Скайуокером? Кайло Рен перешел на Темную сторону Силы (   Читать дальше...   )Производство: США, Ram Bergman Productions, Lucasfilm Ltd., Walt Disney PicturesЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Райан ДжонсонАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Марк Хэмилл, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:25:19Реклама: Присутствуют текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C808C1CA7124F0B9FED654E77832643BAB1208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211941   (776252) от 10.03.2018
-
-Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364) License CPY
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed, одна из ведущих игровых серий возвращается ради мести в новой Need for Speed: Payback. Действие происходит в теневом мире Фортуна-Вэлли. Вы и ваша команда разделены предательством и объединены заново местью.Тип издания: LicenseРазработчик: Ghost GamesЖанр: Racing (Cars), Action, Arcade, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D7E641A423D565EBAC184C31AB3E114C5F1EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014314   (776239) от 07.05.2016
-
-Microsoft откажется от назойливого приложения "Get Windows 10"
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_776239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уведомление об обновлении до Windows 10 исчезнет с Windows 7 и 8.1 после 29 июля
-После 29 июля Microsoft удалит из Windows 7 и Windows 8.1 программу Get Windows 10 («Получить Windows 10»). Об этом представитель корпорации рассказал изданию WinBeta.В официальном заявлении Microsoft среди прочего говорится:«Детали по-прежнему уточняются, но 29 июля приложение Get Windows (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

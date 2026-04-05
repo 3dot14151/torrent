@@ -1,83 +1,3 @@
-###  Публикация: 1648750   (230542) от 26.07.2023
-
-David Matuszek | Quick Functional Programming (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Функциональное программирование - это мощный инструмент, который вы можете использовать в дополнение ко всем своим обычным инструментам, в той мере, в какой ваш текущий основной язык поддерживает его. Большинство языков имеют хотя бы базовую поддержку.
-
-В этой книге мы используем Python, Java и, в качестве бонуса, Scala. Если вы предпочитаете другой язык, то в синтаксисе (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: CRC PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8881C717DF05ED96538783642D1ED67F7E74457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637822   (230445) от 06.06.2023
-
-Д.В. Мякишев | Принципы и методы создания надежного программного обеспечения АСУТП (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель настоящего пособия – дать базовые навыки, необходимые для разработки надежного программного обеспечения (ПО), построить «мост» между зачастую незаслуженно забытыми трудами «патриархов» и современной практикой программирования. Показана актуальность проблемы повышения надежности создаваемого ПО. Приведены основные определения, факторы, влияющие на надежность (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00091E8491DC3E14B864C0A92670BEEB6ECACF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556733   (230331) от 10.06.2022
-
-Бахши Сохейл | POWER BI: моделирование на экспертном уровне (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга станет вашим проводником в мир моделирования данных в целом и применительно к Power BI. Вы узнаете, как подключаться к данным в различных источниках, объединять их при помощи связей и строить полноценные модели данных; изучите вопросы определения новых метрик и выполнения пользовательских вычислений с использованием особенностей модели. По мере чтения сложность (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6845E82ACDFDED5D8DA1F9A9002DA1151B4E451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556856   (230281) от 11.06.2022
 
 Александр Казанский | Разработка приложений на Swift 5.1 и SwiftUI с нуля (2021) [PDF]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230281.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230159.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229645.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229631.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ Krasimir Tsonev | 50 Tips on JavaScript: 50 of the most interesting features, co
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229595.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228053.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227185.jpg" />
 </div>
 
 
@@ -271,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225026.jpg" />
 </div>
 
 
@@ -297,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224599.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223199.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221694.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219346.jpg" />
 </div>
 
 
@@ -403,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218657.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218569.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218341.jpg" />
 </div>
 
 
@@ -483,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217998.jpg" />
 </div>
 
 
@@ -509,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217080.jpg" />
 </div>
 
 
@@ -535,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216516.jpg" />
 </div>
 
 
@@ -561,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216017.jpg" />
 </div>
 
 
@@ -587,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215179.jpg" />
 </div>
 
 
@@ -614,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215132.jpg" />
 </div>
 
 
@@ -641,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214133.jpg" />
 </div>
 
 
@@ -667,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213964.jpg" />
 </div>
 
 
@@ -678,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAAD7823B4C7B1E9E96757C4C5658C1E8034F122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559159   (213109) от 24.06.2022
+
+Джон Боднер | Go: идиомы и паттерны проектирования (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Go быстро набирает популярность в качестве языка для создания веб-сервисов. Существует множество учебников по синтаксису Go, но знать его недостаточно. Автор Джон Боднер описывает и объясняет паттерны проектирования, используемые опытными разработчиками. В книге собрана наиболее важная информация, необходимая для написания чистого и идиоматического Go-кода. Вы научитесь (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A75B1B3D2C6DDC846CCFD79CE861672C93A525D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558134   (213073) от 25.06.2022
+
+Коллектив авторов | Большая библиотека программирования на Python (121 книга на русском + англоязычные шпаргалки) (2010 - 2022) [PDF, DJVU] [Обновляемая], [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "Библиотека программиста" предназначена как для опытных мастеров своего дела, так и для тех, кто только приступил к изучению программирования. В данном выпуске библиотеки книги повящённые изучению Python.Жанр: Компьютерная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB02F460E4804C383A62BEC4DDD046F63853B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560270   (213012) от 28.06.2022
+
+Jan Newmarch, Ronald Petty | Network Programming with Go Language: Essential Skills for Programming, Using and Securing Networks with Open Source Google Golang, 2nd ed. Edition (2022) [EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в ключевые темы сетевой архитектуры, реализованной с помощью поддерживаемого Google языка программирования Go с открытым исходным кодом. Сетевые темы, такие как сериализация данных, протоколы уровня приложений, наборы символов и кодировки, обсуждаются и демонстрируются в Go. Эта книга была обновлена ​​до версии Go 1.18, которая включает в (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DEE4EE386FAF324EBBCB59D9BAF0435DCA307C
 ```
 
 https://mybot314.ru/tekegram_catalog/

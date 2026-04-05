@@ -1,30 +1,4 @@
 https://t.me/izofen
-###  Публикация: 1861888   (1062687) от 
-
-Наталья Самутина | Эта музыка слишком прекрасна. Тексты о кино и не только (2025) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание представляет собой сборник статей и рецензий известной российской исследовательницы кино и визуальной культуры Натальи Самутиной (1972–2021). Она была одним из немногих российских ученых, последовательно развивавших и продвигавших в российскую науку проблематику международных film studies (теории и истории кино). Ее исследовательский стиль характеризует сочетание (   Читать дальше...   )Жанр: Публицистика. Культурология. КинематографИздательство: Новое литературное обозрениеФормат: FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395635522CE93D8EAE77CCC5B7C29EB905CD106D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859777   (1061448) от 
 
 В. Козлов | Психология счастья: история, теория, феноменология (2026) [PDF]
@@ -33,7 +7,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061448.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060738.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059087.jpg" />
 </div>
 
 
@@ -105,59 +79,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854232   (1057196) от 17.02.2026
-
-Бенедикт Спиноза, Блез Паскаль | Алгебра любви. Разум проверяет чувства (2025) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сильнейшим из человеческих чувств является любовь, которая, как утверждал один из самых известных философов мира Бенедикт Спиноза, «ведет либо к нашей гибели, либо к нашему высшему благу». Он создал «теоремы любви», которые должны были помочь людям разобраться в своих любовных чувствах, чтобы избежать крайностей.
-Вопреки мнению Спинозы, знаменитый ученый и философ (   Читать дальше...   )Жанр: Гуманитарные науки, философия любвиИздательство: ООО «Издательство Родина»Формат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7C134309DDAFA5BCA7397EEC26F59EABC37A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853735   (1057091) от 16.02.2026
-
-Ибн-Сина (Авиценна) | Исцеление. Теология [2 книги] (2024) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057091.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании впервые на русском языке представлен полный перевод раздела по метафизической теологии из энциклопедического труда «Исцеление», принадлежащего перу крупнейшего философа классического ислама и одного из самых влиятельных мыслителей в истории – Ибн-Сины (Авиценны; ок. 980–1037). Первый том содержит комментированный перевод собственно раздела «Теология», (   Читать дальше...   )Жанр: Философия, психология, религиозная литератураПеревод: Т. ИбрагимИздательство: ИВ РАН; СадраФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14AF3E09E25D5C590356B831196E783726E1BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852783   (1056322) от 10.02.2026
 
 Майкл Пилхофер, Холли Дей | Теория музыки для чайников. 4-е изд (2025) [PDF]
@@ -166,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056322.jpg" />
 </div>
 
 
@@ -192,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054698.jpg" />
 </div>
 
 
@@ -218,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054696.jpg" />
 </div>
 
 
@@ -244,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054693.jpg" />
 </div>
 
 
@@ -270,7 +191,7 @@ G. Miller, Scott Spoolman, Danielle Andrews-Brown | Environmental Science (MindT
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054632.jpg" />
 </div>
 
 
@@ -296,7 +217,7 @@ Emily Schlickman, Brett Milligan | Design by Fire. Resistance, Co-Creation and R
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054631.jpg" />
 </div>
 
 
@@ -324,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054476.jpg" />
 </div>
 
 
@@ -351,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052819.jpg" />
 </div>
 
 
@@ -377,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052605.jpg" />
 </div>
 
 
@@ -403,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052398.jpg" />
 </div>
 
 
@@ -429,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052211.jpg" />
 </div>
 
 
@@ -455,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051077.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ Teruko Sakurai | Anime & Manga Digital Coloring Guide: Choose the Colors That Br
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048591.jpg" />
 </div>
 
 
@@ -508,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048439.jpg" />
 </div>
 
 
@@ -534,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048437.jpg" />
 </div>
 
 
@@ -560,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048366.jpg" />
 </div>
 
 
@@ -586,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047585.jpg" />
 </div>
 
 
@@ -612,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047520.jpg" />
 </div>
 
 
@@ -638,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047519.jpg" />
 </div>
 
 
@@ -666,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047480.jpg" />
 </div>
 
 
@@ -677,6 +598,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25C846F3EF7640F078BFE6B9721F3BB500AEF3B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840734   (1047479) от 06.12.2025
+
+В.Н. Демин | Основной принцип материализма (1983) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047479.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге кандидата философских наук В. Н. Демина анализируется фундаментальное положение диалектико-материалистической философии - принцип материальности мира. В ней показывается, что этот основной принцип материализма позволяет не только выявлять объективные закономерности, присущие природе и социальной действительности, но и определять научную достоверность теоретических (   Читать дальше...   )Жанр: История, науковедение, философияИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF715E48B32458DE06779CC9BBBD62B08925FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840737   (1047478) от 06.12.2025
+
+Л.А. Куликов | Понятие детерминизма в марксистско-ленинской философии (1973) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047478.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии раскрывается содержание детерминизма, его виды и различные формы проявления в природе и обществе, показывается место детерминизма среди категорий материалистической диалектики и его значение для познания и практической деятельности, подвергаются критике современные буржуазные концепции индетерминизма и вытекающие из них фаталистическое и волюнтаристское (   Читать дальше...   )Жанр: История, науковедение, философияИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C074E4B6579D332EB7FC1778229267A20A209B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840741   (1047475) от 06.12.2025
+
+Л.А. Лавинская, М.М. Сидоров (сост.) | Хрестоматия по диалектическому и историческому материализму (1976) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой сборник отрывков из произведений классиков марксизма-ленинизма. Она содержит наиболее важные высказывания К. Маркса, Ф. Энгельса, В. И. Ленина по вопросам диалектического и исторического материализма. Сборник составлен в соответствии с программой по марксистско-ленинской философии для школ основ марксизма-ленинизма и предназначен для занимающихся (   Читать дальше...   )Жанр: История, науковедение, философия, социология, экономика, политология, логика, правоведение, искусствоИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F36E0F39575C1AEFDA6280D2AE350CB9EB216A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1527807   (735829) от 30.01.2022
+
+Leanpub, Jason McCreary | BaseCode - A field guide to writing lasting code (2018-2019) WEB-DL [Course, ebook & audiobook] [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735829.jpg" />
+</div>
+
+
+###  Подробнее
+
+BaseCode сводит написание читабельного кода к 10 практикам и содержит более 40 примеров кода.
+Эти практики сосредоточены на:
+Написание кода, приоритетом которого является читаемость человеком, а не компьютером
+Избегание гниения кода с помощью анализа и автоматизации(   Читать дальше...   )Производство: LeanpubЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC984A0FD2E33E52A3F403D0FB8ED107186D99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527790   (735813) от 30.01.2022
 
 Lynda, William Lidwell | Universal Principles of Design (2017) PCRec
@@ -6,7 +35,7 @@ Lynda, William Lidwell | Universal Principles of Design (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735813.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Digital Tutors, Laura Smith | Animating an Infographic in After Effects (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735801.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ FastTrack Tutorials, Emiel Sleegers | Large Game Environment Creation - In-Depth
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735780.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ Flippednormals, Abraham Leal | Zbrush 2021 for Absolute Beginners (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735776.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ Wingfox Studio, Alex Vochshakin | Creative Environment Creation in Unreal Engine
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735772.jpg" />
 </div>
 
 
@@ -141,7 +170,7 @@ Udemy, Nikolay Naydenov | Orc Rider and Bull Creature Creation in Zbrush (2019) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735768.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735753.jpg" />
 </div>
 
 
@@ -196,7 +225,7 @@ OTUS | PHP-разработчик. Часть 2 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735505.jpg" />
 </div>
 
 
@@ -222,7 +251,7 @@ OTUS | PHP-разработчик. Часть 1 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735497.jpg" />
 </div>
 
 
@@ -248,7 +277,7 @@ CGMA, CGsociety, Johan Lithvall | Hair creation for games (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735319.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ Game Art Institute, Adam Skutt | Character Creation For Games (2016) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735318.jpg" />
 </div>
 
 
@@ -300,7 +329,7 @@ Cubebrush, Tom Paul | Zbrush for Hard Surface Design (2014) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735309.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ RENDER.CAMP, Даниил Нагаец | Профессиональная Виз
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735296.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735293.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734889.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Motion Design School | Animated Typefaces with Animography (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734836.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734827.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Foxford | Курс программирования на Python для начи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734554.jpg" />
 </div>
 
 
@@ -490,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734404.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734370.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ OTUS | Fullstack разработчик JavaScript (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734105.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734096.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ Pluralsight, Joe Abraham | Cisco Certified CyberOps Associate (CBROPS 200-201) (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733954.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Udemy, Jan Boode | Fighter Girl Character in Blender 2.91 Tutorial (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733925.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733921.jpg" />
 </div>
 
 
@@ -662,34 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3B0DC5DD056EA07CC463380A0B881F9FB22BF06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399202   (733801) от 30.07.2020
-
-Allan McKay | FX Technical Director Transformation Module 15 (2015) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая работа по спецэффектам связанная со скриптингом и разработкой инструментов. Станьте мастером FX и улучшите свои умения до предела и дальше!
-Просто получите возможность создавать собственные FX инструменты и все автоматизировать. Многие художники имеют нужные знания, но не могут их систематизировать, чтобы увеличить свою востребованность.
-Чтобы получить высокооплачиваемую (   Читать дальше...   )Производство: FumeFXTrainingЖанр: Создание видеоПродолжительность: 05:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31B4E0D6E2B7ED817C9AC1F9FAE89BE77F7F1A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

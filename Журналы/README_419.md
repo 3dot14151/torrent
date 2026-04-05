@@ -1,3 +1,133 @@
+###  Публикация: 957488   (326598) от 18.11.2015
+
+Журнал | Вокруг света №12 (декабрь 2015) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вокруг света - один из первых журналов в России вообще и один из первых журналов в мире на познавательную тематику. «Вокруг света» публикует новые взгляды на известные исторические события, рассказы о знаменитых людях и их судьбах, информацию о новых научных открытиях и технических достижениях.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00C6D18FFA32D108C5E18BAA0EDA2B593CDE285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842880   (326575) от 20.11.2014
+
+Журнал | Glamour [Россия] №11, 12 (ноябрь-декабрь 2014) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326575.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Glamour" - это пропуск в красивую жизнь. Наш журнал будет большое внимание уделять моде и красоте. Он станет вашим гуру в вопросах создания собственного стиля, независимо от вашего бюджета. Легкий и компактный, "Glamour" идеально вписывается в нашу жизнь.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F99E315F2906C96BE880D2D8A2F6B70F181CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842906   (326513) от 20.11.2014
+
+Подшивка журналов | Good Woodworking №1-5 [+схемы] (1992-1993) [PDF, JPEG] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал, посвященный столярному делу. Обзоры материалов, инструментов и технологий, а также идеи для творчества. Woodworker's Journal - предназначен для читателей-мастеровых любого уровня подготовки: от новичка до профессионального мебельщика, от дачника до мастера краснодеревщика.Формат: PDF, JPEG (схемы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B65674B0DF1005E78F7F8FD8F56F88A7B16951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 262381   (325990) от 25.11.2010
+
+Журнал | Photoshop Creative 1-24 [2007-2008] [EN] [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photoshop Creative предлагает пользователям Photoshop практические советы и вдохновение. Являетесь ли вы новичком в программе или просто ищите материалы для повышения мастерства, этот журнал для вас. Мы не хотим никого оставить в стороне, поэтому стараемся убедиться, что в каждом номере журнала каждый найдет что-нибудь полезное для себя - и те, кто пользуется Adobe (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1D6DD62922F8C0055117B8CAA19331B82C17AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957837   (325842) от 19.11.2015
+
+Журнал | Вооруженные силы стран мира №115 (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная коллекция журналов расскажет о военных соединениях разных стран мира, познакомит читателя с видами войск и военной техники, историей военных кампаний 20-21 вв., ключевыми военными фигурами. Материалы распределены по 6-ти рубрикам: военная техника, личности, армии стран мира, стратегия и тактика, битвы и компании.Жанр: Военный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113C0F6BF47ED652C9B769EA7E4AFB9D089AF5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958051   (325805) от 19.11.2015
 
 Журнал | Forbes [Россия] №12 (140) (декабрь 2015) [PDF]
@@ -6,7 +136,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325805.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325801.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325798.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325796.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325795.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325775.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325774.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325751.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325720.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325676.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325518.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325517.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325515.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325454.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325392.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325379.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325189.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324989.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324988.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324961.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324946.jpg" />
 </div>
 
 
@@ -540,138 +670,6 @@ Vogue полностью посвящен моде, служит источни�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D4FC679FC7FAA81468EC9B49109489E1CFF8656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957992   (324914) от 20.11.2015
-
-Журнал | Вязание для вас №12 (декабрь 2015) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по вязанию спицами и крючком в разных стилях и техниках, элегантных и практичных, оригинальных и красивых женских, мужских и детских моделей одежды и аксессуаров. Каждая модель сопровождается фотографией и подробной схемой.Жанр: Вязание, рукоделиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F8426AE2EB86E36C8DDB31D9A10789F57DB785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415899   (324895) от 27.11.2011
-
-Журнал | Esquire [Россия] №72 (декабрь 2011) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324895.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЖурналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C1BE5906256604CB2AF0A3F6CD1962E67F7295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958155   (324871) от 20.11.2015
-
-Журнал | UPgrade №40 (745) (ноябрь 2015) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324871.jpg" />
-</div>
-
-
-###  Подробнее
-
-UPgrade – самый популярный еженедельный компьютерный журнал России. В нем рассматривается самые интересные новинки компьютерного железа, даются многочисленные полезные советы и рекомендации, как сделать работу на компьютере удобной и эффективной. Искрометный юмор авторов не даст вам заскучать, даже читая о сложных вещах!Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F6D9BA5D03F7306EF6185CC7FBE9583429EFFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957365   (324768) от 20.11.2015
-
-Подшивка журнала | Загадки истории [141 журнал] (2011-2015) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324768.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Загадки истории» – уникальный журнал для любителей истории.
-В каждом выпуске известные писатели, историки и опытные журналисты рассказывают о знаменитых исторических персонажах, публикуют захватывающие материалы про самые интересные события и героев мировой истории: от античных времен до наших дней.
-Тайны великих империй и цивилизаций, судьбы исчезнувших сокровищ (   Читать дальше...   )Жанр: Научно-популярное изданиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0496DB68BC5BA734FD72D01A6BEC02A212D1EDD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958120   (324711) от 20.11.2015
-
-Журнал | Советы профессионалов №11 (ноябрь 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советы профессионалов - это тематические выпуски, концентрирующие в себе лучшие публикации и новые материалы об опыте работы мастеров из разных стран мира. Один из лучших журналов по строительству и отделке дома. Все этапы работы очень наглядны.Жанр: Строительство. Дизайн.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B54CDB403542AE6410439BBADA24F968EDB61E
 ```
 
 https://mybot314.ru/tekegram_catalog/

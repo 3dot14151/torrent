@@ -1,3 +1,31 @@
+###  Публикация: 1652079   (216713) от 12.08.2023
+
+Hanoi Rocks - Up Around the Bend: The Definitive Collection (2004) 2CD, Compilation [MP3|320 Kbps] <Hard-Rock, Glam-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD-01 - Up Around the Bend: The Definitive Collection
+CD-02 - Up Around the Bend: The Definitive CollectionЖанр: Hard-Rock, Glam-RockПродолжительность: 2 CD, 02:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E85E39653AC432AA0A7819DF4FA046B41129D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426031   (216698) от 23.11.2020
 
 Rob Moratti - Paragon (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +34,7 @@ Rob Moratti - Paragon (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216698.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Rammstein - Mein Herz Brennt (2012) [MP3|320 кб/с]<Industrial>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_216673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216673.jpg" />
 </div>
 
 
@@ -66,7 +94,7 @@ Trans-Siberian Orchestra - The Ghosts Of Christmas Eve (2016) [FLAC|lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216568.jpg" />
 </div>
 
 
@@ -95,7 +123,7 @@ Goatwhore - Angels Hung from the Arches of Heaven (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216510.jpg" />
 </div>
 
 
@@ -124,7 +152,7 @@ L.A. Guns - Another Xmas in Hell (2019) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216493.jpg" />
 </div>
 
 
@@ -153,7 +181,7 @@ Beatles meets Queen - Beatles meets Queen (2012) [MP3|192 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216363.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ Urne - A Feast On Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216355.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ VA - WORKOUT: Allenamento Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216284.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ Jungle - Volcano (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative, electronic, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216261.jpg" />
 </div>
 
 
@@ -275,7 +303,7 @@ A Light in the Dark - Insomnia (2020) [FLAC|Lossless|Web-DL|tracks] <Post Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216258.jpg" />
 </div>
 
 
@@ -304,7 +332,7 @@ Monster Truck - Furiosity (2013) [FLAC|Lossless]<Hard Rock/Stoner Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216152.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216060.jpg" />
 </div>
 
 
@@ -359,7 +387,7 @@ NateWantsToBattle - NateWantsToBattle (2022) [FLAC|Lossless|WEB-DL|tracks] <Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216046.jpg" />
 </div>
 
 
@@ -388,7 +416,7 @@ Tankard - Oldies & Goldies - The Very Best Of The Noise Years 1986-1995 (2016) (
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216035.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ Fourwaycross - Ruin; Risk; Fiction; Fact (2016-2017) 4 EP [MP3|320 Kbps] <Altern
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216013.jpg" />
 </div>
 
 
@@ -446,7 +474,7 @@ Blowin Free - The Knife And The Floosie (1987) [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215991.jpg" />
 </div>
 
 
@@ -475,7 +503,7 @@ Embryonic Autopsy - Prophecies of the Conjoined (2022) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215979.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ Bon Jovi - Bounce (2002) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215970.jpg" />
 </div>
 
 
@@ -533,7 +561,7 @@ Spitfire MkIII - Shadows Phantoms Nightmares (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215962.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ Bon Jovi - This Left Feels Right (2003) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215949.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ Bon Jovi - Crush (2000) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215924.jpg" />
 </div>
 
 
@@ -620,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215903.jpg" />
 </div>
 
 
@@ -649,7 +677,7 @@ Vorbid - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Thrash, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215867.jpg" />
 </div>
 
 
@@ -678,7 +706,7 @@ Dilemma - Random Acts Of Liberation (2018) [FLAC|Lossless|image + .cue] <Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215845.jpg" />
 </div>
 
 
@@ -707,7 +735,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215844.jpg" />
 </div>
 
 
@@ -721,35 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2A2F8D513F12FAB42A6BDDA70FEA3BFF809FB94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586752   (215838) от 27.10.2022
-
-Bon Jovi - Have A Nice Day (2005) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have A Nice Day
-02. I Want To Be Loved
-03. Welcome To Wherever You Are
-04. Who Says You Can't Go Home(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C0B24EC73F7486C70E312889BB3A8280527E26
 ```
 
 https://mybot314.ru/tekegram_catalog/

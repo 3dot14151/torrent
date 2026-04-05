@@ -1,3 +1,56 @@
+###  Публикация: 1305943   (554826) от 10.06.2019
+
+Сергей Чекмаев и др. | Литературный аудиопроект «Глубина» [выпуск 16] (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: ГЛУБИНА - это литературный аудиопроект творческого объединения независимых чтецов, любящих и умеющих делать своё дело – рассказывать увлекательные истории. Если вы готовы погрузиться ниже ватер-линии обыденной реальности в чарующий океан захватывающей прозы, то нам с вами по пути!
+_____________________________________________Жанр: Рассказы, разноеПродолжительность: 05:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C681D2B33924EE00DB0556699816034D154544E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308173   (554138) от 13.06.2019
+
+Юлиан Семенов | Неизвестный Юлиан Семенов. Возвращаясь к Штирлицу (2019) [MP3, Сергей Дадыко]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов и новелл Юлиана Семёнова поведает о различных событиях отечественной истории ХХ века. В центре внимания автора - Максим Исаев (Штирлиц) и герои Гражданской войны в России, а также участники послевоенных событий. Перо мастера создает яркие образы белых генералов и казачьих атаманов, советских  разведчиков и простых людей.Жанр: Современная прозаПродолжительность: 15:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B69082590C14303AD0ED4652D4057486E2A7030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308133   (554128) от 13.06.2019
 
 Клим Дегтярев | Штирлиц без грима. Семнадцать мгновений вранья (2019) [MP3]
@@ -6,7 +59,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554128.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553937.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553053.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553045.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552026.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549451.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548349.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548337.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548203.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546376.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544852.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544653.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543545.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542785.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540646.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539165.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537194.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534555.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534183.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533072.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531442.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531261.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529763.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528396.jpg" />
 </div>
 
 
@@ -629,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:787AEADFABC1E466F695B943FAE3C838C6E7EA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052958   (526576) от 16.09.2016
-
-Радио Маяк | Брендятина (2014-2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рубрика «Брендятина» выходит каждый вторник на радио «Маяк» в рамках утреннего шоу «Шоу Утром». Бессменный разоблачитель брендов — Рустам Вахидов. В качестве соведущих выступают Сергей Стиллавин и dj Витус.Жанр: Подкаст, радиоэфир.Продолжительность: 30:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B1B30BDA9F985A459E0F7BA4992C0C1EB453AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157220   (525475) от 11.08.2017
-
-Владимир Сорокин | Падёж (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Председатель колхоза Тимофей Петрович Тищенко работал в управлении, когда в дверь неожиданно постучали и вошли двое. Секретарь района Кедрин и начальник районного отдела ГБ товарищ Мокин нагрянули с неожиданной проверкой...Жанр: контркультура, сатира, сюрреализмПродолжительность: :01:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6848B01D8D1BDBA1DA4E91C3E58A9E1C369DAF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

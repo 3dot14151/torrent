@@ -1,3 +1,160 @@
+###  Публикация: 1198619   (802372) от 14.01.2018
+
+Telegram создаст свою криптовалюту, заменит ею биткоин и потеснит Visa и Mastercard
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_802372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда Telegram, возглавляемая Павлом Дуровым, намерена создать блокчейн-платформу с собственной криптовалютой, сообщают «Ведомости» со ссылкой на документ, описывающий планы развития сервиса.По мнению Дурова и Ко, нынешние блокчейн-сети в силу ряда ограничений не способны стать альтернативой тем же Visa и Mastercard из-за своей медлительности и сложности для обычных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505554   (802205) от 28.10.2021
+
+В России запретили сайты о топорах
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_802205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Районный суд Саратова заблокировал сразу три сайта с инструкциями по изготовлению топоров, в том числе каменных. В решении суда сказано, что на блокировке настоял прокурор Воскресенского района, действовавший в интересах неустановленных третьих лиц. При этом Рунет переполнен подобного рода инструкциями – в выдаче «Яндекса» их сотни, так как в России подобная информация (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505693   (802200) от 28.10.2021
+
+Adobe Photoshop Lightroom Classic 11.0.0.10 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78D7F38FFD523B3ECA8CF331F3E1EA12E3DE459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505685   (802191) от 28.10.2021
+
+Adobe Photoshop 2022 23.0.0.36 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop 2022 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7300406DAFDD58FE6DBD139E727BD612E7FB30C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502960   (802190) от 28.10.2021
+
+Windows 11 16in1 +/- [x86] Office 2019 by SmokieBlahBlah 2021.10.16 [Ru/En]
+
+>>3
+>>12
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802190.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 редакции Windows 11 (русские и английские) с обновлениями по октябрь 2021, основанных на оригинальном английском дистрибутиве и интегрированными системными библиотеками
++4 таких же редакции со встроенным MS Office 2019 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8A131257A0E81DC52E151EB02C5B36616C2A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405013   (802189) от 28.10.2021
+
+Wasteland 3 (2020) [Ru/Multi] (1.6.9.420.309496/dlc) License GOG [Colorado Collection]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802189.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Wasteland 3 вам предстоит возглавить отряд пустынных рейнджеров — законников разрушенного ядерной войной мира, пытающихся возродить общество из пепла. После ядерной войны прошло более ста лет. Вы ведёте безнадёжную борьбу в надежде сохранить свою любимую Аризону.Тип издания: LicenseРазработчик: inXile EntertainmentЖанр: Ролевая игра, Стратегия, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E23DE54B1529C74988D143C37B7CE6F7552BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010600   (802026) от 25.04.2016
 
 Электрический автомобиль LeSEE - китайский ответ компании Tesla Motors
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_802026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_802026.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ VMware Workstation 12 Pro 12.1.1 build 3770994 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801902.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801899.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ Counter-Strike 1.6 Classic (2016) [Ru] (pv48/b4554) Repack VBOY
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801898.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801897.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / Зов Припяти - MISERY (2014) [Ru] (2.
 >>19
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801896.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_801806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801806.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ MAGIX Vegas Pro 14.0 Build 244 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801644.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ Adguard Premium 6.1.331.1732 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801616.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ Deus Ex: Mankind Divided (2016) [Ru/Multi] (1.16.761.0/dlc) Repack R.G. Меха
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801603.jpg" />
 </div>
 
 
@@ -266,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_801404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801404.jpg" />
 </div>
 
 
@@ -292,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_801399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801399.jpg" />
 </div>
 
 
@@ -318,7 +475,7 @@ Windows Embedded 8.1 Industry Pro x86 x64 Release by StartSoft 01-02 2018 [Multi
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801398.jpg" />
 </div>
 
 
@@ -344,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_801331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801331.jpg" />
 </div>
 
 
@@ -370,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_801310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801310.jpg" />
 </div>
 
 
@@ -396,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_801299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801299.jpg" />
 </div>
 
 
@@ -423,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_801290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801290.jpg" />
 </div>
 
 
@@ -450,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_801171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801171.jpg" />
 </div>
 
 
@@ -476,7 +633,7 @@ uTorrent Pro 3.5 Build 43580 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800935.jpg" />
 </div>
 
 
@@ -502,7 +659,7 @@ Autodesk AutoCAD 2018.0.1 x86-x64 RUS-ENG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800925.jpg" />
 </div>
 
 
@@ -513,167 +670,6 @@ AutoCAD является мировым лидером среди решений
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:361D0AAC2B611F133032979A995882132B0EF7EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 101616   (800907) от 01.04.2017
-
-Красота - у кого она какая...
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_800907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красота - у кого она какая...Давайте поговорим о красоте... :wink:
-Выкладывайте фотки - как вы её видите ...
-Что о ней думаете?(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975466   (800901) от 01.04.2017
-
-STAR'цы (2016-2017) WEBRip [H.264/720p-LQ] (сезон 3, выпуски 1-24 из 24)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксперты в области кино, игр и высоких технологий делятся своими взглядами на самые актуальные и животрепещущие новостные темы. В споре STAR'цев рождается если и не истина, то уж точно увлекательный дискурс. Ведущий шоу - Александр Плющев (журналист и ведущий на радио «Эхо Москвы»). Компанию ему составляют эксперты в лице Павла Кушелева (ведущего программы "Вести.NET" (   Читать дальше...   )Производство: Россия, ООО «ГикТВ»Жанр: Новостное развлекательное шоуРежиссер: Geek-TVАктеры: Александр Плющев, Павел Кушелев, Александр Каныгин, Игорь ИгрицкийПродолжительность: ~ 01:00:00 каждый выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8AEF42DC5AE551E30B2467444C5C29A01B24B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029916   (800811) от 16.01.2018
-
-The Beatles: 1 (1962-1970) 2015 [remastered] BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для моего поколения они - кумиры. Мы, даже не видя их и не слыша их музыки, уже знали это волшебное слово - Битлс. А когда сначала услышали, а потом, много позже (с появлением видеомагнитофонов в середине 80-ых) еще и увидели, легенда стала явью. Обыкновенные люди, только жутко талантливые, и появившиеся именно в то время, когда было нужно. Это - Beatles.01. Love Me Do 2:25
-02. From Me to You 1:56
-03. She Loves You 2:23
-04. I Want to Hold Your Hand 2:31(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FF034E2DFD3F80392B029B0D48B273FCC6C685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199247   (800810) от 16.01.2018
-
-Найден способ увеличить мощность любого старого компьютера в четыре раза
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_800810.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Китае один из пользователей нашел способ увеличить мощность старого компьютера в четыре раза. Известно, что энтузиаст смог разогнать процессор, выпущенный 16 лет назад, и повысил его тактовую частоту.Экспериментатор из Китая, известный под ником WYTIWX, провел эксперимент, в результате которого смог разогнать процессор, который был выпущен еще шестнадцать лет назад, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198941   (800807) от 16.01.2018
-
-Google разрешила бесплатно звонить на абсолютно всех Android-смартфонах
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_800807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смартфоны, работающие на операционной системе Android, пользуются очень большой популярностью во всем мире. Причина успеха заключается в том, что у этой платформы попросту нет конкурентов. Конечно, есть различные поколения iPhone, работающие на iOS, однако все эти мобильные устройства стоят невероятно дорого, поэтому когда встает вопрос о покупке какого-то нового (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199466   (800798) от 16.01.2018
-
-Пила 8 / Jigsaw (2017) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800798.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городе обнаруживают несколько тел, обладатели которых встретили определенно не лучший конец. Все улики указывают на одного человека: Джона Крамера. Но как это возможно? Человек, известный как Пила, мертв уже более десяти лет. Неужели все-таки нашелся тот, кто рискнул подобрать мантию жестокого маньяка?Производство: США, A Bigger Boat, Serendipity Productions, Twisted PicturesЖанр: Ужасы, Триллер, Криминал, ДетективРежиссер: Майкл Спириг, Питер СпиригАктеры: Мэтт Пассмор, Тобин Белл, Каллум Кит Ренни, Ханна Андерсон, Кле Беннетт, Лора Вандервурт, Пол Браунштейн, Мандела Ван Пиблз, Бриттани Аллен, Джозиа БлэкПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757A2428699045EBB170D57965AA1A25D48A88B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

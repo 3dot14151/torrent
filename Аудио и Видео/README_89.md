@@ -6,7 +6,7 @@ VA - In the Zone, Vol. 2 (2020) [AAC|~273 Kbps] <New Age>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753610.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - In the Zone, Vol. 3 (2021) [AAC|~307 Kbps] <New Age>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753608.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753548.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Blues Essentials (2020) [AAC|~298 Kbps] <Blues>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753531.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - In the Zone, Vol. 1 (2020) [AAC|~284 Kbps] <New Age>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753529.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Blues Legends (2021) [AAC|~293 Kbps] <Blues>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753528.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Christmas Trance: Best for the Year 2022 (2022) [AAC|~330 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753526.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ RetroElectric Big Band - Electro Swing (2013) [AAC|~310 Kbps] <Electro Swing, Nu
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753525.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Christmas Jazz Night (Best Christmas Jazz Classics) (2017) [AAC|~315 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753521.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Christmas Jazz Night 2019 (Best Christmas Jazz Songs) (2018) [AAC|~317 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753519.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Chilling Inside (2022) [AAC|~290 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753518.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Christmas Jazz Night 2020 (Best X-Mas Jazz Music) (2019) [AAC|~326 Kbps] <L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_753516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753516.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753439.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Christmas Jazz Night 2021 (Best X-Mas Jazz Music) (2020) [AAC|~318 Kbps] <L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753413.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Fashionable Music London (Sophisticated Lounge Tunes from the Fashion Shows
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753388.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753380.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753344.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753312.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753308.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753109.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753107.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752843.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752740.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752738.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Night Cruise 1 (2020) [AAC|~314 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751781.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ VA - Night Cruise 3 (2021) [AAC|~317 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751779.jpg" />
 </div>
 
 

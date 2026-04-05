@@ -6,7 +6,7 @@ Dark Tales 13: Edgar Allan Poe's The Pit and the Pendulum / Темные ист�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719229.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Myths of the World 6: The Heart of Desolation / Мифы народов мира
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719190.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mystery Case Files 11: Dire Grove, Sacred Grove / За семью печатям
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719093.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Maze Of Realities: Flower Of Discord (2022) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718548.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Obscure Legends: Curse of the Ring / Загадочные легенды: Про
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717488.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Nevertales 8: The Abomination (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716805.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dark Tales 18: Edgar Allan Poe's. The Devil in the Belfry (2020) [En] (1.0) Unof
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716718.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mystery of the Ancients 8: No Escape / Тайны древних 8: Тупики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714800.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mystical Riddles: Snowy Peak Hotel / Мистические загадки: От
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714403.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Danse Macabre 9: A Lovers Pledge (2017) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713171.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Christmas Stories 6: A Little Prince (2017) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713145.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Harrowed Halls 2: Hells Thistle (2017) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713114.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Secret Order 7: Shadow Breach / Тайный Орден 7: Сумрачно�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712751.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Eventide 2: The Sorcerers Mirror /  На закате 2: Зеркало мага
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712345.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Spirits Chronicles: Born in Flames / Хроники Духов: Дитя пла�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712344.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Mystery Tales 6: The Hangman Returns /Загадочные истории 6: П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712266.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Eventide 2: The Sorcerers Mirror / Зеркало мага (2016) [Ru] (1.0) Rep
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712180.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Phantasmat 8: Mournful Loch / Фантазмат 8: Мрачное озеро (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712173.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Midnight Calling 2: Jeronimo (2016) [En] (1.0) Unofficial [Collector's Edition /
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711868.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Diamon Jones: Devils Contract / Даймон Джонс: Дьявольский 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711790.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ PuppetShow 16: Fatal Mistake / Шоу марионеток 16: Роковая о
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710849.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Amaranthine Voyage 4: The Obsidian Book (2015) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709436.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Rite of Passage 4: The Lost Tides (2015) [En] Unofficial [Collector's Edition / 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707293.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Crea (2016) [En] (1.0.1) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707197.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Secret Investigations 4: Themis / Загадочные расследовани�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706994.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Bridge to Another World 2: The Others / Мост в другой мир 2: Ин�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706620.jpg" />
 </div>
 
 

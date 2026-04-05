@@ -1,3 +1,133 @@
+###  Публикация: 1657003   (202904) от 01.09.2023
+
+Человек-паук / Spider-Man (2018 - 2023) BDRip [H.264/720p] [Дилогия]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202904.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Человек-паук" - американский анимационный супергеройский фильм, основанный на персонаже Marvel Comics Майлзе Моралесе. Созданием мультфильма занимались студии Columbia Pictures и Sony Pictures Animation.Производство: США, Канада / Sony Pictures Entertainment (SPE), Columbia Pictures, Marvel Entertainment, Arad ProductionsЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Боб Персичетти, Питер Рэмзи, Родни Ротман, Жуакин Душ Сантуш, Кемп Пауэрс, Джастин ТомпсонПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:56:49 / 02:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78C9B30F70B6B4BDFAAEDCCD279A26742AD18A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610810   (202882) от 09.02.2023
+
+Иван Царевич и Серый Волк 5 (2022) WEBRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Была у Ивана с Василисой не жизнь, а сказка. Буквально. И эту сказку они уже знали, а им захотелось отправиться туда-не-знаю-когда. Вот только одна бабочка со своим эффектом крылышком махнула да устроила волшебную перезагрузку. Теперь во всем Тридевятом царстве никто не помнит даже как Ивана звать, включая саму Василису. А значит, чтобы снова добиться принцессы, (   Читать дальше...   )Производство: Россия / кинокомпания СТВ, студия МельницаЖанр: мультфильм, приключения, семейныйРежиссер: Константин ФеоктистовАктеры: Никита Ефремов, Александр Боярский, Михаил Боярский, Татьяна Бунина, Максим Сергеев, Мария Цветкова-Овсянникова, Константин Феоктистов, Олег КуликовичСубтитры: Русские (Full) - отдельноПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89745757B480E67A50E420200584B2BDC31CFF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611085   (202862) от 10.02.2023
+
+Русалочка / The Little Mermaid (1989) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таинственные глубины моря хранят немало тайн, а обитатели океана могут рассказать множество удивительных историй. И самой невероятной из них была и остаётся история русалочки Ариэль. Дочь могущественного царя подводного мира Тритона, она однажды влюбляется в прекрасного и мужественного принца. Но разве они могут быть вместе - земной человек и морская дева? Однако (   Читать дальше...   )Производство: США / Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон МаскерПеревод: дублированный (Пифагор)Субтитры: русские, английскиеПродолжительность: 01:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EF2CF38DD06AA3C3B400A935B91594A81F6E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611097   (202838) от 10.02.2023
+
+Тайна третьей планеты (1981) WEBRip [H.265/1080p-LQ] [handmade remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения девочки Алисы, ее ученого папы и меланхолика капитана Зеленого, а также добродушного чудовища Громозеки и птицы Говоруна, который, как известно, отличается умом и сообразительностью.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, фантастика, приключения, семейныйРежиссер: Роман КачановАктеры: Юрий Андреев, Владимир Дружников, Владимир Кенигсон, Василий Ливанов, Григорий Шпигель, Юрий Волынцев, Игорь Ясулович, Рина Зеленая, Всеволод Ларионов, Ольга ГромоваСубтитры: ОтсутствуютПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6937AA0F8DD10A4EA150741D3D3205909711247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611912   (202717) от 13.02.2023
+
+Том и Джерри: Страна снеговиков / Tom and Jerry: Snowman's Land (2022) WEBRip [H.264/1080p-LQ] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скорое приближение рождественских праздников наполняет воздух волшебством, с помощью которого Джерри и его любознательный племянник Таффи создают мышь из снега, и она чудесным образом оживает. Снежный мышонок получает имя Ларри, и теперь ему предстоит долгое путешествие в легендарную деревню Снеговика, где он сможет комфортно жить, без угрозы растаять. Однако у коварного (   Читать дальше...   )Производство: США / Turner Entertainment, Warner Bros. AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Даррел Ван СиттерсАктеры: Карлос Аласраки, Сонни Дей, Джои Д’Аурия, Реджи Дэвис, Лорейн Ньюмен, Кевин Майкл Ричардсон, Кэт Суси, Стефен Стэнтон, Рик ЗеффПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7457B3725DFD062A39ECBDD778FE6428701B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612200   (202703) от 14.02.2023
 
 Кот в сапогах 2: Последнее желание / Puss in Boots: The Last Wish (2022) UHD WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202703.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202700.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202699.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202687.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202638.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202607.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202594.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202579.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202575.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202357.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202339.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202284.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202115.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202065.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201907.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201901.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201770.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201751.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201662.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201642.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201580.jpg" />
 </div>
 
 
@@ -540,138 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDB03629C60B52B438F1B2F2B64C42C4A8832C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617696   (201538) от 08.03.2023
-
-Моана / Moana (2016) WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашная Моана, дочь вождя маленького племени на острове в Тихом океане, больше всего на свете мечтает о приключениях и решает отправиться в опасное морское путешествие. Вместе с некогда могущественным полубогом Мауи им предстоит пересечь океан, сразиться со страшными чудовищами и разрушить древнее заклятие.Производство: США / Hurwitz Creative, Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон Маскер, Дон ХоллПеревод: дублированныйЯзык озвучки: русский, казахский, английскийСубтитры: отсутствуютПродолжительность: 01:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:045F5D2AA27DE1542FFEF5C1A363CB6417D282C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619111   (201324) от 15.03.2023
-
-Цыплёнок Цыпа / Chicken Little (1943) DVBRip [H.264/1080p-LQ] [hand made upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданный во время Второй мировой войны мультфильм, высмеивающий массовые истерии и малограмотность обывателей. Студия изменила название книги, которую читает Фокси Локси, с «Майн кампф» на «Психология» в послевоенном переиздании.Производство: США, Walt Disney PicturesЖанр: мультфильм, короткометражка, комедия, семейныйРежиссер: Клайд ДжеронимиАктеры: Фрэнк Грэхэм, Кларенс Нэш, Флоренс ГиллПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5E3301171D0586C8754AFE0CA117536F7D2A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618816   (201321) от 13.03.2023
-
-Южный Парк / South Park (2022) WEBRip [H.264/720p] (сезон 25, серии 1-6 из 6)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южный Парк / South Park — американский мультсериал, созданный Мэттом Стоуном и Треем Паркером. Иногда название переводится также как «Саут-Парк» или «Саус-Парк». Выпускается кабельным телеканалом Comedy Central с 1997 года. Основу сюжета составляют приключения четырёх мальчиков и их друзей, живущих в маленьком городке Саут-Парк, штат Колорадо. Сериал высмеивает недостатки (   Читать дальше...   )Производство: США, MTV Entertainment StudiosЖанр: для взрослых, комедияРежиссер: Трей Паркер, Эрик Сточ, Мэтт СтоунАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Эдриан Бирд, Элиза Шнайдер, Дженнифер Хауэлл, Джесси Томас, Мэри Кэй БергманПеревод: Профессиональный двухголосый закадровый (Paramount Comedy),
-Любительский многоголосый закадровый (NewComers)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545D63C329D7C89BB87B78AB4F4D3DBAD0E38A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618817   (201311) от 13.03.2023
-
-Южный Парк / South Park (2022) WEBRip [H.264/1080p] (сезон 25, серии 1-6 из 6)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южный Парк / South Park — американский мультсериал, созданный Мэттом Стоуном и Треем Паркером. Иногда название переводится также как «Саут-Парк» или «Саус-Парк». Выпускается кабельным телеканалом Comedy Central с 1997 года. Основу сюжета составляют приключения четырёх мальчиков и их друзей, живущих в маленьком городке Саут-Парк, штат Колорадо. Сериал высмеивает недостатки (   Читать дальше...   )Производство: США, MTV Entertainment StudiosЖанр: для взрослых, комедияРежиссер: Трей Паркер, Эрик Сточ, Мэтт СтоунАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Эдриан Бирд, Элиза Шнайдер, Дженнифер Хауэлл, Джесси Томас, Мэри Кэй БергманПеревод: Профессиональный двухголосый закадровый (Paramount Comedy),
-Любительский многоголосый закадровый (NewComers)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4CF7E543B7AD3BF862FB462C23823D88680908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618873   (201307) от 13.03.2023
-
-Бэтмен: Гибель, пришедшая в Готэм / Batman: The Doom That Came to Gotham (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201307.jpg" />
-</div>
-
-
-###  Подробнее
-
-События развиваются в альтернативной вселенной в 1920-х годах. Бэтмен и Зелёная стрела должны помешать Рас Аль Гулу и его дочери, Талии погрузить мир в хаос.Производство: США / Warner Bros. AnimationЖанр: мультфильм, ужасы, фэнтезиРежиссер: Кристофер Беркли , Сэм ЛюПеревод: Профессиональный многоголосый (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (SDH)Продолжительность: 01:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D59BC4AF26E8BE4DACEEB440ED9403FB0A9ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

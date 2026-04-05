@@ -6,7 +6,7 @@ Uptown Jazz Tentet - There It Is (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811823.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fred Astaire - Golden Greats (1930-e - 1940-e) 3CD, 2002, Disky [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811820.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Harold Melvin & The Blue Notes - I Miss You (1972) 2010, Big Break Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811814.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Oscar Peterson Trio - Walking The Line (1970) 2005, Universal [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811812.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Zaz - Paris, Encore! (2015) [FLAC|Lossless|image + .cue] <Nu Jazz, Chanson>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811074.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bucky Pizzarelli - Challis In Wonderland (2011) Arbors Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810365.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Art Farmer - Early Art (1954) Remaster, 2006, Victor Entertainment[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810294.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Joe Zawinul - The Rise & Fall Of The Third Stream (1967) Remaster, 2012, Warner[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810293.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Art Farmer - Art (1960) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810292.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kenny Burrell - Blue Lights, Volume 1 (1958) Remaster, 2000, Toshiba[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810291.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sonny Stitt - Eight Classic Albums, Vol.2 (1959 - 1962) 4CD, 2013, Real Gone Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810268.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Yusef Lateef & Adam Rudolph - Beyond The Sky (2000) META [WavPack|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810264.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dorado Schmitt - Parisienne (1995) [FLAC|Lossless|tracks] <Jazz, Instrumental>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810183.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Murray, Allen & Carrington Power Trio - Perfection (2016) [FLAC|Lossless|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810181.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Oz Noy - Who Gives a Funk (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion, Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810177.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Jimmy Virani presents The Exotic Sounds of Tiki Tribe (2011) Dionysus Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810167.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Miles Davis - Miles In The Sky (1968) Remaster, 1991, Sony Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810165.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Return To Forever - Romantic Warrior (1976) Remastered 1990 [APE|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810160.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Miles Davis & Gil Evans - Quiet Nights 1962 - 1963 (1997) Sony Music [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810126.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Sidney Bechet - Weary Blues (1938 - 1940) 1992, Jazz Hour [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810064.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Art Farmer - Benny Golson Jazztet - Here And Now (1962) Remaster, 2002, Universa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809899.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Stan Kenton - The Lost Concert Vol. I & II (1978) 2CD, 1999, Jazz Heritage [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809607.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Freddie Hubbard - Born To Be Blue (1981) 1999, Original Jazz Classics [APE|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809604.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ John Coltrane - The Best Of John Coltrane (1959, 1960) 1992, Atlantic [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809601.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Miles Okazaki - Trickster (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809460.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809131.jpg" />
 </div>
 
 

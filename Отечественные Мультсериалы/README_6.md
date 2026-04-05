@@ -1,3 +1,29 @@
+###  Публикация: 1316110   (508708) от 23.07.2019
+
+Пластилинки. Азбука (2013-2014) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-33 из 33)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508708.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пластилинки. Азбука» — отечественный познавательный мультсериал, который в доступной форме игры-сказки знакомит малышей с буквами русского алфавита. Веселые пластилиновые герои помогают малышам не заблудиться в удивительном мире знаний. В каждой серии дошкольники осваивают буквы и новые слова из разных сфер жизни.Производство: Россия / Анимационная студия «Пластилин», Киностудия «Никола-фильм»Жанр: Развивающий мультсериал для детейРежиссер: Сергей МериновАктеры: Александра ЗахарикПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~00:01:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713106DE17D02CFD4177960103B686258EFE4629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316011   (508703) от 23.07.2019
 
 Тачки, Тачки (2017-2019) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-26 из 26) [Обновляемая]
@@ -6,7 +32,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508703.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508693.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507693.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505878.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505163.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504103.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502041.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500285.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495812.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488401.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483962.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482386.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482029.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466978.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465899.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_444229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444229.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442628.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442364.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_412618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_412618.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397273.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396514.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392515.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388833.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388770.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372146.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:970F1D0156196EF8F445D097140A885FC3A9D6ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575797   (370090) от 12.09.2022
-
-Приключения Пети и Волка (2018-2022) WEBRip [H.264/1080p] (сезон 1-2, серии 1-52 из 52)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370090.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о приключениях обычного школьника Пети и его друга Волка, связывающего мир людей с миром сказок. Петя помогает волшебным героям решать их волшебные проблемы, требующие нестандартного подхода.Производство: Россия / СоюзмультфильмЖанр: МультфильмРежиссер: Алексей Лебедев, Владимир ЛиАктеры: Владимир Маслаков, Иван Чабан, Анна Геллер, Андрей Лёвин, Михаил Хрусталёв, Ксения Бржезовская, Алексей Лебедев, Елена Шульман, Максим СергеевПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~00:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EF67E080AED36CFA989D8254FF283A38D386C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

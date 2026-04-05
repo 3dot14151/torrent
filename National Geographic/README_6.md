@@ -6,7 +6,7 @@ NG. Храм фашизма / Nazi Temple of DOOM (2012) HDTVRip [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795250.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793855.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Карта ада / Map of Hell (2016) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793690.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG: В Поисках гигантского осьминога / Search for the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793370.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NGW: Сесил: Наследие короля / Cecil: The Legacy of a King (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792749.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792713.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NG: Мегазаводы / Megafactories (2011-2012) HDTVRip [H.264/720p] (5 с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792700.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG: Спасти Нотр-Дам / Saving Notre-Dame / Sauver Notre-Dame (2020) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792431.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791776.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NGW: Дикие охотники. Волки и шакалы / Wild Hunters. Wol
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791201.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791194.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791193.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NGW: Дикие охотники. Медведи / Wild Hunters. Bears (2019) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791190.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NG: Космос: Возможные миры / Cosmos: Possible Worlds (2020) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791144.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NGW: Тигриная королева Тару / Tiger Queen of Taru (2020) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788783.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NGW: Львицы: борьба за выживание / Lions: The Hunt For Su
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788338.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NG. Аляска: Новое Поколение / Life Below Zero: Next Generati
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788313.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NGW: Дикая Миссисипи, лучшее / Wild Mississippi (2018) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788148.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NG. История десятилетий / The '80s and '90s Greatest (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788142.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NGW: Дикая Корея. Голос природы / Wild Korea. Voice of nat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788141.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NGW: Рожденные в Африке. Школа выживания / Born in
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787593.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NG: Инстинкт выживания. Острова / Primal survivor. Islan
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787545.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ NGW: Пир гризли / Feast of the Grizzly (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787220.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786803.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786661.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Nat Geo Wild: Уцелевшая природа Европы / Europe's Last Wil
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786097.jpg" />
 </div>
 
 

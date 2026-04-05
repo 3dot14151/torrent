@@ -1,3 +1,56 @@
+###  Публикация: 1565515   (249391) от 24.07.2022
+
+Unreal Engine, Paulo Souza | Profiling and Optimization in UE4 | Unreal Indie Dev Days 2019 (2019) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249391.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой углубленной презентации Unreal Indie Dev Days 2019 описываются проблемы, связанные с производительностью процессора и графического процессора, выявляются узкие места (бутылочные горлышки) и особенности планирования стратегий и способов оптимизации на раннем этапе работы в одиночку и в команде.
+Изучите инструменты и способы их использования для выявления основных (   Читать дальше...   )Производство: Unreal EngineЖанр: ОптимизацияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6025CC0D3B4BCF742E62220156FB1FD2E6D4692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565716   (249387) от 24.07.2022
+
+Epic Games, Wes Bunn | UMG UI Inventory Unreal Engine (2014) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249387.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой серии обучающих видео, мы рассмотрим UMG и блюпринты и как можно создать базовую систему Инвентаря. Это видео показывает и финальный продукт, который мы получим к концу видео и в котором будет иметься функционал Инвентаря.Производство: Epic GamesЖанр: Unreal EngineЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9ED836978FF23B890FD01239339A7156485E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833993   (248608) от 02.11.2025
 
 Vertex, Дмитрий Зиновьев | Основы конструирования в Компас - 3D v19 (2020) PCRec [RU]
@@ -6,7 +59,7 @@ Vertex, Дмитрий Зиновьев | Основы конструирова�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248608.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ CG Boost, Zach Reinhardt | Master 3D Sculpting in Blender - Version 2.0 [Chapter
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247698.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Udemy, Rob Tuytel | Creating a fir and pine forest in Blender (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247072.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246968.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246942.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246933.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ TOAnimate, Brian Kouhi, Simona Baranovicova, Vladimir Mokhov | Blender Animation
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246889.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ Rafa Souza Academy, Rafa Souza | Anatomia de Personagens 2.0 (2021) PCRec [RU, P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246264.jpg" />
 </div>
 
 
@@ -226,7 +279,7 @@ Rafa Souza Academy, Rafa Souza | Introdução ao ZBrush (2023) PCRec [RU, PT]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246261.jpg" />
 </div>
 
 
@@ -252,7 +305,7 @@ Gcircuit, Adam Priester | Stylized Skin Growth in Houdini (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246062.jpg" />
 </div>
 
 
@@ -279,7 +332,7 @@ Udemy, Jingtian Li | Introduction to Unreal Engine 4 Ability System Part 2 (2019
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246035.jpg" />
 </div>
 
 
@@ -305,7 +358,7 @@ Epic Games, Harrison Moore | Paragon Character Texturing Pipeline (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245977.jpg" />
 </div>
 
 
@@ -331,7 +384,7 @@ Uartsy, Ryan Kingslien | Artistic Anatomy in ZBrush (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245940.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ Enterclass, Сергей Курбатов | Весна в городе (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245888.jpg" />
 </div>
 
 
@@ -386,7 +439,7 @@ FXPHD, Jeronimo Maggi | HOU221 – USD and LOPs for Houdini Artists (2022) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245823.jpg" />
 </div>
 
 
@@ -412,7 +465,7 @@ FXPHD, Jeronimo Maggi | HOU222 - USD in Houdini 19.5 (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245808.jpg" />
 </div>
 
 
@@ -438,7 +491,7 @@ Entagma, Moritz Schwind | New in Houdini 18.5 (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245544.jpg" />
 </div>
 
 
@@ -464,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245413.jpg" />
 </div>
 
 
@@ -493,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245371.jpg" />
 </div>
 
 
@@ -521,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245012.jpg" />
 </div>
 
 
@@ -549,7 +602,7 @@ Pixel Front, Mario Reitbauer | A Full Introduction To Grooming For VFX in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244398.jpg" />
 </div>
 
 
@@ -575,7 +628,7 @@ Uartsy, Tomas Wittelsbach | Jewelry Design In ZBrush (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244369.jpg" />
 </div>
 
 
@@ -601,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244341.jpg" />
 </div>
 
 
@@ -630,7 +683,7 @@ Rebelway, Saber Jlassi | Advanced Houdini FX - RISE (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244332.jpg" />
 </div>
 
 
@@ -641,60 +694,6 @@ Rebelway, Saber Jlassi | Advanced Houdini FX - RISE (2020) PCRec [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89C353160E3C44DF1BF67C23C7CDB68E0425D5D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566962   (244305) от 01.08.2022
-
-CG Sphere | Frostmourne Sword Full Process + Files (2021) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео полного процесса Frostmourne Sword. 10 часов контента и файлов, вы узнаете много хороших техник моделирования, скульптинга, затенения и рендеринга, вы также получите 3D-модель + умные материалы, используемые в этом пакете , мы использовали блендер для моделирования, Zbrush для скульптинга, вещество для текстурирования, и блендер для затенения, освещения, рендеринга (   Читать дальше...   )Производство: CG SphereЖанр: 3D-моделированиеЯзык озвучки: Без ОзвучкиПродолжительность: 10:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:232377100FBA8049D0FB614E98D672CC60F4A16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621945   (244206) от 27.03.2023
-
-Художник Онлайн, Екатерина Бердюгина | Акрил. Текстуры (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расширяем представление об акриловый красках и пишем 8 работ на разные художественные задачи вместе с Екатериной Бердюгиной.
-
-Акрил — это материал с широким диапазоном выразительных возможностей. В каталоге Художник Онлайн есть курсы по реалистичной и декоративной акриловой живописи. Такие, где в качестве разбавителя используется вода и такие, где мы берем специальные (   Читать дальше...   )Производство: Художник ОнлайнЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 09:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44C2342A774BFDEA3EAE61D83DBDF755B148B05
 ```
 
 https://mybot314.ru/tekegram_catalog/

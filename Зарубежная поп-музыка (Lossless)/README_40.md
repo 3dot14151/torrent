@@ -6,7 +6,7 @@ Famous Groupies - Rehearsing The Multiverse (2019) 2020,  ATOZ [FLAC|Lossless|im
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646938.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Amy Correia - Christmas in L.A. (2000) Single [FLAC|Lossless|tracks + .cue] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646920.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Britney Spears - Circus (2008) Deluxe Version [FLAC 2.0|44.1/24|WEB-DL|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646852.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Miley Cyrus - Attention: Miley Live (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646754.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Londonbeat - 2 Albums (2004) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645845.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Radio 538 Hitzone 78 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645451.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Salvador Sobral - Paris, Lisboa (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645288.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Vacuum - I Breathe (1997) [FLAC|Lossless|tracks + .cue] <Synthpop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645183.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Top Of The Pops '1982 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644980.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Murray Head - Tete a Tete (2007) [APE|Lossless|image + .cue] <Rock, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644865.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - InAkustik Reference Sound Edition: Great Cover Versions (HQCD) (2013) [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644595.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Billie Eilish - When We All Fall Asleep, Where Do We Go? (2019) [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644459.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ London Grammar - Truth Is A Beautiful Thing (2017) Deluxe [FLAC|Lossless|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644355.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Eurodance Evolution 2019.01 (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Danc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643195.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Toxic Friends - Cleaning up the Mess (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643108.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - 538 Hitzone 88 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Folk, World
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643068.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Billy Ocean - Suddenly (Japanese Pressing) (1984) 1989,  JRCD 8213 [APE|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642977.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Supermax - Spirits Of Love (1996) [APE|Lossless|image + .cue] <Disco, Reggae>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642829.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Shura - Nothing's Real (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Synthpop, Indi
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641902.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ The Supremes - At The Copa: Expanded Edition (2012) 2CD [FLAC|Lossless]<Pop, Sou
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641623.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641520.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Rick Astley - The Best Of (2014) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641476.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Charles Aznavour - Mélodies inoubliables (2018) [FLAC|Lossless|WEB-DL|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640932.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Bananarama - Discomania (2005) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640872.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Mika - No Place in Heaven (2015) Deluxe Edition [FLAC|tracks]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637869.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Adam Lambert - The Original High (2015) Deluxe Edition [FLAC|tracks+.cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637744.jpg" />
 </div>
 
 

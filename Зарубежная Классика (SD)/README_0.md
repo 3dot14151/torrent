@@ -1,3 +1,55 @@
+###  Публикация: 1854362   (1057180) от 17.02.2026
+
+Зорро / Zorro (1975) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авантюрист Диего, сопровождая своего друга Мигуэля в испанские колонии, где тот должен получить пост губернатора Нового Арагона, становится свидетелем его убийства. Желая отомстить за друга, Диего забирает бумаги Мигуэля и выдаёт себя за губернатора. Чтобы не вызвать подозрение у опасного противника, полковника Уэрты, терроризирующего страну и виновного в смерти (   Читать дальше...   )Производство: Италия, Франция / Les Productions Artistes Associés, Mondial Televisione FilmЖанр: боевик, мелодрама, комедия, приключения, вестернРежиссер: Дуччо ТессариАктеры: Ален Делон, Оттавия Пикколо, Энцо Черузико, Мусташ, Джакомо Росси Стюарт, Джампьеро Альбертини, Марино Мазе, Райка Юрий, Адриана Асти, Стенли БейкерПеревод: Дублированный (киностудия «Союзмультфильм»), многоголосый профессиональный Останкино, ТВЦентр, R5 Cinema Prestige), авторский (К. Дьяконов)Язык озвучки: Русский, итальянскийСубтитры: Английские, итальянскиеПродолжительность: 02:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F444D05676C9E2DC2301FA204DA4B54AEF8367F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853608   (1056775) от 14.02.2026
+
+Непрощенная / The Unforgiven (1960) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техас, 1850-е годы. Глава семьи Захария погиб много лет назад от рук индейцев, защищая свой дом и семью. Мать одна воспитала трёх своих сыновей и девочку Рэйчел, чьи родители также были убиты индейцами. Неожиданно индейцы выясняют, что в девушке течёт кровь племени кайова, и приходят забрать свою соплеменницу. Испугавшись, никто не приходит на помощь осаждённой семье. (   Читать дальше...   )Производство: США / Hecht-Hill-Lancaster Productions, James Productions Inc.Жанр: вестерн, драма, мелодрамаРежиссер: Джон ХьюстонАктеры: Берт Ланкастер, Одри Хепберн, Оди Мерфи, Джон Сэксон, Чарльз Бикфорд, Лиллиан Гиш, Альберт Сэлми, Джозеф Уайзмен, Джун Уолкер, Кипп ХэмилтонПеревод: Двуголосый профессиональный (Film Prestige)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD079D5F3E9C4A93CCC0DC4A7DDD96F418BCEF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853742   (1056584) от 14.02.2026
 
 Отсюда и в вечность / Отныне и во веки веков / From Here to Eternity (1953) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056584.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056426.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053587.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053447.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052687.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052391.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052330.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052282.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052238.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051538.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051069.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050837.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050157.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050089.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049979.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049950.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049648.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048274.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048103.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047931.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047566.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047529.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047302.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046878.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C440F4355BA401CAC355F3522D538E41AC29EF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839346   (1046514) от 28.11.2025
-
-Мироздание гуманоидов / The Creation of the Humanoids (1962) WEB-DLRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046514.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пост-апокалиптическом будущем выжили несколько представителей человеческой расы, передав часть своих способностей искусственно созданным существам, гуманоидам. Но первые модели гуманоидов были человекоподобны, что создавало многочисленные общественные проблемы. Люди, обеспокоенные за свое положение, решают поставить гуманоидов на место, то есть превратить их в (   Читать дальше...   )Производство: США / Genie Productions Inc.Жанр: фантастикаРежиссер: Уэсли БэрриАктеры: Дон Мегован, Эрика Эллиотт, Фрэнсис МакКанн, Дон Дулиттл, Дэвид Кросс, Ричард Ват, Рейд Хэммонд, Малкольм Смит, Джордж Милан, Дадли МэнлавПеревод: Одноголосый любительский (В. Рутилов, den904)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4FD8159DCF019821F25904363A719042C6EE4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603386   (1045744) от 09.01.2023
-
-Ночь игуаны / The Night of the Iguana (1964) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Епископальной церкви Т. Лоуренс Шеннон переживает нервный срыв прямо во время собрания прихожан. Причиной тому послужили обвинения его в растлении совсем юной учительницы воскресной школы... Прошло два года. Группа преподавателей баптистской школы приезжает на экскурсию в Пуэрто-Вальярта. Молодая туристка Шарлотта Гудэлл очарована их гидом, преподобным (   Читать дальше...   )Производство: США, Seven Arts ProductionsЖанр: драмаРежиссер: Джон ХьюстонАктеры: Ричард Бёртон, Ава Гарднер, Дебора Керр, Сью Лайон, Скип Уорд, Грэйсон Холл, Сайрил Делеванти, Мэри Бойлэн, Эмилио Фернандес, Фидельмар ДуранПеревод: профессиональный многоголосый (СВ-Дубль по заказу ГТРК Культура), авторский (Алексей Медведев)Субтитры: английские SDHПродолжительность: 01:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F17FB7E6A48E83B06C929D44E2E424112174935
 ```
 
 https://mybot314.ru/tekegram_catalog/

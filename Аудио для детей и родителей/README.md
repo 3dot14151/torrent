@@ -1,4 +1,60 @@
 https://t.me/izofen
+###  Публикация: 1863352   (1063919) от 
+
+Инна Хамитова, Татьяна Бедник и др. | Вместе с подростком. Путь родителя (2026) [MP3, Виктория Фёдорова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незаконное употребление наркотических средств, психотропных веществ и их аналогов наносит вред здоровью. Их незаконный оборот запрещён и влечёт ответственность, предусмотренную законодательством.
+Как быть, если подросток дерзит, тайком берёт деньги или сталкивается с травлей? Эта книга показывает родителям, как не «спасать» ребёнка, решая всё за него, а выстраивать (   Читать дальше...   )Жанр: ПсихологияИздательство: АСТПродолжительность: 14:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2648BDA1B2CB475A42692BBF0AB7D0915AB89B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862607   (1063300) от 
+
+Корейские сказки (Сборник) (2022) [MP3, Бордуков Александр]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расположенная на самой окраине Восточной Азии, Корея славится удивительной красотой и разнообразием природы. Не случайно ее жители назвали свою страну так поэтично: «Страна утренней свежести».
+
+Тысячелетиями трудясь на земле, освоенной предками, корейский народ создал богатую, своеобразную культуру.
+(   Читать дальше...   )Жанр: СказкаИздательство: СОЮЗПродолжительность: 04:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC112A9EB506198B753CC1B9FAB2761C5E47980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862014   (1062975) от 
 
 Николай Гарин-Михайловский | Корейские народные сказки (2024) [MP3, Аравушкин Александр]
@@ -7,7 +63,7 @@ https://t.me/izofen
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062975.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061976.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061975.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061250.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061163.jpg" />
 </div>
 
 
@@ -140,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060299.jpg" />
 </div>
 
 
@@ -167,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060149.jpg" />
 </div>
 
 
@@ -193,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059708.jpg" />
 </div>
 
 
@@ -219,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059386.jpg" />
 </div>
 
 
@@ -246,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056124.jpg" />
 </div>
 
 
@@ -273,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055962.jpg" />
 </div>
 
 
@@ -299,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054934.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054501.jpg" />
 </div>
 
 
@@ -352,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054402.jpg" />
 </div>
 
 
@@ -380,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054401.jpg" />
 </div>
 
 
@@ -408,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054341.jpg" />
 </div>
 
 
@@ -434,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054324.jpg" />
 </div>
 
 
@@ -463,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054320.jpg" />
 </div>
 
 
@@ -490,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053715.jpg" />
 </div>
 
 
@@ -517,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053457.jpg" />
 </div>
 
 
@@ -536,35 +592,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848976   (1053181) от 20.01.2026
-
-Дмитрий Мамин-Сибиряк | Алёнушкины сказки (2026) [MP3, Алёна Минчук]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1053181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой радостью в жизни Мамина-Сибиряка была больная детским церебральным параличом дочка Алёнушка, выхаживать которую писателю помогала няня. Сидя у кровати дочери, писатель не раз рассказывал ей сказки. Так и появился большой цикл произведений «Алёнушкины сказки».
-
-В релиз входят следующие произведения:Пора спать
-Притча о молочке(   Читать дальше...   )Жанр: СказкаИздательство: Книги Даром (интернет ресурс)Продолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B686BD8C6D790EC78B4FB5BC2B3125347212E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848846   (1053050) от 19.01.2026
 
 Екатерина Мурашова | С вашим ребёнком всё в порядке (2026) [MP3, Demetra]
@@ -573,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053050.jpg" />
 </div>
 
 
@@ -599,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052878.jpg" />
 </div>
 
 
@@ -625,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052877.jpg" />
 </div>
 
 
@@ -652,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052595.jpg" />
 </div>
 
 
@@ -663,32 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F781B896D18BB05E29CA845FBD727EE8379861A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848096   (1052588) от 16.01.2026
-
-Ф. Энсти (Томас Гатри Энсти) | Медный кувшин (2025) [MP3, Ольга Коробова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой повести «Медный кувшин» – молодой лондонский архитектор Гораций Вентимор – случайно выпускает на волю древнего арабского джинна, просидевшего взаперти шесть тысяч лет. В обмен на свободу джинн обещает выполнить все желания своего нового хозяина. Но в итоге он приносит больше вреда, чем пользы, и вот уже Гораций мечтает навсегда избавиться от неугомонного духа…Жанр: Сказка, ПриключенияИздательство: АРДИСПродолжительность: 08:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644440D0A8625E493856993A4F7EE872D060734A
 ```
 
 https://mybot314.ru/tekegram_catalog/

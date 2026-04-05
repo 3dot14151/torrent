@@ -1,3 +1,55 @@
+###  Публикация: 929875   (516302) от 22.08.2015
+
+Ф.И. Тарасов | Триоды (1965) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра содержит справочные сведения (параметры, режимы, характеристики) о наиболее распространенных  отечественных ламповых триодах различного назначения.Жанр: Электроника, радиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA44644692815B67498B4D5CE92385BF2B6152E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929672   (516298) от 22.08.2015
+
+М.Д. Гуревич, М.Д. Гуревич | Электро - вакуумные приборы (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516298.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены работа и устройство большинства электровакуумных приборов, применяемых в радиотехнических устройствах. Особое внимание уделено электровакуумным приборам ультракоротковолнового диапазона, а также импульсным приборам, работа которых недостаточно освещена в учебной литературе.Жанр: Электроника, радиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96ED263A4EAEE6EBA5219A581F5A8C9D765D09DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929814   (516269) от 22.08.2015
 
 Э.П. Борноволоков | Выпрямители для питания приемников от сети переменного тока (1956) [DJVU]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516269.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516257.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516256.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516209.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516207.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516193.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514973.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510414.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506884.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502486.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500896.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500392.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499333.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498486.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493537.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492869.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489801.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486027.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485555.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484375.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483304.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482676.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482458.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478334.jpg" />
 </div>
 
 
@@ -631,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9DF91313AE7A10B46BF747280C924EADBDF621C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160831   (464937) от 29.08.2017
-
-Саймон Монк | Мейкерство. Arduino и Raspberry Pi. Управление движением, светом и звуком (2017) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказано, как самостоятельно создавать устройства на основе популярных платформ Arduino и Raspberry Pi. Излагаются принципы работы описываемых устройств. Сложные задачи решаются последовательно, через выполнение экспериментов и реализацию увлекательных проектов. Рассказано, как управлять светодиодными индикаторами, электродвигателями различных типов, соленоидами, (   Читать дальше...   )Жанр: РобототехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A0B20917F941240CDBB9628764F1D33BCF8104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941362   (462407) от 27.09.2015
-
-П.А. Коновалов (ред.) | Фундаменты стальных резервуаров и деформации их оснований (2009) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен обзор мирового опыта проектирования и строительства стальных цилиндрических резервуаров в сложных инженерно-геологических условиях. Рассмотрены способы устройства оснований, типы фундаментов для резервуаров большой вместимости в условиях слабых грунтов. Дан экономический анализ вариантов оснований и фундаментов. Описана методология проведения инженерно-геологических (   Читать дальше...   )Жанр: СтроительствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884497033E8B7D260B09C9531E3ED87EA704E868
 ```
 
 https://mybot314.ru/tekegram_catalog/

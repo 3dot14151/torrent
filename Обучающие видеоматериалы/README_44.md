@@ -1,3 +1,30 @@
+###  Публикация: 1438519   (1021673) от 10.04.2021
+
+Udemy, Colt Steele | The Web Developer Bootcamp 2021 (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материалы всего курса обновлены 04.2021.
+Привет! Добро пожаловать в совершенно новую версию The Web Developer Bootcamp, самого популярного курса Udemy по веб-разработке. Этот курс был полностью переработан, чтобы подготовить студентов к рынку труда 2021 года, с более чем 60 часами совершенно нового контента. Это единственный курс, который вам нужен для изучения веб-разработки. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 63:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27D108ACDC8240512A55078B537789C884F13E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461620   (1021665) от 10.04.2021
 
 Puzzle Brain, Андрей Кисюк | Создание чат-бота в Telegram (2021) PCRec
@@ -6,7 +33,7 @@ Puzzle Brain, Андрей Кисюк | Создание чат-бота в Tele
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021665.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Udemy, Elena Vorobyeva | Английский по полочкам (для на
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021649.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ Udemy, Rob Percival | The Complete Web Developer Course 2.0  (2021) PCRec [En / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021553.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ Udemy, Stephen Grider | Webpack 2: The Complete Developer's Guide  (2021) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021541.jpg" />
 </div>
 
 
@@ -121,7 +148,7 @@ Servers for Hackers | Scaling Laravel (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021519.jpg" />
 </div>
 
 
@@ -150,7 +177,7 @@ CSS Demystified, Kevin Powell | Start writing CSS with confidence  (2020) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021518.jpg" />
 </div>
 
 
@@ -179,7 +206,7 @@ Udemy, Kunal Gupta | C++ Programming Bootcamp 2021: A-Z  (2021) PCRec [En / En S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021511.jpg" />
 </div>
 
 
@@ -207,7 +234,7 @@ Udemy, ZTM Academy, Andrei Neagoie | Complete Python Developer in 2021: Zero to 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021502.jpg" />
 </div>
 
 
@@ -234,7 +261,7 @@ Udemy, ZTM Academy, Andrei Neagoie | Master the Coding Interview: Data Structure
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021496.jpg" />
 </div>
 
 
@@ -260,7 +287,7 @@ Udemy, ZTM Academy, Andrei Neagoie | Подготовка к собеседов�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021489.jpg" />
 </div>
 
 
@@ -288,7 +315,7 @@ Rachel Smith | Rachels English Academy (2021) PCRec [En]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021474.jpg" />
 </div>
 
 
@@ -314,7 +341,7 @@ ArtStation, Rico Cilliers | Скульптинг органики в Blender 2.9
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021391.jpg" />
 </div>
 
 
@@ -341,7 +368,7 @@ Jan Urschel | Введение в движок рендеринга Octane дл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021150.jpg" />
 </div>
 
 
@@ -367,7 +394,7 @@ Udemy, Google Cloud Platform Gurus ! | Ultimate Google Cloud Certifications: All
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021122.jpg" />
 </div>
 
 
@@ -394,7 +421,7 @@ Udemy, Maximilian Schwarzmüller | JavaScript - The Complete Guide 2021 (Beginne
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021097.jpg" />
 </div>
 
 
@@ -421,7 +448,7 @@ Udemy, Maximilian Schwarzmüller | NodeJS - The Complete Guide (MVC, REST APIs, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021096.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ WingFox, Gavin O'Donnell | Стилизованная иллюстрация - �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021093.jpg" />
 </div>
 
 
@@ -475,7 +502,7 @@ Leigh Halliday | Next Level Next.js (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020988.jpg" />
 </div>
 
 
@@ -501,7 +528,7 @@ Udemy, Rafael Silva Pinto | Optimization with Python: all you need for LP-MILP-N
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020980.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ CG Cookie, Jonathan Lampel | Основы текстурирования в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020939.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ Jeff Minakata | OSINT for hackers and penetration testers (2020) PCRec [En / En,
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020938.jpg" />
 </div>
 
 
@@ -580,7 +607,7 @@ Udemy, Maximilian Schwarzmüller | Angular & NodeJS - The MEAN Stack Guide [2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020936.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ Udemy, Marcus Ng | Flutter Firebase Bloc Instagram Clone | iOS and Android 2021 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020934.jpg" />
 </div>
 
 
@@ -636,7 +663,7 @@ CG Cookie | Кузница шейдеров - Создание материал�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020929.jpg" />
 </div>
 
 
@@ -663,7 +690,7 @@ Udemy, Tim Buchalka | Java SE 11 Developer 1Z0-819 OCP Course - Part 1 & 2 (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020928.jpg" />
 </div>
 
 
@@ -674,35 +701,6 @@ Udemy, Tim Buchalka | Java SE 11 Developer 1Z0-819 OCP Course - Part 1 & 2 (2021
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C97273DAE8603C5C1D839A40F9ADEAE3932EF4EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462749   (1020927) от 15.04.2021
-
-Udemy, Nana Janashia и др. | Complete Terraform Course - Beginner to Advanced [2021]  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020927.jpg" />
-</div>
-
-
-###  Подробнее
-
-К концу этого курса:
-Вы освоите один из самых популярных инструментов предоставления инфраструктуры и инфраструктуры как кода (IaC), которым является Terraform.
-Вы сможете уверенно использовать Terraform в своих проектах
-Вы будете знать все основные концепции и компоненты языка Terraform(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58664C8B6E47923656F9E3A2822C879847E6654
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1340515   (263623) от 24.11.2019
+
+Winterborn - 2 Альбома Collection (2006-2008) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263623.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2004 году образовалась группа Winterborn. Фирменный стиль группы сформировался сразу, он вобрал в себя элементы современных форм тяжелой экстремальной музыки и классического хэви. Голос вокалиста Теему Коскеласа (Teemu Koskelas) сильно выделяется и легко узнаваем в композициях этой группы. Дебютный альбом группы состоялся в конце 2006 года - "Cold Reality". (   Читать дальше...   )Список альбомов:
+2006 - Cold Reality
+2008 - Farewell to SaintsЖанр: Melodic Heavy MetalПродолжительность: 01:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95741C3B10A8B3FE21E4BEC1DFFDF737620D79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340662   (263611) от 24.11.2019
 
 Birtha - Birtha / Can't Stop The Madness (1997) [FLAC|Lossless|image + .cue] <Classic Rock>
@@ -6,7 +34,7 @@ Birtha - Birtha / Can't Stop The Madness (1997) [FLAC|Lossless|image + .cue] <Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263611.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Aftermath - Natural Destruction (2003) [FLAC|Lossless|image + .cue] <Technical P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263608.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ Vintage Reserve - Vintage Reserve (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263528.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ Vexovoid - Call Of The Starforger (2017) [MP3|320 Kbps] <Progressive Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263527.jpg" />
 </div>
 
 
@@ -122,7 +150,7 @@ My Vitriol - 2 Albums (2001-2016) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263524.jpg" />
 </div>
 
 
@@ -151,7 +179,7 @@ Taproban - Per Aspera Ad Astra (2017) [FLAC|Lossless|image + .cue] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263486.jpg" />
 </div>
 
 
@@ -180,7 +208,7 @@ Yes - Close To The Edge (1972) Reissue, Remastered, 1998, Atlantic [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263447.jpg" />
 </div>
 
 
@@ -209,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263442.jpg" />
 </div>
 
 
@@ -238,7 +266,7 @@ Bryan Adams - Ultimate (2017) Compilation [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263394.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263367.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ Pere Ubu - The Long Goodbye (2019) 2 CD [FLAC|Lossless|tracks + .cue] <Post-Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263297.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_263117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_263117.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263072.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ Axel Rudi Pell - The Ballads V (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263046.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ Silent Force - 6 Альбомов Collection (2000-2013) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262916.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ Lindemann - F&M: Frau Und Mann (2019) Special Edition [FLAC|lossless|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262810.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ Spirit - Spirit (1968) remaster, 2017, Audio Fidelity [WavPack|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262804.jpg" />
 </div>
 
 
@@ -499,7 +527,7 @@ Spirit - The Family That Plays Together (1969) remaster, 2017, Audio Fidelity [W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262797.jpg" />
 </div>
 
 
@@ -528,7 +556,7 @@ Brazzaville - Welcome to Brazzaville 2 (2012) [FLAC|Lossless|tracks + .cue] <Cha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262633.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ The Parlour Band ‎ - Is A Friend? (1972) [FLAC|Lossless|image + .cue] <Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262632.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ Intergalactic Touring Band - Intergalactic Touring Band (1977) Reissue CD, 2010,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262631.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ The Pillbugs - Happy Birthday (2004) [FLAC|Lossless|image + .cue] <Rock, Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_262629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262629.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ Paul McCartney - Home Tonight / In A Hurry (2019) Single [FLAC|24/96|Lossless|WE
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262585.jpg" />
 </div>
 
 
@@ -671,7 +699,7 @@ Deep Purple - Gold - Greatest Hits (2009) 3CD Set, Compilation, Deluxe Edition [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262578.jpg" />
 </div>
 
 
@@ -700,7 +728,7 @@ Epolets - Діти моря (2017) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262488.jpg" />
 </div>
 
 
@@ -714,35 +742,6 @@ Epolets - Діти моря (2017) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:874721687782AF3E52C1C5F5B357F9C5BCC03A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192944   (262472) от 19.12.2017
-
-VA - 101 Drivetime (2017) 5CD [MP3|320 Kbps] <Rock, Pop Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01.  The Spencer Davis Group  -  Gimme Some Lovin'  2:59
-02.  Grace Jones  -  Pull Up To The Bumper  3:38
-03.  Simple Minds  -  Alive And Kicking  4:47(   Читать дальше...   )Жанр: Rock, Pop Rock, PopПродолжительность: 01:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1EEC6A7E91A57D1976B23C2665F9E46B5B9831
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1416215   (369540) от 15.10.2020
+
+Дмитрий Ревякин - Kosmotango (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369540.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мандарины
+2. День раздет
+3. Дубровник
+4. Лаэтана(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156CD51748636F7A08960651E0487117F4937679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176575   (369513) от 22.10.2017
 
 VA - Legends: Of Rock (2004) Time-Life Music [FLAC|Lossless|image + .cue] <Rock>
@@ -6,7 +35,7 @@ VA - Legends: Of Rock (2004) Time-Life Music [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369513.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369190.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Death Valley High - CVLT (AS FVK) (2016) [MP3|320 Kbps] <Industrial Rock, Experi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369145.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Crack Jaw - Branded (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369141.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Rakel Traxx - Dirty Dollz (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369013.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368970.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ Berwanger - Exorcism Rock (2016) [MP3|320 Kbps] <Melodic Hard Rock, Garage Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368877.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ nobody.one - No Care (2016) [MP3|320 Kbps] <Instrumental Rock, Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368795.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ Killer Bee - Eye in the Sky (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368792.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ Ras Algethi - Oneiricon - The White Hypnotic (1995) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368699.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ Red Rot - Mal De Vivre (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368697.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ Bastard Saint - Homewrecker (2010) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368695.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Wölfhead (Wolfhead) - Blood Full Moon (2022) [MP3|320 Kbps] <Heavy Rock, Stoner
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368692.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ Big Rooster Jeff - The Good Notes (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368690.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Astral Mantra - Rise of the Lords (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368688.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Le Orme - ClassicOrme (2017) [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368617.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Stratovarius - Elements Pt.1 (2003) Reissue, 2008, Victor [OGG Vorbis|484 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368616.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Catharsis vs Margenta - Алый Король (2020) Maxi single [FLAC|Lossless|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368615.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Margenta - Сон Императора (2022) [FLAC|Lossless|image + .cue] <Heav
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368612.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Taxi Caveman - 2 Albums (2021-2022) [MP3|320 Kbps] <Heavy Psych Stoner Doom Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368601.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Hudu Akil - Eye for an Eye (2020) [MP3|320 Kbps] <Heavy Rock, Stoner, Punk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368600.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ Stratovarius - Infinite (2000) [OGG Vorbis|485 Kbps] <Rock, Heavy Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368498.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ Citizen - Life In Your Glass World (2021) Deluxe Edition, 2022 [MP3|320 Kbps] <I
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368495.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ US - 2 Albums (2020-2022) [MP3|320 Kbps] <Progressive Symphonic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368493.jpg" />
 </div>
 
 
@@ -693,7 +722,7 @@ Naufragant - A Short Life (2022) [Mp3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368489.jpg" />
 </div>
 
 
@@ -707,35 +736,6 @@ Naufragant - A Short Life (2022) [Mp3|320 Kbps] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BEE732A289483E952B21E6C709E618E19D7CCB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576251   (368483) от 13.09.2022
-
-Wine From Tears - I'm Fine (2022) [FLAC|Lossless|image + .cue] <Melodic Death, Gothic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Whales Swim Up (00:06:00)
-02 - Cotard's Delusion (00:06:19)
-03 - The Point of No Return (00:06:56)
-04 - No Future (00:07:56)(   Читать дальше...   )Жанр: Melodic Death, Gothic Doom MetalПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:232BBD5B66E4FEE7E8351A79B6F67CE038DE118A
 ```
 
 https://mybot314.ru/tekegram_catalog/

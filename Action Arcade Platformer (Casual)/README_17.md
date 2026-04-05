@@ -1,3 +1,55 @@
+###  Публикация: 1663937   (181886) от 30.09.2023
+
+BIT.TRIP RERUNNER (2023) [Multi] (20230927) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический ритм-платформер только что был обновлен: новая механика, необычная графика и потрясающий саундтрек, а также редактор уровней для начинающих гейм-дизайнеров, который позволяет игрокам создавать собственные уровни и делиться ими. Дайте волю своему воображению, регулируя препятствия и формируя ритмичный игровой процесс, а затем делитесь своими уровнями (   Читать дальше...   )Тип издания: SceneРазработчик: Choice Provisions, Gamecraft StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F69DE315A08896E0C6D26737C74E8A6FF83E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594523   (177561) от 01.12.2022
+
+Skeleton Crew (2022) [En] (1.1.3) License FLT
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skeleton Crew – новый захватывающий платформер, где тебе предстоит встать на сторону зла и сыграть роль безжалостной и очень жестокой нежити. События отправляют нас на просторы вселенной, которую ты будешь постоянно изучать, чтобы открыть доступ к самым потайным уголкам. Всего игровой процесс включает в себя более двух десятков уровней, сложность которых постоянно (   Читать дальше...   )Тип издания: LicenseРазработчик: Cinder ConeЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4517E65980779B542C8807B9BDDB2E490941F10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594759   (176938) от 02.12.2022
 
 New Joe & Mac Caveman Ninja (2022) [Ru/Multi] (2022112301) License GOG
@@ -6,7 +58,7 @@ New Joe & Mac Caveman Ninja (2022) [Ru/Multi] (2022112301) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176938.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Iron Dungeon (2023) [Ru/En] (1.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176346.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Wall World (2023) [Ru/Multi] (1.2.4.513/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176218.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Bish Bash Bots (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172023.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Savant - Ascent REMIX (2023) [Ru/Multi] (1.04) Scene Tenoke [Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171831.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Castle on the Coast (2021) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169938.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Togges (2022) [Ru/Multi] (1.03) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169439.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Laika: Aged Through Blood (2023) [Ru/Multi] (1.0.10) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165714.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ INMOST (2020) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165696.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.1) Repack Bu
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163309.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Rusty Rabbit (2025) [Ru/Multi] (Build 18177047) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162407.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Firegirl: Hack 'n Splash Rescue (2021) [Ru/Multi] (1.017) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161804.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ YesterMorrow (2020) [Ru/Multi] (1.0.4.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161705.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Tiny Thor (2023) [Multi] (6125) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160710.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Molten Horn (2023) [En] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159487.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Disney Classic Games Collection: Aladdin, The Lion King, The Jungle Book (2021) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156147.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Cave Story's Secret Santa (2021) [En] (1.0.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154752.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Webbed (2021) [Ru/Multi] (1.04b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154680.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Braid (2009) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153383.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ New Super Lucky's Tale (2020) [Ru/Multi] (Build 10670184) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152348.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Dungetris (2017) [Ru/Multi] (1.0) Unofficial SiMPLEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151148.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Dead Island Retro Revenge (2016) [Ru/Multi] (build 1160760) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150680.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ The Last Faith (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150588.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148262.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) License SKIDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03A30CB4C1624EFA0A3C4C913CF84B75877C037A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434847   (147018) от 26.12.2020
-
-Super Meat Boy Forever (2020) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мясному парню вновь предстоит испытать себя в игре Super Meat Boy Forever! Уровни здесь полны жестокости, а смерть неминуема. Бегайте, прыгайте, пробивайтесь и прорывайтесь по знакомым местам и новым мирам в истории, которая просто создана для большого экрана.Тип издания: LicenseРазработчик: Team MeatЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A94271CF641C4E0BD7065ECE8324AB4197A8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589530   (146967) от 15.12.2012
-
-Waking Mars [En] (L) 2012 | -JAGUAR-
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146967.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2097, была обнаружена жизнь на Марсе. Когда, выполняя миссию по контакту с инопланетным разумом, вы оказываетесь в ловушке в результате обвала, вам придётся справляться с инопланетной экосистемой, чтобы выжить. Со временем, вы примете решение, которое определит судьбу утерянной планеты. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: АнглийскиeЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E496CC8A4DFBF9D59DCBEA77147DE2BA34DCCFFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

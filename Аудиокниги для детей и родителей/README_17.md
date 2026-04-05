@@ -1,3 +1,29 @@
+###  Публикация: 1112736   (841431) от 09.03.2017
+
+Андрей Жвалевский, Евгения Пастернак | Гимназия №13 (2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Валентинович Жвалевский (род. 1967) – писатель, сценарист. Евгения Борисовна Пастернак (род. 1972) – писатель, соавтор Андрея Жвалевского. Повесть «Гимназия № 13» стала финалистом международной детской премии имени Владислава Крапивина и заняла первое место на фестивале «ДАР» в 2011 году. Описанные в книге события случились в обыкновенной минской гимназии, (   Читать дальше...   )Жанр: Детская фантастикаПродолжительность: 09:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDDF550C426936157B87348D513A4DDB45A1475A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113182   (839781) от 10.03.2017
 
 Андрей Жвалевский, Евгения Пастернак | Время всегда хорошее (2017) [MP3]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839781.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838363.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838239.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838057.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837558.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835262.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833742.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833322.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831219.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830955.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829741.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828490.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828485.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828159.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826763.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826754.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826642.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826356.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825300.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825256.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825151.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825136.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825035.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824777.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824746.jpg" />
 </div>
 
 
@@ -656,33 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A32137C2A73FC6FAE44D33D6CB161C9F0AD1F010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502931   (824742) от 16.10.2021
-
-Л. Андреев, Н. Тэффи и другие | Храбрый волк и другие сказки [Сборник] (2021) [MP3, Анна Сказко]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добрые и нравственные рассказы для самых любопытных!
-Авторы этой аудиокниги – Л. Андреев, Н. Тэффи, П. Сухотин и другие – серьёзные писатели и большие мастера своего дела. И вот однажды они решили написать… сказки для детей. А это работа ответственная, ничуть нелегче, чем писать для взрослых. Лучшие из этих произведений вошли в книгу «Храбрый волк и другие сказки». (   Читать дальше...   )Жанр: Детская литература/СказкаПродолжительность: 01:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE95860A7B9BEEF6E94F493F09E73CCB1D151762
 ```
 
 https://mybot314.ru/tekegram_catalog/

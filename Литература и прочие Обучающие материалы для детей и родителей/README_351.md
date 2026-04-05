@@ -1,3 +1,56 @@
+###  Публикация: 1452763   (244328) от 07.03.2021
+
+Алексей Смирнов | Почемучкины книжки. Зачем луку луковица? (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244328.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге биолога, доктора биологических наук, профессора, заслуженного деятеля науки РФ Смирнова Алексея Всеволодовича "Зачем луку луковица" вас ждёт рассказ о самых любопытных растениях на свете: как им удаётся расти в пустыне, совсем без воды, почему все эти растения объединяет число 3, где растут гигантские алоэ, зачем египтяне ели лук, когда строили (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03E39286DB4701ADEBA46F33DB5F86860590898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621946   (244137) от 27.03.2023
+
+О.Ф. Бунина и др. | Домоводство [Изд. 2-е] (1962) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник для 5-7 классов восьмилетней школы. Артефакт шестидесятилетней давности знакомит с бытом того времени. Большая часть учебника посвящена кулинарии, рукоделию кройке и шитью. Большинство советов не потеряли актуальности, но есть и особенности того времени, например, использование инсектицида ДДТ в быту.
+Отсутствуют страницы с 1 по 12.Жанр: учебное пособие, кулинария, домоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5991702BC24ECE60691E9AA07F8FD4CE3E9C3937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610799   (244136) от 09.02.2023
 
 Александр Неверов | Красный сыщик (1924) [PDF]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244136.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244092.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243880.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243721.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243691.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243551.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243525.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243421.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243379.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243329.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243301.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243298.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243192.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243109.jpg" />
 </div>
 
 
@@ -384,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243013.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_242950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_242950.jpg" />
 </div>
 
 
@@ -440,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242947.jpg" />
 </div>
 
 
@@ -467,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242916.jpg" />
 </div>
 
 
@@ -494,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242902.jpg" />
 </div>
 
 
@@ -521,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242857.jpg" />
 </div>
 
 
@@ -548,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242817.jpg" />
 </div>
 
 
@@ -575,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242778.jpg" />
 </div>
 
 
@@ -601,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242676.jpg" />
 </div>
 
 
@@ -628,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242640.jpg" />
 </div>
 
 
@@ -639,60 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90E01AA977DD22A3BDD745EC5CC3D4F8AAC02050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541681   (242593) от 03.04.2022
-
-Вера Иванова | Что такое? Кто такой? Как устроен человек? (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга популяризатора науки Веры Ивановой "Как устроен человек?" расскажет и объяснит, для чего человек дышит, зачем бьётся сердце, из чего состоит кровь, как устроен организм человека в целом. Книга проиллюстрирована подробными схемами.
-Также, благодаря практическим советам, вы сможете оставаться здоровым и бодрым на протяжении всей жизни.
-Для младшего (   Читать дальше...   )Жанр: Детская познавательная и развивающая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBD122C73E8ABEA5E4CAEA9B31A437DA12AAF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457900   (242543) от 27.03.2021
-
-Галина Гордиенко | Кошмары 21-й школы (2021) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242543.jpg" />
-</div>
-
-
-###  Подробнее
-
-К третьекласснице Тайке по ошибке попадает волшебная шкатулка ее прабабушки-ведьмы, и девочка становится ученицей деревенской колдуньи. Она начинает «вершить правосудие» по своему усмотрению: сурово наказывает тех, кто ее обижает, и вознаграждает тех, кто ей дорог. Однако за свое всемогущество Тайке придется заплатить дорогой ценой.Жанр: Фантастика, Приключения для детей, Книги для подростковФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B364BC7223547A518C74481A2561BDC276CE7D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

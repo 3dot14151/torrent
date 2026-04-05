@@ -1,3 +1,32 @@
+###  Публикация: 1188462   (274718) от 02.12.2017
+
+McAuley Schenker Group - Save Yourself (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Yourself  (06:16) 
+02. Bad Boys  (04:05) 
+03. Anytime  (05:45) 
+04. Get Down To Bizness  (04:23) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC0A7D3A47FB8CCE4227D2118F7C86602D7A7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083253   (274696) от 15.12.2016
 
 Zepparella - Live At 19 Broadway (2006) Tribute to Led Zeppelin [MP3|320 Kbps] <Hard Rock>
@@ -6,7 +35,7 @@ Zepparella - Live At 19 Broadway (2006) Tribute to Led Zeppelin [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274696.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Hell in the Club - See You on the Dark Side (2017) Japan[FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274622.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274563.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ U2 - Songs Of Experience (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274511.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ LP - Lost On You (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative/Indie Rock, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274491.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Arch Enemy - Will To Power (2017) [FLAC|Lossless|image + .cue] <Modern Metal, MD
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274462.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Stormthrash - Systematic Annihilation (2017) Japan [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274457.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Graham Gouldman - Love And Work (2012) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274450.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Epysode - Obsessions (2011) Reissue, 2012, Фоно [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274206.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Lo Moon - Lo Moon (2018) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274141.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Beatles - Red & Blue Albums (1962-1970) Japanese Edition, Remastered, 2010 [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273950.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ The Red Button - Can't Stop Thinking About Her (2007) [MP3|320 Kbps] <Brit Pop, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273777.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Slaughter And The Dogs - Vicious (2016) [MP3|320 Kbps] <Punk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273772.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ The Presidents of the United States of America - Kudos to You (2014) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273765.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ The Bigness - Time Traveler (2016) [MP3|320 Kbps] <Indie Rock, Female Vocal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273721.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Dante Fox - Breathless (2016) [MP3|320 Kbps] <Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273712.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Ruby Dee And The Snakehandlers - Little Black Heart (2016) [MP3|320 Kbps] <Rocka
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273696.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273694.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Bon Jovi - This House Is Not For Sale (Live From The London Palladium) (2016) [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273561.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273555.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ VA - The Hits Album - The Rock Album (2019) 4CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273545.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Audioslave - Discography (2002-2006) 3CD [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273540.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Rainbow - 10 SHM-CD (Japanese Press 2008)[Limited Release] (1975-1986/2008) [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273490.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Zodiac - Grain Of Soul (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273475.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273170.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCC2A3FEBEADBD993FC35BAB204B8F8EC37561C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265775   (273064) от 29.11.2018
-
-Lake of Tears - Greatest Tears Vol. II (2004) Compilation [FLAC|Lossless|image + .cue] <Doom Metal, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil's Diner (3:42)
-02. Headstones (5:16)
-03. Netherworld (3:36)
-04. So Fell Autumn Rain (5:24)(   Читать дальше...   )Жанр: Doom Metal, Gothic RockПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F89EA1A6F73BBD9E04A4C3210559FEE3DEF188A
 ```
 
 https://mybot314.ru/tekegram_catalog/

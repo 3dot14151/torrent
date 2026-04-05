@@ -1,3 +1,81 @@
+###  Публикация: 986893   (928675) от 15.02.2016
+
+Бронислав Виногродский | Практический курс управления переменами (2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная аудиокнига представляет собой полный перевод «Перемен» со встроенным комментарием. Этот-то комментарий и представляет «Перемены» как технологию принятия управленческих решений. Автор постарался дать комментарий, максимально приближенный к нуждам современного слушателя, заинтересованного в практическом применении древней мудрости. Но при этом стремился уйти (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 15:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6887336B9A90F6082334AABE60E5ADB9448A69BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286892   (928635) от 25.01.2011
+
+Николай Стариков | 1917. Кто убил Россию. Революция или спецоперация. [2010] [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высказывались десятки предположений, множество версий. Назывались и виновные в небывалой русской катастрофе: евреи, масоны, германский Генеральный штаб, царское правительство, большевики во главе с Лениным и Троцким. Менялся политический режим, в угоду ему менялись и версии нашей катастрофы. Но ни одна из них до сих пор не смогла ответить на все вопросы, поставленные (   Читать дальше...   )Жанр: история
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75AA868D0C0127450ADF6676A87F55A84AB1199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987512   (925906) от 17.02.2016
+
+Анастасия Новых | Сэнсэй 4 (2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прельщение мира сего манит, да Бог от него хранит. Кто не знает сути, тому трудно удержаться от соблазна. Тот, кто знает Правду, увидит суть даже там, где её пытаются скрыть. К ищущему Правду Свет Истины пробьётся и через густую тьму, даже если вся тьма воспротивится этому Свету. Ибо пришло время открыть то, что было сокрыто в веках. Ибо пришло время поведать ТАЙНУ!» (   Читать дальше...   )Жанр: Эзотерика, СамосовершенствованиеПродолжительность: 31:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC65AA67612616B6CDAFC4DAE6030DED7FC980E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366072   (925738) от 10.03.2020
 
 Николай Бердяев | Царство духа и царство кесаря (2020) [MP3]
@@ -6,7 +84,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925738.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924905.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924237.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920776.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920089.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911048.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906074.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905085.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904967.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901100.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893597.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892932.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_892093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_892093.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889196.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882403.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881076.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880204.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879414.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873525.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868988.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868900.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867117.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864869.jpg" />
 </div>
 
 
@@ -599,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E02E5BD54AD9FE01BE492B4DDC11B9E749A6485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999754   (863041) от 23.03.2016
-
-Михаил Сомов | На куполах земли (2015) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного советского полярника, Героя Советского Союза, доктора географических наук Михаила Михайловича Сомова (1908—1973) — это сборник его очерков, документальных рассказов и статей. Замечательный ученый-гидролог, полярник, он работал в ледовой авиаразведке, шел вместе с И.Д.Папаниным по Северному морскому пути впервые в одну навигацию на восток и обратно, (   Читать дальше...   )Жанр: Наука,образованиеПродолжительность: 14:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B201DED98B8095FF2DFF1241F7E9DF516EEDC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000131   (860419) от 24.03.2016
-
-Ричард Докинз | Эгоистичный ген (2016) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860419.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге английского автора представлен один из современных подходов к проблеме эволюции. Рассмотрены биологические основы поведения и его роль в естественном отборе. Книгу отличает блестящий, увлекательный стиль изложения. Первое издание было международным бестселлером, переведено на 13 языков и широко используется в мире при преподавании биологии. Настоящий перевод (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 10:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71281C53D949A44A428DBAE7F78432273F7EFBA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000947   (855725) от 27.03.2016
-
-Фабьенна  Каста-Розас | История флирта. Балансирование между невинностью и пороком (2012) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга французской журналистки и историка, несмотря на кажущуюся легкомысленность темы, представляет собой, пожалуй, первое серьезное исследование в этой области. Основываясь на богатом документальном и литературном материале, автор повествует о том, как зародилось само понятие флирта, как оно развивалось на протяжении ста с лишним лет, какие действия подразумевает (   Читать дальше...   )Жанр: Научно-популярныйПеревод: с фр. Васюченко и ЗингераПродолжительность: 14:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8385B7669C9DF0EB0637AE95C8FBB34B0A02B4CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

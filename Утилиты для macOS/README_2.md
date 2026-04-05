@@ -1,3 +1,29 @@
+###  Публикация: 1458164   (1024064) от 28.03.2021
+
+Grid 1.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и простой способ упорядочить окна на вашем Mac. Grid позволяет привязывать окна с помощью перетаскивания, сочетаний клавиш или строки меню.Тип издания: macOS SoftwareРелиз состоялся: 28.03.2021Разработчик: MacgridПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22290CDE0A8582A57775DF2748FA6B292699B088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458722   (1023536) от 30.03.2021
 
 FUSE for macOS 4.1.0 [En]
@@ -6,7 +32,7 @@ FUSE for macOS 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023536.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ RAR Extractor  - unzi‪p‬ 5.8.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022621.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Leech 3.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022469.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Mac Restart 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022296.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Memory Clean 3 v1.0.21 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022103.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Digital Clock 3D 2.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021220.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ ForkLift 3.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021211.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Magnet 2.6.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020982.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Dato 2.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020177.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Dark Mode for Safari 3.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019825.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ File List Export 2.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019512.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Fenêtre 0.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019509.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Desktop Curtain 3.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019164.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ FireStream 2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018936.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Hedge 19.2.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018823.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Tidy Up 5 v5.4.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018473.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ PopClip 2021.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018296.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ AutoMounter 1.7.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018291.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ The Unarchiver 4.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018282.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Cleaner for Xcode 4.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018277.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ macOS Server 5.11.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017944.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ MultiDock 1.44 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017782.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ WindowSwitcher 1.42 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017777.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Script Debugger 8 v8.0. [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017408.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ CapsLocker 1.4.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016616.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ CapsLocker 1.4.0 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0495078F9FFA273D429D5D4F5FF7C5EB94D167CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469326   (1016603) от 11.05.2021
-
-AudioSwitcher 3.0.8 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016603.jpg" />
-</div>
-
-
-###  Подробнее
-
-AudioSwitcher - небольшая утилита, которая находится в строке меню и позволяет выбрать вход или выход источника аудио, с возможностью регулировки уровня громкости по выходу и уровня чувствительности по входу.Тип издания: macOS SoftwareРелиз состоялся: 11.05.2021Разработчик: Paul O'NeillПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C09C8E6D05A91B63578B4D888E751D5FF5697815
 ```
 
 https://mybot314.ru/tekegram_catalog/

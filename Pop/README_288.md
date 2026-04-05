@@ -1,177 +1,3 @@
-###  Публикация: 1657251   (193026) от 02.09.2023
-
-Supermax - Types Of Skin (1980) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood
-02. Hotline
-03. Raindance
-04. In The Middle Of The Night(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D183ED1F81CDC6ADD651BABA86296046C89A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657038   (192988) от 02.09.2023
-
-Icona Pop - Club Romantech (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall In Love [00:02:23]
-02. Desire [00:02:39]
-03. Shit We Do For Love [00:02:47]
-04. Stick Your Tongue Out [00:02:47](   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE80EB0EDC7C83821E0EE6A73A9A4D8F117D719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587424   (192942) от 30.10.2022
-
-Renee - 4 Albums (1978-1983) LP [MP3|320 Kbps] <Electronic, Rock & Roll, Synth-pop, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландская поп-группа Renée из Ден Хаага, вокалисткой которой является Аня Ноделийк. Примерно с 1982 года она начала выступать и записываться как сольная исполнительница под именем Рене.Список альбомов:
-1978 - Renee
-1980 - Reaching For The Sky
-1982 - The Future None Can See(   Читать дальше...   )Жанр: Electronic, Rock & Roll, Synth-pop, Pop Rock, DiscoПродолжительность: 02:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59069D7CDB2A4AE783B1F1E9A5C1280180B1250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657192   (192935) от 02.09.2023
-
-Владимир Мулявин и ансамбль Песняры - Молодость моя... (2003) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Спадчына
-02. Марыся
-03. Беловежская пуща
-04. Чырвоная ружа(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B1EF6F270552060999785BB49F70FB98798D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587371   (192929) от 30.10.2022
-
-VA - Halloween Dance Party (2022) CD, Compilation [MP3|320 Kbps] <Electropop, Dance, Club, Future House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Rodrigezz, Pasc & Patricia Starlight - Toxic Love (extended mix)
-02. Stephan F & Tony T - Find A Way (extended mix)
-03. Dani Corbalan - My Life (extended mix)
-04. NaXwell, Tony T & Alba Kras - Never Alone (feat DJ Combo - extended mix)(   Читать дальше...   )Жанр: Electropop, Dance, Club, Future HouseПродолжительность: 01:51:46 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73DF3A1A39E89CDECB48888A251E344E5B8D2A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587265   (192920) от 30.10.2022
-
-VA - Discofox Top Hits 2023 (2022) CD, Compilation [MP3|320 Kbps] <Pop, Dance, Schlager, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nico Gemba - Du bist der totale Wahnsinn (Lisa)
-02. Anna Valerian - Ich laufe dir nicht mehr hinterher (JLA FeierFoxxx Mix)
-03. Julian David - Alle zusammen
-04. Celina Mars - Jetzt und hier(   Читать дальше...   )Жанр: Pop, Dance, Schlager, DiscoПродолжительность: 02:16:35 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065E3BB125B13AD18B3B7D0B405F813553A5E163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587350   (192861) от 30.10.2022
 
 VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, Euro-Disco, Progressive, Electro Pop>
@@ -180,7 +6,7 @@ VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192861.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Fernando Express - Der schonste Tanz mit dir (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192741.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ Riccardo Fogli - Predestinato (Metalmeccanico) (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192618.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ VA - Covermania - Dance Hits (2022) CD, Compilation [MP3|320 Kbps] <Electropop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192375.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ VA - Generation Rave Vol. 2 - 90s Dance Classics Only (2020) CD, Compilation [MP
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192333.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ VA - Generation Rave - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 K
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192326.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ VA - Generation Rave Vol. 4 - 90s Dance Classics Only (2022) 2CD, Compilation [M
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192312.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ VA - Sex Music (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192307.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Debbie Gibson - Body Mind Soul (1993) Deluxe Edition, 2023, Warner Music Group -
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192247.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ VA - Keep It Disco Vol. 05 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192125.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ VA - NOW That's What I Call Music! 113 (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192022.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ Blue System - Here I Am (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191816.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ Blue System - Body To Body (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191809.jpg" />
 </div>
 
 
@@ -557,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191795.jpg" />
 </div>
 
 
@@ -586,7 +412,7 @@ Blue System - X - Ten (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191644.jpg" />
 </div>
 
 
@@ -615,7 +441,7 @@ Blue System - Forever Blue (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191643.jpg" />
 </div>
 
 
@@ -644,7 +470,7 @@ Jamiroquai - Party Songs (2005) [MP3|320 Kbps] <Acid-Jazz, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191599.jpg" />
 </div>
 
 
@@ -673,7 +499,7 @@ VA - 100 Greatest Summer Songs (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191534.jpg" />
 </div>
 
 
@@ -702,7 +528,7 @@ Supermax - 5 Albums (1982 - 1992) Remastered, 2007, CD-Maximum [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191492.jpg" />
 </div>
 
 
@@ -731,7 +557,7 @@ Blue System - Backstreet Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191410.jpg" />
 </div>
 
 
@@ -745,6 +571,180 @@ Blue System - Backstreet Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3FF47974EC6587E0C71875DD9BAFBEE545CA1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588612   (191409) от 05.11.2022
+
+Blue System - Hello America (1992) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romeo & Juliet
+02. Crossing The River
+03. I Will Survive
+04. I Like Your Sexy Body(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4697F0C9B0B68821306171D22BE5E75DA7B059D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588468   (191394) от 05.11.2022
+
+Blue System - 21st Century (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The 21st Century
+02. 6 Years - 6 Nights
+03. Venice In The Rain
+04. If I Will Rule The World(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18078C874ADD0C7ED91093F93DF01A2562ED5417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588624   (191392) от 05.11.2022
+
+Blue System - Seeds Of Heaven (1991) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Serenata (Overture)
+02. Lucifer
+03. Testemente D'Amelia
+04. Is She Really Going Out With Him(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD8BDDA6F9B6E5F0DBDEE3D6B6B946CDED002BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588709   (191105) от 06.11.2022
+
+Blue System - When You Are Lonely (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You Are Lonely
+02. Sorry Little Sarah
+03. Silent Water
+04. When Sarah Smiles(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8B405152525F59F6D24B75CA9E3E0342FAF00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588688   (190996) от 06.11.2022
+
+Joe Dassin - Joe Dassin Éternel... (2022) Edition deluxe [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop, French Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siffler sur la colline (2:36)
+02. Dans les yeux d'Emilie (3:43)
+03. Les Champs-Elysées (2:37)
+04. Et si tu n'existais pas (3:25)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 01:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D0E84376C151C60644D818AA173A824B76EB39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658541   (190949) от 09.09.2023
+
+Roisin Murphy - Hit Parade (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Art Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Not To Do [00:05:02]
+02. CooCool [00:04:31]
+03. The Universe [00:04:05]
+04. Hurtz So Bad [00:04:37](   Читать дальше...   )Жанр: Electronic, Art PopПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C670388E125D9456D9323D3D1A4EBDEEC40917C
 ```
 
 https://mybot314.ru/tekegram_catalog/

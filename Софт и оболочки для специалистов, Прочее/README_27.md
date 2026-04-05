@@ -1,3 +1,111 @@
+###  Публикация: 1746179   (45156) от 30.08.2024
+
+FX Draw Tools 24.08.29 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный, но простой в использовании FX Draw предоставляет высокопроизводительную среду рисования, разработанную специально для учителей математики. Быстро создавайте редактируемые высококачественные диаграммы для тестов, экзаменов, рабочих листов, веб-сайтов, презентаций и демонстраций.
+Efofex также предоставляет подписчикам FX Draw три бесплатные бонусные программы, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F1E9EE600D6207D276158FD96C4B1700671D4BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747162   (44686) от 04.09.2024
+
+Veeam Backup & Replication 12.2.0.334 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Veeam Backup & Replication обеспечивает доступность данных любых облачных, виртуальных и физических систем. Продукт разработан с учетом требований к резервному копированию в организациях любого размера и позволяет упростить работу и превзойти производительность традиционных решений. Механизм мгновенного восстановления нового поколения поддерживает восстановление (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195AC8DF369AA72D9ED1C4F92280103F6FFAA74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747777   (44441) от 06.09.2024
+
+SimOne (Версия для радиолюбителей) 3.2.1 [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44441.jpg" />
+</div>
+
+
+###  Подробнее
+
+SimOne – современная высокоэффективная система схемотехнического моделирования, использующая наряду c классическими алгоритмами  оригинальные, основанные на современных численных методах.
+SimOne многократно превосходит по скорости моделирования обычные SPICE-симуляторы при той же точности расчетов.
+
+SimOne позволяет проводить полнофункциональное SPICE-моделирование (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D2612248FF64D075A58C307B204D3E1D6539F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748186   (44256) от 08.09.2024
+
+JetBrains Aqua 2024.2 Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44256.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains Aqua - это новая интегрированная среда разработки (IDE), специально созданная для специалистов по автоматизации тестирования. Эта IDE призвана упростить и оптимизировать процесс создания и управления автоматизированными тестами предлагая специализированную среду с мощными интегрированными инструментами, Aqua обещает улучшить опыт разработки тестов и повысить (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB930DBD136328FC9547366128B59774152994D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748185   (44253) от 08.09.2024
 
 Microsoft .NET 8.0.8 Runtime [Ru/En]
@@ -6,7 +114,7 @@ Microsoft .NET 8.0.8 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44253.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Microsoft .NET 6.0.33 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44236.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ PathWave Advanced Design System 2025 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44130.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ ZWCAD Architecture 2025 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44129.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Automation Studio Professional Edition 7.0.0.10038 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42968.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ Sublime Text 4 Build 4180 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42391.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ AnyLogic Professional 8.9.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42337.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ Veeam ONE 12.2.0 Build 4093 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42253.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ AMD Radeon Software Adrenalin Edition 24.9.1 WHQL (GCN 4/5 - Polaris/Vega) [Mult
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41525.jpg" />
 </div>
 
 
@@ -246,7 +354,7 @@ Visual Studio Code 1.94.0 + Автономная версия (Standalone) [Mult
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41424.jpg" />
 </div>
 
 
@@ -272,7 +380,7 @@ GoldSim 14.0 R3 Build 449 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40477.jpg" />
 </div>
 
 
@@ -298,7 +406,7 @@ Altair Flow Simulator 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40408.jpg" />
 </div>
 
 
@@ -325,7 +433,7 @@ Altair HyperWorks Suite 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40406.jpg" />
 </div>
 
 
@@ -351,7 +459,7 @@ Altair Inspire 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40403.jpg" />
 </div>
 
 
@@ -377,7 +485,7 @@ HCL Lotus Domino Notes 14.0 [Ru/En] + Nomad Safelinx Verse Traveler + C REST API
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39238.jpg" />
 </div>
 
 
@@ -404,7 +512,7 @@ Altair S-FRAME 2024.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38914.jpg" />
 </div>
 
 
@@ -430,7 +538,7 @@ SolidWorks 2024 Premium SP5.0  [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38455.jpg" />
 </div>
 
 
@@ -456,7 +564,7 @@ Golden Software Grapher 24.1.213 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38200.jpg" />
 </div>
 
 
@@ -482,7 +590,7 @@ Altium Designer 25.0.2 Build 28 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36810.jpg" />
 </div>
 
 
@@ -508,7 +616,7 @@ JetBrains RubyMine 2024.3 (x64-arm64) Repack by Sitego
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36786.jpg" />
 </div>
 
 
@@ -535,7 +643,7 @@ FreeCAD 1.0.0 + Portable [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36710.jpg" />
 </div>
 
 
@@ -561,7 +669,7 @@ Microsoft .Net Packages AIO 12.11.24 RePack by xetrin [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36416.jpg" />
 </div>
 
 
@@ -572,114 +680,6 @@ Microsoft .Net Packages AIO 12.11.24 RePack by xetrin [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F789465720C4D5B8D4D7639D41265FEFAEF1D96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762144   (36286) от 24.11.2024
-
-DipTrace 5.1.0 + 3D Models [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36286.jpg" />
-</div>
-
-
-###  Подробнее
-
-DipTrace - это многофункциональная САПР по разработке электронных печатных плат и схемотехнической документации для проектов любой сложности, от идеи до готового устройства.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFE367FCF9E13B8548AD1BBD40FB5CCC4BD838C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757310   (36210) от 25.11.2024
-
-Maptorium GoogleSat Cache [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Системы навигации и карты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36210.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной раздаче кэш Google Sattelite для программы Maptorium – свободной программы, предназначенной для просмотра и загрузки растровых и векторных карт различных провайдеров: Google, Yandex, MapBox, ArcGIS, etc.
-Программа с открытым исходным кодом, созданная по клиент-серверной архитектуре.
-
-Обновление кеша за Ноябрь 2024. Кэш z0-z13 (z1-z14 в OSM формате) всего (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9392B51B54E2C80E3B9429886A5D6CA4E058EEEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762677   (36087) от 26.11.2024
-
-PyMOL 3.1.1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36087.jpg" />
-</div>
-
-
-###  Подробнее
-
-PyMOL — система визуализации молекул. Позволяет создавать высококачественные трёхмерные изображения как малых молекул, так и биологических макромолекул, в первую очередь белков. Примерно четверть всех публикуемых в научной литературе изображений структур белков сделана с помощью PyMOL.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F586B20CECD934887A0CB310C1168E0A9710ACEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763933   (35283) от 04.12.2024
-
-ADB AppControl 1.8.6 + Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35283.jpg" />
-</div>
-
-
-###  Подробнее
-
-ADB AppControl - это новая и удобная программа для ПК, которая позволит вам легко управлять приложениями на Android устройстве при помощи adb. Требуется ли вам отключить предустановленные приложения, или установить свои – она с легкостью справится с этой задачей, а в интуитивно понятном интерфейсе программы без проблем разберется каждый.
-Не требует root. Работает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85049BD2BEE9133D7888EA813A279DD3FF57ADB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

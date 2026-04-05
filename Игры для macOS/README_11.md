@@ -6,7 +6,7 @@ JYDGE [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678991.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Far Cry (2004) [En/Ru] [macOS Cider]
 >>Тестовые macOS Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677909.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Need For Speed Most Wanted Black Edition [Ru]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_676915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676915.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Color Guardians v. 1.0 (2015) [Multi/Ru] [OS X Native game]
 >>Kinder Games для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676886.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Garden Paws (2018) [En] [macOS Native game]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675947.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Songbringer - The Trial of Ren (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675104.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Salt and Sanctuary v.1.0.0.8 (2016) [Multi] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674181.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Transport Fever v.15313 (2016) [Multi/Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672954.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ We. The Revolution (2019) [Multi] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670350.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Need for Speed: Carbon [Collector's Edition] [OS X WineSkin] (2007) [En]
 >>Тестовые macOS Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669878.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Giant Machines 2017 (2017) [Multi/Ru] [macOS Native port]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667573.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Borderlands: The Pre-Sequel v1.0.7 (2014) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667056.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The Last Leviathan v.0.3.1 (2018) [En] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665953.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Saints Row: The Third  v. 1.0.0.1 (2011) [Multi/Ru] [OS X WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665083.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ SimCity™ 4 Deluxe Edition v1.1.1 (2003) [Multi] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664662.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Toren v. 1.0 (2015) [Ru] [OS X WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664191.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Syberia 3 / Сибирь 3 (2017) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663962.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ GRID 2 Reloaded Edition v. 1.0 (2014) [Ru] [OS X Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662856.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Debris v2.0 (2018) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662753.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Hitman: Absolution. Elite Edition-1.1.1 (2017) [Multi/Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661848.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Fall of the Dungeon Guardians - Enhanced Edition v. 1.0j (2015) [Multi/Ru] [
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660747.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ EMERGENCY 20 v4.1.0 (2017) [Multi] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660718.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The Signal From Tolva v1.0.51 (2017) [En] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660714.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Bridge Constructor Playground (2014) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660669.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Sid Meier's Civilization: Beyond Earth – The Collection v1.1.4 (2014) [Multi/R
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660602.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Magic: The Gathering - Duels of the Planeswalkers 2013 [WineSkin]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_659696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659696.jpg" />
 </div>
 
 

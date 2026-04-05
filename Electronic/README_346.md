@@ -1,3 +1,119 @@
+###  Публикация: 1180419   (340283) от 04.11.2017
+
+Lustre - Still Innocence (2017) [MP3|320 Kbps] <Ambient, Atmospheric Black Metal>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340283.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dreaded Still
+2. Nestle Within
+3. Let Go Like Leaves Of Fall
+4. Reverence Road(   Читать дальше...   )Жанр: Ambient, Atmospheric Black MetalПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C030C6DF74793C4C3B8376AAFABA1D37118ED82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180415   (340282) от 04.11.2017
+
+VA - Progressive Winter (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quivver - Keeps Me Awake (Ale Miguez Remix) 06:59
+02. Sounom - Luft 07:13
+03. Nicky Three Sixty - Bit 06:48
+04. Demons Are Black Holes - Volt 05:50(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831DA28B454D60AB65481C26AFFC5708E5AD283A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180740   (340267) от 04.11.2017
+
+VA - Top 10 Sales Chart - 2017 September (2017) [FLAC|Lossless|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niceshot & Armando Guerrero – Influences (Monje Remix) (08:26)
+02. Cosmonaut & Rebus Project – Exosphere (06:52)
+03. Push'n'Ball – Fibonacci (07:28)
+04. Push'n'Ball – Fibonacci (Traveltech Remix) (08:24)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9643D8BD6F4952F72291A6E4E086BF7B50B27ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074279   (340223) от 18.11.2016
+
+Moby - The Remixes (2016) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porcelain (Luca Agnelli remix) (7:52)
+02. Go (Bart Skils Remix) (9:12)
+03. Why Does My Heart Feel so Bad (Enrico Sangiuliano remix) (7:15)
+04. Porcelain (Alan Fitzpatrick's Late Night Dub) (8:02)(   Читать дальше...   )Производство: DrumcodeЖанр: TechnoПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD2F6551874BDF19B591C5F4FE7AEF576090A74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180563   (340152) от 04.11.2017
 
 VA - Sweet Dreams: Vocal Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout>
@@ -6,7 +122,7 @@ VA - Sweet Dreams: Vocal Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340152.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - A Murder In The Company Of The Vespertine (1999) Vespertine [FLAC|Lossless|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340124.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Qik - Alba (2020) Aula Magna Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Exp
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340118.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Hydergine - Light Infusions (2020) Ranges [FLAC|Lossless|WEB-DL|tracks] <Techno,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340117.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Winter Love Sounds: Chillout Songs (2015) [MP3|320 кб/с]<Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340102.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Exhibition #100 (2020) Audiobulb [FLAC|Lossless|WEB-DL|tracks] <Ambient, Ex
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339990.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Indecent Noise - Everything Is Connected (2020) Black Hole Recordings [FLAC|Loss
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339975.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - White Chill Out Vol 1 (2015) [MP3|320 кб/с]<Lounge, Chill Out>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339963.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Extrawelt - Discography 21 Releases (2005-2017) [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339878.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ R°A - Space Melody (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339871.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ VA - Vocal Trance - Hits Best Of (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339732.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ Nseven - Discography 7 Releases (2004-2020) SHUM Records [FLAC|Lossless|tracks+.
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339696.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Seph - Discography 19 Releases (2007-2020) [FLAC|Lossless|tracks+.cue, tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339452.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ VA - Live @ Ultra Music Festival Japan (2019) [MP3|~245 Kbps (V0)] <Trance, Tech
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339102.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ SYNTHEVER - Around The World Hits Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339097.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ VA - My Nature: The Best Of Katty Heath (2019) [MP3|320 Kbps] <Trance, Vocal Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339095.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ VA - Eco Zen 1 & 2 (Compiled & Mixed by Leigh Wood & Ben Mynott) (2005-2008) One
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339092.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ VA - Black Hole House Music 11-16 (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339030.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Future Synth - Somewhere In The Galaxy (2019) [FLAC|Lossless|WEB-DL|tracks] <Spa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338991.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 October (2019) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338985.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Oblivion - Light of a Distant Star (2015) [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338969.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ VA - Suanda Music Radio Top 20: (October / November) (2018) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338813.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ VA - Suanda Music Radio Top 20: (October / November) (2018) [MP3|320 Kbps] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BB870FE38F99ED2AE59072CBCAB815CDC7DEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258362   (338690) от 29.10.2018
-
-VA - United Colors of Trance Vol.12 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corrie Theron & Barend Stapelberg - Concord (Original Mix)
-02. Fashion Police - Right There (Original Mix)
-03. ManMadeMan - Do You Believe in UFOs? (Cybered Remix)
-04. Digital Sun - Lunatic Journey (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1609469AF3F36DD497EDE503D3E73156344E5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258283   (338672) от 29.10.2018
-
-VA - Health & Beauty 50: Essential Tracks For Relaxation (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (+) Comfort - Rhodes Chill (Original Mix) 4:05
-02. E-mulation - It's A Shame (Original Mix) 3:45
-03. Da Break - Float Boat (Instrumental) 4:53
-04. Lalann - Latitud Universal (Original Mix) 5:21(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059415A5793271CF6E0B4958DF0C7B30954A2C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074618   (338427) от 19.11.2016
-
-VA - Armin van Buuren Presents: Armind Best Of (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren presents: Rising Star feat. Betsie Larkin - Again (Armin van Buuren Remix) (3:11)
-02. Super8 & Tab - Mega (3:04)
-03. MaRLo feat. Chloe - You And Me (3:02)
-04. Gaia - Inyathi (2:56)(   Читать дальше...   )Производство: ArmindЖанр: Trance, Vocal TranceПродолжительность: 00:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44BC14D40EF97FDB2161AA707C4F784EB217536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330716   (338351) от 11.10.2019
-
-Airwave - Believe Remastered (Deluxe Edition) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Want To Believe (Remastered Dolphin Mix)
-02.Musings Of A Lifetime (Remastered Album Mix)
-03.Save Me (Remastered Album Mix)
-04.Another Dimension (Remastered Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B30BF67D245D6BC8115F341365157E59F108FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

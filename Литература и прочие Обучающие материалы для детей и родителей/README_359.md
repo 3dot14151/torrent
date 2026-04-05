@@ -1,3 +1,57 @@
+###  Публикация: 1341549   (229395) от 29.11.2019
+
+Мария Максимова | Житие святых праведных Иоакима и Анны в пересказе для детей (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святые Иоаким и Анна не совершали чудес, не понесли мученических подвигов. Они несли иные скорби — скорбь безплодного одиночества, и терпеливую надежду на Бога, которую они сохранили до старости.
+
+Терпением и надеждой стяжали праведные Иоаким и Анна своё сокровище в земной жизни. Терпение и надежда увенчались радостью рождества Девы Марии — Пресвятой Богородицы и (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE75F56DACC96AD95D0C8CFD9C0AA049F023AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341810   (229290) от 29.11.2019
+
+Сария Ага Маммад Маммадова | Развитие и воспитание ребёнка в семье и обществе (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о развитии ребёнка в современном обществе, важнейшие рекомендации по воспитанию с младенчества до подросткового возраста. Рассказывается об огромной роли женщины, матери, внутрисемейных отношений в становлении полноценной личности. Также обращено внимание на важнейшее значение культурных ценностей при воспитании детей. Автор даёт полезные и практические советы (   Читать дальше...   )Жанр: Детская психология, воспитание детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EC07940FE86F41AFC7AECDBD315E9333ECAA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341758   (229281) от 29.11.2019
 
 Карина Ян Глейзер | Вандербикеры с 141‑й улицы (2019) [FB2]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229281.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229240.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229231.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229189.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229167.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229129.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229074.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228969.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228784.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228737.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228653.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228535.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228426.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228396.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228361.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228326.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228298.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228086.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228059.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228052.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228042.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228037.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228035.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227978.jpg" />
 </div>
 
 
@@ -629,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8948D6E545E341A6EC9465B35ED274F2275DFD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268067   (227939) от 10.12.2018
-
-В.В. Куманин | Регулировка и запуск летающих моделей (1959) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227939.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей брошюре обобщается имеющийся опыт по регулированию моделей чемпионатных классов, рассматриваются вопросы, связанные с балансировкой и устойчивостью летающих моделей, и вопросы обеспечения стабильных полетных результатов в условиях соревнований.Жанр: Учебная, методическая литература, умелые рукиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58917211E9013AF92DAD4A686F6F108F21E8031F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424615   (227866) от 17.11.2020
-
-Анне-Катрине Вестли | Щепкин [4 книги] (2015-2016) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть книги, которые каждому необходимо прочитать в детстве. Среди них – книги известной норвежской писательницы АННЕ-КАТРИНЕ ВЕСТЛИ (1920–2008). На родине её имя известно каждому, а её популярность в Европе можно сравнить только с популярностью Астрид Линдгрен. Более чем за полвека литературного творчества Вестли написала 56 книг и получила почётное звание Бабушки (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: Ольга ДроботФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75E7DCA8EE9AEB6C00009D041D3B9FAE0D9E3D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

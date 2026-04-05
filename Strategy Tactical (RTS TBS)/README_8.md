@@ -1,3 +1,55 @@
+###  Публикация: 1073552   (564659) от 23.07.2017
+
+The Banner Saga 2 (2016) [Ru/Multi] (2.39.03) Repack R.G. Catalyst
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564659.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Banner Saga 2 продолжает события предыдущей части, запоминая принятые игроками в первой части решения. От этого будет зависеть, кто из героев выжил, а кто умер. Сюжет продолжит развивать историю умирающего мира, где остался лишь один бастион надежды, попасть в который очень нелегко. Путь туда заставит принимать сложные лидерские решения и идти на жертвы.Тип издания: RepackРазработчик: StoicЖанр: Strategy (Turn-based), RPGЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09ED55D9542B1B9745CDC6713EB9D632478B6D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962282   (564638) от 23.07.2017
+
+Hard West (2015) [Ru/Multi] (1.5/dlc) Repack R.G. Catalyst
+
+>>След.
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на Дикий Запад – таким вы еще никогда его не видели. Когда трагическая случайность вынуждает человека ступить на путь мести и погрузиться в сверхъестественный хаос, он сделает все, чтобы жестоко покарать всех, кто разрушил его жизнь. Присоединяйтесь к Уоррену на его пути во тьму и постарайтесь выжить в мире, где каждую секунду приходится сталкиваться (   Читать дальше...   )Тип издания: RepackРазработчик: Creative Forge GamesЖанр: Strategy (Turn-based, Tactical), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:565BDCC934ED06F2E5D4CB543B71E470491AD71B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044621   (564559) от 20.08.2016
 
 Savage Resurrection (2016) [Ru/Multi] (1.0.0) License PLAZA
@@ -6,7 +58,7 @@ Savage Resurrection (2016) [Ru/Multi] (1.0.0) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564559.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Zombie City Defense 2 (2016) [Ru/En] (1.0.0) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564558.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru/Multi2] (Steam-Rip/1.00.2) 2
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562308.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.2.5/dlc) Repack R
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561160.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ Men of War / В тылу врага 2: Лис пустыни (2009) [Ru/En/Fr] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556165.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554785.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Age of Fear: The Undead King (2016) [En] (5.9.5) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554311.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ The Storm Guard: Darkness is Coming (2016) [En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553391.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Worms World Party Remastered (2015) [Ru/Multi] (1134) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550699.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Warhammer 40,000: Dawn of War II (2009-2010) [Ru] (2.6.10236) Repack Xatab [Gold
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548890.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ The Banner Saga 2 (2016) [Ru/Multi] (2.55.47) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548711.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ The Banner Saga 3 (2018) [Ru/Multi] (1.2.2.55.80) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548634.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Dead Age (2016) [Ru/Multi] (1.7) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545213.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ Post Human W.A.R (2017) [Ru/Multi] (1.1.3) License HI2U
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544351.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ Jagged Alliance: Back in Action [Ru/En] (RePack/1.13e/6 DLC) 2012 l R.G. Shift
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541643.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Men of War: Assault Squad: Game of the Year Edition / В тылу врага 2: 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533734.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ Xenonauts (2014) [En] (1.65) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526422.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ Revolution Under Siege / Герои Гражданской: Красные пр�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525545.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ Steel Division: Normandy 44 (2017) [Ru/Multi] (300093748/dlc) Repack R.G. Cataly
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522619.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ Invisible Inc (2015) [Ru/En] (1.0.146742) SteamRip Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522212.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ SpellForce 2: Shadow Wars [Ru] (L/1.02) 2006
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521169.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ Shadowrun: Hong Kong (2015) [En] Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515805.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ Massive Chalice (2015) [En/Multi] (1.04) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514749.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ Chaos Reborn (2015) [Ru/Multi] (1.13.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514721.jpg" />
 </div>
 
 
@@ -630,62 +682,6 @@ Chaos Reborn (2015) [Ru/Multi] (1.13.3) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:142D843A97E48B956344D1D0A16F37FBBC499E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932071   (509830) от 28.08.2015
-
-Invisible, Inc. (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Примите на себя руководство агентами Invisible и внедряйтесь в самые опасные корпорации мира. Скрытность, точность и командная работа – вот что самое главное в сверхприбыльных миссиях с высокими ставками, где каждый шаг может стоить агенту жизни.Тип издания: RepackРазработчик: Klei EntertainmentЖанр: Strategy (Turn-based / Tactical) / 3D / Isometric / StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3EF6849C71137B772CA59F0B1249651CC7AE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539033   (507145) от 25.08.2012
-
-Jagged Alliance: Crossfire / Jagged Alliance: Перекрестный огонь [Ru] (RePack/1.01) 2012 l Fenixx
-
->>След.
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самостоятельное дополнение (наличие оригинальной игры не требуется) к знаменитому тактическому боевику Jagged Alliance.
-Jagged Alliance: Crossfire – только кровью можно купить свободу!
-Отлично сработано, солдат! Остров Арулько отныне свободен, но есть и другие страны, в которых где продолжается война - и мир смотрит в другую сторону. Канпаа, мирное и процветающее государство, оказалось в железной хватке группы хорошо оплачиваемых наемников… в то время как Организация Объединенных Наций закрывает глаза на творящийся беспредел. Посол ООН Бенам Атикилла пытается помочь своей родине, но он мало что может сделать. Военное вмешательство со стороны крупной державы исключается, и Канпаа не у кого просить помощи…
-Однако ВЫ можете помочь! Стратег и тактик, стоящий во главе частной военной корпорации, способен изменить ситуацию с помощью собственной команды опытных наемников, которые освободят несчастную нацию Канпаа. Поддержите угнетаемый народ, отправив на помощь отряд видавших виды солдат удачи и приготовьтесь к сражениям на обледеневших бесплодных землях и в горных ущельях. Вы узнаете, почему Канпаа превратилась в горячую точку и кто собирается извлечь выгоду из вооруженного конфликта на этот раз.
-Jagged Alliance: Crossfire – это полноценное дополнение к знаменитой тактической ролевой игре Jagged Alliance: Back in Action. В нем вы повстречаете новых наемников, посетите новые места и получите возможность использовать новые виды вооружения, чтобы решить возникающие тактические задачи. Поклонники фирменного юмора и проверенной десятилетиями реалистичной боевой системы Jagged Alliance также не останутся разочарованными. (   Читать дальше...   )Тип издания: RePackРазработчик: CoreplayЖанр: Add-on / Strategy (Real-time / Tactical) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D501D502DE908D152A7F8E765C021B8D4584982B
 ```
 
 https://mybot314.ru/tekegram_catalog/

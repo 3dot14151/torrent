@@ -1,3 +1,29 @@
+###  Публикация: 598304   (869626) от 27.02.2015
+
+Подшивка журналов | ГАЗ-М20 "Победа" №1-100 (2013-2015) [PDF, JPG] [Обновлено 27.02.2015]
+
+>>След.
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она была символом эпохи и стала легендой. Встречайте самый известный отечественный автомобиль – Газ М20 "Победа". Соберите шаг за шагом модель копию оригинала в масштабе 1:8. В каждом выпуске: новые элементы, подробные инструкции по сборке и журнал об истории победы и ее знаменитых владельцах. Великолепная модель ГАЗ М-20 "Победа" с подвижными (   Читать дальше...   )Жанр: АвтомоделиФормат: PDFРазрешение файлов: 4484x3297, 3518x4800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD377C949CD434BD869E077BDDD9F7DB02EF048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107084   (868121) от 22.02.2017
 
 Журнал | Вяжем сами №4 (февраль 2017) [PDF]
@@ -6,7 +32,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868121.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867325.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866105.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865909.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862293.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862200.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861548.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861518.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861506.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860835.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858460.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857287.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856929.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_856857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_856857.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_856724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_856724.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856301.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856275.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855640.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855631.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855419.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855327.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854776.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853728.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853595.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850367.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:107D4B8189AF75BDDBDE6E2869E7213B5733E291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 649511   (849400) от 27.04.2013
-
-Журнал | Yoga Journal [Россия] №54 (май-июнь 2013) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849400.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Yoga Journal" завоевал популярность во всем мире. На его страницах представлены материалы, посвященные практике йоги, восточной философии и о здоровом образе жизни вообще. Авторами издания являются опытные российские и американские преподаватели йоги, которые работают в этой области не один десяток лет.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB27A06ABD61E8D970E791B21F2009FCD4E8567
 ```
 
 https://mybot314.ru/tekegram_catalog/

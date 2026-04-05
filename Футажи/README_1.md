@@ -1,3 +1,29 @@
+###  Публикация: 985517   (933550) от 12.02.2016
+
+Футажи - VideoHive - Golden Hearts [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимированный фон. Подойдет для оформления свадеб, Дня всех влюбленных.Формат: MOVРазрешение файлов: 1920×1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E4308599F35DC937E0B9701635610AA3889626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985603   (933548) от 12.02.2016
 
 Футажи - Hearts Collection - I [MOV]
@@ -6,7 +32,7 @@
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933548.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931718.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931710.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931386.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928535.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ RocketStock - Ignite: 500+ Fire & Flame Effects - RS3014 [MP4]
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918366.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890259.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888574.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884384.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884349.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882079.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_881571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881571.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881557.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880956.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_880952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880952.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879833.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874374.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872517.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872511.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861945.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851119.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851114.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849686.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849562.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849464.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:909014ACF5F7E3339F00BC92DAFC652ABA2F8BD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378097   (847545) от 24.04.2020
-
-Футажи - VideoHive - Transitions Mega Pack - 21588383 [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой пакет, который содержит 170 переходов со звуковыми эффектами и 60 "light leaks" и "bokeh" наложений. Очень полезный материал для каждого редактора и графического дизайнера. Все 230 файлов (4K mp4) могут быть использованы в любом программном обеспечении для редактирования или композитинга. Весь пакет можно использовать как надслойный, с (   Читать дальше...   )Формат: MP4Разрешение файлов: UHD (3840x2160)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC9004BE7CAC9FB07678B9EFA7D8998FE08C068
 ```
 
 https://mybot314.ru/tekegram_catalog/

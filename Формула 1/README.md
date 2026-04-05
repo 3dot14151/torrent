@@ -1,4 +1,108 @@
 https://t.me/izofen
+###  Публикация: 1863163   (1063917) от 
+
+Формула 1. Сезон 2026. Этап 3. Гран-при Японии. Квалификация (28.03.2026) WEBRip [H.264/1080p] [60 fps]  F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063917.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 марта 2026 09:00. Этап 3 Формула 1. Гран-при Японии. Квалификация. Автодром Сузука.Телекомпания: F1TVЖанр: автоспортЯзык озвучки: Русский (Никита Быховец, Илья Васильев)Продолжительность: 01:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575F693320122E6F3C2C53CD26C0953CD1641A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863187   (1063900) от 
+
+Формула 1. Сезон 2026. Этап 3. Гран-при Японии. Гонка (29.03.2026) WEBRip [H.264/1080p] [60 fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063900.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 марта 2026 08:00. Этап 3 Формула 1. Гран-при Японии. Гонка. Автодром Сузука.Телекомпания: F1TVЖанр: автоспортЯзык озвучки: Русский (Никита Быховец, Кирилл Сагач)Продолжительность: 02:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929A26F0015E3A90FA2FA2162325E9E83DFFD9AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862227   (1063243) от 
+
+Формула 1. Сезон 2026. Этап 3. Гран-при Японии. Квалификация (28.03.2026) WEBRip [H.264/720p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063243.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 марта 2026 суббота 09:00 МСК этап 3 Сузука. Арена: Автодром Сузука. Гран-при Японии. Квалификация.Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FD7C972E95B0F3F33643D38CAA6588F974D6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862339   (1063188) от 
+
+Формула 1. Сезон 2026. Этап 3. Гран-при Японии. Гонка (29.03.2026) WEBRip [H.264/720p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063188.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 марта 2026 воскресенье 08:10 МСК этап 3 Сузука. Арена: Автодром Сузука. Гран-при Японии. Гонка (53 круга).Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 02:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D3AFAE257B82EC57F4A6F1E5D9D3429E47407E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859573   (1061324) от 
 
 Формула 1. Сезон 2026. Этап 2. Гран-при Китая. Гонка (15.03.2026) WEBRip [H.264/720p-LQ] [50fps] F1TV
@@ -7,7 +111,7 @@ https://t.me/izofen
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061324.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061097.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061096.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061092.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060213.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060032.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059861.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059357.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047662.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047580.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046756.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046698.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046689.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046634.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040345.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037770.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035284.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035277.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034998.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030280.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024663.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023949.jpg" />
 </div>
 
 
@@ -570,115 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7C1EC1B9A0351EF3FD9A531171E59FD63379638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458425   (1022690) от 04.04.2021
-
-Формула 1. Сезон 2021. Этап 1. Гран-при Бахрейна. Гонка (28.03.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022690.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 марта 2021, воскресенье. 18:00 МСК
-Этап 1, Сахир, Бахрейн. Арена: Международный автодром Бахрейна (Сахир). Гран-при Бахрейна. ГонкаТелекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 02:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E388FB563CCDFF67394C04E180B0D475DBE5BF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463245   (1020385) от 18.04.2021
-
-Формула 1. Сезон 2021. Этап 2. Гран-при Эмилии-Романьи. Квалификация (17.04.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020385.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 апреля 2021, суббота. 15:00 МСК
-Этап 2, Имола, Италия. Гран-при Эмилии-Романьи. КвалификацияТелекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640D09F5BEEE0A023EA0E00B2635E38AA9E3F223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463553   (1020210) от 19.04.2021
-
-Формула 1. Сезон 2021. Этап 2. Гран-при Эмилии-Романьи. Гонка (18.04.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020210.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 апреля 2021, воскресенье. 16:00 МСК
-Этап 2, Имола, Италия
-Арена: Международный автодром Энцо и Дино Феррари (Имола, Италия)Телекомпания: Матч! АренаЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 02:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB157E742DE8817D3370A46B7060D9C95064C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466898   (1018171) от 01.05.2021
-
-Формула 1. Сезон 2021. Этап 3. Гран-при Португалии. Квалификация (01.05.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018171.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 мая 2021, суббота. 17:00 МСК
-Этап 3, Портиман, Португалия. Гран-при Португалии. КвалификацияТелекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF2DEB8560C19189C5CB5BD80560B49489057C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Benny Goodman - Benny In Brussels (1958) 1989, CBS [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261993.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Eric Alexander - Summit Meeting (2002) Milestone Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261992.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Enrico Pieranunzi Quartet - Alone Together (2001) Challenge Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261987.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Charles McPherson - Siku Ya Bibi (1971, 1972) 1991, Mainstream Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261984.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Antonio Ciacca Quintet - Rush Life (2008) Motema Music [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261835.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Horace Tapscott - Little Afrika (1983) 2010, Absord Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261834.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Steve Kuhn - Oceans In The Sky (1989) 2001, Universal [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261833.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ahmad Jamal - Macanudo (1959, 1962) 2014, Solar Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261829.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Oliver Nelson - Skull Session (1975) 2002, Flying Dutchman [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261827.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Konstantin Klashtorni - Smooth Jazz I-IV (2011-2017) 4CD [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261818.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Oliver Nelson - Black, Brown And Beautiful (1969) 2017, Solid Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261813.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone (2001) Cam Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261812.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bill Connors - Return (2005) [FLAC|Lossless]<Post-Bop, Fusion, Guitar Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260758.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Big Time Operator - The Game (2001) [FLAC|Lossless]<Swing, Neo-Swing, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259306.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Gianluigi Trovesi Ottetto - Fugace (2003) /ECM/ [APE|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259289.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Ella Fitzgerald - Ella Fitzgerald (1935 - 1940) 5-CD (1990, 1991) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259166.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Eddie Higgins Solo Piano - Standards By Request 1st Day & 2nd Day (2 CD) (2008) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259107.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Big Band-ul Radio - Jazz... Pe Romaneste (2010) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258718.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Billie Holiday - Billie Holiday And Her Orchestra (1933-1948) (1991,1999) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258566.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Helen Humes - Helen Humes (1927-1945) (1996) [FLAC|Lossless]<Vocal Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258525.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Electro Swing Celebration, Bar Coffee Music Saloon, Electronic Music - Electro S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257692.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Electro Swing Radio - Coffin Candy Charleston (House Electro Swing) (2025) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257690.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Soundify Background Music, Pub Music, Electronic Music - Electro Swing Cocktail 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257688.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Electro Swing & More (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257686.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Electro Swing Ragtime House: Harlem Prohibition Jazz Inspired Music, Spooky
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257684.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ VA - The Roaring Remix, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257672.jpg" />
 </div>
 
 

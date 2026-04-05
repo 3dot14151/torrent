@@ -6,7 +6,7 @@ Kelley Johnson - Make Someone Happy (1998) Pipe Dream [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188104.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dana Landry - Journey Home (2002) 2005, Summit Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188080.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Arnold Klos Trio - A Little Expertise (1989) Expertise [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187791.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Four80East - Gonna Be Alright (2023) [FLAC|Lossless|image + .cue] <Nu Jazz, Acid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187764.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Timothee Robert - Quarks (2021) La Pluie Chante [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187573.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Phil Woods & The Little Big Band - Real Life (1991) Chesky Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187564.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tony Bennett - Sings For You: 40 All-Time Favorites! (1960, 1962) 2CD, 1993, Son
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187541.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jimmy Cobb - This I Dig Of You (2019) Smoke Sessions Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187242.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dave Liebman - Live At Smalls (2023) Cellar Music [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187203.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Joe Pass - Virtuoso #2 (1976) 1987, Pablo Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186930.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Joe Pass - Unforgettable (1992) 1998, Pablo Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186923.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Joe Pass & J.J. Johnson - We'll Be Together Again (1983) 1996, Original Jazz Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186921.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Ahmad Jamal (Ahmad Jahal) & Wynton Marsalis - Modern Jazz (2005) KM Internationa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186901.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Tubby Hayes - Three Classic Albums Plus (1955 - 1960) 2CD, 2010, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186893.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Roy Eldridge - Decidedly (1975) 2002, Pablo [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186596.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Renee Rosnes - And The Danish Radio Big Band (2001) 2003, Blue Note Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186595.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Sahib Shihab - Summer Dawn (1963) 2008, Rearward [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186490.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Renee Rosnes - As We Are Now (1997) Blue Note [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186481.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Roy Eldridge & Coleman Hawkins - Just You, Just Me (1959) 1990, Stash Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186296.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ J.R. Monterose & Tommy Flanagan - A Little Pleasure (1981) 1988, Reservoir Music
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186236.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Paquito D'Rivera - Este Camino Largo (1978) 2002, Yemaya Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186057.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Rene Marie - Vertigo (2001) MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186050.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Akiko Grace - Jazz Street: The Duo+ (2002) [FLAC|Lossless|tracks + .cue] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185969.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Ahmad Jamal - Live At The Montreal Jazz Festival (1985) 1986, Atlantic [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185614.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Ahmad Jamal - Crystal (1987) Atlantic [FLAC|Lossless|tracks + .cue] <Post- Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185587.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Ahmad Jamal - With the Assai Quartet (1997) Roesch Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185567.jpg" />
 </div>
 
 

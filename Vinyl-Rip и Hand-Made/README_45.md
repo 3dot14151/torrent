@@ -1,3 +1,32 @@
+###  Публикация: 1197473   (237227) от 05.05.2022
+
+Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Dixielend>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Очи чёрные
+02. Вот мчится тройка удалая
+03. Огонёк
+04. Вечерняя песня(   Читать дальше...   )Жанр: Jazz, DixielendПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36EB545F9F47FB3827664FB49B2429A3BE0DE0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208554   (237215) от 05.05.2022
 
 VA - San Remo '88 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
@@ -6,7 +35,7 @@ VA - San Remo '88 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237215.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Tom Jones/Том Джонс - Лучшие песни из репертуара.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237201.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237198.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Superstars (1974) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237196.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Gorillaz - Cracker Island (2023) [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237159.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237126.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Rupert Hine - Immunity (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electroni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236992.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Manfred Mann's Earth Band - Ансамбль Мэнфреда Мэнна (1980) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236921.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Depeche Mode - Playing The Angel (2005)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236410.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Underworld - Change The Weather (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236395.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Darkseed - Studio Albums (8 releases) (1996-2010) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236312.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Danzig - Studio Albums (9 releases) (1994-2017) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236104.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Мелодии Друзей (1971) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236092.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Civil War - Studio Albums (5 releases) (2012-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235963.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Entombed / Entombed A.D. - Studio Albums (16 releases) (1990-2019) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235909.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235786.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235659.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Эстрадная Орбита (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235630.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235348.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235260.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234631.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Wuthering Heights - Studio Albums (5 releases) (1999-2010) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234242.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233980.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, Ne
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233869.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233757.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71F207E6629AC8C46C0C88C5F6B30D40BCA9CBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642122   (233340) от 26.06.2023
-
-Mnemic - Studio Albums (5 releases) (2003-2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial/Groove/Progressive Metal, Djent>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mnemic — датская метал-группа, образованная в Ольборге в 1998 году.2003 - Mechanical Spin Phenomena
-2004 - The Audio Injected Soul
-2007 - Passenger
-2010 - Sons Of The SystemЖанр: Industrial/Groove/Progressive Metal, DjentПродолжительность: 04:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

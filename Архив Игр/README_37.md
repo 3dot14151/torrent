@@ -1,3 +1,56 @@
+###  Публикация: 1044653   (565028) от 20.08.2016
+
+The Banner Saga 2 (2016) [En/Multi] (2.32.380) License PROPHET
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Banner Saga 2 позволит продолжить путешествие после трагический событий первой части. Решения, которые вы принимали в первой части серии, «перекочуют» в сиквел – живы е продолжат сражаться, а мертвые будут покоиться в земле. Привычный мир продолжает рушиться, и только один оплот надежды остается нетронутым. Но путь туда лежит неблизкий.Тип издания: LicenseРазработчик: StoicЖанр: Strategy (Turn-based), RPGЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271C1D7ABD435EBF27B5F3C4DA21E9251194364B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529814   (564577) от 01.08.2012
+
+Orcs Must Die / Бей орков [Ru/En/Multi9] (Steam-Rip/1.0.0.2416) 2011 l R.G. Origins
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564577.jpg" />
+</div>
+
+
+###  Подробнее
+
+В роли могущественного боевого мага с арсеналом смертоносного оружия, заклинаний и ловушек, защитите 24 крепости от яростных толп опасных врагов, среди которых огры, дьявольские летучие мыши и, разумеется, целое стадо уродливых орков. Сражайтесь с вашими врагами на протяжении кампании, состоящей из нескольких различных по сложности уровней, включая брутальный уровень «Кошмар»!
+Зажарите орков, сбросив их в лаву, загоните их в ловушку и расплющите потолком, или заморозите их и разнесете на кусочки? Не важно, какое бы оружие или ловушку вы выбрали, орков в любом случае ждет летальный исход!(   Читать дальше...   )Тип издания: Цифровая ЛицензияЖанр: Action / Strategy (Real-time) / 3D / 3rd PersonЯзык озвучки: Русский, Английский, Multi9Язык интерфейса: Русский, Английский, Multi9
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC945AA3155240FF1682D596AE7472BE1B3241C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529999   (564447) от 01.08.2012
 
 Singularity [Ru] (RePack/1.1) 2010 l R.G. Element Arts
@@ -6,7 +59,7 @@ Singularity [Ru] (RePack/1.1) 2010 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564447.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Borderlands: Game of the Year Edition (RePack/1.4.1/4 DLC) [Ru] l 2009 l R.G. El
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564383.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Perfect World: Morai / Идеальный Мир: Земли духов [Ru] (L/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564370.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Funk of Titans (2015) [Multi] (4.3.7.101162) Repack FLT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564334.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Orcs Must Die! 2 [Ru/En] (RePack/1.0.0.257) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562799.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера (201
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562647.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ Prototype 2 [Ru/En] (RePack/1.0) 2012 l R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562544.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ Angry Birds Space [En] (RePack/1.2.2) 2012| YaKrevetko
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562478.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ Orcs Must Die! 2 [Ru/En] (RePack/1.0.0.257) 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562477.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ Prototype 2 + DLC [Ru] (RePack) 2012 l R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562475.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ Hitman: Sniper Challenge [Ru] (Steam-Rip/Promo) 2012 [Без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562410.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ Prototype 2: RedNet Edition [Ru/En] (RePack/1.0) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562313.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ Singularity [Ru/En] (Rip/1.1) 2010 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562299.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru] (RePack/1.3/1 DLC) 2012 l R.G.Pack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562211.jpg" />
 </div>
 
 
@@ -384,7 +437,7 @@ Minecraft [Ru/Multi56] (RePack/1.3.1) 2012 | YaKrevetko
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562198.jpg" />
 </div>
 
 
@@ -410,7 +463,7 @@ Hitman: Sniper Challenge [Ru] (Steam-Rip/Promo) 2012 [Без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562194.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ Imperator: Rome (2019) [Ru/Multi] (1.0.3/dlc) Repack R.G. Catalyst [Deluxe Editi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561715.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ Commandos Anthology (1998-2006) [Ru/En] Repack/Rip R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560785.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ inVersion [En/Multi5] (P) 2012 l THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560531.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi23]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560311.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ Open Transport Tycoon Deluxe (2004) [Ru/Multi] (1.5.1) License [OpenTTD]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560299.jpg" />
 </div>
 
 
@@ -570,7 +623,7 @@ Brink [Ru] (RePack/1.0.23653/DLC) 2011 l R.G. BoxPack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560125.jpg" />
 </div>
 
 
@@ -597,7 +650,7 @@ Game of Thrones / Игра престолов [Ru/En] (RePack/1.3.0.0) 2012 l VA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560122.jpg" />
 </div>
 
 
@@ -626,7 +679,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559018.jpg" />
 </div>
 
 
@@ -639,60 +692,6 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6E6F00CE397C15570C482A383302545F217F308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045370   (558970) от 23.08.2016
-
-No Man's Sky (2016) [Ru/Multi] (1.0/upd3/dlc) SteamRip Let'sPlay
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическая научная фантастика, ее многообразие и неповторимый дух приключений, оживают в творении студии Hello Games. No Man’s Sky – игра, отличающаяся невероятным размахом и амбициями. Вам предстоит исследовать бесконечную вселенную, открывать бесчисленные уникальные планеты и знакомиться с невиданными прежде формами жизни.Тип издания: SteamRipРазработчик: Hello GamesЖанр: Action, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F563432904DD7CC0C21CCC118DDDBDF8AFBEB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 793464   (558912) от 20.08.2014
-
-King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru/Multi] (1.5.1047.1747/dlc) SteamRip R.G. Игроманы [Premium Edition]
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558912.jpg" />
-</div>
-
-
-###  Подробнее
-
-В продолжении приключенческой саги King’s Bounty вы познаете темную сторону мира Теана и совершите путешествие по невиданным землям, на которых кипит кровопролитье.
-
-Впервые в истории знаменитой серии вы получаете возможность выбрать расу главного персонажа. Знакомьтесь с новыми героями King’s Bounty! Бесстрашный орочий воин Багыр больше других знает о том, как важна (   Читать дальше...   )Тип издания: Цифровая лицензия (Steam-Rip)Разработчик: 1C-SoftClubЖанр: Strategy/RPGЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146FBA233B1438B6FD3F9B332B72A3CC6A5E2826
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,215 @@
+###  Публикация: 1271468   (147951) от 24.12.2018
+
+MultiBootHDD 2018 23.12.2018 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка на базе конструктора BootHDD by Policai для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных,установки Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCEB705ECD81A000AA4EAD538A5B7DD75559F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969100   (147924) от 26.12.2015
+
+Страна ОЗ (2015) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год в России — стихия неуправляемая и беспощадная. Именно в это волшебное время непостижимый колорит русской души проявляет себя во всей красе. Пока жители Екатеринбурга готовятся к главному национальному празднику и шинкуют оливье, Ленка Шабадинова спешит до боя курантов принять смену в киоске на улице Торфорезов. Но она даже не подозревает, что новогодняя (   Читать дальше...   )Производство: Россия / Белое ЗеркалоЖанр: КомедияРежиссер: Василий СигаревАктеры: Яна Троянова, Гоша Куценко, Андрей Ильенков, Александр Баширов, Евгений Цыганов, Владимир Симонов, Инна Чурикова, Светлана Камынина, Юлия Снигирь, Алиса ХазановаПеревод: Не требуется (русский) iTunesПродолжительность: 01:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4523064577AD0193FDF229CF2DCA1576595D1E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969216   (147916) от 26.12.2015
+
+Проекты - VideoHive - Christmas Titles 3 - 13795169 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания Новогодних титров.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6878479D02BDB46F1B34527AFFC1842D74E2328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 66424   (147909) от 24.12.2018
+
+Энциклопедия рыболова: Фидер - это просто (2007) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147909.jpg" />
+</div>
+
+
+###  Подробнее
+
+- Подготовка и сборка снасти
+- Промер глубины
+- Приготовление прикормки
+- Техника ловлиЖанр: Жанр: спорт, рыбалкаРежиссер: Александр МонаковПродолжительность: 02:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D331E7F8FBF245844E761C27D2AD8ED5D67E1C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969309   (147888) от 26.12.2015
+
+ФотоШОУ PRO 8.0 Repack by KaktusTV [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147888.jpg" />
+</div>
+
+
+###  Подробнее
+
+ФотоШОУ PRO - открывает возможности для создания потрясающих фильмов из фотографий и музыки. Создавайте незабываемые слайд-шоу на любые темы: рассказы о путешествиях, праздниках, свадебные фотофильмы, Love Story и т.п. Программа включает сотни комбинаций эффектов анимации, позволяющих оживить любую фотографию. Вам точно не будет скучно... Коллекция элегантных переходов (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D44F6C856D7B726D0420B6DF815814A731B4A96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969320   (147857) от 26.12.2015
+
+Страна ОЗ (2015) WEB-DLRip [H.264]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год в России — стихия неуправляемая и беспощадная. Именно в это волшебное время непостижимый колорит русской души проявляет себя во всей красе. Пока жители Екатеринбурга готовятся к главному национальному празднику и шинкуют оливье, Ленка Шабадинова спешит до боя курантов принять смену в киоске на улице Торфорезов. Но она даже не подозревает, что новогодняя (   Читать дальше...   )Производство: Россия / Белое ЗеркалоЖанр: КомедияРежиссер: Василий СигаревАктеры: Яна Троянова, Гоша Куценко, Андрей Ильенков, Александр Баширов, Евгений Цыганов, Владимир Симонов, Инна Чурикова, Светлана Камынина, Юлия Снигирь, Алиса Хазанова, Дарья Екамасова, Евгений РойзманПеревод: Не требуется (русский) iTunesПродолжительность: 01:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF84B31D8D4A7CFCB28C963BF3411F7AFE27003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609860   (147853) от 24.12.2018
+
+Path of Exile (2013) [Ru/Multi] (3.5.1) License
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path of Exile - это сетевая ролевая игра активного действия в мрачном колдовском мире Рэкласта. В основу игры легли: мощная бартерная экономика, богатые возможности настройки героев, захватывающие PvP-сражения и гонки за рейтингом. Игра полностью бесплатна. Вам никогда не придется платить за победу.Тип издания: LicenseРазработчик: Grinding Gear GamesЖанр: RPG (Rogue, Action), 3D, Isometric, Online-only, Massively multiplayerЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ПортугальскийЯзык интерфейса: Русский, Английский, Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A100F16F026DE12B3DECB09948A56281009DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969306   (147846) от 26.12.2015
+
+Grand Theft Auto: Vice City (2003) [Ru/Multi] (1.1) Lossless Repack R.G. Origami
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Город Порока - Vice City, огромный людской муравейник, где есть все: золотые пляжи и зловонные болота, блеск и нищета, дворцы и трущобы. Самый громкий хит года, Vice City позволит вам заглянуть в яркий, полный черного юмора и насилия преступный мир гигантского мегаполиса, чрезвычайно напоминающего Майами. Теперь и у вас есть шанс пройти путь от (   Читать дальше...   )Тип издания: Lossless RepackРазработчик: Rockstar NorthЖанр: Action (Shooter), Arcade, Racing (Cars, Motorcycles), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A530EB832616AC8FC1AEFB47BC1FCD84A4BA880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969041   (147844) от 26.12.2015
 
 Иерей-сан. Исповедь самурая (2015) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +218,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147844.jpg" />
 </div>
 
 
@@ -32,7 +244,7 @@ Grand Theft Auto: San Andreas (2005) [Ru/Multi] (1.0/1.1) Lossless Repack R.G. O
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147828.jpg" />
 </div>
 
 
@@ -58,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147816.jpg" />
 </div>
 
 
@@ -84,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147803.jpg" />
 </div>
 
 
@@ -111,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147785.jpg" />
 </div>
 
 
@@ -137,7 +349,7 @@ Windows 10 PRO VL 1909 x64 Rus by OneSmiLe [18363.535] (24.12.2019)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147751.jpg" />
 </div>
 
 
@@ -166,7 +378,7 @@ Half-Life 2: The Orange Box (2007) [Ru] (1.0) Repack R.G. ReCoding
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147733.jpg" />
 </div>
 
 
@@ -192,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147721.jpg" />
 </div>
 
 
@@ -218,7 +430,7 @@ Fallout 4 (2015) [Ru] (1.10.163.0.1/dlc) Repack xatab [Game of the Year Edition]
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147709.jpg" />
 </div>
 
 
@@ -244,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147517.jpg" />
 </div>
 
 
@@ -273,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>65
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147510.jpg" />
 </div>
 
 
@@ -302,7 +514,7 @@ Apple выдали патент, подтверждающий, что компа
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147352.jpg" />
 </div>
 
 
@@ -328,7 +540,7 @@ VA - Trance In Motion: Sensual Breath 001 - 105 (2012 - 2013) [MP3|320 кб/с]<
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147279.jpg" />
 </div>
 
 
@@ -354,7 +566,7 @@ George Michael - 78 Albums (1984-2014) 89 CD [MP3|192 - 320 kbps]<Pop, Dance, So
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147278.jpg" />
 </div>
 
 
@@ -383,7 +595,7 @@ Microsoft Windows 10 Enterprise Insider Preview Redstone 2 Build 10.0.14997.1001
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147250.jpg" />
 </div>
 
 
@@ -409,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147229.jpg" />
 </div>
 
 
@@ -435,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147198.jpg" />
 </div>
 
 
@@ -461,7 +673,7 @@ Space Hulk: Deathwing (2016) [Ru/En] (1.06) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147190.jpg" />
 </div>
 
 
@@ -472,218 +684,6 @@ Space Hulk: Deathwing — игра в жанре шутер от первого 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2615036207514DA39621F74AE215F058B72043C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086938   (147161) от 26.12.2016
-
-Adobe Photoshop CC 2017.0.1 (2016.11.30.r.29) RePack by D!akov (25.12.2016) [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A7C711CEB8C4C3164D394DC9633C57D5E638A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589909   (147087) от 15.12.2012
-
-TeleInet 1.2 Portable [Русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147087.jpg" />
-</div>
-
-
-###  Подробнее
-
-TeleInet - программа для просмотра телевизионных программ на компьютере через сеть Интернет. Теперь для просмотра программ вам не нужно кабельное телевиденье, не нужно заходить на сайты, транслирующие каналы в Интернет. Программа TeleInet является удобным десктопным приложением, предоставляющим доступ к скомпонованному агрегатору телевизионных программ. Все изменения и ошибки в трансляции отслеживаются и устраняются на сервере, поэтому приложение  всегда будет показывать нужный канал. Транслируются все федеральные каналы, а так же каналы кабельного телевидения, всего на данный момент 179 каналов.
-
-(   Читать дальше...   )Название программы: TeleInetЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588831   (147034) от 15.12.2012
-
-uDraw Wii collection [Wii] [PAL] [Eng] (2010-2011)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Графический редактор для Nintendo Wii. Совместим с оригинальным контроллером uDraw GAMETABLET - простеньким планшетом с маркером, который можно использовать как для рисования, так и для управления в играх.Жанр: графический редакторЯзык интерфейса: EngФормат: Образ в формате WBFS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F66BBF83CCFB37899A4C475ADCD1DC884A65386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434527   (146973) от 26.12.2020
-
-Юрист рассказал о новых запретах для курильщиков в 2021 году
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грядущий год вводит множество новых правил для всех категорий граждан. Не станет исключением и категория населения, отдающая предпочтение табачной продукции, рассказывает агентству «Прайм» управляющий партнёр юридической компании «Позиция Права» Егор Редин.Так, c первого января 2021 года курение будет запрещено в медицинских учреждениях, точках торговли, базах и (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434810   (146950) от 26.12.2020
-
-Deworker Pro, Дмитрий Елисеев | Разработка аукциона на SlimPHP и ReactJS (2020) PCRe
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия скринкастов по разработке интерактивного аукциона с API на микрофреймворке Slim PHP и фронтендом на ReactJS по практикам DDD и DevOps.
-
-Рассмотрим всё от установки до деплоя с использованием Docker для каждой стадии процесса. С WebSocket-интерактивом и очередями на RabbitMQ. С проектированием удобной слабосвязанной доменной модели. С интеграцией сторонних сервисов (   Читать дальше...   )Производство: Deworker ProЖанр: ПрограммированиеПродолжительность: 48:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B060F29CD998BBD70C08241DEB26ADCEF9E7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589414   (146903) от 15.12.2012
-
-1812: Уланская баллада (2012) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Россия / Централ Партнершип, Фонд киноЖанр: ПриключенияРежиссер: Олег ФесенкоАктеры: Сергей Безруков, Анатолий Белый, Валерий Николаев, Борис Клюев, Светлана Меткина, Павел Делаг, Егор Позенко, Ольга Кабо, Владимир Гостюхин, Анна Чиповская, Станислав Дужников, Егор ПазенкоПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26EA5B5E2071734AF3DE238F94E1F5B2D30E359F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434554   (146897) от 26.12.2020
-
-Доктор Лиза (2020) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один день из жизни Елизаветы Петровны Глинки. История начинается с праздничного события: Елизавета и её муж Глеб готовятся отметить 30-ю годовщину свадьбы. На домашний ужин приглашены близкие друзья, приезжают сыновья. Конечно, Лиза освободила этот день, чтобы провести его с семьёй. По плану у неё только одно дело – заехать на Павелецкий вокзал, ведь там сегодня (   Читать дальше...   )Производство: Россия, Киностудия КИТ, Продюсерский центр ИВАНЖанр: Драма, БиографияРежиссер: Оксана КарасАктеры: Чулпан Хаматова, Анджей Хыра, Константин Хабенский, Андрей Бурковский, Евгений Писарев, Алексей Агранович, Сергей Сосновский, Татьяна Догилева, Елена Коренева, Тимофей ТрибунцевПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61E608CAA56E502243388B070C6400F63D5D4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433813   (146885) от 26.12.2020
-
-Боевой робот номер 4 (Монстры, созданные человеком) / Monsters of Man (2020) WEB-DL [H.264/1080p] [AVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крупная корпорация, занимающаяся производством робототехники, заручившись поддержкой продажного агента ЦРУ, решает провести незаконную несанкционированную военную операцию, чтобы продемонстрировать их отличные боевые качества, для получения крупных контрактов. В качестве полигона для испытаний они выбирают скрытый лагерь наркоторговцев. Но хорошо продуманный план (   Читать дальше...   )Производство: Австралия / MRT Films Pty Ltd, Hanuman Films, 11:11 EntertainmentЖанр: Фантастика, боевикРежиссер: Марк ТойяАктеры: Нил МакДонаф, Brett Tutor, Хосе Росете, Дэвид Хэверти, Paul Haapaniemi, Райан Хью, Ly Ty, Ma Rynet, Kayli Tran, Джессика БлэкморПеревод: Авторский (Андрей Дольский)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7C34F5D8CC29CC30DA095D1E3D941412CD2761
 ```
 
 https://mybot314.ru/tekegram_catalog/

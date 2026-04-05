@@ -1,3 +1,164 @@
+###  Публикация: 120753   (33319) от 23.12.2024
+
+Тайные знаки. Коллекция программ. Часть 2 (2008) SATRip [55 фильмов]
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный цикл «Тайные знаки» телеканала ТВ-3 в новом сезоне открывается премьерным показом документальных фильмов. Четверо ведущих: Александр Резалин, Дмитрий Комов, Михаил Волков и Андрей Раннев продолжают разгадывать тайные знаки в жизни великих людей, открывать новые грани знакомых событий и неизвестные стороны в судьбах знаменитых личностей и исторических персонажей. (   Читать дальше...   )Жанр: Документальная передача, журналистское расследование.Перевод: ОригинальныйПродолжительность: 55 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB570F33CF983B88C7ED9BBFB3E424120033C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 120803   (33317) от 23.12.2024
+
+Тайные знаки. Коллекция программ. Часть 3 (2009) SATRip [41 фильм]
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайные знаки
+Четверо ведущих: Александр Резалин, Дмитрий Комов, Михаил Волков и Андрей Раннев продолжают разгадывать тайные знаки в жизни великих людей.
+Только они знают, как открыть новые грани знакомых событий и неизвестные стороны в судьбах знаменитых личностей и исторических персонажей.
+Предатели и мистификаторы(   Читать дальше...   )Жанр: Документальная передача, журналистское расследованиеПеревод: ОригинальныйПродолжительность: 40 x ~ 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8F7ACD95555A75733862F8722415E69D6574A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 120723   (33315) от 23.12.2024
+
+Тайные знаки. Коллекция программ. Часть 1 (2008) SATRip [54 фильма]
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл документальных фильмов, который открывает перед зрителями мир полный мистики и явлений, которые не способна объяснить наука. Четыре разных темы: «Обладатели», «Тайны вещей», «Странные явления» и «Исчезнувшие знаменитости», пытаются дать ответы на все вопросы о сверхприродном. «Обладатели» - это истории о жизни, странных поступках и таинственных моментах, в биографиях (   Читать дальше...   )Жанр: Документальная передача, журналистское расследование.Перевод: Оригинальный, русскийПродолжительность: 54 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4D216FC15C4DEA20B1AD9AC8A4C77D0E69CA00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759695   (33307) от 23.12.2024
+
+Точь-в-точь (2024) WEBRip [H.264/720p] (сезон 6, выпуск 1-14)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33307.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Точь-в-точь» — музыкально-развлекательная телепрограмма «Первого канала», неофициальное продолжение шоу «Один в один!» (российской версии международного формата «Your Face Sounds Familiar» — испанский оригинал: «Tu cara me suena» — компании «Endemol»).
+
+Как и «Один в один!», «Точь-в-точь» — шоу перевоплощений, участники которого изображают известных музыкантов и (   Читать дальше...   )Производство: Россия / Первый каналЖанр: Музыкальный, ТВ-ШоуПродолжительность: ~01:30:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5CC395820E261254F881EF08999FAEF8AB1D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768266   (33162) от 24.12.2024
+
+Герои Арктики. Челюскин (1934) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о спасении арктической экспедиции на пароходе «Челюскин», которую возглавлял известный ученый, покоритель Арктики Отто Шмидт, капитан "Челюскина" - В. И. Воронин. Фильм снимался как немой, с интертитрами, а затем доозвучен, что не редкость для тех времен. Но, к сожалению, звуковая дорожка не сохранилась и не отреставрирована. Кое-где (   Читать дальше...   )Производство: СССР / СоюзкинохроникаЖанр: документальный, историяРежиссер: Яков ПосельскийЯзык озвучки: русский, несколько сцен, по большей части фильм немойСубтитры: русские (интертитры)Продолжительность: 01:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F581213DE7D3B6D0772D117E238CF26453598B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766988   (33033) от 25.12.2024
+
+Реми Майснер. Демьян Бедный, «Работорговцы». (2023) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реми Майснер, тов. Алексей и DHARMA1937 продолжают наращивать культурную повестку. Реми Майснер читает наизусть фельетон в стихах Демьяна Бедного «Работорговцы».Производство: Россия, Авторский блог Remi MeisnerЖанр: политикаЯзык озвучки: РусскийПродолжительность: 00:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5EAD0710F459DF94A6B4ADE4211D97DA2385BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768729   (32918) от 26.12.2024
 
 Следствие вели... (21.12.2024) WEBRip [H.264/1080p]
@@ -6,7 +167,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32918.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32830.jpg" />
 </div>
 
 
@@ -60,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32827.jpg" />
 </div>
 
 
@@ -86,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32756.jpg" />
 </div>
 
 
@@ -112,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32729.jpg" />
 </div>
 
 
@@ -138,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32712.jpg" />
 </div>
 
 
@@ -164,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32587.jpg" />
 </div>
 
 
@@ -190,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32544.jpg" />
 </div>
 
 
@@ -216,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32525.jpg" />
 </div>
 
 
@@ -242,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32425.jpg" />
 </div>
 
 
@@ -268,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32339.jpg" />
 </div>
 
 
@@ -294,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32234.jpg" />
 </div>
 
 
@@ -321,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32180.jpg" />
 </div>
 
 
@@ -347,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31972.jpg" />
 </div>
 
 
@@ -374,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31878.jpg" />
 </div>
 
 
@@ -401,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31710.jpg" />
 </div>
 
 
@@ -428,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31645.jpg" />
 </div>
 
 
@@ -454,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31560.jpg" />
 </div>
 
 
@@ -480,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31521.jpg" />
 </div>
 
 
@@ -509,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31520.jpg" />
 </div>
 
 
@@ -520,162 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38B127F510216644E626365CBFBEBEDCFDF3ABA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469053   (31418) от 10.01.2025
-
-NG: На Марс: история марсохода Персеверанс / Built for Mars: The Perseverance Rover (2021) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект "Создан для Марса: марсоход Персеверанс" приглашает за кулисы лаборатории реактивного движения НАСА, чтобы увидеть рождение уникального марсохода Персеверанс.Производство: США / NGC NETWORK US, LLCЖанр: Документальный, космосРежиссер: Mark DavisУчастники: Steve French, Moogega Cooper, Adam SteltznerПеревод: Одноголосый профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC489684546FAA6ADDD3D50A4CA8FA01D3D01F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639264   (31396) от 10.01.2025
-
-Армстронг / Armstrong (2019) WEB-DL [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина о жизни Нила Армстронга: от детства в сельской местности Огайо до воздушных боев в Корее и первых шагов на Луне, а также нежелательных последствиях мировой известности. Эта история расскажет о жизни спокойного и решительного человека, который побывал летчиком, астронавтом, мужем. И, конечно, героем, хоть и не стремился им стать.Производство: США, Великобритания / Tin Goose Films, Haviland Digital, Mark Stewart ProductionsЖанр: документальный, биографияРежиссер: Дэвид ФэйрхэдУчастники: Харрисон Форд, Марк Армстронг, Майкл Коллинз, Кристофер Крафт, Майкл Боди, Джанет Армстронг, Джерри Гриффин, Рик Армстронг, Дэйв Скотт, Фрэнк БорманПеревод: Многоголосый профессиональный (Кириллица)Язык озвучки: Русский, АнглийскийСубтитры: РусскиеПродолжительность: 01:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37AC7EC62C72FA5E03ADB528834F73FDF08CB59A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643596   (30823) от 16.01.2025
-
-Кислород (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое альпинистов, двое опытных восходителей и молодой новичок, отправляются в Пакистан — штурмовать высочайшие вершины мира Броуд Пик (8 051 м) и К2 (8 611 м). Они готовились к трудностям, но столкнутся с испытаниями, которые сложно было даже представить. На грани жизни и смерти, на высоте, где самое ценное — кислород.Производство: Россия / Студия «Кислород», Централ Партнершип, Red Media GroupЖанр: документальныйРежиссер: Ольга Бородина, Виталий Лазо, Дмитрий ХонинЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F686B03B60A5919262AAD09B522F22E7C9FCA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773428   (30678) от 17.01.2025
-
-Линч / Lynch (2007) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм дает нам редкую возможность заглянуть в увлекательный внутренний мир человека, создавшего такие визионерские шедевры, как «Голова-ластик», «Малхолланд Драйв», «Синий бархат», «Твин Пикс», «Дикие сердцем», «Человек-слон». Это рассказ о жизни режиссера, о его творчестве и художественном взгляде, о том, как он работал на съемочной площадке фильма «Внутренняя империя».Производство: США / Absurda, Hideout Films, MK2 TVЖанр: документальныйРежиссер: Джейсон С.Участники: Джей Аасенг, Джереми Альтер, Дэвид Линч, Кшиштоф Майхжак, Филлип Патела, Вероника РозатиПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские (AI)Продолжительность: 01:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F4C59E8CA39A9DAE6EC459FAEE0256C7FA1EEA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774019   (30532) от 18.01.2025
-
-Главная дорога (18.01.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видов полного привода много, но в современных автомобилях доминируют два: постоянный и подключаемый. Вот только что подключается именно на вашей машине — передние колеса или задние? И в какой момент? Андрей Федорцов и Денис Юченков вместе с экспертами разобрались, когда подключается полный привод, а когда рассчитывать на него не стоит, показали, как отличается управление (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F9AB8C114424D44FDA0B14F37063D3F5629C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 111429   (30492) от 19.01.2025
-
-Блокада Ленинграда (Кирилл Набутов) (2 серии из 2)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм Кирилла Набутова - это не только документы, проливающие свет на неизвестные до сих пор подробности ужасных дней блокады. Сухой язык цифр и документов авторы фильма уравновесили человеческими историями, ведь у каждого пережившего эти страшные месяцы есть своя собственная блокада. Свои истории рассказывают простые ленинградцы, ставшие узниками голодного города. (   Читать дальше...   )Производство: НТВ, РоссияЖанр: Документальный, Военная тематикаРежиссер: Кирилл НабутовКачество: SATRipПродолжительность: 01:26:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956601CC5F780B6A31D4EEBD4365A3ACC95AFB22
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1299072   (769013) от 27.06.2020
+
+Lorelai (2019) [Ru/Multi] (1.1.0 S/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра от Рема Михальски (Rem Michalski), создавшего два интересных проекта Downfall и The Cat Lady. Лорелай (Lorelai) – это имя героини, в роли которой нам и предстоит путешествовать по необычному миру. «Однажды девушка потеряла то немногое, что имела, а затем вся ее действительность исчезла. Тогда ей даже не дали остановить падение, однако теперь, получив шанс отомстить, (   Читать дальше...   )Тип издания: RepackРазработчик: Harvester GamesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6283A6EC5E5B69296B37894DF4505909DD439ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392949   (768874) от 28.06.2020
+
+Westmark Manor (2020) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Westmark Manor для любителей ужасов. Это возможность пережить удивительные события и погрузиться в атмосферу оккультизма. Повествование дополнено головоломками, неожиданными находками. Создатели вдохновлялись вселенной Говорда Лавкрафта. Тщательно исследуйте этот мир, получите массу удовольствия, наберитесь впечатлений от пребывания на его просторах. Все выше перечисленное (   Читать дальше...   )Тип издания: LicenseРазработчик: Nodbrim InteractiveЖанр: Adventure (Horror), Puzzle, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C23C5F30F39C2EE878A8A72706D78FB68B6EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392961   (768829) от 28.06.2020
+
+Beyond: Two Souls / За гранью: Две души (2019) [Ru/Multi] (5117920) Repack xatab
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный психологический экшен-триллер Beyond: Two Souls с участием голливудских суперзвезд Эллен Пейдж и Виллема Дефо уносит вас в увлекательное путешествие по всему миру, в котором вы проживете часть удивительной жизни Джоди Холмс. Джоди не такая как все: с рождения она обладает связью с таинственным существом с невероятными способностями. Ваши действия определят (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Adventure (Interactive Movie), Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4528411572BB66E52B27808D3B2FA9CCB6108C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347942   (768828) от 28.06.2020
 
 SONG OF HORROR (2019) [Multi] (1.22/dlc) Repack Other s [Complete Edition]
@@ -6,7 +84,7 @@ SONG OF HORROR (2019) [Multi] (1.22/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768828.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Raven Remastered (2018) [Ru/Multi] (1.1.0.654) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768786.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Black Mirror (2017) [Ru/En] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768237.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Someday You'll Return (2020) [Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768235.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Codename: Iceman (1990) [En] (1.033) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767716.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766519.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Coma: Recut (2017) [Ru/Multi] (2.53) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766480.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Thimbleweed Park (2017) [Ru/Multi] (1.0.958/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766474.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765874.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765839.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Lumo (2016) [Ru/Multi] (1.11.08) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764224.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Blair Witch (2019) [Ru/Multi] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763395.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Crystal Key 2:The Far Realm / Evany: Key to a Distant Land / Кристальн�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762462.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0/dlc) Repack Other s [Special Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762387.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Riddlord: The Consequence (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761575.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Not in Heaven (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761502.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760737.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Insane Decay of Mind (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760673.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ The Song of Seven: Chapter One (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760596.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Danganronpa Dilogy (2016) [En] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760591.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758177.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Backbone (2021) [Ru/Multi] (1.0.8.0/dlc) Repack Other s [Artifact Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758135.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Dreamfall Chapters (2017) [Ru/Multi] (5.7.8) License GOG [The Final Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758052.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Dreamfall Chapters – профинансированное через Kickstart
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FADE09351392FAAABC7D301F6E3517FAFA3AB6F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336860   (757999) от 07.01.2022
-
-The Story of Henry Bishop (2019) [Ru/Multi] (2.3) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Меня зовут Генри Бишоп, я расскажу вам свою ужасную историю... Эта история произошла со мной в конце 70-х, и даже самый страшный кошмар покажется лишь отголосками ужаса в сравнении с теми загадочными событиями, участником которых я стал. Я работал риелтором по продаже недвижимости и был у нас старинный особняк в штате Мэн, который никто не мог продать. Он висел, (   Читать дальше...   )Тип издания: RepackРазработчик: Blazes GamesЖанр: Adventure (Horror), Action, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24DFED3632C4EEFF59FB7255B8EBA38AE67F74F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156781   (755902) от 27.03.2018
-
-Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1) License CODEX [Episode 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755902.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Брюса Уэна продолжается в новой главе от Telltale Games. В этот раз ему предстоит защитить Готэм от Загадочника, который вернулся в город и совершает ужасные преступления. Джокер также не останется в стороне, ведь у него всегда припрятан козырь в рукаве.Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A3BC90E88A4F180C6743B2CA19761D7689FCD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469639   (754509) от 09.01.2022
-
-Retro Machina (2021) [Ru/Multi] (1.11) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Retro Machina — это новое приключение в футуристическом мире, населенном роботами. Путешествие начнется со свалки, на которую выбросили нашего главного героя, и приведет к разгадке тайны исчезнувшей цивилизации. Судьба планеты в ваших руках!Тип издания: RepackРазработчик: Orbit StudioЖанр: Adventure, Action, PuzzleЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989101C32CEFF9078AE41A294DD8CDF9CE7C4613
 ```
 
 https://mybot314.ru/tekegram_catalog/

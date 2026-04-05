@@ -6,7 +6,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.4 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049340.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049317.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bubble Shooter Viking Pop v7.12.2.38462 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049314.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Words of Wonders: Игра в слова v5.3.10 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049151.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048479.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048288.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Pro Pool 2026 v1.62 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048174.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047484.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Word Surf - Игра в слова v4.3.5 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047288.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Words of Wonders: Игра в слова v5.3.8 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047286.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Bob The Robber 4 v1.44 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043059.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ War of Kings: Эпическая Стратегия PvP v69 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043045.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ FarmVille 2 v16.6.6412 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043041.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043020.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ StrikeBox: Sandbox & Shooter v1.4.6 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043017.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Eternium v1.5.32 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043005.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Stickman Dragon Fight v1.1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042785.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ FINAL FANTASY III v2.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042212.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Best Fiends Stars v2.5.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041941.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Grand War European Conqueror v3.3.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041686.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ CHUCHEL v2.0.14 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041597.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041553.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Don't Push The Wrong Button 2 v1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041458.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Levelhead v100.0.38 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040848.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Vengeance RPG v1.2.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040731.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Clash of Robots v3.8 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040538.jpg" />
 </div>
 
 

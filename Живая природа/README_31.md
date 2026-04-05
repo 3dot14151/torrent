@@ -1,3 +1,29 @@
+###  Публикация: 1263345   (289774) от 18.11.2018
+
+Смертоносные австралийцы / Deadly Australians (2017) HDTVRip (серии 1-4)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайная жизнь самых выдающихся (и зачастую малоизвестных) убийц в Австралии, включая самую ядовитую в мире змею, опасную медузу, чудовищного крокодила и ядовитых пауков.Производство: Канада, Австралия, Film Victoria, Blue Ant Media Solution inc.Жанр: Документальный, природа, флора, фаунаРежиссер: Энн МакгваирПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD9661CD2D7462507F1B97211479A6E1B5308EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335299   (289576) от 01.11.2019
 
 Чудеса Африки / Afrikas Naturwunder - Ein Tag wie kein anderer (2018) IPTVRip [H.264] (сезон 1, эпизод 264)
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289576.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287819.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286364.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284497.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279470.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ NG: Колыбель жизни / Crucible of Life (2008) SATRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279130.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278959.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277823.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276137.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274455.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273241.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266107.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266078.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Animal Planet: Царство гепардов / Cheetah Kingdom (2010) HDTVRip 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265633.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263571.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262077.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260375.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260368.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260266.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ BBC: Как вырастить планету. Триумф неудачника
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259612.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258519.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255336.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255331.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255264.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254983.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C80CB76A4A48268932A077A5B58ED88A9C72D301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498342   (254024) от 18.05.2012
-
-BBC: Как вырастить планету. Притягательная история цветов [выпуск 2] / How to Grow a Planet. The Power of Flower (2012) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254024.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сериале профессор Ийан Стюарт рассказывает нам о новой, увлекательной версии истории формирования биогенеза, которую прошла наша планета. Показывая нам, сколь велики изменения, которые были вызваны, прежде всего обитателями растительного царства. Его рассказ повествует о древней эволюции представителей флоры и фауны Земли.Жанр: ДокументальныйПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C675830022DB36B17BB81C7C8889FBF224B13A
 ```
 
 https://mybot314.ru/tekegram_catalog/

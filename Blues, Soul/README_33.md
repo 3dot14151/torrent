@@ -6,7 +6,7 @@ VA - Blues - A 30 Track Collection (2017) 2CD [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296780.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ben Harper - Live At The Apollo (2005) Live [MP3|320 Kbps] <Blues, Folk, Funk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296017.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Main Street Blues - Fading To Blue (2015) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294281.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Connie Lush Band - Renaissance (2015) [MP3|320 кб/с]<Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293527.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Little G. Weevil - Something Poppin' (2017) [MP3|320 Kbps] <Blues, R&B>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291731.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Detonics - Raise Your Bet (2018) [MP3|320 Kbps] <West Coast Blues, Swing>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291544.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lil' Son Jackson - The Complete Imperial Recordings (1995) [MP3|320 кб/с]<Blu
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291488.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sonny Terry - Whoopin' the Blues: The Capitol Recordings, 1947-1950 (1995) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291487.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Modern Blues Rock Ballads (2015) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291260.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Snooks Eaglin - The Complete Imperial Recordings (1995) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289432.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Al Holliday - Natural Remedies (2015) [MP3|320 кб/с]<R&B, Soul Blues, Funky B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289223.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Blues & Boogie (2017) Artist Collection Vol.10 [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288246.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Marty Ray Project - Mixed Emotions (2017) [MP3|320 Kbps] <Blues, Folk, Alternati
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286398.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Greg Miller - Destination For Dreamers (2015) [MP3|320 кб/с]<Harmonica Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285790.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Rosedale - Long Way To Go (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284591.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ali McGuirk - Slow Burn (2017) [MP3|320 Kbps] <Blues, R&B, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284579.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Mark Cook - Rebel Blues (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284138.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Stevie Babie - Smoke And Mirrors (2015) [MP3|320 кб/с]<Blues, Smooth Jazz, In
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283794.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Andres Roots - Winter (2016) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283028.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Marc Broussard - S.O.S. 2: Save Our Soul: Soul on a Mission (2016) [MP3|320 Kbps
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283017.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Gary Eisenbraun - Darkest Before The Dawn (2013) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280900.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Andre & Renee Beeka - Bitin' da Blues (2019) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280657.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Rock Blues Years (2016) [MP3|320 Kbps] <Blues Rock, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280158.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Glitterbox - Pump The Boogie! & Continuous Mixes (2018) [MP3|320 Kbps] <Sou
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277770.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Supersonic Blues Machine - Californisoul (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274730.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Big Papa and the TCB - Let Your Hair Down (2017) [MP3|320 Kbps] <Blues, Swing>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273605.jpg" />
 </div>
 
 

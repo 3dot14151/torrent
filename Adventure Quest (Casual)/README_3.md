@@ -6,7 +6,7 @@ The Veil of Mystery. Seven Little Gnomes / Под покровом тайны. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000986.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Secret City 4: Chalk of Fate (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992568.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989725.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mystery Trackers 17: The Secret of Watch Hill / Охотники за тайна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989692.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cadenza 6: The Following / Каденция 6: Следуя за прошлым 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988930.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dark Romance 3: The Swan Sonata (2015) [En] Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987485.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sable Maze 5: Soul Catcher (2015) [En] Unofficial [Collector's Edition / Кол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987391.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dark Romance 3: The Swan Sonata / Венок Романсов 3: Лебедин�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987148.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Surface 8: Return to Another World / Внешние пределы 8: Возвр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987143.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Unseen Fears 5: Ominous Talent (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986113.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Surface 3: The Soaring City Collector's Edition / Над водой 3: Паря�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985349.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Labyrinths of the World 10: Fools Gold / Лабиринты мира 10: Зол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984750.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Labyrinths of the World 11: The Wild Side / Лабиринты мира 11: Ди
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983246.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Antichamber [En] (Repack/1.0) 2013 | THETA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982235.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Mythic Wonders: The Philosopher's Stone (2014) [En] Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981916.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Darkarta. A Broken Hearts Quest / Darkarta: Поиск разбитого сер
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980422.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Hidden Expedition 10: The Fountain of Youth (2015) [En] Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980168.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Living Legends 8: The Crystal Tear (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978726.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Halloween Chronicles 2: Evil Behind a Mask / Хроники Хэллоуина 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977546.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Magic Gate. Faces of Darkness / Волшебные врата. Лики тьмы
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976559.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Labyrinths of the World 2: Forbidden Muse / Лабиринты Мира 2: За�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974265.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Unseen Fears 5: Ominous Talent / Невидимые страхи 5: Злов
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974221.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Living Legends 8: The Crystal Tear / Живые легенды 8. Хрустал
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974200.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Treasures of Montezuma 5 / Сокровища Монтесумы 5 (2016) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974087.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ The Secret Order 8: Return to the Buried Kingdom / Тайный орден 8: В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972992.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Labyrinths of the World 3: Changing the Past (2016) [En] Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971933.jpg" />
 </div>
 
 

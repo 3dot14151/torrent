@@ -1,3 +1,58 @@
+###  Публикация: 1245579   (471909) от 06.09.2018
+
+Relaxing Piano Music & Sleep Baby Sleep - Newborns - Relaxing Pregnancy Music (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lullabye for Alice Grey (Amazing Bedtime Music)	5:09
+02 Native American Massage Music	6:45
+03 Ocean Waterfall  4:08
+04 Relax Your Soul B 4:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84549EEBABA46B14EFB0CADF86D2391F8D2A3FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701825   (471884) от 20.09.2013
+
+Bill Frisell - 6 альбомов (2004-2013) [FLAC|Lossless]<Contemporary Jazz, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Contemporary Jazz, Instrumental |Продолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132E20CA9A4A15392BC788FE7EE2FB5BE8B59A0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160840   (471751) от 26.08.2017
 
 The Romantic Strings Orchestra - The Greatest Love Of All (1998) [MP3|320 Kbps] <Instrumental, Easy Listening>
@@ -6,7 +61,7 @@ The Romantic Strings Orchestra - The Greatest Love Of All (1998) [MP3|320 Kbps] 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471751.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Deuter - Mystic Voyage (2015) [MP3|320 кб/с]<New Age, Relax, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471309.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Ilyin - Pegs and Fortresses (2019) [MP3|320 Kbps] <Metal/Intumental/Neo-classic/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471248.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470521.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470506.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ Jeff Wahl - Playing with Silence (2017) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469966.jpg" />
 </div>
 
 
@@ -180,7 +235,7 @@ Neil Tatar - After the Rain (2018) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469895.jpg" />
 </div>
 
 
@@ -209,7 +264,7 @@ VA - Brazil 70: After Tropicalia: New Directions in Brazilian Music in the 1970s
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469888.jpg" />
 </div>
 
 
@@ -238,7 +293,7 @@ Gregorian - Epic Chants (2012) [MP3|~245 кб/с (V0)]<NewAge & Meditative,Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469547.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ Paco De Lucia - Flamenco Virtuoso (2008) [FLAC|Lossless]<Flamenco>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469389.jpg" />
 </div>
 
 
@@ -308,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468859.jpg" />
 </div>
 
 
@@ -343,7 +398,7 @@ Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468832.jpg" />
 </div>
 
 
@@ -372,7 +427,7 @@ VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468156.jpg" />
 </div>
 
 
@@ -403,7 +458,7 @@ Richard Clayderman - Plays The Music Of ABBA (2010) Compilation [FLAC|Lossless|t
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468155.jpg" />
 </div>
 
 
@@ -432,7 +487,7 @@ VA - Mystera V (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467787.jpg" />
 </div>
 
 
@@ -461,7 +516,7 @@ VA - Mystera (1998) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467670.jpg" />
 </div>
 
 
@@ -490,7 +545,7 @@ VA - Mystera IX (2002) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467669.jpg" />
 </div>
 
 
@@ -519,7 +574,7 @@ VA - The Best Of Mystera (2001) 2CD [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467658.jpg" />
 </div>
 
 
@@ -548,7 +603,7 @@ VA - Magic Is The Moonlight/ South Sea Island Favorites (2000) [MP3|320 Kbps] <I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467372.jpg" />
 </div>
 
 
@@ -577,7 +632,7 @@ ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная ауди
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466764.jpg" />
 </div>
 
 
@@ -603,7 +658,7 @@ The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466746.jpg" />
 </div>
 
 
@@ -632,7 +687,7 @@ The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466398.jpg" />
 </div>
 
 
@@ -661,7 +716,7 @@ The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466396.jpg" />
 </div>
 
 
@@ -690,7 +745,7 @@ The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Count
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466395.jpg" />
 </div>
 
 
@@ -704,62 +759,6 @@ The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Count
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39A099F83FA7C38A13098746D355E7C53964240B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161473   (465644) от 29.08.2017
-
-Ottmar Liebert - Slow (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Rain	4:47
-02.	Lalo Cura	5:59
-03.	Haiku4	0:23
-04.	Butterfly Dream	4:29(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98A69919B84286094F909B5A0D4BBD57E054FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161394   (465639) от 29.08.2017
-
-Craig Pruess & Anuradha Paudwal - Sacred Chants Of Shakti (2012) [MP3|320 Kbps] <Meditative, Ambient, Chants>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shakti Prayer (25:23)
-02. Ripples Of Beauty (29:00)Жанр: Meditative, Ambient, ChantsПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94140A35F1076464024036E9690B830C148AB6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

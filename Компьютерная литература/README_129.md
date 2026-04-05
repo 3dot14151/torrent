@@ -1,164 +1,3 @@
-###  Публикация: 1793685   (20308) от 25.04.2025
-
-Matt St. Onge | The Embedded Linux Security Handbook (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20308.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Справочник, написанный экспертом по Linux и открытому исходному коду Мэттом Сент-Онжем, это полное руководство, которое поможет вам создать и защитить устройства на базе Linux, способные противостоять новейшим киберугрозам.
-Book Description
-As embedded Linux systems power countless devices in our daily lives, they’ve become prime targets for cyberattacks. In this (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278AA5E498FB0EB3C283020FC2BEB969AE560731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794525   (19919) от 29.04.2025
-
-С.П. Зоткин | Программирование на языке высокого уровня C/C++: конспект лекций. 4-е издание (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены основные элементы языков программирования C/C++: типы данных, операторы и операции, структура программы, работа с файлами, основы численных методов решения инженерных задач, организация данных в виде стека, очереди, списка и дерева. Пособие предназначено для обучающихся по направлению подготовки «Информатика и вычислительная техника» а также другим категориям (   Читать дальше...   )Жанр: учебное пособиеИздательство: МИСИ – МГСУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E3B29CB5B3843F694F3A100A7211251359E503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794375   (19897) от 29.04.2025
-
-Ge Cheng | ChatGPT: Principles and Architecture (2025) [PDF, EPUB, MOBI] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19897.jpg" />
-</div>
-
-
-###  Подробнее
-
-ChatGPT: Principles and Architecture bridges the knowledge gap between theoretical AI concepts and their practical applications. It equips industry professionals and researchers with a deeper understanding of large language models, enabling them to effectively leverage these technologies in their respective fields. In addition, it tackles the complexity of understanding (   Читать дальше...   )Жанр: Искусственный интеллект. Нейронные сетиЯзык: АнглийскийИздательство: ElsevierФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D125F8121B6A7BA65CD7FF1527EB26431C43B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794550   (19837) от 29.04.2025
-
-Andrew Freed, Eniko Rozsa, Cari Jacobs | Effective Conversational AI: Chatbots that work (2025) [PDF, EPUB, MOBI] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Effective Conversational AI: Chatbots that work
-Create and improve conversational AI with the latest patterns, best practices, and tools, including generative AI models.
-Effective Conversational AI teaches you how to build great chatbots that perform reliably even at enterprise scale. In it, you’ll learn how to clarify user intent using LLMs, respond accurately to (   Читать дальше...   )Жанр: Искусственный интеллект. Нейронные сетиЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2C83143DFCF161688D3A4E13189D78ED60E5CDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794687   (19801) от 30.04.2025
-
-Nigel Poulton | Quick Start Kubernetes (2025) [PDF, EPUB, MOBI] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quick Start Kubernetes by best-selling author Nigel Poulton is the ultimate beginner's guide to Kubernetes - the revolutionary technology driving the future of modern applications and infrastructure.
-Whether you're a newcomer or looking to expand your expertise, this concise hands-on book will take you from zero to Kubernetes-ready in just 100 pages - no prior experience (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9631F196DC93856ADC142B4514BC9E58CF809A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794333   (19798) от 30.04.2025
-
-Натан Лифтинг, Брайан ван Бэкел | Zabbix 7: мониторинг ИТ-инфраструктуры (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновленное третье издание «Zabbix 7: мониторинг ИТ-инфраструктуры» познакомит вас со всеми возможностями Zabbix. Эта книга, включающая различные примеры и описывающая обновленные функциональные возможности Zabbix, охватывает все, что нужно знать для настройки высокой доступности серверов, расширенной аутентификации пользователей с помощью LDAP, реализации низкоуровневого (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0821C1FD2DEA24D1C1E6CBC853E37FB4B23603E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794667   (19784) от 30.04.2025
 
 Douglas Comer | Operating System Design: The Xinu Approach. 3rd Edition (2025) [EPUB, PDF] [EN]
@@ -167,7 +6,7 @@ Douglas Comer | Operating System Design: The Xinu Approach. 3rd Edition (2025) [
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19784.jpg" />
 </div>
 
 
@@ -194,7 +33,7 @@ Yan Jia, Zhaoquan Gu, Aiping Li et al. (eds.) | MDATA Cognitive Model: Theory an
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19760.jpg" />
 </div>
 
 
@@ -222,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18980.jpg" />
 </div>
 
 
@@ -248,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18854.jpg" />
 </div>
 
 
@@ -274,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17461.jpg" />
 </div>
 
 
@@ -300,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16390.jpg" />
 </div>
 
 
@@ -326,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15295.jpg" />
 </div>
 
 
@@ -354,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13086.jpg" />
 </div>
 
 
@@ -381,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12087.jpg" />
 </div>
 
 
@@ -408,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11658.jpg" />
 </div>
 
 
@@ -434,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11239.jpg" />
 </div>
 
 
@@ -460,7 +299,7 @@ STMicroelectronics, Ira | RM0090 Справочное руководство п�
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11124.jpg" />
 </div>
 
 
@@ -489,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11008.jpg" />
 </div>
 
 
@@ -517,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10331.jpg" />
 </div>
 
 
@@ -543,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10198.jpg" />
 </div>
 
 
@@ -571,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10002.jpg" />
 </div>
 
 
@@ -597,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9018.jpg" />
 </div>
 
 
@@ -624,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8843.jpg" />
 </div>
 
 
@@ -650,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8117.jpg" />
 </div>
 
 
@@ -676,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7781.jpg" />
 </div>
 
 
@@ -687,6 +526,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8807933EE4E07AC812C8361207FF7C83D3DD1AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812825   (7563) от 16.08.2025
+
+ДМК Пресс (изд.) | DeepSeek в действии (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7563.jpg" />
+</div>
+
+
+###  Подробнее
+
+DeepSeek – это генеративная модель ИИ с открытым исходным кодом, основанная на архитектуре Transformer и объединяющая передовые технологии, такие как архитектура MoE, обучение с переменной разрядностью и распределенная оптимизация. Она демонстрирует хорошие результаты в области генерации текста, мультимодальной обработки и адаптации под конкретные задачи при удивительно (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: В. ЯценковИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12D2184D1B8017E6AC71A86697FF87648734551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812991   (7365) от 17.08.2025
+
+Кодекс Нейронов | Что такое Deepseek и как его использовать? (2025) [PDF, EPUB]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7365.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эпоху цифровых технологий Интернет стал не просто источником информации , а сложной, многослойной экосистемой, полной скрытых возможностей и вызовов. Книга "Что такое Deepseek и как его использовать" предлагает читателям уникальное руководство по освоению этого бескрайнего пространства. С помощью передовых инструментов, таких как Deepseek, вы научитесь (   Читать дальше...   )Жанр: учебное пособие, искусственные нейронные сетиИздательство: ЛитресФормат: PDF, EPUBКачество: Обработанный скан, Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B5992596F794373696C3C0BC557F28D34D2DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813095   (7343) от 17.08.2025
+
+Н. Дхамани, М. Энглер | Генеративный искусственный интеллект. Как ИИ меняет нашу жизнь и работу (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга погружает в мир современных технологий. Авторы подробно объясняют принципы работы больших языковых моделей, демонстрируя не только их потенциал, но и ограничения. Они уделяют внимание вопросам интеграции ИИ в повседневные процессы, показывая необходимость баланса между инновациями и ответственностью.
+Читатели узнают о влиянии ИИ на общество, право и политику, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F75180E9C8B69F3CF1008243AA9921D8FFCA07C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813110   (7150) от 18.08.2025
+
+Р.В. Душкин | Генеративный искусственный интеллект (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга погружает в мир генеративного искусственного интеллекта, объясняя его основы, архитектуры и роль больших моделей. Читатель узнает, как технологии трансформируют бизнес и общество, и какие возможности откроются в ближайшие годы. Доступный язык и практические примеры делают сложные концепции понятными даже новичкам.
+Издание адресовано всем, кто стремится (   Читать дальше...   )Жанр: компьютерная литература, искусственные нейронные сетиИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F72A45A484DBBD865D8FA8A886E66F87F37840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813515   (6989) от 19.08.2025
+
+Рик Мессье | Изучаем Kali Linux [2 книги] (2024 - 2025) [PDF] [Второе издание] [RU, EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив Kali Linux, включающий сотни встроенных утилит, позволяет быстро приступить к тестированию безопасности. Однако наличие такого количества инструментов в арсенале Kali Linux может ошеломить. Во втором издании описываются обновленные возможности утилит и подробно рассматриваются цифровая криминалистика и реверс-инжиниринг. Автор не ограничивается рамками (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: С. ЧерниковЯзык: Русский, английскийИздательство: O’Reilly Media; Спринт БукФормат: PDFКачество: Обработанный скан, Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A393B3FBCC1041A43C5FEDE2E07AB202E3E8C33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813802   (6695) от 21.08.2025
+
+Вячеслав Ткачев | 250 скриптов на языке Python (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга предназначена как для пользователей, изучающих Python, так и использующих его для решения практических задач. Python позволяет применять его для решения проблем на основе проверенных и легко читаемых скриптов. Особенности Python дают возможность использовать его как на Linux, так и на Windows. Цель настоящей книги дать пользователю проверенные на практике (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Издательский дом "BookBox"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B12F5BA2F48C7655FDFC389D2D7132641583EB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

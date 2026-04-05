@@ -1,3 +1,116 @@
+###  Публикация: 1520281   (143688) от 27.12.2021
+
+Дивплан: Дивидендный калькулятор и календарь. v1.80 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дивплан - это удобное приложение для расчета и прогноза выплат дивидендов от ваших инвестиций в ценные бумаги: акции и облигации. Просто соберите инвестиционный портфель вашей мечты и изучайте доход от него.
+🖥 Спрогнозируйте свой календарный план выплат дивидендов
+
+📈 Более 40 000 акций, ETF и облигаций, доступных для просчета(   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 24 декабря 2021 г.Разработчик: Invest Trade Apps: Stocks, Bonds, ETFs, dividendsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD825644766EFA149EB0C017985FB9CC54E8735D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520363   (143507) от 27.12.2021
+
+GoneMAD Music Player v3.2.9 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный проигрыватель GoneMAD предоставляет множество функций и опций для персонализированного прослушивания. Настройте практически все, чтобы вы могли слушать музыку так, как вам хочется.Тип издания: Пиратка (Premium)Релиз состоялся: 29 октября 2021 г.Разработчик: GoneMAD Software LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E1461F96F52AB87E1BF89FBE7514E36ABE6075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520155   (143270) от 27.12.2021
+
+SuperLingo: учи английский, китайский язык и более v1.4.6 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Superlingo, ведущее в мире приложение для изучения языков, было создано командой с более чем 20-летним опытом преподавания. На основе эксклюзивного алгоритма искусственного интеллекта вас ждут хорошо разработанные курсы английского и китайского языков!
+
+Лучшие подходы к изучению языков интегрированы в 1 супер-приложение!
+Наша программа разработана с использованием (   Читать дальше...   )Тип издания: Пиратка (Plus)Релиз состоялся: 20 декабря 2021 г.Разработчик: Learn Language - Super ChineseПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C533F255DAB4264D9AE5A99FF76C1366FE0EEDA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431544   (143174) от 27.12.2021
+
+Santa 3D Live Wallpaper 1.4.1 Premium [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живые обои на тему рождественских праздников. Спокойная интерактивная трехмерная сцена для персонализации фона рабочего стола на мобильном устройстве. 🎅
+
+С участием:
+Санта-Клаус и его верный олень Рудольф несут сани с рождественскими подарками. Путешествие по миру по красивым лесным пейзажам, заснеженным горам под успокаивающим лунным светом. Дважды нажмите, (   Читать дальше...   )Тип издания: Mod (Premium)Релиз состоялся: 30 ноября 2021 г.Разработчик: BratanovПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F018F9B638E3ED73BE6062D79A6E85670354229F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678839   (141841) от 23.11.2023
 
 FilmoraGo - Free Video Editor 13.1.52(13152) Mod by Balatan [Ru/Multi]
@@ -6,7 +119,7 @@ FilmoraGo - Free Video Editor 13.1.52(13152) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141841.jpg" />
 </div>
 
 
@@ -32,7 +145,7 @@ My Alarm Clock Pro / Мой Будильник Про v2.8 [Ru/Multi] - Мног
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141742.jpg" />
 </div>
 
 
@@ -58,7 +171,7 @@ Lingvist: эффективное изучение языков v2.75.9 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141679.jpg" />
 </div>
 
 
@@ -84,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141675.jpg" />
 </div>
 
 
@@ -110,7 +223,7 @@ aCalendar+ Calendar & Tasks v2.5.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140421.jpg" />
 </div>
 
 
@@ -136,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140227.jpg" />
 </div>
 
 
@@ -163,7 +276,7 @@ Genius Scan+ - PDF сканер v6.1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140196.jpg" />
 </div>
 
 
@@ -191,7 +304,7 @@ Fabulous v3.65 Premium [En] - Motivate Me! Relax, Meditate, Sleep
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139238.jpg" />
 </div>
 
 
@@ -218,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139147.jpg" />
 </div>
 
 
@@ -246,7 +359,7 @@ Caustic 3 v3.2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139142.jpg" />
 </div>
 
 
@@ -272,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138647.jpg" />
 </div>
 
 
@@ -299,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138459.jpg" />
 </div>
 
 
@@ -328,7 +441,7 @@ Coach Guitar v1.1.6 Premium [Ru] - Играть на гитаре, Songs, Tab, C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138447.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ Wi-Fi Mouse Pro v4.3.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138303.jpg" />
 </div>
 
 
@@ -380,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138177.jpg" />
 </div>
 
 
@@ -406,7 +519,7 @@ PixelLab Pro - Text on pictures 2.1.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138072.jpg" />
 </div>
 
 
@@ -432,7 +545,7 @@ Flud+ 1.10.5 Mod by Derrin [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137898.jpg" />
 </div>
 
 
@@ -458,7 +571,7 @@ PaperColor v2.5.4 Mod by bahguo [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137377.jpg" />
 </div>
 
 
@@ -484,7 +597,7 @@ eWeather HD - weather app v8.7.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137111.jpg" />
 </div>
 
 
@@ -511,7 +624,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136968.jpg" />
 </div>
 
 
@@ -537,7 +650,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136967.jpg" />
 </div>
 
 
@@ -563,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136966.jpg" />
 </div>
 
 
@@ -574,110 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E59170ED96FECB6A53C886D86D23425FD83BAB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679709   (135264) от 26.11.2023
-
-Node Video - Pro Video Editor 6.9.1 Mod by PieMods [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Node Video - один из самых мощных видеоредакторов для мобильных устройств. Используя множество революционных функций, вы можете создавать невероятные эффекты, которые вы даже не могли себе вообразить! Профессиональный видеоредактор Node Video - это аналог Adobe After Effects, с богатыми возможностями для композитинга, покраски материала, Motion-дизайна.Тип издания: ProРелиз состоялся: 22.11.2023Разработчик: Shallway StudioПоддерживаемая ОС: Android 7.0+ (Только для ARM64)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BF6362CBFAD6C2157AED95FACE99801BEA8CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679771   (135231) от 26.11.2023
-
-Seal 1.11.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный загрузчик видео, поддерживающий огромное количество сайтов, работающих с youtube-dlp.Тип издания: FreeРелиз состоялся: 18.11.2023Разработчик: JunkFood02Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E0AE14F5B62FF0D0DDD106B8C1A0B399DF652BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679675   (135141) от 26.11.2023
-
-AI Translate Voice Translator (Talkao) v388.0 Mod by srajawwal09 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Talkao Translate - голосовой переводчик. Talkao Translate — Voice Translator может переводить голос и текст. вы также можете использовать систему распознавания голоса и слушать свой перевод. Механизм перевода Talkao предлагает варианты слов и проверку орфографии, англо-испанский словарь и многое другое. Вы можете переводить с помощью нового помощника AI. Языковой (   Читать дальше...   )Тип издания: Mod /ProРелиз состоялся: 24.11.2023Разработчик: Talkao - Talk & TranslateПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13D6D3A54414F7C02E06FEE86ED961F248F944A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679683   (135042) от 26.11.2023
-
-VPN Russia - VPN сервера в России 1.184 Mod by FreeApkexe [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и бесплатный Vpn Russia позволяет в один клик получить российский IP или разблокировать доступ к закрытым сайтам и приложениям. Безопасное и анонимное подключение к открытым WIFI сетям обеспечивает технология подключения VPN с ключом 2048 бит.Тип издания: ProРазработчик: Local networksПоддерживаемая ОС: Android 4.4 и вышеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17633C64698926E2E099C0D860FF82C7A57A79DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

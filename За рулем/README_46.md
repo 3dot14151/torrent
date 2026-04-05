@@ -1,3 +1,29 @@
+###  Публикация: 1750406   (43102) от 19.09.2024
+
+Гранд тур / The Grand Tour (2024) WEB-DL [H.264/1080p] (сезон 6, серии 1-1 из 1) AlexFilm
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43102.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Великобритания / Amazon StudiosЖанр: ток-шоуРежиссер: Фил Чурчуорд, Кит Линч Робинсон, Гэвин УайтхедУчастники: Джереми Кларксон, Ричард Хаммонд, Джеймс МэйПеревод: Многоголосый профессиональный (AlexFilm)Язык озвучки: Русский, АнглийскийСубтитры: Aнглийские (Forced, Full, SDH)Продолжительность: 02:10:07Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAD50DA5926FF753B6E27F0692F7DC287737AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750342   (43072) от 19.09.2024
 
 Гранд тур / The Grand Tour (2024) WEB-DL [H.265/2160p] (сезон 6, серии 1-1 из 1) AlexFilm
@@ -6,7 +32,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43072.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42676.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39066.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38487.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33477.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30532.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29799.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ BBC: Топ Гир. Худший автомобиль во всемирной и
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25645.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ BBC: Топ Гир. Худший автомобиль во всемирной и
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25641.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20166.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19452.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16230.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16074.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15361.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14621.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13887.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11706.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8780.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7503.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7437.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6273.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6266.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5235.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5125.jpg" />
 </div>
 
 
@@ -675,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4930.jpg" />
 </div>
 
 
@@ -689,32 +715,6 @@ BMW вклинился с прилегающей в поток и повреди
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4B9A598652A034C844CD6A4D3EB9299548D752B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816746   (4165) от 06.09.2025
-
-Главная дорога (06.09.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4165.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Главная дорога» отмечает день рождения! 20 лет в эфире — это 792 оригинальных выпуска и 14 дней непрерывного просмотра! Но примерно за месяц зритель может стать экспертом по правилам дорожного движения, устройству, выбору и даже ремонту автомобилей. В юбилейном выпуске программы Андрей Федорцов и Денис Юченков рассказали, как проводятся испытания и создаются сюжеты. (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF99C56334C40200319594BE80687379C13B34E
 ```
 
 https://mybot314.ru/tekegram_catalog/

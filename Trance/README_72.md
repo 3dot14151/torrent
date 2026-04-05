@@ -1,3 +1,61 @@
+###  Публикация: 1817798   (2906) от 13.09.2025
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 13 (2025) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vybrotek - Sanctuary (Original Mix) [4:10]
+02. North Skies - Existential (Extended Mix) [5:24]
+03. LÜRUM & Adip Kiyoi - Starring To The Sky (Original Mix) [3:30]
+04. Solewaas - Opal (Joe Meils Radio Edit) [3:12](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107B4051EA14E3BC78775CFB0776210D439EEA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818594   (2314) от 17.09.2025
+
+VA - In Search of Sunrise 21 Mix 3: Nocturnal Voyage (Mixed by Markus Schulz) (2025) [MP3|320 Kbps] <Trance, Progressive, Melodic House & Techno>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Dakota - Only The Dark Knows (Mixed) 05:25
+02. Weska - Yeah (Mixed) 03:41
+03. Markus Schulz & Dakota - What The Night Gave Me (Mixed) 05:54
+04. Ango Tamarin - No Escape (Mixed) 04:25(   Читать дальше...   )Жанр: Trance, Progressive, Melodic House & TechnoПродолжительность: 02:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D377B7BEDF14A994A3280DEFE2A3F2F7E7427656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818873   (2009) от 19.09.2025
 
 VA - Best of Vocal Trance 2025 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -6,7 +64,7 @@ VA - Best of Vocal Trance 2025 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2009.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - 25 Years Of Anjuna Mixed by Elevven (2025) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1423.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Uplifting Only Top 15: September 2025 (Extended Mixes) (2025) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1280.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - A State of Trance - Classics Top 10, Vol. 8 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_966.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Trancendence, Vol. 04 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_779.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 3 (2025) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_252.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Talla 2XLC pres. Trance Forever (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17.jpg" />
 </div>
 
 

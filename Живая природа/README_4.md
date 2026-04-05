@@ -1,3 +1,29 @@
+###  Публикация: 1472126   (1006981) от 12.07.2021
+
+Живой пляж / The Living Beach (2015) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откуда берутся волны и почему они всегда параллельны берегу, независимо от того, в какую сторону берег? Сериал выделяет самые уникальные и удивительные пляжи в мире и показывает, как физика, природа и наши собственные взаимодействия способствуют созданию и развитию этих береговых линий.Производство: Канада, Arcadia Wild INC., Blue Ant MediaЖанр: Документальный, природа, флора, фаунаРежиссер: Мэтт Трекартин, Джош Макдональд, Джеффри УитонПеревод: Двуголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 6x ~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D803B388743BF88F7BAB7FA12D29FF9BAD39B216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483289   (1006886) от 13.07.2021
 
 Радужный мир природы Коста-Рики / The Wildlife of Costa Rica (2018) WEB-DL [H.264/2160p]
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006886.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006630.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006494.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004720.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002956.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002934.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002813.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002673.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ BBC. Водопой: Африканский Оазис для Животных /
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002030.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ BBC. Звери в Миниатюре / Super Small Animals (2017) WEB-DL [H.264
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001749.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ BBC. Тигры: Охота на браконьеров / Tigers: Hunting the Tr
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001437.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ BBC. Мир Природы. Миниатюрные Чудеса / Nature's Minia
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001415.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001147.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999347.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ BBC: Мир природы. Последний Гризли Райской До�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998315.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991802.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987954.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985341.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983361.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982115.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980400.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978294.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977563.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976087.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975382.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:604EE49782736E9B723301411DA9A1485538BBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357435   (974281) от 03.02.2020
-
-ТерраМатер: Тасмания - удивительная и прекрасная / Terra Mater: Tasmanien - Eine Insel steht kopf (2017) IPTVRip [H.264] (сезон 1, эпизод 251)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тасмания - это остров, населенный странными и удивительными представителями дикой природы. В 150 милях к югу от материковой Австралии, этот остров - последняя остановка перед замороженными пустошами Антарктиды. Тем не менее, со снежными горами, умеренными тропическими лесами, нетронутыми песчаными пляжами и ледниковыми озерами, Тасманию можно назвать поистине уникальным (   Читать дальше...   )Производство: Terra Mater Factual StudiosЖанр: Документальный, Природа, ФаунаРежиссер: Мэтт ХэмилтонПеревод: Одноголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F3CD1A43506933B58366BF3C34160B179AF56C
 ```
 
 https://mybot314.ru/tekegram_catalog/

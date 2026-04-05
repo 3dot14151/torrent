@@ -1,3 +1,119 @@
+###  Публикация: 1037163   (615282) от 23.07.2016
+
+VA - Blank & Jones Present: So80s (Soeighties) 10 (2016) [FLAC|Lossless|tracks+.cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pet Shop Boys - Love Comes Quickly (Shep Pettibone Mastermix) (7:39)
+02. Laura Branigan - Self Control (Extended Version) (5:05)
+03. Information Society - What's On Your Mind (Pure Energy) (Club Mix) (7:56)
+04. New Order - Blue Monday (Original 12'' Version) (7:30)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC8C05DA862F11A345E955DE838AC0DF0B618C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296144   (615234) от 15.04.2019
+
+VA - Miami Deep House Essentials 2019 (Deluxe Version) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autosky - Synthva (Original Mix) 7:43
+02. Wicker In The Wind - Fantasy Grove (Original Mix) 5:57
+03. High One - Everyday (Original Mix) 4:26
+04. Shaw Quentin - Ivory (Original Mix) 6:53(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 04:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755C5B205003C2E912EE242B8DB0AFE8E0E95540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295932   (615149) от 15.04.2019
+
+VA - Made In Germany Vol. 1: A German Synthwave Compilation (2017) [MP3|320 Kbps] <Synthwave, Retrowave>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha Boy - Intro (0:27)
+02. LeveL -1 - Wasteland Motor Race (3:54)
+03. Street Hawk - Dreamrunner (6:18)
+04. Superflight - Outline (3:03)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A8FB4FAA8982706AE994D01286F82771B05036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296030   (615143) от 15.04.2019
+
+VA - 35 Spring Top Hits 2019 For Fitness & Workout (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kate Project - Immortal Flame (Fitness Version) 5:23
+02. DJ Space'c - Secrets (Fitness Version) 4:48
+03. Hellen - Close To Me (Fitness Version) 4:27
+04. Kate Project - Sunday Morning (Fitness Version) 4:36(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36713C3EBD8612C164635DB9FA432C0E83800E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524270   (615096) от 17.07.2012
 
 DJ JIM - Sirena Mix (2012) [MP3|320 кб/с] <Electro House, House>
@@ -6,7 +122,7 @@ DJ JIM - Sirena Mix (2012) [MP3|320 кб/с] <Electro House, House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615096.jpg" />
 </div>
 
 
@@ -41,7 +157,7 @@ Moby - Long Ambients Two (2019) Little Idiot [FLAC|Lossless|WEB-DL|tracks] <Ambi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614932.jpg" />
 </div>
 
 
@@ -70,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614768.jpg" />
 </div>
 
 
@@ -99,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614690.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ VA - Black Hole Trance Music 04-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614688.jpg" />
 </div>
 
 
@@ -157,7 +273,7 @@ Pitch Black - Filtered Senses (2016) [FLAC|Lossless|tracks + .cue] <Techno, Dub,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614656.jpg" />
 </div>
 
 
@@ -186,7 +302,7 @@ VA - Summer Love (2017) [MP3|320 Kbps] <Minimal, Tech House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614554.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ Crywolf - Dysphoria (2015) [MP3|320 кб/с]<Chillstep, Electronic>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614402.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ Colombo - Beat Blender (2015) [MP3|320 кб/с]<Electronic, Breakbeat, Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614230.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ VA - Trancemaster vol.01-7006 (1992-2012) [MP3|320 кб/с]<Trance, Electronic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614182.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614060.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ Entheogenic - Kykeon (2018) Universal Symbiosis [FLAC|Lossless|WEB-DL|tracks] <P
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614058.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613864.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ DeFilm - 2 Albums (1985, 1987) [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613785.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ VA - Practikally Forbidden Vol. 1 (Mixed by Nathan Revely & Ashley Bradbury) (20
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613574.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ VA - Illuminate (2012-07-17) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613511.jpg" />
 </div>
 
 
@@ -482,7 +598,7 @@ Innersync - The Gate To The Shire (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Tr
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613445.jpg" />
 </div>
 
 
@@ -511,7 +627,7 @@ Gesaffelstein - Hyperion (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Downtempo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613366.jpg" />
 </div>
 
 
@@ -540,7 +656,7 @@ VA - Aurosonic - Best Of Trance (The Radio Edits) (2019) [FLAC|Lossless|tracks] 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613365.jpg" />
 </div>
 
 
@@ -569,7 +685,7 @@ DJ Antoine - Provocateur (Limited Edition) 2CD (2016)[FLAC|Lossless|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613349.jpg" />
 </div>
 
 
@@ -598,7 +714,7 @@ VA - Vocal Trance Legends Vol.2 (2019) [FLAC|Lossless|tracks] <Trance, Vocal Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613314.jpg" />
 </div>
 
 
@@ -627,7 +743,7 @@ VA - Kiez Beats: Synthwave, Vol. 2 (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613310.jpg" />
 </div>
 
 
@@ -641,122 +757,6 @@ VA - Kiez Beats: Synthwave, Vol. 2 (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9123DAEE2938914D8C6B9B9003382F7379433AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544920   (613167) от 20.04.2022
-
-Death Loves Veronica - Lucid Dreams (2020) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Came Here for You (00:04:38)
-02 - Stay (00:03:36)
-03 - Alone (00:03:37)
-04 - Blood King (00:02:37)(   Читать дальше...   )Жанр: Darkwave, Gothic, IndustrialПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807EFAB68C60E81232D004D49435F0E568E844D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146799   (613075) от 30.06.2017
-
-VA - Sunrise Mood Vol.7 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Diventa Project - The Sun Goes Down (Original Mix)  3:37
-02.  Van - Carnaval (Original Mix)  5:36
-03.  Lazy Hammock - We Want Peace (Original Mix)  4:31
-04.  Lemongrass - Deep River (Original Mix)  6:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A550FCFB24BB26BAC507CAC0DC5C4CACD51858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146906   (613073) от 30.06.2017
-
-VA - Dont Worry Be Sexy Vol.2: 20 Deep-House Flavors (2017) [MP3|320 Kbps] <Funky, Club House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark From London - Midsummer Nights - Original Mix
-02. Vivid Sun - Vivid Sun - Alexis Cyprus Mix
-03. Yovann Blue - Feel so High - Original Mix
-04. Patrik Ford - Oklahoma - Original Mix(   Читать дальше...   )Жанр: Funky, Club House, Deep HouseПродолжительность: 01:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17C12C524DAC2BCC6CA5C5204A4506A9BE33AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146946   (613071) от 30.06.2017
-
-VA - We Love Deep-House B*tches Vol.4 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viktor Astoria - This Is 4 You - Original Mix
-02. Patrik Ford - Oklahoma - Original Mix
-03. Alfred Greytto - April - Sound of Deep Mix
-04. Yovann Blue - Feel so High - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88ED3E7DEF18C8055CCB89ECAB40BBE3A96F8755
 ```
 
 https://mybot314.ru/tekegram_catalog/

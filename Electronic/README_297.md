@@ -1,3 +1,119 @@
+###  Публикация: 1245779   (469974) от 07.09.2018
+
+VA - Aurosonic - Best Of Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic & Ana Criado - Ask Me Anything (Extended Mix)
+02. Aurosonic, Kate Louise Smith & Denis Karpinskiy - They Wait For Us (Progressive Mix)
+03. Aurosonic & Katty Heath - My Good Place (Progressive Mix)
+04. Aurosonic - Starfall (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E79C9C07C437A322A935BCEA94F24E6973A6BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245825   (469962) от 07.09.2018
+
+Paul van Dyk - My World (In The Mix) (2002) [FLAC|Lossless|image + .cue] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk - Autumn
+02. David Forbes - Questions Must Be Asked
+03. Paul van Dyk - Tell Me Why (The Riddle)
+04. Paul van Dyk - Another Way(   Читать дальше...   )Жанр: TranceПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89EA9256A2F9912F3AFE586CF8673461E86AB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245690   (469892) от 07.09.2018
+
+Yotto - Hyperfall (2018) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyperfall (2:55)
+ 02. The One You Left Behind (5:29)
+ 03. Kantsu (4:59)
+ 04. Nada C (3:02)(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep HouseПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2F95A7BB5B1CE4E4A299289A9730930AAE45CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161022   (469813) от 27.08.2017
+
+Eschaton - Carina (2017) EP [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Patterns (06:33)
+ 02. Sky Portraits (07:07)
+ 03. Carina (05:57)
+ 04. Dreaming Colours (06:51)Жанр: Drum & BassПродолжительность: 00:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03687491877162B727B8F91CD5B25D0FCC592F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548455   (469652) от 17.09.2012
 
 Utah Jazz - Vintage (2010) [MP3|320 кб/с]<Drum & Bass / Liquid Funk>
@@ -6,7 +122,7 @@ Utah Jazz - Vintage (2010) [MP3|320 кб/с]<Drum & Bass / Liquid Funk>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469652.jpg" />
 </div>
 
 
@@ -32,7 +148,7 @@ Moebius - Moebius (1979) LP [MP3|320 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469118.jpg" />
 </div>
 
 
@@ -61,7 +177,7 @@ Emika - Emika (2011) [FLAC|Lossless]<Trip-Hop, Electronic, Abstract, Dubstep>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469023.jpg" />
 </div>
 
 
@@ -96,7 +212,7 @@ Kaskade - Automatic (2015) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468970.jpg" />
 </div>
 
 
@@ -125,7 +241,7 @@ Govinda - Дискография 7 альбомов (2001-2012) [MP3|320 кб/с
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468857.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Lustmord - Dark Matter (2016) Touch [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468841.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ VA - Ibiza 2016 Closing Party (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468828.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Robin Schulz - Sugar (2015) [MP3|320 кб/с]<Vocal House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468668.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ KMRU - Peel (2020) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experim
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468611.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ VA - Robot Says Y (2020) What Robot Says [FLAC|Lossless|tracks|Vinyl] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468602.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ CiM - Series Two (Reissue) (2020) Delsin [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, 
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468478.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ VA - Hello Strange Story Series #1-#8 (2016-2020) hello▼strange [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468271.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ Ingrained Instincts - Invent the Future (2020) Sangoma Records [FLAC|Lossless|tr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468260.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Balancé (Balance, NOYA Project) - Discography 19 Releases (2014-2020) [FLAC|Los
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468061.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Ten And Tracer - Companion (2004) U-Cover [FLAC|Lossless|tracks+.cue] <IDM, Down
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467881.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ VA - The Journal Of Organic Music (2018) ...txt [FLAC|Lossless|WEB-DL|tracks] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467779.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ VA - Ori Uplift & Chris Blaylock - Uplifting Only 237 (2017) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467591.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ VA - The Journal Of Organic Music (2018) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467533.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Daniel Skyver - Live @ Anomaly 3.0, Tunnel Club Birmingham, United Kingdom 2019-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467268.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Robin Schulz - SUGAR (2015) [FLAC|Lossless|WEB-DL]<Dance, House, Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466730.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Dead Fader - Opacity (2019) Tesuji [FLAC|Lossless|tracks|Vinyl] <Acid, IDM, Elec
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466727.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Jean - Michel Jarre & Armin van Buuren - Stardust (2015) Single [FLAC|WEB-DL]<El
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466556.jpg" />
 </div>
 
 
@@ -623,122 +739,6 @@ Jean - Michel Jarre & Armin van Buuren - Stardust (2015) Single [FLAC|WEB-DL]<El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCDDC6BFB370AFB8A8314F1039BD0B16C6037345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407396   (466545) от 07.09.2020
-
-VA - Afternoon Chillout Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Angel of the Sky (03:49)
-02. Michael Е - It's Like Floating (04:44)
-03. Gary B - It Feels Like Summer (03:54)
-04. Patiotic - Timeless (04:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3501C2ECDB2A661F5BC6A23984912A36E691632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407391   (466540) от 07.09.2020
-
-Monolith - Unnatural Bodies (2020) Soundofmonolith [FLAC|Lossless|WEB-DL|tracks] <Industrial, IDM, Techno, Rhythmic Noise>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bullet Proof (04:08)
- 02. Stop The World (04:34)
- 03. No Shade In The Shadow (05:00)
- 04. Unnatural Bodies (05:05)(   Читать дальше...   )Жанр: Industrial, IDM, Techno, Rhythmic NoiseПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085E3E5331228E22A8FBC6C68B3DD09F69E8C635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058852   (466437) от 02.10.2016
-
-VA - Oh my God,... It's Electro House volume 2 (mixed by Sebastian Gnewkow) (2008) [FLAC|Lossless|image + .cue] <Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brush & Wagner - Call The Preacher (Marino Da Ragnio Calls Back Remix) (6:08)
-02. Dario Nunez & David Vio Feat. Stella - Feel The Fire (Shik Stylko Remix) (4:41)
-03. Sheldon Romero Feat. Betty Brooklyn - Dirty Things (Gnewkow & Norm Remix) (6:30)
-04. DJ Chus & Peter Gelderblom - Join Ur Handz (Roman Salzger Remix) (5:00)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0A960F985F6BCE8886746208C04703EA849A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058737   (466434) от 02.10.2016
-
-VA - Ibiza Closing Parties (2016) [MP3|320 Kbps] <Club, Funky, Tech House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boogeyman - All Music To Me (Original Mix) 08:31
-02. Dr. Beat - What's That Feeling Called Again (Original Mix) 08:09
-03. Jaques Le Noir - Wait For You (Original Mix) 05:18
-04. Dimitri Bruev & Xavi Navarro - Esmeralda (K-Style Remix) 06:52(   Читать дальше...   )Жанр: Club, Funky, Tech House, ProgressiveПродолжительность: 03:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D949A785F53BD213133D1AD4FBF2CFDFAD7B93
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1197466   (814862) от 07.01.2018
+
+Зови меня своим именем / Call Me by Your Name (2017) WEB-DLRip [H.264] [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814862.jpg" />
+</div>
+
+
+###  Подробнее
+
+1983 год, Италия. 17-летний Элио на лето отправляется жить на родительскую виллу. Парень любит читать, и всё вокруг кажется ему интересным. Лето течёт безмятежно, герой купается в море, флиртует с подружкой и транскрибирует классическую музыку... Экранизация романа Андре Акимана.Производство: Италия, Франция, Бразилия, США / Frenesy Film Company, La Cinefacture, Lombardia Film Commission, M.Y.R.A. EntertainmentЖанр: Драма, мелодрама, экранизацияРежиссер: Лука ГуаданьиноАктеры: Арми Хаммер, Тимоти Шаламе, Майкл Стулбарг, Амира Казар, Эстер Гаррель, Виктуар Ду Бойс, Ванда Каприоло, Елена БуччиПеревод: Любительский одноголосый (Анатолий Ашмарин)Субтитры: Русские, итальянские, французские, португальские, английскиеПродолжительность: 02:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05009997EC39A915417273B6C1E2DCFC1320774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197425   (814861) от 07.01.2018
 
 AAct Network v1.0.1 Portable by Ratiborus [Ru/En]
@@ -6,7 +32,7 @@ AAct Network v1.0.1 Portable by Ratiborus [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814861.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ KMS Tools Portable 07.01.2018 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814852.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ TNod User & Password Finder 1.6.4.0 Final + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814850.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814816.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814721.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Autodesk AutoCAD Architecture 2017 HF1 x86-x64 RUS-ENG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814697.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ SAMOLIOTIK (2016) [Ru/En] (1.0) Rip Unleashed
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814694.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814692.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814688.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814687.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814419.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Geekbrains | Системное администрирование. Введен
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814305.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813053.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Arma 3/III (2013) [Ru/En] (1.56.134627/upd42/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812790.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Graviteam Tactics: Mius-Front (2016) [Ru/En] (6.0.3598/4) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812788.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812547.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812537.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Naruto Shippuuden / Наруто: Ураганные хроники [2007 - 2017
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812536.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812515.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812428.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy 10.2021 2DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811515.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Udemy, Дмитрий . | Основы программирования на Jav
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811513.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Windows 10 (60in2) Sergei Strelec x86/x64 2004 (build 19041.264) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811129.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ LEGO Star Wars 3: The Clone Wars [Ru] (RePack) 2011 | R.G.Repacker`s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810944.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810933.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9017BB62F8D0C9B9873F0B5ED0F9423E021D99F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008949   (810925) от 20.04.2016
-
-Pinnacle Studio Ultimate 19.5.0 + Bonus Content [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоредактор Pinnacle Studio 19 Ultimate очень популярен среди пользователей, которые занимаются созданием и редактированием видеоконтента. Представляем обновленную версию этой программы от мирового лидера в сфере профессиональных видео- и аудиотехнологий - компании Corel. Скорость просчета в новой версии возросла до 10-ти раз благодаря обновленному «движку» и поддержке (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCE2859F4DF2F6DE71DFC10EB74BCB4945185C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

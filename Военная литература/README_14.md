@@ -1,139 +1,3 @@
-###  Публикация: 1012586   (793635) от 01.05.2016
-
-Владимир Бойко | Подводная лодка «Камбала» (2016) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена памяти погибшим морякам подводной лодки «Камбала», вошедшей в Черноморский Подплав в первом десятилетии ХХ века, ставшей первой русской подводной лодкой погибшей со всей командой.
-Книга является уникальной по насыщенности сведениями из истории становления однотипных подводных лодок «Камбала», «Карась» и «Карп».
-Автор – Владимир Бойко, профессиональный (   Читать дальше...   )Жанр: Биографии и Мемуары, Военная документалистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC129F32C87E115263A02EE76FFCC44A5FECF15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123041   (793301) от 06.04.2017
-
-Хэнсон У. Болдуин | Сражения выигранные и проигранные. Новый взгляд на крупные военные кампании Второй мировой войны (2002) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793301.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Хэнсон Болдуин был в годы Второй мировой войны военным редактором газеты «Нью – Йорк таймс», сам участвовал в сражениях и собрал о них большой фактический материал. В книге рассказывается о малоизвестных русскому читателю сражениях за Крит, Коррехидор, Тараву, в заливе Лейте, а также о битвах за Сталинград и высадке союзников в Нормандии.Жанр: История войнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551A478B0CBFFBEFA0EC93777D74499EDF36692F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122488   (793142) от 06.04.2017
-
-В.Ю. Исаев, А.П. Захаров | Военная техника. Полная энциклопедия (2017) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Военная техника» позволит проследить всю историю развития техники для войны. Эта книга будет полезна всем, кто интересуется наукой, техникой и военной историей. Краткие, но информативные и доступные тексты авторов книги – специалистов по военной истории и технике – делают материал легким для восприятия. Богатый иллюстративный материал, подробные схемы различных (   Читать дальше...   )Жанр: Энциклопедия военной техникиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC9FF77F975A703C2C2D79CA81A8D09B10E5181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387171   (792478) от 31.05.2020
-
-Лев Федоров | Микроубийцы из пробирок. Щит или меч против Запада (2018) [EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биологическое оружие пытались применять еще в древнем Риме, когда при осаде городов за крепостные стены перебрасывались трупы умерших от чумы, чтобы вызвать эпидемию среди защитников. Аналогичным образом поступали в средневековой Европе.
-В середине 1920-х, впервые в мире, группа советских бактериологов приступила к созданию биологического оружия. Поздним летом 1942 (   Читать дальше...   )Жанр: Военное дело, Спецслужбы, Популярно об историиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3BFE41496AA08AF3BF4381216C98C38F1E2E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121017   (792404) от 07.04.2017
-
-Д. Гусев и др. | От Сталинграда до Вены. Боевой путь Н-ской гвардейской армии (1945) [JPG]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слава народам Великой, Малой и Белой России, победившим всех!!
-Редкая книга. Уникальное издание! Создано сразу по окончании войны.
-Часть страниц - ручной работы!
-Текст повествования снабжён огромным количеством красочных и графических портретов и рисунков, фотографий, схем. Крупноформатные художественные авторские развороты-коллажи. Большие портреты героев армии (   Читать дальше...   )Жанр: Великая Отечественная война, Военная литература, История, Военное дело, Биографии и мемуарыФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6738C2D6AC5FCC6737F2B781B36A6E866691BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 320174   (791881) от 15.11.2021
 
 Оскар Райле | Секретные операции абвера. Тайная война немецкой разведки на Востоке и Западе. 1921-1945 [2010] [PDF]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791881.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791034.jpg" />
 </div>
 
 
@@ -194,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790619.jpg" />
 </div>
 
 
@@ -220,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789919.jpg" />
 </div>
 
 
@@ -246,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789197.jpg" />
 </div>
 
 
@@ -273,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788143.jpg" />
 </div>
 
 
@@ -301,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787014.jpg" />
 </div>
 
 
@@ -327,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786692.jpg" />
 </div>
 
 
@@ -353,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786519.jpg" />
 </div>
 
 
@@ -380,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785324.jpg" />
 </div>
 
 
@@ -406,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784972.jpg" />
 </div>
 
 
@@ -432,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784510.jpg" />
 </div>
 
 
@@ -458,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784506.jpg" />
 </div>
 
 
@@ -484,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784494.jpg" />
 </div>
 
 
@@ -510,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783655.jpg" />
 </div>
 
 
@@ -537,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783342.jpg" />
 </div>
 
 
@@ -563,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779375.jpg" />
 </div>
 
 
@@ -590,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778700.jpg" />
 </div>
 
 
@@ -616,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777952.jpg" />
 </div>
 
 
@@ -644,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776939.jpg" />
 </div>
 
 
@@ -672,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776856.jpg" />
 </div>
 
 
@@ -683,6 +547,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B7DF27536D32CB372033409AA3A623CF15D0F75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277769   (775004) от 22.01.2019
+
+Эрнесто Че Гевара | Боливийский дневник (1967) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эрнесто Че Гевара. Самая харизматическая фигура национально-освободительного движения Латинской Америки, лидер, которого считают своим и коммунисты, и анархисты, и социал-демократы, и социалисты… «Сегодня мне исполнилось тридцать девять…» Книга даже не культового — легендарного статуса. Последний дневник «команданте Че», обнаруженный в его рюкзаке во время ареста (   Читать дальше...   )Жанр: политическая, историческая, документальнаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2C6F4A87F95C0B31D7649D633F5F066C0BAAC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277940   (774861) от 22.01.2019
+
+Сунь-Цзы | Искусство побеждать (2014) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774861.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Искусство побеждать» Сунь-Цзы, великого китайского мыслителя и военачальника VI века до н.э., является в мировой культуре наиболее актуальным и проработанным руководством по стратегии ведения боевых действий в любых сферах применения силового метода при решении противоречий.Жанр: историческая, военная, учебнаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4B65ED0E7FC05ABE03FF15291FDBBF4A1A7094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277949   (774155) от 23.01.2019
+
+Субкоманданте Маркос | Четвертая мировая война (2005) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертая мировая война — это война, которую ведет мировой неолиберализм с каждой страной, каждым народом, каждым человеком. И эта та война, на которой передовой отряд — в тылу врага: Сапатистская Армия Национального Освобождения, юго-восток Мексики, штат Чьяпас. На этой войне главное оружие — это не ружья и пушки, но борьба с болезнями и голодом, организация самоуправляющихся (   Читать дальше...   )Жанр: политическая, документальнаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A96F018B73FE9705FC193DFB8E532A7D4888193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124986   (773315) от 13.04.2017
+
+Илья Кассанелли | Современное огнестрельное оружие (2013) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773315.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: В книге собраны интересные сведения из истории оружия ХХ—ХХІ вв. Приведены данные о классических и новейших моделях пистолетов, автоматов, винтовок, ружей, специального стрелкового оружия, а также боеприпасах к ним. Каждая статья сопровождается описанием технических характеристик и наглядными иллюстрациями.Жанр: Военное дело. ОружиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF6C1460ECD36146340B5701BE93684510A226B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124980   (773056) от 13.04.2017
+
+В.Н. Шунков | Полная энциклопедия современного вооружения России (2017) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773056.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Настоящее издание представляет собой полную энциклопедию вооружения России. В книге содержится исчерпывающая информация об оружии пехоты, ракетно-артиллерийском вооружении, автомобильной, бронетанковой и авиационной технике, стратегических ракетных комплексах наземного базирования, а также перспективном оружии Российской армии, которое находится еще (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A769F5D4696213115A2C49906F877F6E8088FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

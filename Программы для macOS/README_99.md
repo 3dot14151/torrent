@@ -1,3 +1,56 @@
+###  Публикация: 1169650   (402353) от 28.09.2017
+
+uBar 4.0.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402353.jpg" />
+</div>
+
+
+###  Подробнее
+
+uBar — это полнофункциональная замена стандартному Доку в OS X. Внешний вид, работа приложения и его возможности сильно приближены к таковым из Windows. При первом запуске программы необходимо разрешить ей доступ к меню настроек “Конфиденциальность” в параметрах Защиты и безопасности. После этого нужно перезапустить само приложение. Теперь обратите внимание на самый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2017Разработчик: Brawer SoftwareПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8761D1C017071B9A8ADA6650A18F6C3461679FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169628   (402292) от 28.09.2017
+
+WinZip 6.0.35.47 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402292.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinZip — мощный архиватор, который поможет легко и удобно сжимать и шифровать любые файлы, экономя место на диске и оптимизируя почтовые вложения. Архивация файлов не только позволяет уменьшить занимаемое файлами пространство, но и позволит отправлять архивы с комплектами документов по e-mail.
+WinZip предоставляет пользователям лучшие характеристики и функции WinZip (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2017Разработчик: Corel CorporationПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4914E720440C2153BA07C102DE7946AC55610D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169933   (401505) от 29.09.2017
 
 App Cleaner Pro 4.2 [En]
@@ -6,7 +59,7 @@ App Cleaner Pro 4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401505.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ Trim Enabler Pro 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401465.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ OmniPlan Pro 3.7.3 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401423.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ Passport Photo 1.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401329.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ iRamDisk 3.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400606.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ TokenLock 4.72.9124 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400596.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ Audio Record Pro 3.4.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400451.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ CrossOver 16.2.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400317.jpg" />
 </div>
 
 
@@ -224,7 +277,7 @@ PhotoStack for Instagram 3.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399411.jpg" />
 </div>
 
 
@@ -253,7 +306,7 @@ DxO OpticsPro Elite 11.4.3 (build 71) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399361.jpg" />
 </div>
 
 
@@ -279,7 +332,7 @@ Mail Act-On 4.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398688.jpg" />
 </div>
 
 
@@ -305,7 +358,7 @@ Virus Scanner Plus 3.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398633.jpg" />
 </div>
 
 
@@ -331,7 +384,7 @@ QuartzCode 1.58.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397766.jpg" />
 </div>
 
 
@@ -357,7 +410,7 @@ Flux 7.1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397612.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ AirStreamer - for Apple TV 1.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396615.jpg" />
 </div>
 
 
@@ -412,7 +465,7 @@ TripMode 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395700.jpg" />
 </div>
 
 
@@ -440,7 +493,7 @@ Duplicates Expert 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394847.jpg" />
 </div>
 
 
@@ -467,7 +520,7 @@ H265 Converter Pro 3.1.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394667.jpg" />
 </div>
 
 
@@ -493,7 +546,7 @@ QuartzCode 1.59.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394158.jpg" />
 </div>
 
 
@@ -519,7 +572,7 @@ Download Buddy 1.8.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394093.jpg" />
 </div>
 
 
@@ -545,7 +598,7 @@ Records - Database & Organizer 1.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394046.jpg" />
 </div>
 
 
@@ -571,7 +624,7 @@ MP4tools 3.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393945.jpg" />
 </div>
 
 
@@ -600,7 +653,7 @@ MKVtools 3.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393929.jpg" />
 </div>
 
 
@@ -628,7 +681,7 @@ Boris RED 5.1.5.1161 x64
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_393439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_393439.jpg" />
 </div>
 
 
@@ -639,59 +692,6 @@ Boris RED 5 является интегрированным приложение
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172513   (393040) от 08.10.2017
-
-AVITools 3.6.6 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393040.jpg" />
-</div>
-
-
-###  Подробнее
-
-AVItools является частью набора приложений VIDEOtoolbox, используемых для создания и редактирования AVI видео. AVItools в первую очередь предназначена для обработки видео файлов для использования в DVD-плеерах с поддержкой DivX, хотя AVI видео, которые она создает также могут воспроизводиться на оборудовании, как PS3 и Xbox 360. AVItools представляет собой графический (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2017Разработчик: EmmGunnПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522A3E2B279CF3D27570C6979C5654BD8990AA7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172771   (391957) от 09.10.2017
-
-Priime Styles 1.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Применить профессиональные пресеты, созданные и используемые лучшими в мире современными фотографами.
-Priime обладает более чем 100 фотографическими стилям (также известные как предварительные настройки или фильтры), которые создаются в сотрудничестве с ведущими фотографами мира в форме их фотографических стилей. Работает, не требуя каких-либо других программ, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09 сентября 2017Разработчик: Priime, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11109F67A1C41C6F623E4F162FEF0A6DB0A9ADB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

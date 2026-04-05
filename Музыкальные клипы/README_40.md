@@ -6,7 +6,7 @@ HeeJin (ARTMS) - Algorithm (2023) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7434.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ STAYC - I Want It (On the Spot) (2025) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7433.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Laibach feat Bijelo Dugme - Die Kanone (2025) WEB-DL [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6282.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Gorillaz - The Happy Dictator ft. Sparks (2025) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2184.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Gorillaz - The God of Lying ft. Joe Talbot (Studio Recreation) (2025) WEB-DL  [H
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2152.jpg" />
 </div>
 
 

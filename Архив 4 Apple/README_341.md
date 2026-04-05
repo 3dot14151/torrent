@@ -6,7 +6,7 @@ Soulver 2.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529691.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mac Blu-ray Player Pro 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529674.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Pantone Color Manager 2.1.0 (730) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529611.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VOX 2.5.4 (2540.63)  [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529509.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Disk Drill Entreprise 3.3.845 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529467.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ CleanMyMac 3.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529415.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ IP Scanner Pro 3.50 (3.50.6) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529283.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Tweetbot for Twitter 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529279.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ A Better Finder Attributes 6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529256.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ CloudMounter 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529247.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VueScan Pro 9.5.57 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528984.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Valentina Studio Pro 12.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528940.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Integrity Pro 12.3.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528939.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Text Workflow 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528935.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Graphic Inspector 2 v2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528867.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ EagleFiler 1.9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528866.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ SpamSieve 2.9.49 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528865.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Photo Image Editor Pixelstyle 3.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528857.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Micro Snitch 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528849.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Movavi Picverse Photo Editor 1.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528796.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VMware Fusion Pro 8.5.0 (4352717) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528787.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ ON1 Photo RAW 2022.5 v16.5.1.12465 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528746.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Wondershare Filmora Х 11.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528657.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Adobe Audition 2022 v22.5.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528650.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Be Focused Pro - Focus Timer 1.7.3 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528608.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Sync Folders Pro 3.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528569.jpg" />
 </div>
 
 

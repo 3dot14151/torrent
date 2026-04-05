@@ -6,7 +6,7 @@ Wondershare PDFelement Pro OCR 8.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738138.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Keka 1.2.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738136.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TechSmith Snagit 2022.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738133.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SketchUp Pro 2022 v22.0.315 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738010.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Apple Logic Pro X 10.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737861.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ftp-Serv 7.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737846.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Vellum 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737842.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ MarkMyWords 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737841.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Exposure X7 v7.1.1.159  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737840.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Checksum Thing 0.9.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737832.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Menuwhere 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737831.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Glyphs 3 v3.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737824.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Exposure X7 Bundle v7.1.0.89 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737817.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Exposure Software Blow Up 3 v3.1.4.399 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737814.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Downie 4 v4.4.6 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737809.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CleanMyMac X 4.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737677.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Wondershare UniConverter 12.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737595.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ System Toolkit 5.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737414.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ NetWorker Pro 8.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737413.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ BusyContacts 1.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737412.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Screen Wonders 2.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737409.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Disk PLUS 1.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737402.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Mirror for Philips TV 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737401.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Ftp-Serv 8.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737398.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ SILKYPIX Developer Studio Pro 11E 11.0.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737397.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Exposure X7 v7.1.1.162  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737396.jpg" />
 </div>
 
 

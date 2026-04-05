@@ -1,3 +1,107 @@
+###  Публикация: 1023030   (727595) от 03.06.2016
+
+«Моделист-Конструктор» | Морская Коллекция №4 (199) (2016) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специализированный журнал для любителей истории флота и судомоделистов. Это серия тематических выпусков о флотах и кораблях всего мира и всех времен, энциклопедические справочники о флотах разных стран в разные исторические периоды. Это подробные «биографии» военных кораблей, знаменитых парусников с чертежами и схемами, редкими фотографиями и архивными материалами. (   Читать дальше...   )Жанр: История военного флотаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11EF01A64FCCE070E470225D9423B65F5E14CCE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128563   (727562) от 25.04.2017
+
+Журнал | Добрые советы. Цветы в доме №5 (май 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727562.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Добрые советы. Цветы в доме» — ежемесячный интерактивный журнал для всех, кто увлекается комнатными растениями, любит ухаживать за ними и создавать в своем доме оазисы живой природы. Основная часть журнала — письма читателей, в которых они делятся своим опытом по выращиванию цветов, защите их от болезней и вредителей, обустройству балкона, террасы и зимнего сада, (   Читать дальше...   )Жанр: ЦветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A183C14824987984BC046B2F02B14ADC223FD26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128579   (727556) от 25.04.2017
+
+Журнал | Мир садовода. Спецвыпуск №3 (41) (май 2017) [DJVU]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание для тех, кто хочет вырастить прекрасный сад и получать богатый урожай овощей и фруктов! Каждые 2 недели на страницах издания читатели получают много разнообразной, интересной и полезной информации, которую готовят известные специалисты – доктора и кандидаты сельскохозяйственных и биологических наук, агрономы, ведущие журналисты по садоводческой и огороднической (   Читать дальше...   )Жанр: Дача, сад, цветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84FBEE8FEFA2AE2AF152CF71B6906A4824F15660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284489   (727537) от 22.02.2019
+
+Журнал | UPgrade №2 (827) (февраль 2019) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727537.jpg" />
+</div>
+
+
+###  Подробнее
+
+UPgrade – журнал о компьютерах и компьютерных технологиях, который стал первопроходцем на рынке массовых изданий о высоких технологиях. Cегодня издание – признанный лидер в своем медиасегменте. UPgrade – первое издание для широкого круга читателей, которых интересует не только сам по себе апгрейд компьютера, но и все, что так или иначе связано с миром IT.Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606A13073907AC07E2F7E3A7C202E1CF621AC4B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128455   (727438) от 25.04.2017
 
 Журнал | Эксперт №17 (1027) (апрель 2017) [PDF]
@@ -6,7 +110,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727438.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727354.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727315.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727208.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727086.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727007.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726994.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726993.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726992.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726700.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726676.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726638.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726621.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726565.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726559.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726556.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726551.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726527.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726517.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726508.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726457.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726431.jpg" />
 </div>
 
 
@@ -566,113 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CD05D067BFE6F9E508EED21851028D1DF0BF349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023135   (726428) от 04.06.2016
-
-Журнал | Рынок электротехники №2 (42) (2 квартал 2016) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал представляет собой уникальное сочетание специализированного журнала, освещающего вопросы электротехнического рынка, и отраслевого справочника, включающего в себя информацию о компаниях, действующих на этом рынке, их описание и контактную информацию. В настоящее время «Рынок Электротехники» — единственное отраслевое издание подобного формата. На страницах журнала (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FCCA0FB82F0E45978797B46BC4D5FE564A85FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128827   (726373) от 26.04.2017
-
-Журнал | Делаем сами №8 (апрель 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Делаем сами» - полезные советы домашним мастерам и мастерицам - тем, кто шьет и вяжет, строит и ремонтирует, придумывает и творит. Для тех, кто любит делать красивые и полезные вещи своими руками, создает уют в доме. Схемы, чертежи и описания самоделок, другая полезная информация.Жанр: домоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9E7C874D2233D387D5CC65B72A91BE5039C85A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128885   (726364) от 26.04.2017
-
-Журнал | Elektronika Dla Wszystkich №1 (январь 2017) [PDF] [Pl]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Elektronika dla Wszystkich" ("Электроника для всех") - журнал для радиолюбителей и профессионалов на польском языке. Содержит большое количество практических конструкций, справочных данных по электронным компонентам, описание и методы создания простых радиоэлектронных устройств, приведены схемы и разводки печатных плат.Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3057A1F6DE69548B51A93FD55279793013FB668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789716   (726309) от 25.05.2014
-
-Подшивка журналов | Вопросы экономики (2009-2014) [DJVU, PDF, DOCX]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий в России теоретический и научно-практический журнал общеэкономического содержания.
-На страницах журнала:
-* экономическая теория;
-* профессиональный анализ хода экономических преобразований в России;(   Читать дальше...   )Формат: DJVU, PDF, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3521953BC462F769D7BDAC3765865CB812DCBAF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

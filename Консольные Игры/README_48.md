@@ -6,7 +6,7 @@ Resident Evil 6 (2012) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru] | R.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328140.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Far Cry 4 [Region Free] [Eng] [LT+3.0] (XGD3 / 16537) (2014) [XBox360]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327086.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Bionic Commando (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326388.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kororinpa [WII] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324144.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Game of Thrones: A Telltale Games Series - Episodes 1-6 (2014) [Xbox360] [Region
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323529.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Minecraft Story Mode: A Telltale Games Series - Episodes 1 & Season Pass (2015) 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323235.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Unit 13 (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322988.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Surf's Up / Лови волну! (2007) [PS3] [EUR] 1.80 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322604.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Disney Tangled [Wii] [NTSC2PAL] [Multi 3] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322475.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Cuphead (2019) [Switch] [USA] 8.1.0 [NSP] [License / 1.2.4] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322463.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Monster Hunter Tri [Wii] [NTSC] [ENG/ESP] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321680.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Unreal Tournament 3 (2007) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru] | R.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321094.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Tales From The Borderlands: Episodes 1-5 (2014) [PS3] [USA] 3.55 [Cobra ODE / E3
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320899.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ TrueAncestor Backup Retailer 2.30 (2017) [PS3] [En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320814.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ HITMAN 3 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.13 / DLC] [Deluxe Edition]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320242.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ BDSM: Big Drunk Satanic Massacre (2019) [Switch] [USA] 8.1.0 [NSP] [License / 1.
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320146.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Pikmin 3 Deluxe (2020) [Switch] [USA] 10.2.0  [NSZ] [License] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319305.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Rodea the Sky Soldier (Tenkuu no Kishi Rodea) (2015) [Wii] [PAL] [Multi]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318699.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Rodea the Sky Soldier (Tenkuu no Kishi Rodea) (2015) [Wii] [NTSC-U] [Multi]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318694.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ LEGO The Lord of the Rings (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318447.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ TEKKEN 7 (2017) [PS4] [EUR] 5.05 [HEN] [License / 5.01 / DLC] [Ru/Multi] [Ultima
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318172.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Resident Evil / Biohazard HD REMASTER (2014) [PS3] [JPN] 4.65 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318112.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Samba de Amigo [Wii] [PAL] [Eng/De] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317832.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Lego Indiana Jones: The Original Adventures [Wii] [PAL] [Multi 6] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317597.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Dead Rising [xbox 360] [pal] [eng] (2006)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317218.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Killzone: Shadow Fall / Killzone: В плену сумрака (2013) [PS4] [EUR
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317175.jpg" />
 </div>
 
 

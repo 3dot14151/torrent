@@ -1,3 +1,29 @@
+###  Публикация: 1381533   (801364) от 21.05.2020
+
+Илья Афанасьев | ФотоВидеоМастерство (2020) WEBRip (лекций 12 из 108)
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс ФотоВидеоМастерство поможет Вам обрести все необходимые атрибуты успешного современного фотографа и фильммейкераЖанр: Обучающее видео. Фотосъёмка и видеосъёмкаПродолжительность: 09:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E7034A6600C4BE267DEED347828976074ED1F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383826   (801350) от 21.05.2020
 
 Кучина Анастасия | Эффектная и быстрая обработка с экшенами (2020) PCRec [H.264/1080-LQ]
@@ -6,7 +32,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801350.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801349.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801347.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Greyscalegorilla, Nik V | Topology Crash Course (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800827.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Particular Software, Udi Dahan | Advanced Distributed Systems Design (2021) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800825.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Stan Prokopenko | How To Draw Gesture (En) (2013) WEB-DL [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800823.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800762.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800732.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Master Draw, Денис Крупчатников | Курс скетчинга �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800731.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Master Draw, Денис Крупчатников | Конструктивный 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800726.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800723.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Pixel, Таня Климань | Персонажи в Adobe Illustrator (2020) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800681.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ Cloudlessons, Инна Гревцева | Основы коммерческой 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800680.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ Polygon Runway, Roman Klco | 3D персонажи и иллюстрации в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800668.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ PhLearn | Photoshop Basics: The Complete Collection (2017) PCRec [H.264/720p-LQ]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800052.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ Skillbox, Pic-o-matic, Денис Бобкин и др. | Книжная илл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799756.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799464.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799305.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ Cold Steel Inc | The Fighting Tomahawk [Часть1] (2012) DVD5 [En]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799156.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798714.jpg" />
 </div>
 
 
@@ -550,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798678.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798630.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Yanetskaya, Светлана Янецкая | Ми-ми-мишная иллюс�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798603.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798543.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ Yanetskaya, Светлана Янецкая | Цифровая книжная и
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798540.jpg" />
 </div>
 
 
@@ -673,35 +699,6 @@ Yanetskaya, Светлана Янецкая | Цифровая книжная и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4D9A9B7781A34357F728BF16088EC06CA807F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507073   (798528) от 03.11.2021
-
-Udemy, Алексей Кириченко (Alexey Kirichenko) | Персонажная иллюстрация в программе Adobe Photoshop (2017) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс покажет Вам изнанку работы цифрового художника-иллюстратора и поможет сделать первые шаги в захватывающий мир рисования на компьютере!
-
-На примере коммерческого персонажа автор просто и ясно покажет каждый этап создания иллюстрации от идеи до «финальных штрихов».
-(   Читать дальше...   )Производство: UdemyЖанр: Создание видеоПродолжительность: 08:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8437642969AAE82E726F0CB96EF36A8462A578FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

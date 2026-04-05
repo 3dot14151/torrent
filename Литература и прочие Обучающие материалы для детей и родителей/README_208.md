@@ -1,3 +1,60 @@
+###  Публикация: 1147329   (609615) от 02.07.2017
+
+Людмила Уланова | Про маму и вишневые косточки (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семилетняя Лёлька — обычная девочка, с которой происходит столько всего интересного! Она запросто беседует с огуречным слоником, летает над лужайкой, учит русалку играть в прятки. И ненароком выясняет, что папа — чемпион мира по учёбе.
+
+А ещё Лёлька готова всем посочувствовать и помочь. Ей жалко и пожилую Мальвину, и легкомысленную принцессу Ветрянку. Она даже способна (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22D04834CEED8EC8AD0DFEEBA31F282C4B18251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147327   (609600) от 02.07.2017
+
+Валентин Постников | Верхом на портфеле (2011) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто не знает Карандаша и Самоделкина? Придумал их известный детский писатель Юрий Дружков. Его сын Валентин Постников тоже стал писателем.
+
+Он автор «Весёлого двоечника».
+(   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C296A40363668D9EE58F7167384FEFCE94644800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147337   (609499) от 02.07.2017
 
 Константин Паустовский | Подарок (1983) [DJVU]
@@ -6,7 +63,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609499.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609450.jpg" />
 </div>
 
 
@@ -60,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609449.jpg" />
 </div>
 
 
@@ -86,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609443.jpg" />
 </div>
 
 
@@ -113,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609367.jpg" />
 </div>
 
 
@@ -139,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609335.jpg" />
 </div>
 
 
@@ -166,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609326.jpg" />
 </div>
 
 
@@ -192,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609321.jpg" />
 </div>
 
 
@@ -221,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609320.jpg" />
 </div>
 
 
@@ -247,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609269.jpg" />
 </div>
 
 
@@ -273,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609130.jpg" />
 </div>
 
 
@@ -299,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609021.jpg" />
 </div>
 
 
@@ -325,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609016.jpg" />
 </div>
 
 
@@ -352,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608824.jpg" />
 </div>
 
 
@@ -381,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608818.jpg" />
 </div>
 
 
@@ -409,7 +466,7 @@ Amberley Hefferton | Little Critters from Polymer Clay/ 15 маленьких с
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608794.jpg" />
 </div>
 
 
@@ -437,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608766.jpg" />
 </div>
 
 
@@ -463,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608642.jpg" />
 </div>
 
 
@@ -490,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608611.jpg" />
 </div>
 
 
@@ -516,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608606.jpg" />
 </div>
 
 
@@ -542,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608591.jpg" />
 </div>
 
 
@@ -568,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608530.jpg" />
 </div>
 
 
@@ -594,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608482.jpg" />
 </div>
 
 
@@ -620,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608475.jpg" />
 </div>
 
 
@@ -633,59 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93EC870EF2E657AFDBEF185E759BED80972D4909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296876   (608401) от 19.04.2019
-
-Е.В. Лукашева, Н.И. Чистякова | ЕГЭ 2019 Физика. Типовые тестовые задания. 32 варианта (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторский коллектив - члены федеральной предметной комиссии ЕГЭ по физике.
-Типовые тестовые задания по физике содержат 32 варианта комплектов заданий, составленных с учетом всех особенностей и требований Единого государственного экзамена в 2019 году. Назначение пособия - предоставить читателям информацию о структуре и содержании контрольных измерительных материалов (   Читать дальше...   )Жанр: Учебно-методические пособия, ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A385629209669DB2D99985D57DEBB691A5F127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 354551   (608251) от 24.06.2011
-
-Джозеф Редьярд Киплинг | Собрание сочинений [1998, 2005-2009] [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джозеф Редьярд Киплинг (1865 — 1936) - английский писатель, поэт и новеллист, подаривший детям всего мира истории о Маугли и Рики-Тики-Тави. Джозеф Редьярд Киплинг - первый англичанин, удостоенный Нобелевской премии в области литературы (1907 год). В том же году его заслуги отметили наградами университеты Парижа, Страсбурга, Афин и Торонто, а Оксфордский, Кембриджский, (   Читать дальше...   )Жанр: Проза, природа и животные, сказкиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA8C5F449AE569B619433E3B93A07627C8F75B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

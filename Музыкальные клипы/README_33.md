@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158448.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157545.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Top Of The Pops 70s (vol.2) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157346.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Top Of The Pops 70s (vol.1) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157289.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ IVE – «Off The Record» (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157090.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ ABBA - The Winner Takes It All (1980) WEB-DL [H.264/720p] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156220.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Зимний марафон № 213: Новогодний Хит Драйв
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155824.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ George Michael & Wham! - Last Christmas (2019) WEB-DL [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155074.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153164.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152776.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Зимний марафон № 214: Дискотека Уходящего 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152540.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Top Of The Pops 70s (vol.3) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152049.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149098.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ JO - Soapte (2015) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148699.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Зимний марафон № 215: Новогоднее Веселье (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148345.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147959.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147953.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Rammstein - Mein Herz Brennt  (2012) WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147922.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) (2013) BDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145936.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143520.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Ice Nine Kills - Music Videos 9X (2015-2019) WEB-DL [H.264/VP9/720p/1080p/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143253.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142579.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ tyDi feat. Christina Novelli - Fire & Load (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140438.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139921.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Suicide Silence - Videoclips 20X (2007-2019) WEB-DL [VP9/2160p, H.264/1080p, 720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139841.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Lindsey Stirling - What Child is This (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139775.jpg" />
 </div>
 
 

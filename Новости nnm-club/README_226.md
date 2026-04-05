@@ -1,3 +1,57 @@
+###  Публикация: 1628745   (254827) от 24.04.2023
+
+Kaspersky Free 21.13.5.506 Repack by LcHNextGen (24.04.2023) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Free – бесплатный Антивирус Касперского с облачными технологиями Kaspersky Security Network. Решение предлагает файловый антивирус, веб-антивирус, защиту от сетевых атак и мониторинг активностиЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1664524C38452B26392BE538096FF55B6332FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625194   (254822) от 24.04.2023
+
+karpov.courses, Дмитрий Безуглый и др. | Курс фронтенд-разработчика. Frontend уровня топовых компаний (2023) WEB-DL [RU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы получите все знания и навыки, которые нужны сейчас сильному специалисту для работы в крупных проектах с крутой командой. Мы готовим сильных специалистов для крупных международных компаний, где делают сложные продукты в команде крутых специалистов.
+
+Обычный frontend-разработчик решает типовые задачи, но если копнуть глубже, сразу теряется. Нехватка фундаментальных (   Читать дальше...   )Производство: karpov.coursesЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 81:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA557BE2AB83E89D4D085538593E3D2D0C47EEF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628737   (254798) от 25.04.2023
 
 В Госдуме предложили разрешить тонировать боковые стекла машин
@@ -6,7 +60,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254798.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254771.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Winamp 5.9.2 Build 10042 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254760.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254757.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2021 by Eagle123 (04.2023) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254702.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254695.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254669.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254633.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254630.jpg" />
 </div>
 
 
@@ -241,7 +295,7 @@ Snappy Driver Installer Origin R753 | Драйверпаки 23.00.0 / 23.05.1 [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254596.jpg" />
 </div>
 
 
@@ -267,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254594.jpg" />
 </div>
 
 
@@ -293,7 +347,7 @@ PerfectHairHealth, Rob English  | Облысение. Стандартизиро
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254563.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254517.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254496.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ Windows 10 22H2 Professional [19045.2846] x64 Mod 6 (05.05.2023) by bulygin-dima
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254438.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254435.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254415.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ F-Secure Freedome VPN 2.64.767.0 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254397.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254395.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254394.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254391.jpg" />
 </div>
 
 
@@ -556,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254390.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254168.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ QuickTime Pro 7.7.2 [Multi/Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253569.jpg" />
 </div>
 
 
@@ -617,59 +671,6 @@ QuickTime Pro 7.7.2 [Multi/Русский]
 QuickTime - это отмеченное заслугами программное обеспечение Apple для воспроизведения цифрового мультимедиа на вашем компе. QuickTime дает вам возможность услаждаться широким выбором мультимедиа: видео, графикой, музыкой, звуком, спрайтами, панорамами виртуальной реальности, анимацией и контентом из веба.  QuickTime – также является основой для многих других программ, которые могут использовать его, как основу для работы с мультимедийной информацией. В основном это продукты самой фирмы Apple – iMovie, iTunes, QuickTime Player. Также QuickTime встраивается как плагин в современные браузеры, для воспроизведения медиа контента, встроенного в веб страницы и не использующего, для воспроизведения технологию Flash. Очень эффективный кодек H.264, встроенный в QuickTime Player позволяет сверхплотно сжимать видеосигнал и получать файлы малого размера без потери качества. Это позволяет передавать живые и насыщенные краски и увеличивать изображение в 4 раза, которое остается таким же четким и контрастным. В QuickTime 7 Player – был улучшен режим полноэкранного режима, позволяя избавится от рамок изображения и в полной мере использовать возможности современных широкоэкранных мониторов.
 
 (   Читать дальше...   )Название программы: QuickTime ProЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110502   (253062) от 11.11.2025
-
-Стиляги (2008) DVD9
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэлс — примерный комсомолец, всегда готовый шагать в ногу, осуждать и усмирять несогласных. Он живет как все и думает, что счастлив. Пока однажды не сталкивается с миром стиляг — непонятным, опасным и манящим. Здесь носят одежду сногсшибательных расцветок. Танцуют под неположенную музыку. В этом мире самые красивые девушки! И среди них — королева тусовки: ослепительная, (   Читать дальше...   )Производство: Россия, Канал Россия, Красная стрела, Министерство культуры Российской Федерации, 	Planeta Inform,	Рекун-синемаЖанр: мюзикл, драма, мелодрама, комедияРежиссер: Валерий ТодоровскийАктеры: Оксана Акиньшина, Антон Шагин, Сергей Гармаш, Алексей Горбунов, Евгения Хиривская, София Лебедева, Максим Матвеев, Мария Мина, Олег Пангсепп, Максим Пешков, Олег Янковский, Леонид Ярмольник, Ирина РозановаСубтитры: отсутствуютПродолжительность: 02:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413A83CBE58A952777E041FDD0BAAF4A7B65F48B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496234   (253023) от 14.05.2012
-
-Сделанные российским спутником уникальные снимки Земли восхитили весь мир
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253023.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-Российский метеорологический спутник «Электро-Л» получил самые четкие из существующих на данный момент снимки Земли, которые привели в восторг западных журналистов и экспертов и не имеют аналогов в мире.Анимированную версию красивейших снимков голубой планеты опубликовал сайт Научного центра оперативного мониторинга Земли.Это великолепный портрет Земли с разрешением в 121 мегапиксель (самое высокое разрешение, с которым когда-либо фотографировали нашу планету), сделанный одним-единственным «фото-выстрелом», пишет The Huffington Post.И в этом заключается одна из уникальностей снимков. Дело в том, что обычно для получения изображения полного диска нашей планеты склеивается несколько изображений (так, в частности, действуют специалисты NASA), однако нашему спутнику не просто удалось получить такую картинку «одним щелчком затвора»: «Электро-Л» фотографирует полный диск Земли каждые 30 минут.Во-вторых, фотографии представляют собой сочетание видимого и ближнего инфракрасного диапазонов, поэтому Земля на них выглядит (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

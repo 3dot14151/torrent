@@ -1,3 +1,135 @@
+###  Публикация: 1852172   (1056133) от 09.02.2026
+
+Китайцы против кризиса памяти: CXMT представила модуль DDR5 на 32 ГБ всего за 140 долларов — это вызвало панику на рынке
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока Samsung и Micron гонятся за сверхприбылями и не спешат увеличивать производство DDR5, китайцы думают о простых пользователях
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 92599   (1056069) от 09.02.2026
+
+Терминатор / The Terminator: Трилогия (1,2,3) 1984-2003 [HD-DVD/BDRemux 1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056069.jpg" />
+</div>
+
+
+###  Подробнее
+
+После ужасной атомной войны, власть на Земле захватили роботы-убийцы. Они несут смерть и полное уничтожение всему живому. Остатки сумевших выжить людей прячутся в подземельях и ведут отчаянную борьбу за выживание. Благодаря своему талантливому лидеру Джону Коннору они приближаются к победе, но чтобы разрушить планы сопротивления, роботы отправляют в прошлое чудовищного (   Читать дальше...   )Час пробил. Скайнет, захвативший власть над планетой дважды посылал в прошлое киборгов-терминаторов, чтобы уничтожить Сару и Джона Конноров, ключевых фигур в борьбе людей и восставших роботов. Обе попытки провалились. На этот раз осечки быть не должно - в наши дни на охоту за выжившим Джоном прибывает киберубийца нового поколения - снабженная неотразимой внешностью (   Читать дальше...   )Жанр: Боевик, Фантастика, триллер, приключенияРежиссер: Джонатан МостоуАктеры: Арнольд Шварценеггер, Ник Сталь, Клер Дэйнс, Кристанна Локен, Дэвид Эндрюс, Марк Фамиглетти, Эрл Боэн, Мойра Харрис, Чоппер Бернет, Кристофер ЛоуфордПеревод: Профессиональный (полное дублирование)Язык субтитров: Русские, английскиеФормат: TSПродолжительность: 01:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE770D55E3F9C0EDCF47DDEAC0959EE8594CEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852068   (1055673) от 11.02.2026
+
+Windows 10 Pro 22H2 19045.6812 x64 by SanLex [Lightweight] [Ru-En] (2026.02.05) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинальном образе Windows_10_Pro_edition_22h2_x64 для оптимального и комфортного пользования. Цель проекта — улучшить скорость реагирования, производительность и конфиденциальность Windows. Идеально подходит для повседневного домашнего пользования, игр, графического дизайна и работы тяжёлого характера.
+Удалены, отключены или заблокированы (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A93B42FF3ED8B1533505422B15420E82D4F08F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851837   (1055476) от 05.02.2026
+
+В Минпросвещения  предложили блокировать сайты с готовыми домашними заданиями и ответами на тесты ЕГЭ и ОГЭ
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минпросвещения предложило блокировать сайты с готовыми решениями заданий ЕГЭ, олимпиад и учебников, чтобы снизить списывание. Мера очевидно паллиативная, так как существует масса способов получить желаемое через VPN и торрент-трекеры.Само собой, с учетом развития нейросетей и свободного доступа к ответам большинства школьных задач, любые экзамены должны быть очными (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851690   (1055335) от 04.02.2026
+
+Внедрение ИИ назвали главным сдвигом в браузерах со времен появления вкладок
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome, Microsoft Edge, Opera и «Яндекс Браузер» вошли в аналитический отчет «Ландшафт ИИ-браузеров 2025», опубликованный AIPort.Международное сообщество проанализировало, как искусственный интеллект трансформирует один из самых привычных цифровых инструментов — веб-браузер.Аналитики отмечают, что за последние 15–20 лет браузеры эволюционировали от простых (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851430   (1055296) от 03.02.2026
 
 Запустилась соцсеть Moltbook, где общаются только ИИ-агенты - нам разрешили только смотреть
@@ -6,7 +138,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055296.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055095.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054899.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054725.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054579.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053563.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053360.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ Zapret GUI 1.60 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053264.jpg" />
 </div>
 
 
@@ -217,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053021.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052627.jpg" />
 </div>
 
 
@@ -270,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052597.jpg" />
 </div>
 
 
@@ -297,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051367.jpg" />
 </div>
 
 
@@ -323,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050138.jpg" />
 </div>
 
 
@@ -349,7 +481,7 @@ ID для каждого пользователя хотят ввести в р�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049801.jpg" />
 </div>
 
 
@@ -375,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049761.jpg" />
 </div>
 
 
@@ -402,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049630.jpg" />
 </div>
 
 
@@ -429,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049070.jpg" />
 </div>
 
 
@@ -455,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1048950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1048950.jpg" />
 </div>
 
 
@@ -481,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1048845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1048845.jpg" />
 </div>
 
 
@@ -507,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1048742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1048742.jpg" />
 </div>
 
 
@@ -534,144 +666,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1048582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1048582.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Миниатюрный имплант с 65 тысячами электродов превращает кору мозга в высокоскоростной «порт» для компьютеров и ИИ и уже в ближайшем будущем каждый сможет подключаться к сети со скоростью 100 Мбит/с.Учёные разработали сверхбыстрый «порт» для мозга — нейроинтерфейс BISC. Тончайший чип ставится прямо на коре и позволяет мозгу передавать данные компьютеру через обычный (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841757   (1048471) от 14.12.2025
-
-Россияне массово переходят на домашний интернет — 500 000 новых подключений за 3 месяца
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1048471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает компания «ТМТ Консалтинг», в России рекордными темпами растет число абонентов, использующих домашний интернет. Так, за 3 месяца число подключений увеличилось на 500 000 — такого не было с 2010 года.На конец ноября в стране насчитывалось почти 38,5 миллиона домохозяйств, подключенных к домашнему интернету. При этом стоит учитывать, что семья из нескольких (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841938   (1048341) от 14.12.2025
-
-Очередное достижение: 9000 релизов от Аlехаndr
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное  достижение: 9000 релизов от АlехаndrУважаемые одноклубники!Дорогие друзья! Мы отмечаем очередное, важное достижение Пользователя. Накануне наш Одноклубник, известный релизёр разного контента, и по совместительству Модератор Сериалов - совершил новый рывок, сделав ещё 1000 отличных релизов! Преодолев рубеж  в 9000 раздач - он не останавливается, и уверенно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841754   (1048331) от 14.12.2025
-
-Почему нам нужно забыть про 5G в России. Разбираемся в вопросе
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заголовок статьи провокационный, но в ближайшие годы 5G у нас можно не ждать. Сети пятого поколения в России можно назвать многострадальными во всех смыслах. По всей стране раскиданы опытные зоны 5G, и вы даже можете к ним подключиться, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840629   (1047721) от 09.12.2025
-
-Немецкий государственный «троян»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полиции разрешили тайно проникать в квартиры и устанавливать шпионское программное обеспечение на гаджеты
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840296   (1047345) от 06.12.2025
-
-Банановые документы
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047345.jpg" />
-</div>
-
-
-###  Подробнее
-
-ИИ Nano Banana Pro способен генерировать поддельные документы, включая квитанции, формы KYC и даже изображения паспортов, выяснили пользователи. Модель ИИ выводит результаты с гиперреалистичным почерком или макетами документов всего по одному запросу.Возможность создать официальные документы значительно увеличивает риск мошенничества и манипуляции с личными данными. (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

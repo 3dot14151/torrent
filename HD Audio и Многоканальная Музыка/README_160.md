@@ -1,32 +1,3 @@
-###  Публикация: 1753332   (103828) от 05.10.2024
-
-Mastodon - Crack the Skye (2009) 15th Anniversary Deluxe Edition, 2024, Reprise [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Groove Metal, Progressive metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oblivion (5:45)
-02. Divinations (3:40)
-03. Quintessence (5:27)
-04. The Czar: Usurper / Escape / Martyr / Spiral (10:54)(   Читать дальше...   )Жанр: Groove Metal, Progressive metalПродолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DC2D71511E865B64ABD78CDF4453976CEE3752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753497   (103823) от 05.10.2024
 
 Twisted Sister - Stay Hungry (40th Anniversary Edition)(2CD) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam, Hard Rock, Heavy Metal>
@@ -35,7 +6,7 @@ Twisted Sister - Stay Hungry (40th Anniversary Edition)(2CD) (2024) [FLAC 24/96|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103823.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Sylosis - Studio Albums (9 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103820.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Motley Crue (Mötley Crüe) - Cancelled (2024) EP [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103794.jpg" />
 </div>
 
 
@@ -121,7 +92,7 @@ Twelve Foot Ninja - Studio Albums (6 releases) (2008-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103776.jpg" />
 </div>
 
 
@@ -150,7 +121,7 @@ Babbba - Smooth jazz club (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103763.jpg" />
 </div>
 
 
@@ -179,7 +150,7 @@ London Grammar - The Greatest Love (2024) Deluxe, 2024, Ministry of Sound Record
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103761.jpg" />
 </div>
 
 
@@ -208,7 +179,7 @@ The Hu - The Trooper (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103751.jpg" />
 </div>
 
 
@@ -236,7 +207,7 @@ Antonio Dayyani - Trop op (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103746.jpg" />
 </div>
 
 
@@ -265,7 +236,7 @@ Bobbie Dazzle - Fandabidozi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103745.jpg" />
 </div>
 
 
@@ -294,7 +265,7 @@ Agnes Darelid - RISE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103744.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ Chris Killz and The Family - Mister Move On (2024) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103743.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ Lights of Marfa - Light of Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103742.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ Krzysiek Ponieważ - The Devil, the Past and the Countryside: The Blues Collecte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103741.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ Abraham - Swing Low, Rock Hard (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103740.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ Ten eleven XII bluesband - Something Different (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103739.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ Andrew Moore and Hooch - Artists of the Moon (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103738.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ Wind Rose - Trollslayer (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103737.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ Oceanator - Everything is Love and Death (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103736.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ k.d. lang - Three Albums (1981-1990) Unofficial Release [FLAC 2.0|48/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103735.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ Marc Broussard - Time Is A Thief (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103734.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ April Art - Rodeo (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Alt.Metal, El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103732.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ Little Steve and The Big Beat - Circles (2024) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103731.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ The New Roses - Attracted To Danger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103730.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ Rehab Black - I'm Fighting (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103729.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ Our Graves - System Overload (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103727.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ Our Graves - System Overload (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580F4DDB1657A65AD4DBB61EAA3169580CE74E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754241   (103724) от 09.10.2024
+
+Roberto Sass - Transit (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, IDM>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Sass, Wildsilences - Empty (3:30)
+02. Roberto Sass - Rattle the Cage (3:46)
+03. Roberto Sass - Wake Up (6:50)
+04. Roberto Sass - Slow (4:25)(   Читать дальше...   )Жанр: Downtempo, IDMПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3BDE41B96566B9644D667BDF9C6E7175D1E86C
 ```
 
 https://mybot314.ru/tekegram_catalog/

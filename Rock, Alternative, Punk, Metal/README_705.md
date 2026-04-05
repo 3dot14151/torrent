@@ -1,3 +1,32 @@
+###  Публикация: 1417997   (353418) от 22.10.2020
+
+Eisbrecher - Schicksalsmelodien (2020) [MP3|320 Kbps] <NDH, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Skandal im Sperrbezirk
+2. Anna Lassmichrein Lassmichraus
+3. Disco in Moskau
+4. Out of the Dark(   Читать дальше...   )Жанр: NDH, Industrial MetalПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C434AAA64C29BE72AB7E001BB58C49DC09AD5ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417823   (353415) от 22.10.2020
 
 Eagles - Live From The Forum MMXVIII (2020) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Soft Rock>
@@ -6,7 +35,7 @@ Eagles - Live From The Forum MMXVIII (2020) 2xCD [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353415.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353310.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Alltheniko - Back in 2066 (2012) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353284.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353264.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Gorillaz - Song Machine, Season One: Strange Timez (2020) Japan Deluxe Edition [
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353120.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_353001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_353001.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ Malevolent Creation - Doomsday X (2007) [WavPack|Lossless|image + .cue] <Floridi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352602.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ Raven's Gate - Blackstar Machinery (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352600.jpg" />
 </div>
 
 
@@ -250,7 +279,7 @@ Ad Nihil - 2 Albums, 1 EP (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludg
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352558.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Weeping Wound - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352557.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ Yevabog - Between Two Fires (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352556.jpg" />
 </div>
 
 
@@ -337,7 +366,7 @@ Crust - Wanderers (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Post Black, Death
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352555.jpg" />
 </div>
 
 
@@ -366,7 +395,7 @@ Hollywood Nightmare - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352554.jpg" />
 </div>
 
 
@@ -395,7 +424,7 @@ Witchery - Nightside (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Thrash, Spe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352553.jpg" />
 </div>
 
 
@@ -424,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352552.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ Stilgar - 4 Releases (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352550.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ Kaine - After Extinction (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352548.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ S.C.A.L.P. - 2 Albums, 2 Singles (2019-2021) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352547.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ Epoch Of Unlight - At War With The Multiverse (2022) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352546.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ Freedom Call - Master Of Light (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352481.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ A Mountain Of One - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352459.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ Pat Mastelotto & Bill Munyon - XtraKcts & ArtifaKcts (2001) [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352455.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352451.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ The Erinyes - The Erinyes (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352449.jpg" />
 </div>
 
 
@@ -711,7 +740,7 @@ Loveless - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352444.jpg" />
 </div>
 
 
@@ -725,35 +754,6 @@ Loveless - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40365AB85285124D6194F9F5716C3CBE6E43290E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072291   (352397) от 13.11.2016
-
-Lenny Kravitz - Another Life (2004) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uncharted Terrain (4:27)
-02. Spinning Around Over You (3:37)
-03. Confused (6:47)
-04. Another Life (3:59)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4FECD92770E74F8AB07AA57F884885AA189FB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

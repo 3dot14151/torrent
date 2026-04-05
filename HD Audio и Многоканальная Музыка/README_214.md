@@ -1,32 +1,3 @@
-###  Публикация: 1808284   (64978) от 24.07.2025
-
-Laura Jane Grace - Adventure Club (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, New-Wave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WWIII Revisited [00:01:23]
-02. Wearing Black [00:03:00]
-03. I Love To Get High [00:02:38]
-04. Active Trauma [00:01:49](   Читать дальше...   )Жанр: Punk, New-WaveПродолжительность: 00:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31AE92B71E7B03EE5B717B6AE5C7E22A307A92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808357   (64977) от 24.07.2025
 
 Blood Vulture - Die Close (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom, Gothic, Sludge Metal>
@@ -35,7 +6,7 @@ Blood Vulture - Die Close (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom, Goth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64977.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Sly & The Family Stone - Live At Winchester Cathedral 1967 (2025) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64976.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Bruce Dickinson - More Balls to Picasso (1994)(2025 Reimagined Version) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64949.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Honeymoon Suite - Wake Me Up When The Sun Goes Down (2025) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64935.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Roulette - Go! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64916.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Enuff Z'Nuff - Xtra Cherries (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64876.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Roscoe Bowie and the Federal City Swingers - Relationships (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64805.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Lightnin' Malcolm - Turnt Up On Loud (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64803.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Lowland Blues - Lowland Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64802.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Koko Taylor - Crown Jewels (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64801.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Cyfurcat - 1.0.0 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64800.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Pharaoh Rumor - Vintage Blues Express (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64799.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Zayden Fleet - Lone Star Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64793.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Buddy Reed & Th' Rip It Ups - Tough Enough (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64785.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Daddy Longlegs & the Swamp Donkeys - Mud Bucket (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64784.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Night Tempo - Night Tempo Presents The Showa Idol Groove (Rare Groove From 80s) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64770.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Paramore - All We Know Is Falling (2005) Deluxe Edition, 2025, Fueled By Ramen [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64760.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Fever Ray - The Year of The Radical Romantics (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64756.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Buddy Guy - Ain't Done With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64720.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Pulpit Vomit - Hospital Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Powervi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64716.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Antlers - Antlers (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64715.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Behold the Beloved - Harsh Realities (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64714.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Torben Enevoldsen - Seven (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instrume
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64686.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Tomoko Aran – Fuyu-Kukan = Floating Space = 浮遊空間 (1983) [FLAC 2.0|48/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64655.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ The Alan Parsons Project - Collection (1976-1987) [DSD 128|tracks|Vinyl-Rip] <Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64614.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ The Alan Parsons Project — рок-группа из Великобритани
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C8FA323DC7C23C2EDFA43C9EF2A7C3FF27ABCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810032   (64545) от 02.08.2025
+
+Reneé Rapp - BITE ME (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Leave Me Alone (02:22)
+ 02 - Mad (02:55)
+ 03 - Why Is She Still Here_ (02:30)
+ 04 - Sometimes (03:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ED9BD24F43AB9B3B117C0EB3B35E1E3DBD3A12
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579303.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579190.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AnyMemo Pro 10.7.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579002.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ GEAK OS - launcher, dial, message 4.0.15190 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578780.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578684.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578024.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578023.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ MiXplorer версия: 5.3.0 / 5.3.8 beta [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577067.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Slender Man Origins Трилогия [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576909.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ GEAK OS 4.0.15195  - launcher, ТЕМЫ
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575367.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575131.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575116.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ GUNSHIP BATTLE: Helicopter 3D 1.7.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575041.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Boat Browser HD Pro 2.2 [Ru] - Браузер для планшета
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575027.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574103.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Warhammer 40,000: Space Wolf v1.1.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573153.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_572702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572702.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_572580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572580.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_572542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572542.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572395.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_572341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572341.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572144.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Simply HDR v3.82 [En] - создания HDR эффекта на фотогра�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571891.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Kiss: Жизнь в Нюрбургринге / Kiss: Live in Nurburgring (2010) 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571692.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ ScanWritr PRO 2.5.78 [Ru] - Сканер документов и PDF-конве�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571344.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Kate Mobile Pro 40.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570199.jpg" />
 </div>
 
 

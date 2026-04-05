@@ -6,7 +6,7 @@
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271764.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269504.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269497.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269477.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268796.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268577.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Cosmetic set ads with paper flowers [EPS]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267062.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Fresh juice splash for advertising, 3d realistic [EPS]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267057.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267038.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Vector ornament paisley Bandana [EPS]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_266996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266996.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Vector elements set of flowers for wedding invitations card [EPS]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266943.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266826.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266749.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266682.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266510.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Red and white table grapes in water splash [EPS]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266119.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Cosmetic set ads with paper flowers #4 [EPS]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266114.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Dreamstime - Birthday card with cute animals with balloon and bonnets [EPS]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266112.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Cute cartoon animals on a white background [EPS]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266106.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Silhouette of car on black background [EPS]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266081.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vo
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266017.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Adobe Stock - 2020 year of rat to Chinese calendar [AI]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266016.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265930.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vo
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265301.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vo
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265256.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Adobe Stock - Vector set of New Year 2020 and Christmas Design AI Backgrounds Vo
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265249.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 1778883   (70785) от 10.02.2025
-
-The Last Band - Studio Albums (4 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Deathrock, Thrash>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70785.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Last Band — шведская рок-группа из Гётеборга, начала свою деятельность в начале 2011 года.2012 - Mean Machine
-2015 - Rats of Gothenburg
-2016 - The Fall
-2018 - HisingenЖанр: Hard Rock, Deathrock, ThrashПродолжительность: 02:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FA646273187BF14D039B0B1D3BB77DF69967CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779213   (70747) от 12.02.2025
 
 Frank Sinatra - Sinatra Sings...Of Love And Things (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop>
@@ -35,7 +6,7 @@ Frank Sinatra - Sinatra Sings...Of Love And Things (2025) Remastered [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70747.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ LØLØ (LOLO) - falling for robots & wishing i was one (2024) Deluxe Edition, 20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70735.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Miss Tess - Cher Reve (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Country
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70733.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Louis Philippson - Exposition (2025) (2CD) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70713.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Carmen Consoli - Terra Ca Nun Senti (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70670.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Dynazty - Game of Faces (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy-Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70666.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Crazy Lixx - Thrill Of The Bite (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70639.jpg" />
 </div>
 
 
@@ -239,7 +210,7 @@ Ginger Evil - The Way It Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70633.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ Blank & Jones & Marc-George - Rediscovered Works (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70594.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ Jazzystics - It's a Mistake (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70569.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ VA - Музыкальный Бутерброд (2001) Compilation, Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70561.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ The Chordettes - 2015 - The Greatest Hits (2025) Remaster, 2025, ZOROTY[FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70542.jpg" />
 </div>
 
 
@@ -386,7 +357,7 @@ The Wombats - Oh! The Ocean (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70523.jpg" />
 </div>
 
 
@@ -415,7 +386,7 @@ Moonchild Sanelly - Full Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70517.jpg" />
 </div>
 
 
@@ -444,7 +415,7 @@ Role Model - Kansas Anymore (2024) The Longest Goodbye, 2025, Interscope Records
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70516.jpg" />
 </div>
 
 
@@ -473,7 +444,7 @@ Robert Ascroft - Echo Still Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70442.jpg" />
 </div>
 
 
@@ -502,7 +473,7 @@ Infringement (Norway) - Studio Albums (3 releases) (2017-2024) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70441.jpg" />
 </div>
 
 
@@ -530,7 +501,7 @@ Innerspace - Studio Albums (3 releases) (2012-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70440.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Atlas Ashes - New World (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic De
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70425.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ Bishop Gunn - Live With Bishop Gunn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70379.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ Brothers Harvest - The True Vine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70375.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ New Translations - Vacation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70374.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ Ritual (Sweden) - Studio Albums (5 releases) (1995-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70370.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ Chris James - Cj (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70369.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ Eddie Blues Barney - Blues on the other side (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70366.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ Eddie Blues Barney - Blues on the other side (2025) [FLAC 24/48|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D051E297FA03FFDD4F82047862E581020D3D10D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780842   (70363) от 20.02.2025
+
+David Rose - Add More Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Add More Life (3:05)
+02.  Hand in Hand (1:59)
+03.  Open Meadows (3:10)
+04.  Barbara's Ballad (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B5F3F93EA8A4BCB3A47277930080310EA6D2B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

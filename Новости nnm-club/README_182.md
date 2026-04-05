@@ -1,3 +1,55 @@
+###  Публикация: 17303   (408296) от 17.09.2019
+
+Барака / Baraka (2001) [HDTVRip] [1080i]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовый фильм. Шедевр невербального воздействия на бессознательное. Мир за гранью слов. Описать Бараку сложно, это нечто с захватывающим визуальным рядом и фантастическим звуковым оформлением. Это документальный фильм о природе, планете Земля и о нас с вами. Это непрерывный видеоряд, в который вошли потрясающие кадры красивейших мест Земли, это необычные ритуальные (   Читать дальше...   )Жанр: ДокументальныйПеревод: ОригинальныйПродолжительность: 1:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E3A9E7EACE419D092F58AB2C9BE236453BF77D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325654   (408294) от 17.09.2019
+
+BELOFF 2019.9 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой на Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также установку Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E53F62063267250445064D3426655F521752D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168487   (408164) от 24.09.2017
 
 Dishonored: Death of the Outsider (2017) [Ru/En] (1.142.3.8/upd1) Repack =nemos=
@@ -6,7 +58,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.142.3.8/upd1) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408164.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407758.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407742.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ OTUS | Мониторинг и логирование: Zabbix, Prometheus, ELK [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407735.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ AVG Internet Security 2013 2013.0.2740a5822 Final [Русский / Англий
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407643.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ The Testament of Sherlock Holmes [Ru] (RePack/1.0.0.2) 2012 l YelloSOFT
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407636.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407626.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Deus Ex: Human Revolution [PS3] [RUSSOUND] [PAL] [FULL] [+DLC] [3.55] (2011)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407603.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407596.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407590.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407587.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Windows 10 PRO/HSL/LTSC & Kent x64 1809 by kuloymin v15 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407573.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407382.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407292.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ MultiBoot HDD 2020 04.10.2020 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406968.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406962.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406692.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406600.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ Dishonored [Ru/En] (RePack) 2012 | R.G. Element Arts
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405659.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405658.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ Ad Muncher 4.93 Build 33707/4146 Final [Английский + Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405399.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ Borderlands 2 [Ru/En/Multi7] (RePack/1.1.2/5 DLC) 2012 | big_buka
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405381.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ Kerish Doctor 2012 4.45 RePack by KpoJIuK [Rus/Eng/Ukr]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405379.jpg" />
 </div>
 
 
@@ -621,74 +673,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405348.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Сюжет фильма основан на реальных фактах, связанных с обнаружением в 1993 году в небольшом украинском городе Кировограде огромной коллекции древностей, стоимостью около миллиарда долларов, принадлежавшей обычному электрику Александру Ильину, а также на материалах расследований, гипотезах и домыслах, появившихся по этому поводу за пятнадцать лет.Жанр: Детектив, психологический триллерРежиссер: Николай ХомерикиАктеры: Дмитрий Муляр, Андрей Мерзликин, Лев Борисов, Екатерина Климова, Леонид Бичевин, Кристина Асмус, Карина Андоленко, Елена Шевченко, Алексей Гуськов, Юрий Цурило, Алексей Серебряков, Карэн Бадалов, Даниил Спиваковский, Борис Каморзин, Александр Ивашкевич, Людмила Чурсина, Ольга Чурсина, Александр Семчев, Алексей Кравченко, Никита Емшанов, Артём Ткаченко, Даниил Белых, Юрий Беляев, Владимир Капустин (II), Сергей Романюк, Павел Майков, Наталья Романычева, Владимир Ямненко, Иван Иванов (V), Олеся Железняк, Александр Феклистов, Маргарита Шубина, Инна Королёва, Ольга Аросева, Владимир Зельдин, Юрий Яковлев-Суханов, Николай Пономаренко, Юрий Назаров, Виктор Сарайкин, Николай Алипа, Андрей Межулис, Борис Токарев (II), Александр Игнатуша, Наталья Доля, Виолетта ТриковаПродолжительность: 12 х ~ 00:49:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533665   (405342) от 19.10.2012
-
-Пришелец из космоса / Extraterrestre (2011) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все знают, что делать, если в один прекрасный день все небо заполнят НЛО: бежать со всех ног! Однако что делать, если вторжение началось в тот момент, когда вы находитесь в квартире девушки своей мечты, с которой только что познакомились?Жанр: Фантастика, Драма, КомедияРежиссер: Начо ВигалондоПродюсер: Нахикари Ипинья, Начо Вигалондо, Боря КобягаАктеры: Мишель Хеннер, Карлос Аресес, Хулиан Вильягран, Мишель Хеннер, Карлос Аресес, Хулиан Вильягран, Рауль Симас, Мигель НогераПеревод: Профессиональный (многоголосый)Продолжительность: 01:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E78E2FBC1B7A5720715E18B18440D6F8162AB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464325   (405137) от 20.10.2012
-
-VA - Mixadance 001-300 (2004-2010) (Обновляемая) [MP3|128-320 кб/с] <Electro House, Progressive House>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405137.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. David Guetta vs. The Egg - Love Don't Walking Away
-2. Commander Tom - I Can't Sleep
-3. Marco G - Funkolicious (Mario Ochoa Remix)
-
-4. F.E.D.O - Be Original (Gambafreaks Main Mix)
-5. Fall Out Boy - Dance, Dance (Tommie Sunshine's Brooklyn Fire Re Touch)
-6. Frank Tomiczek - The Chek Of It
-
-7. Freaks Jam - Friday Night (Luca Cassani Remix)
-8. Кино - Перемен (DJ Neumark Mix)(   Читать дальше...   )Жанр: Electro House, House, Progressive House, Electro ProgressiveПродолжительность: 278:07:30
 
 ## Скачать торент
 ```bash

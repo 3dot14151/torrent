@@ -1,3 +1,61 @@
+###  Публикация: 1021432   (730495) от 31.05.2016
+
+Paul Mauriat - The Seven Seas & Summer Has Flown (2016) [MP3|320 кб/с] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730495.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Seven Seas - 1984
+01. The Seven Seas (3:59)
+02. So Bad - Pipes of Peace (3:46)
+03. Thriller (4:22)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B9E73F9E4A0DD800F6F09BC2FE19427F6FB8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127461   (730477) от 22.04.2017
+
+Two Steps From Hell - Battlecry Anthology (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Soundtrack, Classical, Epic, Instrumental>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730477.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Battlecry Anthology» - оркестровые и инструментальные ремикс-версии с альбома «Battlecry». На саундтрек попало 43 композиции общей длительностью более 2-х часов. Подборка является компиляцией оригинальной музыки. Выпуском пластинки занимался лейбл Two Steps from Hell - американская компания по музыкальному продакшну, которая базируется в Санта-Монике, Калифорния. (   Читать дальше...   )01. Across The Blood Water (Instrumental) (3:34)
+02. Across The Blood Water (Orchestral) (3:40)
+03. Amaria Silverbird (Orchestral) (6:39)
+04. Victory (Instrumental) (5:22)(   Читать дальше...   )Жанр: New-Age, Soundtrack, Classical, Epic, InstrumentalПродолжительность: 02:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7079C78F6527448F6F00FC8C5ACFA852FC8BFE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127723   (730358) от 22.04.2017
 
 Дидюля & Chris Wonderful - Аквамарин (2017) [MP3|320 Kbps] <New Age>
@@ -6,7 +64,7 @@
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730358.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ DeVotchKa ‎ - This Night Falls Forever (2018) [FLAC|Lossless|tracks + .cue] <F
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730045.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - India Experience (Vol. 1) (2015) [MP3|320 Kbps] <Downtempo, Lounge, New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730039.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Не грози Южному Централу, попивая сок у с�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730015.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Justin Hurwitz - First Man (2018) Original Motion Picture Soundtrack [FLAC|Lossl
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730012.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Richard Osborn - Endless (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Folk, W
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729976.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  6 (1990) [MP3
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729940.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Atom Music Audio - Nemesis (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729934.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Big City Indians - Tuwa (2012) [MP3|320 Kbps] <Native american, New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729929.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  9 (1994) [MP3
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729925.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Emily Rowe - Daydream (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Viol
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729765.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Los clasicos argentinos - Tango - Vol.15 - Hugo Del Carril: El cantor del p
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729742.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Sleepthief - Mortal Longing (2018) [FLAC|Lossless|tracks + .cue] <New Age, Downt
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728905.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Lalo Schifrin - Magnum Force: The Original Score (1973) Remaster, 2005, Aleph Re
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728895.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Los clasicos argentinos - Tango - Vol.16 - Osvaldo Fresedo: El aristocrata 
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728673.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Enigmatic (2006) [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728671.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Most beautiful musical hits the songs of Andrew Lloyd Webber (Unknown) 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728655.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Antoinette Ventura & The London Starlight Orchestra - Unforgettable (1992) [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728585.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Ari Pulkkinen - Trine (2009) [FLAC|Lossless]<OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_728137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_728137.jpg" />
 </div>
 
 
@@ -562,7 +620,7 @@ Piano Peace - Piano & Ocean (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727747.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ Julian Bream - Guitar for Relaxation (2007) [FLAC|Lossless|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727585.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ VA - 50 New Age Deep Meditation Tracks (2017) [MP3|320 Kbps] <New Age, Downtempo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727550.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ Ashley Monroe - The Blade (2015) [FLAC|Lossless|tracks + .cue] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727435.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727426.jpg" />
 </div>
 
 
@@ -692,64 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F388CD9E83F459C6DF3B571269664DA474CBBBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022586   (727363) от 03.06.2016
-
-Kelsea Ballerini - The First Time (2015) [FLAC|Lossless|image + .cue] <Country, Modern Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. XO (2:54)
-02. Peter Pan (3:20)
-03. Love Me like You Mean (It 3:20)
-04. Square Pegs (3:23)(   Читать дальше...   )Жанр: Country, Modern CountryПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DED4C5B676388E55E2411553DC11DD1654B8F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022896   (727232) от 03.06.2016
-
-Yanni - The Dream Concert Live from the Great Pyramids of Egypt (2016) [MP3|320 кб/с] <Instrumental, New Age, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Man's Dream (Live) (2:47)
-02. For All Seasons (Live) (6:01)
-03. Yanni: Welcome (Live) (3:45)
-04. Felitsa (Live) (4:51)(   Читать дальше...   )Жанр: Instrumental, New Age, Easy ListeningПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25D2BD15EE53E5FBC8336526B9F2B839C4C4F54
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,139 @@
+###  Публикация: 1414839   (1042913) от 01.01.2021
+
+Крылатые воины Сигрдривы [ТВ-1] | Senyoku no Sigrdrifa [2020, TV, 12 из 12] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соскучились по "боевым кукурузникам" с вайфу-валькириями, прикрываемых современным вооружением от легкой пехоты до ядерного оружия и баллистических ракет (действие происходит в 2025 году)? Тогда это аниме для Вас!
+На Земле появились таинственные столпы, несущие угрозу всему живому. Бог, назвавший себя Одином, протянул беззащитному человечеству руку помощи: (   Читать дальше...   )Производство: Япония, студия A-1 PicturesЖанр: боевик, приключенияРежиссер: Токуда ХиротакаЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2891F11B5ED866AFC4B9267167913A4F9BC515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413630   (1042912) от 01.01.2021
+
+Букет Штурмовых Лилий [ТВ-1] | Assault Lily BOUQUET | Штурмовая Лилия: Букет [2020, TV, 12 из 12] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Колготочки, юбочки, ножки, ой о чем это я, аниме же про спасение Мира!
+Земля, недалёкое будущее. Человечество оказывается на грани вымирания из-за появления загадочных форм жизни, «Исполинов». Дабы противостоять им, человечество объединило свои усилия и разработало CHARM — оружие, сочетающее в себе научные достижения и силу волшебства, или «маги». В целях воспитания (   Читать дальше...   )Производство: Япония, студия ShaftЖанр: приключенияРежиссер: Саэки СёдзиЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1823C2A9C402C0400F2695B03F10C8B0AB57639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436870   (1042633) от 02.01.2021
+
+Tenchi Muyou! Bangaihen: Galaxy Police Mihoshi Space Adventure | Тэнти - лишний! Миссия Михоси [1994, OVA, 1 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта овашка откроет Вам чудесный и удивительный мир размышлений Михоши. Она думает! И какие умозаключения она делает! Это рассказ Михоши о ее самом знаменитом задании в Галактической полиции, в который постоянно против ее воли влезают все персонажи тенчей вместе и по очереди…
+Как пародия, эта серия удалась, т.к. тут присутствуют действительно глупые шутки, которые (   Читать дальше...   )Производство: Япония,Жанр: приключения, комедия, махо-сёдзёРежиссер: Одзава КадзухироПеревод: русские субтитрыЯзык озвучки: Японский и русский
+Многоголосая, студияПродолжительность: 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA232EAFEC44C409AD498C3A04511E64E8D56761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436883   (1042632) от 02.01.2021
+
+Blade and Soul / Клинок и душа [2014, TV, 12 ep] BDRip 1080p Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то в этом мире распахнулись Темные Врата, откуда хлынули орды демонов. Небеса не остались в стороне, демонов победили, а Врата были запечатаны четырьмя Великими Мастерами. Столетия спустя отступница Цинь Валайлу подняла мятеж, чтобы сокрушить печати, но была уничтожена объединенной мощью Мастеров. Шли века, рождались и уходили народы, память о древних битвах (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Такэути ХиросиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 13 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053CAA73EFF622854C49C31C6C66CF615F959EA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436910   (1042372) от 03.01.2021
+
+Fuuka / Фуука [2017, TV, 12 ep] BDRip 1080p Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой и застенчивый Ю Харуна недавно переехал в новый город. После переезда он оказался буквально затянут в Твиттер, в котором юноша начал делиться разными мелочами из своей жизни.
+
+Однажды, на уткнувшегося носом в свой телефон и обновлявшего ленту новостей Ю случайно налетает девушка по имени Фука Акицуки. В результате происходит неловкий случай: девушка по ошибке (   Читать дальше...   )Жанр: романтика, музыкальныйРежиссер: Кусакава КэйдзоЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE316596CB576A382A95BAE6B5AF84662DC8C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610367   (1042328) от 07.02.2023
 
 На просторах Лидейла | Мир Лидейл | Leadale no Daichi nite | In the Land of Leadale [2022, TV, 12 из 12] BDRip 1080p HEVC 10bit Raw+Rus
@@ -6,7 +142,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042328.jpg" />
 </div>
 
 
@@ -35,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042125.jpg" />
 </div>
 
 
@@ -61,7 +197,7 @@ Tenchi Muyou! The Night Before The Carnival | Omatsuri Zenjitsu no Yoru! | Тэ�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041821.jpg" />
 </div>
 
 
@@ -88,7 +224,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041816.jpg" />
 </div>
 
 
@@ -115,7 +251,7 @@ Mangaka-san to Assistant-san to The Animation | The Comic Artist and His Assista
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041560.jpg" />
 </div>
 
 
@@ -141,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040686.jpg" />
 </div>
 
 
@@ -167,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036388.jpg" />
 </div>
 
 
@@ -195,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036093.jpg" />
 </div>
 
 
@@ -223,7 +359,7 @@ Vampire Hunter D: Bloodlust | D: Жажда крови | Ди - охотник �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035590.jpg" />
 </div>
 
 
@@ -249,7 +385,7 @@ Aoki Ryuusei SPT Layzner | Blue Comet SPT Layzner | Голубой метеор 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035298.jpg" />
 </div>
 
 
@@ -275,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034751.jpg" />
 </div>
 
 
@@ -303,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034716.jpg" />
 </div>
 
 
@@ -330,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033325.jpg" />
 </div>
 
 
@@ -356,7 +492,7 @@ Kaze no tani no Naushika | Nausicaa of the Valley of the Wind | Навсикая
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033094.jpg" />
 </div>
 
 
@@ -383,7 +519,7 @@ Princess Connect! Re:Dive Season 2 | Связь принцесс! Новое п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032915.jpg" />
 </div>
 
 
@@ -409,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032831.jpg" />
 </div>
 
 
@@ -435,7 +571,7 @@ Senya Ichiya Monogatari | A Thousand and One Nights | Сказки 1001 ночи
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032370.jpg" />
 </div>
 
 
@@ -461,7 +597,7 @@ Cleopatra | Cleopatra: Queen of Sex | Клеопатра, королева се�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032368.jpg" />
 </div>
 
 
@@ -488,7 +624,7 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-2) [2019, Web, 10 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032249.jpg" />
 </div>
 
 
@@ -516,7 +652,7 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-1) [2018, Web, 10 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032244.jpg" />
 </div>
 
 
@@ -544,7 +680,7 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-3) [2020, Web, 10 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032154.jpg" />
 </div>
 
 
@@ -558,142 +694,6 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-3) [2020, Web, 10 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A241B28714FBF0E5C9CCEB295B6305849EA8494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446941   (1032152) от 11.02.2021
-
-Psycho-Pass: Sinners of the System | Психопаспорт: Грешники системы [2019, Movie, 3 из 3] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трилогия полнометражных фильмов, действие которых будет сосредоточено на пяти персонажах:
-
-Фильм 1: Преступление и наказание (Мика и Гино)
-(   Читать дальше...   )Производство: Япония, Production I.G / プロダクション・アイジーЖанр: приключения, фантастикаРежиссер: Сиотани НаоёсиПеревод: Sovet Romantica (1), YouNet Translate (2,3)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 1-2 фильм по 60 мин. 3 фильм 70 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F196121398DC4DC1ED98943DC82D6C6B0768CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605658   (1031994) от 20.03.2023
-
-Пожинатель огня [ТВ-1, часть 1] | Король огненной охоты [ТВ-1, часть 1] | Hikari no Ou | The Fire Hunter [2023, TV, 10 из 10] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последняя война человечества изменила мир до неузнаваемости: земли ушли под власть леса, а людей поразил некий патоген. Стоит только больному вступить в контакт с пламенем, и он сам мигом вспыхнет как спичка. Единственным безопасным источником огня для инфицированных оказались чёрные звери, именуемые Духами огня и обитающие в глубинах леса. На них люди и стали охотиться. (   Читать дальше...   )Производство: Япония / Студия Signal MDЖанр: Исторический, фэнтезиРежиссер: Нисимура ДзюндзиЯзык озвучки: Русский многоголосый, закадровый, Японский
-- Ditaro, Hekomi, Lobanow, NastyhaGrizli (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6325BE79630710BFB93112804FA4FCF1BAC4D63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604781   (1031992) от 20.03.2023
-
-Ijiranaide, Nagatoro-san 2nd Attack | Don't Toy with Me, Miss Nagatoro 2nd Attack | Не издевайся, Нагаторо: Вторая атака [2023, TV, 12 из 12] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда школьник-интроверт встречает девушку по имени Хаясэ Нагаторо, его жизнь переворачивается с ног на голову. Сначала она спокойно наблюдает за его реакцией на оскорбления со стороны других школьниц, но потом с удивлением понимает, что они идут ему на пользу. Поэтому Нагаторо начинает сама дразнить его, что парадоксальным образом приводит к росту его популярности.Производство: Жанр: комедияРежиссер: Усиро СиндзиЯзык озвучки: Русский любительский двухголосый (Субтитры: Русские (Надписи (по умолчанию); SovetRomantica; Crunchyroll)Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5DEBA0603562DC43A95BE4467CEA80E0AA8927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447254   (1031940) от 12.02.2021
-
-Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, TV, 10 из 10] WebRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вскоре после Токийской Олимпиады в 2020 году японский народ погружается в хаос, возникший после сильного землетрясения. Экстремальные условия для выживания, расставания с родными и близкими — всё это не обходит стороной ни одну японскую семью.
-
-Одна из них — семья Муто, состоящая из четырёх человек, пытающаяся выбраться из города. Сталкиваясь с ужасающей реальностью, (   Читать дальше...   )Производство: Япония, Science Saru / サイエンスSaruЖанр: приключенияРежиссер: Юаса МасаакиПеревод: Sovet Romantica (1, 2), D&A SUBS (3-10)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: (10 эп.), 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF4A82F62B23D88D8F7EE990CB1A10968A12D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447290   (1031939) от 12.02.2021
-
-Странствующая ведьма [ТВ-1] | Majo no Tabitabi | Wandering Witch: The Journey of Elaina [TV-1] [2021, TV, 12 из 12] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жила-была путешественница, которую звали Элейна. Совсем молодая, она уже успела стать магом высшего разряда — ведьмой. Невероятно умная девушка, что тут ещё сказать. С раннего детства она зачитывалась путевыми заметками, а потому и сама теперь гуляет по всему свету: идёт туда, куда глаза глядят. В пути Элейне встречаются совершенно разные, необычные люди: так она (   Читать дальше...   )Производство: Япония, студия C2CЖанр: приключения, фэнтезиРежиссер: Кубоока ТосиюкиЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6A01C5F4F75F2E9CD2C614231716AE0E5EF774
 ```
 
 https://mybot314.ru/tekegram_catalog/

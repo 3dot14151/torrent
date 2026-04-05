@@ -1,3 +1,29 @@
+###  Публикация: 1616028   (201735) от 04.03.2023
+
+Царство небесное / Kingdom of Heaven (2005) Blu-ray [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция, XII век. Молодой кузнец Бэлиан вынужден бежать со своей родины. Он присоединяется к отряду крестоносцев, во главе которого стоит его отец. В одной из битв тот получает тяжёлое ранение и перед смертью посвящает сына в рыцари.Производство: США, Испания / Twentieth Century FoxЖанр: боевик, драма, приключения, военный, историяРежиссер: Ридли СкоттАктеры: Орландо Блум, Ева Грин, Мартон Чокаш, Дэвид Тьюлис, Гассан Массуд, Лиам Нисон, Джереми Айронс, Эдвард Нортон, Брендан Глисон, Александр СиддигПеревод: Многоголосый профессиональныйЯзык озвучки: итальянский, английский, русский (отдельным файлом)Субтитры: итальянские (PGS), английские (PGS)Продолжительность: 03:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999818DD9D7FCBF2DE27177B237D32D02F0EAD03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617752   (201599) от 09.03.2023
 
 Триплексоголик / xxxHOLiC (2022) BDRip [H.264/1080p] [JP / RU Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201599.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201579.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200893.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200468.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200457.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200118.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200105.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_200028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_200028.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199759.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199686.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199255.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198963.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_198952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_198952.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198936.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198735.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198637.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198473.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Air: Большой прыжок / Air (2023) WEB-DL [H.264/1080p] [EN / RU, EN 
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198443.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198040.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197225.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196943.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195818.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195761.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195720.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195061.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C55FFB53D244E533A2198412D47D6762B0A5412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652505   (194486) от 11.08.2023
-
-Сердце Стоун / Heart of Stone (2023) WEB-DL [H.264/1080p] [EN / RU, EN, UKR and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оперативник разведки теневого глобального миротворческого агентства должен помешать хакеру украсть его самое ценное и опасное оружие.Производство: США / Dune Films, Mockingbird Pictures, NetflixЖанр: боевик, триллер, криминалРежиссер: Том ХарперАктеры: Галь Гадот, Лу Сыцзин, Джейми Дорнан, Пол Рэди, Энцо Чиленти, Joe Reisig, Лука Фьяменги, Алиа Бхатт, Маттиас Швайгхёфер, Томас АрнольдПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские, украинские и др. (см. MI)Продолжительность: 02:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79038A50998B1209C82EF805573790D5D728B764
 ```
 
 https://mybot314.ru/tekegram_catalog/

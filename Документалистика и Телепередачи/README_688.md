@@ -1,3 +1,161 @@
+###  Публикация: 1599627   (159641) от 24.12.2022
+
+Битва Поколений. GAYAZOV$ BROTHER$ vs группа НА-НА (2022) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159641.jpg" />
+</div>
+
+
+###  Подробнее
+
+На МУЗ-ТВ стартует масштабное шоу, которое соберёт на одной сцене артистов первой величины разных музыкальных эпох – «Битва Поколений». Заслуженный исполнитель и дерзкий хэдлайнер чартов встретятся в профессиональном поединке и померяются силами в качестве живого звука, мощности хитов, харизме и творческом экспромте!Телекомпания: Муз ТВЖанр: Музыкальный баттлПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4712C127C2DC90293558DAD8454C736C1C090712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599663   (159639) от 24.12.2022
+
+Битва Поколений. Николай Басков vs Егор Шип (2022) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159639.jpg" />
+</div>
+
+
+###  Подробнее
+
+На МУЗ-ТВ стартует масштабное шоу, которое соберёт на одной сцене артистов первой величины разных музыкальных эпох – «Битва Поколений». Заслуженный исполнитель и дерзкий хэдлайнер чартов встретятся в профессиональном поединке и померяются силами в качестве живого звука, мощности хитов, харизме и творческом экспромте!Телекомпания: Муз ТВЖанр: Музыкальный баттлПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F812905A24834D7BC0CB10359C23E4E7280C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599675   (159627) от 24.12.2022
+
+Главная дорога (24.12.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159627.jpg" />
+</div>
+
+
+###  Подробнее
+
+- Обзор праздничного светомобиля из Кирова.
+- Забыть вещи в такси — просто, но как их вернуть?
+- Праздник зимнего в-пробке-стояния! Ведущие «Главной дороги» Андрей Федорцов и Денис Юченков вместе с космонавтами, которые проводят сутки в одном положении, и врачами, рассказали и показали, как пережить десятибалльные заторы и не испортить новогоднее настроение!? Зачем (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B0EAAB4295697DE3AFCCA1686122FFE7780BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599649   (159625) от 24.12.2022
+
+Битва Поколений. Mary Gu vs Акула (Оксана Почепа) (2022) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159625.jpg" />
+</div>
+
+
+###  Подробнее
+
+На МУЗ-ТВ стартует масштабное шоу, которое соберёт на одной сцене артистов первой величины разных музыкальных эпох – «Битва Поколений». Заслуженный исполнитель и дерзкий хэдлайнер чартов встретятся в профессиональном поединке и померяются силами в качестве живого звука, мощности хитов, харизме и творческом экспромте!Телекомпания: Муз ТВЖанр: Музыкальный баттлПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624BFDB30BF142F6A44AFAF3B72167D5018E26B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599667   (159616) от 24.12.2022
+
+Битва Поколений. Zivert vs Ева Польна (2022) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159616.jpg" />
+</div>
+
+
+###  Подробнее
+
+В финальном выпуске сезона шоу «Битва Поколений» на сцену выйдут Zivert и Ева Польна. Две легендарные артистки подарят жюри и зрителям настоящий музыкальный праздник. Любимые песни и совершенно новое звучание любимых хитов. В креслах жюри: Виктор Дробыш, Лариса Долина, Диана Арбенина, DAVA, Mia Boyka и Леша Свик. Приятного просмотра!Телекомпания: Муз ТВЖанр: Музыкальный баттлПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3592469074558EAADBCB9B94FDFB52EC0B66DE27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599782   (159613) от 24.12.2022
+
+Следствие вели... (24.12.2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159613.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дед Мороз с пистолетом». В Новый год даже взрослые начинают верить в чудеса! Большинство отмечают праздник под бой курантов и с брызгами шампанского, а кто-то готовит лихой вояж… Так, в Саратовской области в 1974-м объявились Дед Морозы — оборотни. Сколько денег добыли наглые бандиты всего за несколько недель? Чье убийство изменило ход следствия? Как преступники (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB9D06B331E7743752494231976D14B5001D8BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599674   (159607) от 24.12.2022
 
 Мошенник в маске / The Masked Scammer (2022) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +164,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159607.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159575.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159546.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159481.jpg" />
 </div>
 
 
@@ -112,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159447.jpg" />
 </div>
 
 
@@ -139,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159443.jpg" />
 </div>
 
 
@@ -165,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159399.jpg" />
 </div>
 
 
@@ -192,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159388.jpg" />
 </div>
 
 
@@ -220,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159376.jpg" />
 </div>
 
 
@@ -246,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159375.jpg" />
 </div>
 
 
@@ -272,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159359.jpg" />
 </div>
 
 
@@ -298,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159355.jpg" />
 </div>
 
 
@@ -324,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159353.jpg" />
 </div>
 
 
@@ -350,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159348.jpg" />
 </div>
 
 
@@ -377,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159343.jpg" />
 </div>
 
 
@@ -403,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159340.jpg" />
 </div>
 
 
@@ -432,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159339.jpg" />
 </div>
 
 
@@ -459,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159322.jpg" />
 </div>
 
 
@@ -485,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159320.jpg" />
 </div>
 
 
@@ -511,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159316.jpg" />
 </div>
 
 
@@ -522,165 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73162ECBF60B018318DDA311653475D30DF5FEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599924   (159315) от 25.12.2022
-
-Битва экстрасенсов (2022) WEBRip [H.264/1080p] (сезон 23, выпуск 16)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159315.jpg" />
-</div>
-
-
-###  Подробнее
-
-23-й сезон легендарного проекта «Битва экстрасенсов». В новом сезоне участникам придётся столкнуться с тяжелыми и загадочными испытаниями, которые проверят их экстрасенсорные способности, ведь создатели внесли ряд изменений в отборочный этап. Задача скептиков и приглашенных гостей раскусить шарлатана и выгнать его с проекта. Ведущим проекта стал бессменный Марат (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EB2607AA26C59A2BBB643F1E21908D49857391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675922   (159285) от 11.11.2023
-
-Супер-слизь / Super Slime (2022) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Органическая слизь — удивительное вещество. Она увлажняет кожный покров саламандр, чтобы им было легче дышать через кожу, создает защитные пузыри для икринок лягушек и даже помогает улиткам передвигаться из пункта А в пункт Б.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A99B6602AAB41AE5396B7EEFEF80C82E43BFA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676128   (159272) от 11.11.2023
-
-Следствие вели... (11.11.2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159272.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Семейка монстров». Сложное дело с целой вереницей кровавых эпизодов — в новом фильме из цикла «Следствие вели…»
-1989 год, Волгоградская область. Рыбаки обнаружили в реке тело маленькой девочки. Ее мать исчезла, а дедушку нашли мертвым в подвале. Сколько всего преступных эпизодов оказалось в этом деле? Как докопаться до правды помогли продуктовые талоны и свадебные (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C2BA427148974F941C801B54A089420D5FBDFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675994   (159270) от 11.11.2023
-
-Главная дорога (11.11.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удар автобуса без шанса на выживание, падение легковушки с рухнувшего моста и огненный стритрейсинг.
- Пополам или по-братски: как в судах делят вину за ДТП, если виноваты оба участника. Почему даже пострадавшего могут обвинить в аварии?
- Скупой платит трижды: почему копеечная экономия на обслуживании заканчивается дорогим ремонтом? Андрей Федорцов и Денис Юченков подготовили (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A96ECF7308D337116818F8463AFE380D8BC479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676127   (159266) от 11.11.2023
-
-Валле-д'Аоста: альпийская Италия / Val d'Aoste, l'Italie alpine (2021)  HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы расскажем вам об уникальном уголке Альп: области Валле-д'Аоста. Это самый французский край Италии. Он окружен одними из самых высоких горных вершин Европы, от Монблана до Монте-Роза. В этих долинах говорят на франкопровансальском, ставшем частью местной культуры, которая также нашла отражение в архитектуре и гастрономии. В отличие от французских долин Монблана, (   Читать дальше...   )Производство: Франция, TV5MONDE EuropeЖанр: документальный, познавательный, путешествияРежиссер: Эрик БакоПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E870F7E033755A5BD654EDA6E1AEC9DF13E4E8DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594902   (159264) от 25.12.2022
-
-Игрушки, которые построили Америку / The Toys That Built America (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4) OMSKBIRD [AD]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал рассказывает о малоизвестных историях, стоящих за самыми культовыми игрушками и играми Америки.Производство: США / Six West MediaЖанр: ДокументальныйРежиссер: Стюарт ДжонсАктеры: Йен Карр, Jordan Hembrough, Саймон Харрисон, Дэниэл Тетсэлл, Jackie Breyer, Джулс Найт, Tom Nunez, Бен Менсфилд, Стивен Самсон, Lewis GoodyПеревод: Многоголосый (OMSKBIRD)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~00:42:00 серияРеклама: Релиз содержит рекламные аудио вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036D60F57B92F277CCDF04F9BC9BFF49577822D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

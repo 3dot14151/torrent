@@ -6,7 +6,7 @@ Donkey Kong Country: Tropical Freeze (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363426.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Project Sylpheed: Arc of Deception (2007) [Xbox360] [RegionFree] [FreeBoot] [Uno
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362611.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Transformers: Fall of Cybertron [Xbox 360] [Region Free] [RUS] [XGD3 / LT+2.0] (
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362268.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ LEGO The Lord of the Rings [Wii] [MULTI4] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362265.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Geronimo Stilton in the Kingdom of Fantasy The Videogame [PSP] [ENG] (2011)
 >>PSP
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362261.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Tokyo Jungle [PS3] [ENG] [NTSC] [FIXED FOR 3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362170.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Indivisible (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1.0.2] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362082.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Tiny Troopers: Joint Ops (2014) [PS3] [USA] 4.21 [PSN / 1.01 / 1 DLC] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356464.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ The Testament of Sherlock Holmes [PS3] [RUSSOUND] [PAL] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354625.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354482.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Sleeping Dogs (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352888.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Killzone Trilogy (2012) [PS3] [EUR] 3.40 [Repack / 1.0 / 1.29 / 1.14] [Ru/En/Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352717.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ inFamous / Дурная Репутация [PS3] [EUR] [RUSSOUND] [3.55] [Cobra 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352148.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Need for Speed: Rivals [XBOX360] [JtagRIP] [RUSSOUND] [Freeboot] (2013) | R.G.X3
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352145.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Legendary (2008) [PS3] [EUR] 2.42 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351866.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ The Witch and the Hundred Knight (2014) [PS3] [EUR] 4.53 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351864.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Resident Evil Code: Veronica X (2001) [PS3] [USA] 4.85 [HEN] [Repack] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351766.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ The Book of Unwritten Tales 2 (2015) [PS3] [EUR] 4.21 [PSN] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351461.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ God of War Collection (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350526.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Thronebreaker: The Witcher Tales (2020) [Switch] [USA] 10.1.0 [NSZ] [License / 1
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350500.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Bully: Scholarship Edition [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350019.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Nickelodeon Dance 2 [Xbox 360] [ENG] [Region free] [Kinect] (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349673.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ RPCS3 + 4.89 Firmware + Rusty PSN - эмулятор PS3 с необходимы
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349516.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Saints Row IV: Game of the Century Edition [PS3] [EUR] [En] [4.55] [Cobra ODE / 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349025.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ The Adventures of Tintin: Secret of the Unicorn (2011) [Xbox360] [RegionFree] [F
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348428.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Dragon Fin Soup (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.01
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348406.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ r beny - The Dashboard Cast a Spectral Glow (2020) Past Inside the Present [FLAC
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227450.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Shrine - Discography 8 Releases (2006-2019) Corvus Records, Cyclic Law, Cryo Cha
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227052.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Woob - Tokyo Substrate Paradox (2018) Isometric [FLAC|Lossless|WEB-DL|tracks] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226535.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Oaktree - Discography 7 Releases (2014-2018) [PIAS] Recordings [FLAC|Lossless|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226431.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Dissolved - Temporal Breathing (2014) [FLAC|Lossless|WEB-DL|24/41.1]<IDM, Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225858.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Exist Strategy - Discography 14 Releases (2012-2019) [FLAC|Lossless|WEB-DL|track
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225463.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Pete Namlook & Tetsu Inoue (2350 Broadway, Shades Of Orion, 62 Eulengasse, Time�
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224925.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224905.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Burzum - Thulean Mysteries (2020) 2xCD [FLAC|Lossless|image + .cue] <Dungeon Syn
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223525.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ VA - Salaam for Yemen (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, E
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221710.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Wolves And Horses - Discography 9 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221311.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ StereOMantra - Observatory (2016) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220869.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Oskar Sala - Discography 15 Releases (1961-2016) Erdenklang, Fax +49-69/450464 [
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220769.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Jo Berger Myhre & Olafur Bjorn Olafsson (Jo Berger Myhre & Ólafur Björn Ólafs
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220232.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Jo Berger Myhre & Olafur Bjorn Olafsson (Jo Berger Myhre & Ólafur Björn Ólafs
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220134.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - Digiseeds (Compiled by Ambientium) (2015) Ultimae Records [FLAC|Lossless|WE
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218345.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ The Higher Intelligence Agency (HIA, H.I.A.) - Discography 22 Releases (1993-202
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217650.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Aksemetrix - Aqua Perception (2018) AstroPilot Music [FLAC|Lossless|WEB-DL|track
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214951.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Lars Leonhard - Spaceflight (2020) Synphaera [FLAC 2.0|44.1/24|tracks|WEB-DL] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214287.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Blank & Jones (feat. Marcus Loeber) - Silent Piano (Hourglass EP) (2019) [FLAC|L
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213693.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Moby - Ambient 23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210931.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Beheat Gorum de Mentheurd - The Voyage Of Life (2016) [FLAC|Lossless|image + .cu
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207503.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Sam Goku - The Things We See When We Look Closer (2023) [FLAC|Lossless|WEB-DL|tr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205918.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Jean-Michel Jarre - OXYMORE (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204994.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Devil Doll - Sacrilegium (1992) Reissue, Remastered, 2019, Hurdy Gurdy Records [
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203128.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Eguana - One Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill, Downte
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191216.jpg" />
 </div>
 
 

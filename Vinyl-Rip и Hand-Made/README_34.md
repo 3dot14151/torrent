@@ -1,3 +1,32 @@
+###  Публикация: 1328431   (363130) от 30.09.2019
+
+Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1/16|image +.cue|Vinyl-Ri] <Pop, Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hadakano Venus
+02. Nagisa Nite
+03. Kuchibeni Enka
+04. Kimi Ga Utsukushisugite(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: Pop, Jazz, Easy Listening
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E139619DF26ECD6CDD4BF3E1E4CAC694A8526B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 407674   (360059) от 07.11.2011
 
 Within Temptation - Black Symphony (2008) [FLAC 5.1 24/96|tracks (Blu-ray rip)]<Gothic Metal/Symphonic Metal>
@@ -6,7 +35,7 @@ Within Temptation - Black Symphony (2008) [FLAC 5.1 24/96|tracks (Blu-ray rip)]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360059.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Alan Parsons Project - I Robot (1977) Reissue /1982, Arista Records/ [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358285.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Emigrate (Rammstein, Richard Kruspe) - Studio Albums (4 releases) (2007 - 2021) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356764.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Placido Domingo - Placido Domingo And Friends (2000) [FLAC 2.0|48/24|image+.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356699.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Saint-Saens - Symphonies (Carnival of the Animals, Phantasy E flat Major, Organ 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356691.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Three Dog Night - Coming Down Your Way (1975) [FLAC 2.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356688.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Music Of San Marco/Soloist Di Zagreb - Vivaldi - The Four Seasons/Concerto G
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356551.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356441.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Elvis Presley - Our Memories Of Elvis (1979) [FLAC 2.0 24/96|traks(Vinil-Rip)]<R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355313.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Хри
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351827.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Wishbone Ash - Front Page News (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351353.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349829.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349096.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348959.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348773.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Klaus Schulze & Rainer Bloss - Dziekuje Poland Live '83 (1985) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346793.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Sting - 57TH & 9TH (2016) [WavPack 2.0|192/32|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345064.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Yes - Time And A Word (1970) 1991 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344299.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Manfred Mann's Earth Band - Somewhere In Afrika (1982) [FLAC 2.0|192/24|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342543.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339855.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [WavPack|192/32|tracks|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337859.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337196.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Space Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335358.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ VA - Добрые колыбельные для сладких снов (3) в �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335158.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Boycott - Группа Boycott (1989) Licensed From – Polarvox Oy [FLAC 2.0|19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334580.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ A4 Gotta Rock(   Читать дальше...   )Жанр: Hard RockПродол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E18421F42ED375F675BE66EDD46BB02C87E3B9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331068   (334550) от 13.10.2019
-
-Lana Del Rey - Norman Fucking Rockwell! (2019) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norman Fucking Rockwell (4:10)
-02. Mariners Apartment Complex (4:07)
-03. Venice Bitch (9:36)
-04. Fuck It, I Love You (3:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8159766C9373F2150ACA16540A87A0C748EE511
 ```
 
 https://mybot314.ru/tekegram_catalog/

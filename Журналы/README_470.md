@@ -1,3 +1,136 @@
+###  Публикация: 1620289   (249427) от 19.03.2023
+
+Журнал | Linux Magazine №4 (269) (2023) [PDF][En]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Magazine - журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение журнала будет (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648DBEB9E8972F2B3DFC63614994F383E445A852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494191   (249181) от 09.05.2012
+
+Журнал | Elle Girl [Россия] №1 (2012) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249181.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Elle Girl" первое глянцевое издание о моде и стиле для девушек. Эксклюзивные фотографии, психология, увлекательные материалы о звездах и не только, гороскоп, сонник, тесты и масса реальных возможностей найти свой индивидуальный стиль и добиться в жизни успеха.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7524ED7A558265B20C9D5601F6406309BBA496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493772   (248877) от 08.05.2012
+
+Журнал | Men's Health [Россия] №6 (2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Men’s Health — самый узнаваемый мужской журнальный бренд категории lifestyle. Журнал освещает все стороны жизни мужчины — пишет о здоровье, фитнесе, моде, правильном питании, отношениях, путешествиях, технике, карьере. Это единственное издание, созданное чтобы показать мужчинам, как они могут улучшить свою жизнь. Русскоязычный Men’s Health — самый успешный из международных. (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66243CE9EF4DCB6305957059A758D1189CB2B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493595   (248787) от 08.05.2012
+
+Журнал | Химия и Жизнь №3 [2012] [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Химия и Жизнь" будет интересен всем тем, кому интересна история и проблемы науки, а также просто любопытно, как устроен окружающий нас мир. Масса информации в сжатом виде, ее широта, мягкий, удивительно добрый юмор, создающий эмоциональную основу для ее восприятия, наука без наукообразия - абсолютное понимание функции научно-популярного журнала...
+Первый номер "Химии и жизни" вышел в апреле 1965 года. Журнал оказал сильное влияние на оформление всей научно-популярной литературы, привлек к себе пристальное внимание художников, искусствоведов и всех, кто интересуется проблемами науки и искусства. Своей популярностью как в научной, так и в художественной среде журнал обязан прежде всего четкой и продуманной концепции, благодаря которой удалось достичь единства текста и иллюстрации, вербального и визуального методов раскрытия темы. Издание устроило на своих страницах настоящий университет молекулярной биологии, генетики, генной инженерии, из номера в номер доступно и увлекательно рассказывая (   Читать дальше...   )2012Жанр: Научно-популярный, химияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E922385F83EB2E3872B9BE7A381F12CBDD9C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493156   (248476) от 07.05.2012
+
+Журнал | Ателье №5 (137) [2012] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248476.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ателье» — это первый профессиональный журнал о моде в России, ориентированный на владельцев ателье и мастерских по пошиву одежды, дизайн-студии, частных модельеров и дизайнеров.
+
+ В каждом номере можно найти массу интересных и профессиональных статей, предназначенных для специалистов швейного бизнеса. Основные материалы журнала посвящены последним новостям моды в (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21429DD6E5B0E4A6A046278F32E0736C61223A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492793   (248201) от 06.05.2012
 
 Журнал | Красота и спорт №6 [май 2012] [PDF]
@@ -6,7 +139,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248201.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247942.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247918.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246751.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246664.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246593.jpg" />
 </div>
 
 
@@ -163,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246502.jpg" />
 </div>
 
 
@@ -189,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246486.jpg" />
 </div>
 
 
@@ -215,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246387.jpg" />
 </div>
 
 
@@ -241,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246353.jpg" />
 </div>
 
 
@@ -267,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246349.jpg" />
 </div>
 
 
@@ -293,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245775.jpg" />
 </div>
 
 
@@ -319,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245721.jpg" />
 </div>
 
 
@@ -345,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245665.jpg" />
 </div>
 
 
@@ -371,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245657.jpg" />
 </div>
 
 
@@ -397,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245466.jpg" />
 </div>
 
 
@@ -423,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245311.jpg" />
 </div>
 
 
@@ -449,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245274.jpg" />
 </div>
 
 
@@ -475,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245165.jpg" />
 </div>
 
 
@@ -501,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245147.jpg" />
 </div>
 
 
@@ -527,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245128.jpg" />
 </div>
 
 
@@ -538,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B09A346DFA42216D317E43003818E51640B06D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621519   (245103) от 25.03.2023
-
-Журнал | A Radio. Prakticka Elektronika №2 (2023) [PDF][Cz]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чешский радиолюбительский журнал. В каждом номере описания практических конструкций для радиолюбителей различной тематики: аудиотехника, измерительные приборы, бытовая электроника и другое. На все конструкции предлагаются печатные платы. Отдельные разделы посвящены применению компьютеров и радиоспортЖанр: ЭлектроникаЯзык: ЧешскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17D875BCF0E8E5AD65DBD3890CDB4FB0072CAEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621133   (245086) от 23.03.2023
-
-Подшивка | Электронные компоненты №1-12 [12 выпусков] (2022) [PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245086.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Электронные компоненты» — журнал издается с 1995 года, и уже более 20 лет является авторитетным источником профессиональной информации для разработчиков электронной аппаратуры, технического руководства предприятий отрасли, директоров по снабжению и надежным маркетинговым партнером для производителей и дистрибьюторов электронных компонентовЖанр: Электронные компонентыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5F5CF49C47FEC190DF5925DA418410B646CCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609376   (244924) от 03.02.2023
-
-Журнал | Загадки истории №05 (2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярное, История, ЖурналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00CB72E6EA40F3EAF00ACD08D77AEA5F16FA4126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631226   (244835) от 06.05.2023
-
-Газета | СПОРТ-ЭКСПРЕСС № 80 (Май 2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244835.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Спорт-Экспресс» — ежедневная газета, полностью посвященная спорту. На страницах издания вы найдете интервью с известными спортсменами и тренерами, последние новости, материалы о футболе и хоккее с шайбой, баскетболе и керлинге, теннисе и фигурном катании, в общем, обо всех существующих ныне видах спорта. Вот уже несколько лет «СЭ» представляет Россию в European (   Читать дальше...   )Жанр: СпортФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BEE4149CF713356374C542B96A7C812ED520CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541278   (244223) от 03.04.2022
-
-Журнал | Maxim [Россия] №4-5 (апрель 2022) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Maxim радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF710C7B0F41AB1921EA2C2830988F111DD17105
 ```
 
 https://mybot314.ru/tekegram_catalog/

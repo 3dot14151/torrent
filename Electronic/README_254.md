@@ -1,3 +1,116 @@
+###  Публикация: 852939   (579146) от 17.05.2019
+
+VA - Enfold 01 (2014) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL]<Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Ambient (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scann-Tec - Rewind (06:56)
+02. Fingers In The Noise - Sensitive Mind (06:38)
+03. I Awake - Winter Shell (05:31)
+04. Martin Nonstatic - Oak Branches (06:04)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487A13C6AA18BC99CE92550CD2A0C32359B684E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759241   (579134) от 17.05.2019
+
+Lars Leonhard - Burning Clouds (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL]<Ambient, Dub Techno, Downtempo>
+
+>>Electronic
+>>Downtempo, Ambient (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Clouds (5:38)
+ 02. Halos (5:42)
+ 03. Northern Lights (7:03)Жанр: Ambient, Dub Techno, DowntempoПродолжительность: 00:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B008220C5A2E99D06AE364A5EE8FD9FB4494018D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 176513   (579050) от 12.08.2016
+
+Hammock - Discography 29 Releases (2005-2016) [MP3|320 kbps]<Ambient, Post-Rock>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Union (03:45)
+ 02. Groundless (05:39)
+ 03. Reconciliation (04:15)
+ 04. Melt (05:29)Жанр: Post Rock, Ambient •Продолжительность: 00:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95C08C5A6330B4740EA54D549866FB590EF6A655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554044   (579031) от 29.05.2022
+
+Two Friends - Big Bootie Mix Volume 021 (2022-05-23) [MP3|320 Kbps] <Dance, Electro Pop, Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galantis & David Guetta & Little Mix - Heartbreak Anthem w/Dan + Shay - I Should Probably Go To Bed w/The Anxiety & Willow & Tyler Cole - Meet Me At Our Spot w/M83 - Midnight City (Rave Republic Remix) w/The Killers - Somebody Told Me
+02. SM1LO & twoDB ft. Lena Leon - In My Head w/Kelly Clarkson - Because Of You w/Daft Punk - Harder Better (   Читать дальше...   )Жанр: Dance, Electro Pop, PopПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CBD87ECDCC7608026087594B9058769D2A34EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528352   (578849) от 29.05.2022
 
 Trance Wax - Trance Wax Radio (01-07) (2021-2022) [MP3|320 Kbps] <Trance, Breaks>
@@ -6,7 +119,7 @@ Trance Wax - Trance Wax Radio (01-07) (2021-2022) [MP3|320 Kbps] <Trance, Breaks
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578849.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Lane 8 - Rise (2015) [FLAC|tracks|WEB-DL]<House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578836.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ VA - Super Duper Deep House Tunes Vol.4 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578516.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Soulful Deep and Groovy Vol.3 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578511.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ VA - Its Amazing - Deep House Grooves Vol.7 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578509.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ VA - Armada visits Las Vegas (2016) [FLAC|Lossless|tracks] <House, Progressive H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578466.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ VA - Run for Fun - 20 Rhythmic Heartbeats Vol.1 (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578452.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ VA - Toolroom Ibiza Vol.2 (2016) [MP3|320 Kbps] <House,  Tech, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578449.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ Somerville & Wilson - Red Wasps EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578444.jpg" />
 </div>
 
 
@@ -266,7 +379,7 @@ VA - Toolroom Ibiza 2016 Vol.2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578400.jpg" />
 </div>
 
 
@@ -295,7 +408,7 @@ VA - Schneeweiss VI (Presented By Oliver Koletzki) - 2016 [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578388.jpg" />
 </div>
 
 
@@ -324,7 +437,7 @@ Asger Kudahl - Sketches For Revolution (2018) Resonans [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578273.jpg" />
 </div>
 
 
@@ -353,7 +466,7 @@ MRUKS - Deja Vu (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowa
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578179.jpg" />
 </div>
 
 
@@ -382,7 +495,7 @@ VA - The Body You Need For Summer 2017: Workout Edition [MP3|320 Kbps] <Progress
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578136.jpg" />
 </div>
 
 
@@ -411,7 +524,7 @@ VA - Unique Lounge Musique Vol.1 (Selected by Simon Le Grec) (2017) [MP3|320 Kbp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578030.jpg" />
 </div>
 
 
@@ -440,7 +553,7 @@ VA - Black Hole Trance Music 07-17 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578028.jpg" />
 </div>
 
 
@@ -469,7 +582,7 @@ Scratch Massive - 7 Albums (2003-2018) [MP3|320 Kbps] <Electronic, Electro>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577855.jpg" />
 </div>
 
 
@@ -498,7 +611,7 @@ Huron (][uron) - Collection 11 Releases (2013-2019) [FLAC|Lossless|WEB-DL|tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577718.jpg" />
 </div>
 
 
@@ -527,7 +640,7 @@ VA - Body & Soul New Electro Music (2015) [MP3|320 кб/с]<Downtempo, Chillout,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577612.jpg" />
 </div>
 
 
@@ -556,7 +669,7 @@ VA - Anthems of Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577610.jpg" />
 </div>
 
 
@@ -585,7 +698,7 @@ VA - Sexy Chilling Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577593.jpg" />
 </div>
 
 
@@ -614,7 +727,7 @@ Lost Frequencies - Less Is More (Deluxe) (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577574.jpg" />
 </div>
 
 
@@ -628,120 +741,6 @@ Lost Frequencies - Less Is More (Deluxe) (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41EE265EF2FD860EC75A0D98E6D6C418CF68D675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921072   (577454) от 24.07.2015
-
-VA - Chillout Soundbar (Best Lounge Music) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaxamalka - Desimaginar [05:50]
-02. Ria - Into the Light - Unplugged Live Radio Edit [03:58]
-03. El Nicoya - Minutos de Oro [05:38]
-04. Avelina Jose - Sir Cosmic [04:22](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5600BE74ACC4CF8A391C424C1AB725EAA77D2588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921091   (577452) от 24.07.2015
-
-VA - Luxury Lounge Gold Edition (2015) [MP3|320 кб/с]<Easy Listening, Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Manos - Silver
-02. Naomi - Go (Feat. Selda Kaya)Жанр: Easy Listening, Balearic, DowntempoПродолжительность: 05:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21AD0658FCB522FE831760E5E101B4E257C4D57F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921034   (577222) от 24.07.2015
-
-VA - 80's Generation vol. 2 (2002) [FLAC|image + .cue]<Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madness - Our House [3:12]
-02. Culture Club - I'll Tumble 4 Ya [2:37]
-03. Monie Love - Grandpa's Party [3:38]
-04. Spandau Ballet - Lifeline [3:19](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F3846CDA77AF5D89064A68384C87A9353D86D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920404   (577180) от 24.07.2015
-
-Lukhash - The Other Side (2015) [MP3|320 кб/с]<Chiptune, Dubstep, Electronic, 8-Bit>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another World
-02. Hongdae
-03. The Other Side
-04. Eighties(   Читать дальше...   )Жанр: Chiptune, Dubstep, Electronic, 8-BitПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF1D95257F6ACA25540159E1E7B21D72A5A0D62
 ```
 
 https://mybot314.ru/tekegram_catalog/

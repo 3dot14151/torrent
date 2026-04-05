@@ -6,7 +6,7 @@ Saint DX - SDX (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chil
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841396.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Saint DX - Unmixtape (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841293.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ F. R. David - серия "Золотые хиты дискотек" (Golden Disc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841276.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ William Hennessey - De pire en pire (2020) [FLAC|Lossless|tracks + .cue] <Indie 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841213.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Hayley Williams - Petals for Armor (2020) Scene [FLAC|Lossless|tracks] <Indie Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841102.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jim Reeves - The Real... Jim Reeves (2013) 3CD [FLAC|Lossless|tracks + .cue] <Co
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839883.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Yvonne Catterfeld - Guten Morgen Freiheit (2017) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838627.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Alexandra Stan - Alesta (2016) Japanese Deluxe Edition [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838067.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Everything Everything - In Birdsong (2020) Single [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836529.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - Party Dance Mix Vol.2 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835062.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - The Party Dance Mix Vol.1 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835055.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - The Party Dance Mix Vol.3 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835053.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - BRAVO Hits 115 (2021) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Danc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835038.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Sabrina Carpenter - Eyes Wide Open (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834369.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ M83 - Junk (2016) [FLAC|Lossless|tracks + .cue] <Indie-Pop, Electronic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834161.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - 538 Hitzone 98 (2021) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833546.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - 538 Hitzone: Best Of 2020 (2020) Box Set, 2CD [FLAC|Lossless|tracks + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833543.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Teeth & Tongue - Give Up On Your Health (2016) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832156.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831980.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831666.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831451.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - NOW That's What I Call Music! 73 (2020) USA version[FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831360.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Supermax - The Box (10 CD) (2009) [FLAC|lossless]<Soul, Reggae / Electronic, Fun
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830999.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ All Saints - Red Flag (2016) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830808.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Moussa - Premier (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, French H
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830215.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Sweet Lollipop Band - 37 US-Hit-Cocktails (1998) [FLAC|Lossless|image + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829843.jpg" />
 </div>
 
 

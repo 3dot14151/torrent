@@ -1,3 +1,159 @@
+###  Публикация: 1546513   (239547) от 24.04.2022
+
+Деревня Инунаки / Inunaki Mura / Howling Village (2019) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юма со своей девушкой Акиной попадают в давно несуществующую деревню Инунаки, после чего Акина становится сама не своя, постоянно напевает какую-то песню и в результате кончает с собой. Когда Юма решает вернуться в проклятую деревню, за ним увязывается младший брат Кота, и оба бесследно исчезают. Мать в истерике, отец заявляет, что больше не хочет иметь ничего общего (   Читать дальше...   )Производство: Япония / Booster Project, ToeiЖанр: ужасы, детективРежиссер: Такаси СимидзуАктеры: Аяка Миёси, Рёта Бандо, Цуёси Фурукава, Рэндзи Исибаси, Такамаса Суга, Хина Мияно, Мэгуми Окина, Рэйко Такасима, Ринка Отани, Масанобу ТакасимаПеревод: Дублированный (iTunes)Язык озвучки: Русский, японскийСубтитры: ОтсутствуютПродолжительность: 01:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5407884DFBC2F765CD7620030F365D216C3C9249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627860   (239506) от 20.04.2023
+
+Лобстер-коп / Long xia jing cha / Lobster Cop (2018) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы следить за бандой наркоторговцев, сотрудники Интерпола открывают по соседству ресторан. Внезапно заведение становится популярным, и бизнес идет в гору.Производство: Китай / Add Star International Film Culture Medial (BEIJING), Bigcat Films, Wanda Media Co.Жанр: комедия, боевик, криминалРежиссер: Ли СяофэнАктеры: Ван Цяньюань, Юань Шаньшань, Лю Хуа, Чжоу Ю, Шэнь Тэн, Эмоушен Чун, Чжоу ЮньпэнПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC99AB462EC5567FFAF76AFA1F7B74BDA93D3C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571602   (239436) от 24.08.2022
+
+Последнее испытание Шаолиня / Shao Lin mu ren xiang / Shaolin Wooden Men (1976) BDRip [H.264/1080p-LQ] [MVO] [UK Transfer]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой парень по прозвищу Молчун — сирота, который принимает обет молчания после гибели своего отца в от рук мастера боевых искусств. Проживая в шаолиньском монастыре, Молчун сближается с опасным заключённым, который обучает его секретным способам смертельного кунг-фу. Заметив упорство и стремление юноши стать мастером кунг-фу, мастера обучают его другим техникам (   Читать дальше...   )Производство: Тайвань, Гонконг, Япония / Lo Wei Motion Picture Company, Toei Central FilmsЖанр: боевикРежиссер: Чэнь Чи-ХваАктеры: Джеки Чан, Дорис Лун, Кан Чин, Чан Пинъюй, Чан Ифэй, Лу Чианг Чао, Вэй Оун Чан, Чун Кам, Хсин Чин, Кан ХоПеревод: Профессиональный многоголосый (ДТВ)Субтитры: РусскиеПродолжительность: 01:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44407CCB85542F6DC1DAEF4EBF0EB717EB69FFFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542201   (239277) от 25.04.2022
+
+Ускользающий человек / Yucheitalja / Spiritwalker (2020) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человек обнаруживает себя на месте автомобильной аварии, в неизвестном теле, без малейшего понятия, кто он и как сюда попал. Он предпринимает отчаянные попытки отыскать самого себя и находит женщину, которая утверждает, что знает его. Все глубже погружаясь в тайну, он узнает о некой секретной организации, которая, судя по всему, преследует его.Производство: Южная Корея / ABO Entertainment, BA Entertainment, Kiwi Media GroupЖанр: Боевик, фантастика, детективРежиссер: Юн Джэ ГынАктеры: Кё Сан Юн, Ён У Пак, Чжи Ён Им (I), Чжи Хван Пак, Сын Мок Ю, Сон Ук Ли, Хён У Со, До Гым Пэк, Сын Хён Ким, Ки Чхан Юн, Юн Ха Чон, Ун Сан ЛиКи Чжун Хон, Хёк Бом Квон, Бон Сик ХёнПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB574B2C69BDD3622D20BC42072415B3012EB67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628046   (239276) от 21.04.2023
+
+Клуб самоубийц / Jisatsu sakuru (2001) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239276.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Токио пятьдесят четыре старшеклассницы бросаются под поезд в метро. Их гибель запускает целую цепочку таинственных массовых самоубийств, которые начинают происходить по всей Японии. После этого полиция обнаруживает странный веб-сайт, на котором отображаются самоубийства ещё до того, как они происходят на самом деле...Производство: Япония, Omega Project, Toho Company, BiggubitoЖанр: драма, криминал, детективРежиссер: Сион СоноАктеры: Рё Исибаси, Масатоси Нагасэ, Маи Хосё, Тамао Сато, Такаси Номура, Ролли, Джошуа, Масато Цудзиока, Ясудзукэ Хамамото, Кэи НагасэПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFB7B36493472B718A338151E615DF142AC2D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636659   (238925) от 31.05.2023
+
+Возвращение в Сеул / Retour a Seoul (2022) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фредди, 25-летняя кореянка выросла в приёмной семье во Франции. Поддавшись порыву, она впервые возвращается на родину, чтобы найти биологических родителей. Её путешествие разворачивается в новом и неожиданном направлении...Производство: Франция, Германия, Бельгия, Корея Южная, Румыния, Камбоджа, Катар / Aurora Films, Vandertastic Films, Frakas ProductionsЖанр: драмаРежиссер: Дэви ШуАктеры: Пак Чи-мин, О Гван-нок, Guka Han, Ким Сон-ён, Йоанн Циммер, Луи-До де Ланкесэ, Хо Джин, Hur Ouk-Sook, Son Seung-Beom, Dong Seok KimПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: русские (на места без перевода), английскиеПродолжительность: 01:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DAF207F3D33A1080A4F8B7C71328F35585743E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628175   (238788) от 22.04.2023
 
 Ударная волна 2 / Chai dan zhuan jia 2 / Shock Wave 2 (2020) BDRip [H.264/1080p]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238788.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238369.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238336.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238328.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237798.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237344.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237291.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236834.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236630.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236317.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235850.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235656.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235616.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235486.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235026.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234693.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234533.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234522.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234517.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234506.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDDD6278D0C0B4AEA5C6F2AF694C3F6E70FADDCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577063   (234471) от 18.09.2022
-
-Сад Робинсона / Robinson no niwa / Robinson's Garden (1987) BDRemux [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Устав от рутинной жизни, Кумико увольняется с работы. Однажды она забредает на заброшенную стройку и решает превратить ее в свой райский островок. Словно Робинзон Крузо, она засеивает огороды и сажает клумбы. Но хватит ли у нее сил и терпения?Производство: ЯпонияЖанр: ДрамаРежиссер: Масаси ЯмамотоАктеры: Кумико Охта, Ко Матида, Туко Уэно, Тибо, Ото, Мицува Сакамото, Марино Тику, Рёдзи Номура, Идзаба, Сакэви ЁкоямаПеревод: Авторский (BadBajo)Язык озвучки: русский, японскийСубтитры: ОтсутствуютПродолжительность: 02:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5F683D5D626DF7E1C74C46DE8EC0AD56749909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644718   (233786) от 06.07.2023
-
-Кукла с белым лицом / Nini Thowok (2018) WEB-DL [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о Надин и ее сестре Нае, которые были вынуждены принять отель "Мекар Дживо" в качестве наследства своей бабушки в Соло.Производство: Индонезия / TBS FilmsЖанр: УжасыРежиссер: Эрвин АрнадаАктеры: Наташа Вилона, Амек Арис, Джаян С. Ноер, Ингрид ВиджанаркоПеревод: Одноголосый любительский (datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4342523F4AB4F50C691DC889831950248EA9C736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644950   (233591) от 07.07.2023
-
-Мистер Вампир / Geung see sin sang (1985) BDRip [H.264/720p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда таоистский священни и двое его подручных соглашаются на перезахоронение отца местного богача, они и не подозревают, что, почти в буквальном смысле, копают себе могилу. Выкопанный труп оказывается вампиром, который, вполне естественно, оживает, в первую же ночь превращая в вампира и своего отпрыска. Таким образом, отважной троице приходится разбираться аж с (   Читать дальше...   )Производство: Гонконг, Bo Ho Film Company Ltd, Golden Harvest Company Ltd, Toho-TowaЖанр: ужасы, комедия, боевик, фэнтезиРежиссер: Рикки ЛауАктеры: Чинг-Йинг Лам, Чинь Сиу-Хо, Рикки Хуэй, Мун Ли, Билли Лау, Сиу-Фанг Вонг, Ва Юэнь, Ха Хуанг, Энтони Чан, У МаПеревод: авторский, любительский одноголосыйЯзык озвучки: русский, китайскийСубтитры: английскиеКачество: BDRipПродолжительность: 01:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F323B8AFCF5BAE5C311E03E50D063BFD8888E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634275   (233568) от 19.05.2023
-
-Мастер со сломанными пальцами / Master with Cracked Fingers / Diao shou guai zhao (1972-1973) BDRip [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сяо Ху учится владеть самым смертельным оружием на свете - своими руками и ногами, чтобы отомстить за смерть отца. Он решает предпринять вылазку в логово самой опасной в районе банды, которая в драках не придерживается никаких правил. А их главарь не знает жалости, и жаждет только крови.Производство: Гонконг / Soon Lee FilmsЖанр: боевик, драма, комедияРежиссер: Му Жу, Вэй ХайфэнАктеры: Джеки Чан, Юань Сяотянь, Чжэнь Хунле, Дин Шек, Хон Квок-Чой, Юэнь Бяо, Тень Фэн, Квон Юн-Мун, Квок Куэнь Чан, Чун КамПеревод: Профессиональный многоголосый закадровый (DVD Магия) со вставками стороннего переводаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0DC222F05F6A9F6613E3488096DBD18F2E8902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552923   (233553) от 23.05.2022
-
-Грусть / Ku bei / The Sadness (2021) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже год на Земле бушует пандемия загадочного вируса, к которой большинство населения планеты привыкло и относится несерьёзно. Молодая пара Джим и Кат, как и многие, продолжает жить обычной жизнью. Однажды вирус мутирует неожиданным образом, лишая заражённых человеческого облика и провоцируя неконтролируемые вспышки агрессии и похоти. Джима прорыв нового вируса застает (   Читать дальше...   )Производство: Тайвань / Machi Xcelsior StudiosЖанр: Ужасы, боевикРежиссер: Роб ДжаббазАктеры: Берант Чжу, Реджина Лэй, Ван Цучян, Чэнь Инжуй, Эмерсон Цай, Лань Вэйхуа, Ральф ЧиуПеревод: Многоголосый профессиональный (Jaskier), авторский (BadBajo)Язык озвучки: Русский, китайскийСубтитры: Английские, испанские, французскиеПродолжительность: 01:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068689FA74F073F7ED4546835157D91305C984F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634634   (233219) от 21.05.2023
-
-Пока не высохнут слезы / Wong gok ka moon / As Tears Go By (1988) UHD BDRip [H.265/2160p] [4K, HDR10, 10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гангстеру средней руки приходится делать выбор между любовью к женщине и верностью идеалам мужской дружбы. В первом случае долгое счастье в семейном союзе, во втором — смерть в качестве расплаты за доблесть.Производство: Гонконг, In-Gear Film Production Co.Жанр: драма, мелодрама, криминалРежиссер: Вонг Кар-ВайАктеры: Энди Лау, Мэгги Чун, Джеки Чун, Алекс Мань, Рональд Вон, Кун То-Хой, Чинг Вэй, Лам Кау, Уильям Чан, Энг ВонгПеревод: Многоголосый профессиональныйЯзык озвучки: русский, кантонскийСубтитры: русскиеПродолжительность: 01:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E45861EC7C51C28AB57207DD3150992E6772754C
 ```
 
 https://mybot314.ru/tekegram_catalog/

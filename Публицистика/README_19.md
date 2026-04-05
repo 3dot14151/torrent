@@ -1,3 +1,30 @@
+###  Публикация: 786592   (835803) от 01.05.2020
+
+Александр Дугин | Конспирология. Наука о заговорах, секретных обществах и тайной войне (2005) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного философа, публициста, доктора политических наук и лидера Международного "Евразийского Движения" А.Г.Дугина рассказывает о разнообразных "теориях заговора", их социологических функциях, связях с архетипами традиций и религий, их месте в общем контексте современной политической мифологии.
+Конспирология описывается как особая экстравагантная (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1772D3D508F18726E6239E338B9A398B44F944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114741   (831846) от 15.03.2017
 
 Игорь Кохановский (сост.) | «Всё не так, ребята…» Владимир Высоцкий в воспоминаниях друзей и коллег (2017) [FB2]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831846.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831442.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829755.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828894.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828868.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828482.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827967.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827737.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827578.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827165.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826893.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824477.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824242.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824238.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822507.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822235.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821063.jpg" />
 </div>
 
 
@@ -457,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820757.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820607.jpg" />
 </div>
 
 
@@ -510,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820511.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819158.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817852.jpg" />
 </div>
 
 
@@ -588,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817752.jpg" />
 </div>
 
 
@@ -614,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815922.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815443.jpg" />
 </div>
 
 
@@ -651,33 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1340901EF9A395AA34DDAD46FE5C1C69B7625A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383039   (815442) от 13.05.2020
-
-Микки Нокс | Быть психопатом. Интервью с серийным убийцей (2019) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на самое дно человеческой души.
-Кто способен стать серийным убийцей, и что должно произойти в жизни человека, чтобы так надломить психику? Сколько боли нужно испытать человеку, чтобы превратиться в чудовище, не способное чувствовать и сопереживать? Способен ли такой человек измениться, и можно ли заразиться чужим безумием? Ответы на эти вопросы вы (   Читать дальше...   )Жанр: Криминология, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F01C754F82AA2D0E1DEB65C75283D0C4AD0EFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

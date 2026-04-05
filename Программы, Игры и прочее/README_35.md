@@ -1,3 +1,107 @@
+###  Публикация: 1482309   (1007572) от 08.07.2021
+
+Power Shade: Notification Panel & Quick Settings 18.1.0 Mod by Mixroot, mak7im01 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Power Shade: Notification Bar Changer Manager - ещё один из функциональных и продуктивных проектов для создания и настройки системы уведомлений, а так же последующей адаптации под свои требования и вкусовые предпочтения по внешнему виду. Смена цвета, вид рамок, фона и прочих визуальных аспектов сделает всё максимально красиво, а изменения скорости появления, разделения (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.07.2021Разработчик: ZipoAppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF78F9F079BE382A2763F30C42FABC625523272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482559   (1007363) от 09.07.2021
+
+TickTick: Менеджер задач, Органайзер и Календарь 6.0.2.4 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007363.jpg" />
+</div>
+
+
+###  Подробнее
+
+TickTick: Менеджер задач, Органайзер и Календарь - При использовании данного приложения у вас не возникнут трудности по составлению списка дел и быстрой их синхронизации между различными устройствами. На главном экране содержится список всех ваших заданий, с разделением на "Выполненные" и "Текущие". Сверху указывается имя папки, в которой находятся (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 08.07.2021Разработчик: Appest Inc.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A87BA992B5C623CE2BA77C2185A0800F81CA812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482874   (1007255) от 10.07.2021
+
+WeNote - Заметки, задачи, напоминания и календарь 3.59 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007255.jpg" />
+</div>
+
+
+###  Подробнее
+
+WeNote - Заметки, задачи, напоминания и календарь - это многофункциональное и крайне удобное приложение, что предлагает пользователям возможность составлением задач и заметок в одной оболочке. С простым и наглядным интерфейсом, оперативным вводом данных, созданием элементов и всего прочего, а так же напоминаний, интерактивных списков и многое другого. Так же можно (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.06.2021Разработчик: Yocto EnterpriseПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4A7E7DFB33FCE432447941C82DAC18821F4273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475177   (1007248) от 10.07.2021
+
+Bike Tracker v2.3.05 [Ru/Multi] - Велокомпьютер (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Велосипед Trекер - Велокомпьютер - это приложение для всех, кто любит кататься на велосипеде и заниматься другими видами спорта, такими как бег, треккинг, пеший туризм или велосипед. Не имеет значения, вам нравятся зимние или летние виды спорта, вы профессиональный велосипедист, фанат BMX, пользуетесь электрическим велосипедом или велосипедной трассой эндуро, это (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 22.06.2021Разработчик: Sport & TravelПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5531DE00CB3C181992BF144CF283E50519DCC1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483139   (1007138) от 11.07.2021
 
 MuseScore v2.8.46 [Ru] - view and play sheet music
@@ -6,7 +110,7 @@ MuseScore v2.8.46 [Ru] - view and play sheet music
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007138.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ Eon Music Player Pro 5.5.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007125.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007078.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ Shadow Fight 2 v2.14.0 + v2.10.1 (Mod) [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007065.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ Get aCC_e55 1.1.50 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006696.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ Correct spelling v11.0 [En] - English learning app
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006475.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ Measure Map v1.2.23 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006229.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Blokada - AD Blocker for Android v5.14.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006208.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006184.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ Picture Fish - Fish Identifier v2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005439.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ File Converter v12.1.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005432.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ Photo Translator v8.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005415.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ Alien Shooter Anthology [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005135.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005064.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004968.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004525.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ Add Watermark Pro v3.0 (build 3004) - Водяные знаки в изобра�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003098.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ Money Pro v2.0.13  [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001881.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ ABBYY Business Card Reader Pro v4.21.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001813.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ Shadow Fight 2 Special Edition v1.0.7 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001585.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ Terraria v1.3.0.7.6 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001554.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ Fake GPS Location v3.5 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001541.jpg" />
 </div>
 
 
@@ -573,110 +677,6 @@ Fake GPS Location v3.5 [En/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0B6A9DC97122F44C20E62317D39CE4D9A1E8A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068038   (1001331) от 13.08.2021
-
-Audio MP3 Cutter Mix Converter v1.90 Pro [Ru/Multi] - обрезка и конвертация музыкальных файлов
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio MP3 Cutter Mix Converter – качественное приложение, с помощью которого вы сможете быстро и довольно просто обрезать или конвертировать музыку. Причём делать это можно будет без каких либо трудностей, так что вам обязательно стоит ознакомиться с данным приложением. Именно поэтому огромное количество пользователей по всему миру стали использовать это приложение.Тип издания: Пиратка (PRO feature unlocked)Релиз состоялся: 13.08.2021Разработчик: AppzCloud TechnologiesПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0DD83A60A3E01DCEDB72D161AB0E57A882E54CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352295   (1001260) от 13.01.2020
-
-Human: Fall Flat v1.0 build 34 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Human: Fall Flat 2019 – в этой игре вы будете управлять маленьким человечком, который мягко говоря плохо стоит на ногах, но очень любит находить выход из необычный мест. Помните только одно! что бы выполнить задание нужно внимательно осмотреть все во круг и как говорится "на войне все методы хороши" помните об этом :ВТип издания: Mod (Premium с отвязанными гуглсервисами)Релиз состоялся: 26 июня 2019 годаРазработчик: 505 Games SrlПоддерживаемая ОС: Android 5.0+Жанр: ГоловоломкиЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:439CF6EADDE777140C570CD4B4D15261A4165AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352253   (1001220) от 13.01.2020
-
-Geometry Dash v2.111 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geometry Dash – веселый платформер на Андроид, в котором вам нужно прыгать и летать через различные опасности. Эта простая игра в одно качание с множеством уровней, которые будут развлекать вас множество часов. Вас порадует незабываемая динамика игры, и очень привлекательный геймплей.Тип издания: Мод Unlocked (Открыты все скины)Релиз состоялся: 25 мая 2014 годаРазработчик: RobTop GamesПоддерживаемая ОС: Android 4.0+Жанр: АркадыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3B33ED67E0E2B6565C46AC3E6E3C10B20EDE43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352578   (1000984) от 14.01.2020
-
-The Room (2012) v1.07 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000984.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Room – квестовая головоломка, в которой вам надо внимательно исследовать комнату, в которой вы находитесь и рассмотреть все предметы, которыми и с которыми можно взаимодействовать! Каждый предмет может хранить в себе новую тайну, и эти загадки могут накапливаться, пока вы не найдете то, что начнет распутывать этот клубок тайн. Удивительно, но даже в одной комнате (   Читать дальше...   )Тип издания: Premium (Лицензия из Google Play)Релиз состоялся: 12 сентября 2012 годаРазработчик: Fireproof GamesПоддерживаемая ОС: Android 2.2+Жанр: ГоловоломкиЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D790145CC99EE752142662B7BCA287058DAA8DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

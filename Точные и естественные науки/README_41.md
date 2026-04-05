@@ -1,3 +1,82 @@
+###  Публикация: 1762095   (36380) от 23.11.2024
+
+П.Н. Шаныгин | Как производятся поиски и разведка золота (1934) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это оцифрованное издание раритетной книги-руководства содержит самые необходимые сведения, которые должен был усвоить каждый старатель - золотничник. За основу в ней выбран опыт инженеров, много лет проработавших в золотой промышленности. В издании подробно раскрываются темы: о золоте, о видах золотых месторождений и их образованиях, поисках и разведки месторождений (   Читать дальше...   )Жанр: геология, золотодобычаИздательство: ОНТИ НКТП СССРФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0067D7437404BF6251683A9C80CCEF9AC7A56887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762426   (36175) от 25.11.2024
+
+В.А. Нарсеев | Промышленная геология золота (1996) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36175.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены различные проблемы геологии золота и его практического применения. Работа включает исторический очерк золотодобычи в мире и в России - в частности, сведения о торговле и потреблении этого металла. Основная часть книги посвящена геологии золоторудных месторождений Мира, особое внимание уделено зональности, которая является основой дня научного (   Читать дальше...   )Жанр: геология, полезные ископаемые, золотоИздательство: Научный мирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672FE5DCD6BD5FB99C4509E63038FC52E2CA0C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763080   (35745) от 29.11.2024
+
+Ю.К. Кокурина, М.А. Антонова (сост.) | Помощь первокурсникам. Математика и физика (2024) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Составлено на основе задач вступительных экзаменов последних 15 лет. Содержит необходимый справочный и теоретический материал, разбор решений типичных примеров и задания для самостоятельного решения. Может быть использовано для подготовки к экзаменам при поступлении в вузы.
+Предназначено для самостоятельной подготовки выпускников школ, лицеев, колледжей к вступительным (   Читать дальше...   )Жанр: учебное пособиеИздательство: ВлГУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EE1CB13BB4B7988A8CEE8A19FB835B9385E1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763894   (35230) от 04.12.2024
 
 Ж. Матьё и др. | Изменение и введение функций в органическом синтезе (1980) [PDF]
@@ -6,7 +85,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35230.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35129.jpg" />
 </div>
 
 
@@ -61,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34992.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34786.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34785.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34703.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34646.jpg" />
 </div>
 
 
@@ -194,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34558.jpg" />
 </div>
 
 
@@ -220,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34538.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34515.jpg" />
 </div>
 
 
@@ -272,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34513.jpg" />
 </div>
 
 
@@ -298,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34511.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34507.jpg" />
 </div>
 
 
@@ -351,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34275.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34082.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34069.jpg" />
 </div>
 
 
@@ -430,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34066.jpg" />
 </div>
 
 
@@ -459,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33998.jpg" />
 </div>
 
 
@@ -485,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33996.jpg" />
 </div>
 
 
@@ -511,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33995.jpg" />
 </div>
 
 
@@ -538,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33988.jpg" />
 </div>
 
 
@@ -564,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33872.jpg" />
 </div>
 
 
@@ -591,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33856.jpg" />
 </div>
 
 
@@ -602,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35641668A38FCBC4EDC60B3938FE759C82117E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766341   (33781) от 18.12.2024
-
-Р. Драго | Физические методы в неорганической химии (1967) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена физико-химическим методам, применяемым в настоящее время для исследования строения неорганических соединений. Рассматриваются методы ядерного магнитного, ядерного квадрупольного и электронного парамагнитного резонансов, исследования электронных спектров, колебательных и вращательных спектров (в инфракрасной и микроволновой областях и в комбинационном (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D37991420AEBCF2D20175EFCF18813F8A634295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766516   (33655) от 19.12.2024
-
-К.А. Татаринов | Человек и мир зверей (1980) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33655.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены специфика териториальной фауны западной части УССР, основные ее представители, в т.ч. обитавшие на данной территории в глубокой древности, предложены мероприятия по охране редких и исчезающих видов.Жанр: ПриродоведениеИздательство: Вища школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415841E9FF990437523B3F950C5E18B0D0791418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766498   (33645) от 19.12.2024
-
-А. Пуле, Ж.-П. Матье | Колебательные спектры и симметрия кристаллов (1973) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой монографию крупнейших французских специалистов, в которой систематически излагаются теория колебательных спектров кристаллов и ее экспериментальные приложения. В ней весьма полно освещается вопрос о взаимодействии с фононами и появлении такого взаимодействия в спектрах комбинационного рассеяния и инфракрасного поглощения. Рассматривается (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0590D90EF310AE5063C7C93A1F1EB0233F77F8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

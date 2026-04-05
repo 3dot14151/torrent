@@ -6,7 +6,7 @@ Minecraft Dungeons (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.20 / DLC] [Ru/Mult
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241308.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LEGO Worlds (2017) [PS4] [EUR] 6.72 [HEN] [License / 1.19 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240316.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Chernobylite (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.09] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240226.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bugsnax (2020) [PS4] [USA] 5.05 [HEN] [License / 2.08] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240225.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kao the Kangaroo (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239028.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Just Dance 2022 Mod (2021) [PS3] [USA] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237176.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ EFootball PES 2021 Season Update (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.03] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235423.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Sims 4 (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.50 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233046.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Monster Energy Supercross - The Official Videogame 5 (2022) [PS4] [USA] 5.05 [HE
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232154.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Car Mechanic Simulator 2021 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.13 / DLC]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230283.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Conan (2007) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229486.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ X-Men: Destiny (2011) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229414.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ SAW: The Video Game / Пила (2009) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228325.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tornado Outbreak (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226662.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Ori and the Will of the Wisps (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.2.
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226450.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Serious Sam Collection (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.1] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224783.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Super Mario 3D All-Stars (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.1.0] [E
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224662.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ L.A. Noire (2017) [Switch] [EUR] 8.1.0 [NSZ] [License / 1.2] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224497.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Mario + Rabbids - Sparks of Hope (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223985.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Prison Break: The Conspiracy / Побег. Теория заговора (2010) 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223249.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Stormrise (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223248.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ abgx360 1.0.6 + Offline Files (2012) [Xbox360] [En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223050.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Iconoclasts (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.15] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222027.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Iconoclasts (2018) [PSVita] [USA] 3.65 [NoNpDrm] [Unofficial / 1.15] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221990.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Legendary (2008) [Xbox360] [RegionFree] FreeBoot [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221829.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Battle Fantasia (2009) [PS3] [EUR] 2.52 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221786.jpg" />
 </div>
 
 

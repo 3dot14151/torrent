@@ -1,3 +1,134 @@
+###  Публикация: 1414219   (387595) от 07.10.2020
+
+Журнал | The English Garden [UK] №11 (ноябрь 2020) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387595.jpg" />
+</div>
+
+
+###  Подробнее
+
+The English Garden - журнал для всех, кто любит красивые сады. Каждый выпуск оживляет лучшие сады Великобритании благодаря великолепным фотографиям и увлекательным историям, поддерживаемым опытными советами по посадке растений и вдохновляющими дизайнерскими идеями опытных садоводов.Жанр: СадоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F02E1A21673698D93622512C27D41E1462F039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067367   (387546) от 29.10.2016
+
+Журнал | Моя прекрасная дача №22 (Ноябрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя прекрасная дача - это самые лучшие советы дачников и садоводов, это ваш надёжный друг и помощник! Семена, рассада, полив, уход, хранение урожая, благоустройство участка - вы на всё найдете ответ в выпусках журнала.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49F3B6FC67EC149E31D38C710935BE0DB7855E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067596   (387390) от 29.10.2016
+
+Журнал | Старый лекарь №10 (2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему-то мы привыкли лечить все хвори и недуги дорогостоящими таблетками, микстурами и порошками, веря в то, что вскоре они вернут нас к нормальной жизни. Возможно, но риск остаться в проигрыше все же существует. Ведь нет гарантии того, что за деньги сегодня можно купить здоровье. Только не подумайте, что мы предлагаем вам сложить руки и ничего не делать для решения (   Читать дальше...   )Жанр: Народная медицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7229E3F5194484B8AFC403F63F476C216F5672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201172   (387317) от 07.10.2018
+
+Подшивка журналов | Elektor (2018) [PDF] [De] [Обновляемая]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по схемотехнике и электронным компонентам, издается на английском и немецком языках. На страницах журнала много внимания уделяется проектам на микроконтроллерах. Все проекты хорошо задокументированы и снабжены детальными описаниями, схемами, чертежами печатных платЖанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED1A9380CE70A68EEF0223C5C5E473F755345D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174321   (387234) от 14.10.2017
+
+Книга-журнал | №1. Лучшие праздничные рецепты (2014) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387234.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске вы найдете лучшие рецепты блюд для новогоднего стола: салаты и закуски, горячие блюда, напитки и коктейля, десерты и, конечно же, детские блюда.
+Издание является проектом бренда «Гастрономъ». По форме и содержанию напоминает подарочную кулинарную книгу.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E44741C5264ABACF366DD3031EAEC4E88193C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 833141   (387172) от 21.10.2014
 
 Журнал | Дом в саду №11 (Ноябрь 2014) [PDF]
@@ -6,7 +137,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387172.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387139.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386940.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386730.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386079.jpg" />
 </div>
 
 
@@ -138,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385832.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385731.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385556.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385554.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385544.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385493.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385434.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385433.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385425.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385369.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385329.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385328.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385093.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385080.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385038.jpg" />
 </div>
 
 
@@ -529,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385037.jpg" />
 </div>
 
 
@@ -540,136 +671,6 @@ Maxim является абсолютно уникальным журналом 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D731C59F221510A48599D02A5ABFCBFCF5A7E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833517   (384984) от 22.10.2014
-
-Газета | Любимые рецепты читателей. Спецвыпуск №25. Мясные рецепты для мультиварки (октябрь 2014) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разнообразие мясных блюд приготовленных в мультиварках такое же огромное как и приготовленых другими способами. Этот номер издания содержит всевозможные рецепты блюд из мяса в мультиварке, будь то говядина, свинина или баранина. Холодец "Праздничный", суп "Советский", шашлык "Вкусный ужин", фаршированный перец и другие рецепты вы найдете (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91ADCA13A7F422C754611C9FD874E1D317EDB605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174686   (384961) от 15.10.2017
-
-Журнал | Гастрономъ. Спецвыпуск №7. Лучшие в мире супы (октябрь 2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами  очередной выпуск спец предложения к журналу «Гастрономъ». На этот раз мы решили поделиться с вами рецептами лучших в мире супов. Самые вкусные супы, разумеется, готовят ваши бабушки и мамы, а мы подобрали рецепты мировых хитов, которые тоже когда-то придумали чьи-то бабушки. В нашем выпуске представлен практически весь мир: пряный гаспачо и белая окрошка, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C7DAAED53F5C6D9C326B362D131E27AD634502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174329   (384942) от 15.10.2017
-
-Журнал | Linux Format №8 (226) (август 2017) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Format - первый в России ежемесячный журнал на русском языке, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA0403117EDA229985B7FCEBFFA9FC3ABAE52CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067839   (384631) от 30.10.2016
-
-Подшивка журналов | Elektor (2016) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384631.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Elektor Electronics" - популярный журнал по электронным компонентам и схемотехнике, аналог отечественных Радио, Радиолюбителя, Радиомира, и т.п. На сайте журнала можно найти дополнительные материалы к статьям (прошивки контроллеров, рисунки печатных плат)Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BAF70EDAD6F0A2FFE0748EB85F89353821EF60B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068033   (384484) от 30.10.2016
-
-Журнал | Советы профессионалов №11 (ноябрь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советы профессионалов - это тематические выпуски, концентрирующие в себе лучшие публикации и новые материалы об опыте работы мастеров из разных стран мира. Один из лучших журналов по строительству и отделке дома. Все этапы работы очень наглядны.Жанр: Строительство. Дизайн.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6DEBE4565ADA27E1FA8E9A560408F1FBD9D52FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

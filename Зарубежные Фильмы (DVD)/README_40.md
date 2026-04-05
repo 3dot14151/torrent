@@ -1,81 +1,3 @@
-###  Публикация: 556146   (426041) от 05.10.2012
-
-Молодые сердца / Love and Honor (2012) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой парень Дэлтон решает тайком сбежать на несколько дней в самоволку, чтобы увидеться с любимой девушкой. К нему присоединяется его друг Микки. В компании беспечных молодых студентов Микки знакомится с соблазнительной, красивой и свободолюбивой Кэндис. Ради нескольких дней с ней Микки готов поставить на карту свою военную карьеру и даже жизнь. Герои никогда (   Читать дальше...   )Производство: Red 56 / Deep Blue PicturesЖанр: Драма, мелодрама, военныйРежиссер: Дэнни МуниАктеры: Лиам Хемсворт, Тереза Палмер, Эйми Тигарден, Крис Лоуэлл, Рики Уэйн, Уайатт Расселл, Макс Адлер, Остин Стоуэлл, Лоурен Мэй Шафер, Гордон МайклсПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: РусскийПродолжительность: 01:31:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556328   (424658) от 06.10.2012
-
-Сдохни! / ExTerminators (2009) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_424658.jpg" />
-</div>
-
-
-###  Подробнее
-
-На курсах по управлению гневом волей случая встретились три женщины: скромный бухгалтер Алекс, зубной техник Никки и служащая компании по уничтожению грызунов Стелла. Так формируется бригада «терминаторш», мстящих мужчинам-обидчикам.Жанр: Комедия, ДрамаРежиссер: Джон ИнвудАктеры: Хэзер Грэм, Дженнифер Кулидж, Мэттью Сеттл, Эмбер Хёрд, Джои Лорен Эдамс, Сэм Ллойд, Фара Уайт, Дрена Де Ниро, Гленн Моршауэр, Кэти ЛамкинПеревод: Двуголосый закадровый профессиональныйЯзык субтитров: русскийПродолжительность: 01:28:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250414   (422256) от 29.09.2018
-
-Тоня против всех / I, Tonya (2017) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американской фигуристке Тоне Хардинг пришлось нелегко: сначала тяжелое детство с грозной матерью, потом тяжелая юность, ранний брак с проходимцем и неудачи на соревнованиях из-за заниженных судьями оценок. А потом случился скандал: во время важнейших соревнований идея запугать конкурентку идёт не по плану…Производство: США / Al Film, Sierra/Affinity, Clubhouse Pictures (II), LuckyChap EntertainmentЖанр: Комедия, драма, биография, спортРежиссер: Крэйг ГиллеспиАктеры: Марго Робби, Себастьян Стэн, Эллисон Дженни, Джулианна Николсон, Пол Уолтер Хаузер, Бобби Каннавале, Бояна Новакович, Кэйтлин Карвер, Мэйзи Смит, МакКенна ГрейсПеревод: Дублированный (лицензия)Субтитры: РусскиеПродолжительность: 01:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1658B0CFCC6AED321EDC8BB2B9951D1D4177857F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250945   (422137) от 29.09.2018
 
 Взрывная блондинка / Atomic Blonde (2017) DVD9 [Custom]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422137.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421164.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421151.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421009.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420933.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420761.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419893.jpg" />
 </div>
 
 
@@ -267,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418779.jpg" />
 </div>
 
 
@@ -293,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418769.jpg" />
 </div>
 
 
@@ -319,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_413675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_413675.jpg" />
 </div>
 
 
@@ -346,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_413104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_413104.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411597.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411437.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_411046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_411046.jpg" />
 </div>
 
 
@@ -450,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_410796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_410796.jpg" />
 </div>
 
 
@@ -476,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_410145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_410145.jpg" />
 </div>
 
 
@@ -502,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409607.jpg" />
 </div>
 
 
@@ -528,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409239.jpg" />
 </div>
 
 
@@ -554,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408717.jpg" />
 </div>
 
 
@@ -580,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408334.jpg" />
 </div>
 
 
@@ -606,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407798.jpg" />
 </div>
 
 
@@ -632,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_407165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_407165.jpg" />
 </div>
 
 
@@ -660,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406634.jpg" />
 </div>
 
 
@@ -669,6 +591,84 @@ https://mybot314.ru/tekegram_catalog/
 Студенты колледжа — Джим, Дикси и Джинджер — развлекаясь, покупают на интернет-аукционе… привидение. Они и не подозревают, что это не шутка, и что на самом деле они приобрели дух Кэти Мэлоун, несчастной ирландской служанки, двести лет назад выброшенной хозяином на улицу и погибшей от холода.
 
 Старинная черная деревянная шкатулка приходит друзьям по почте. Следуя (   Читать дальше...   )Жанр: Ужасы, ТриллерРежиссер: Карлос Рамос мл.Актеры: Масьела Луша, Стивен Коллетти, Лил Дж, Дин Кэйн, Ник Хоган, Кассандра Жан, Фернанда Ромеро, Сильвия Пэнэкайон, Кэти ТаунсендПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: русскийПродолжительность: 01:27:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560196   (406578) от 15.10.2012
+
+Джуно / Juno (2007) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как-то раз 16-летняя школьница Джуно от нечего делать занялась сексом со своим парнем и в результате этого спонтанного решения «залетела». Без паники, не теряя головы, Джуно пытается найти выход из создавшейся сложной и незапланированной ситуации. Аборт – первое решение, которое подсказала логика. Однако, немного поразмыслив и взвесив все «за» и «против», девочка всё же решает оставить ребёнка. Понимая, что сама для материнских обязанностей она не созрела, Джуно решает подыскать для своего будущего малыша достойных приемных родителей. По объявлению в газете она находит таких – состоятельную семейную пару Ванессу и Марка. Джуно обещает держать их в курсе всех событий, связанных с беременностью. Общаясь с новыми родителями своего ребенка, ожидая родов, сталкиваясь с новыми вызовами и проблемами, Джуно меняет свои представления о многих важных вещах: любви, браке и семейной жизни...Жанр: Комедия, МелодрамаРежиссер: Джейсон Рейтман / Jason ReitmanАктеры: Эллен Пейдж, Майкл Сера, Дженнифер Гарнер, Джейсон Бейтман, Эллисон Дженни, Дж.К. Симмонс, Рэйн УилсонПеревод: ДублированныйПродолжительность: 01:36:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561778   (406090) от 17.10.2012
+
+Боб Марли / Bob Marli (2012) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свежий взгляд на Боба Марли, его жизнь и глобальное влияние заложенной им культуры.Жанр: документальный, биография, музыкаРежиссер: Кевин МакДональдАктеры: Боб Марли, Зигги Марли, Джимми Клифф, Рита Марли, Седелла Марли, Крис Блэкуелл, Синди Брикспир, Банни Уэйлер, Ли Джаффе, Констанс Марли...Перевод: Профессиональный (многоголосый закадровый) - лицензияЯзык субтитров: РусскийПродолжительность: 02:18:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560377   (406058) от 17.10.2012
+
+Рай: Любовь / Paradies: Liebe (2012) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Австрия, Германия, Франция, ARD Degeto Film GmbH, Arte France, ORF Film/Fernseh-Abkommen, Société Parisienne de Production, Tatfilm, Ulrich Seidl Film Produktion GmbH. WDR / ArteЖанр: ДрамаРежиссер: Ульрих ЗайдльАктеры: Маргарет Тизель, Питер Казунгу, Инге Маукс, Дуня Совинец, Хелен Бругат, Габриель Мваруа, Карлос МкутаноПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: русскийПродолжительность: 02:00:34
 
 ## Скачать торент
 ```bash

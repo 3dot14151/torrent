@@ -1,3 +1,29 @@
+###  Публикация: 1626672   (237511) от 15.04.2023
+
+Сборник | Финские сказки (2023) [MP3, Роман Ильин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для того, чтобы проникнуться культурой любого народа, следует познакомиться не только с историей, но и со сказками. Ведь они прекрасно отображают культурные особенности народа. Сказки несут ту или иную мораль, мудрость, поучительный урок, финские сказки не стали исключением из правил и тоже учат, но скажем прямо, как-то своеобразно учат. После прочтения некоторых (   Читать дальше...   )Жанр: СказкиПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD8662703BF135F3610FBC51C512D9DA16C8CD1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630199   (237382) от 29.04.2023
 
 Николай Носов | Приключения Незнайки и его друзей (2019) [MP3, Алла Човжик]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237382.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237377.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237256.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237150.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236638.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236561.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235936.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235842.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235766.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235497.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234583.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234324.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234289.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234267.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233811.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233773.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233112.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232925.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232823.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232682.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232499.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232483.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231842.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231348.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230287.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D57887FCD0FFFAE59F2F23EE09B8FE729BE50731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424416   (229575) от 16.11.2020
-
-Николай Носов | Бобик в гостях у Барбоса (1977) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сходить в гости- это праздник. Но у праздника есть и оборотная сторона...Жанр: Детская литератураВ ролях: Юрий Никулин, Олег Табаков, Александр ПожаровПродолжительность: 00:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAEEC02113E3DA2608DF3A5B28C7B4CFDB4DC0BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

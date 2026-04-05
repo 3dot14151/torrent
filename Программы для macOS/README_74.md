@@ -1,3 +1,56 @@
+###  Публикация: 1227164   (649899) от 24.05.2018
+
+JetBrains PhpStorm 2018.1.4 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649899.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains PhpStorm представляет coбoй легкий и удобный редактор PHP, который максимально повысит вашу производительность. Редактор отлично понимает код, дает удобные подсказки, быструю навигацию и отслеживает ошибки "на лету". IDE всегда готова помочь Вам собрать ваш код, запустить юнит-тесты и обеспечить визуальную отладку. PhpStorm поддерживает PHP, CSS, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.05.2018Разработчик: JetBrainsПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881090CCCAD36887072984280CEBE9386AD518BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541047   (648760) от 01.04.2022
+
+Advanced Duplicate Cleaner 1.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используйте Advanced Duplicate Cleaner, чтобы просканировать систему и найти как повторяющиеся, так и похожие файлы. Кроме того, чтобы удалить эти файлы, вы выбираете их вручную или можете использовать функцию автоматической метки, чтобы приложение могло выбирать дубликаты, как и вы.
+Это великолепно продуманное приложение. Он сканирует каждый уголок вашего Mac на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.03.2022Разработчик: © 2022 Tweaking Technologies Private LimitedПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCFA631FF1084E30C69CB8F144D595DDEDDC30E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541028   (648661) от 01.04.2022
 
 Quick Print 1.0.10 [En]
@@ -6,7 +59,7 @@ Quick Print 1.0.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648661.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Smooze Pro 2.0.19 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648652.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Adobe Muse CC 2015.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647256.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Adobe Prelude CC 2015.4 (5.0.0.184) [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645565.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Adobe Animate CC 2015.2 (15.2.0.66) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645351.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ Adobe Media Encoder CC 2015.3 (10.3.0.185) [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645253.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ Adobe Illustrator CC 2015.3 (20.0.0) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645151.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ Piezo 1.5.12 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645080.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ Blu-ray Player for Mac 1.1.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644982.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ Network Speed Monitor 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644855.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ Elmedia Player GO 7.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644840.jpg" />
 </div>
 
 
@@ -305,7 +358,7 @@ Clearview 1.8.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644021.jpg" />
 </div>
 
 
@@ -332,7 +385,7 @@ Contexts 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643905.jpg" />
 </div>
 
 
@@ -360,7 +413,7 @@ Screen flick 2.7.16 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643808.jpg" />
 </div>
 
 
@@ -386,7 +439,7 @@ MenuBar Stats 2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643688.jpg" />
 </div>
 
 
@@ -415,7 +468,7 @@ Bookends 13.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643296.jpg" />
 </div>
 
 
@@ -443,7 +496,7 @@ GaragePay 1.8.2 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643134.jpg" />
 </div>
 
 
@@ -470,7 +523,7 @@ LiveGrade Pro 4.4.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642928.jpg" />
 </div>
 
 
@@ -497,7 +550,7 @@ Virtual Vertex Muster 9 v9.0.12 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642924.jpg" />
 </div>
 
 
@@ -524,7 +577,7 @@ Typeface Pro 3 v3.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642853.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ SmartSound SonicFire Pro 6.0.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642634.jpg" />
 </div>
 
 
@@ -578,7 +631,7 @@ PitStop Pro 11 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_642432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_642432.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ Cisdem AppCrypt 7.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641099.jpg" />
 </div>
 
 
@@ -633,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640979.jpg" />
 </div>
 
 
@@ -644,62 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:024EB8ABD71C5DCB69DF1B188F7C9D4F04A29FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907007   (640964) от 10.06.2015
-
-VSCO Film 01-07 in LUTs (cube, 3dl) for AE, PP and FCPX [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640964.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D Luts представляет собой набор высокоточных эмуляций кинопленки для Premiere Pro, Final Cut Pro X, After Effects. 3D Luts  в .cube и .3dl - для использования в большинстве приложений, поддерживающих 3dluts.
-FCPX понадобится  загрузчик LUT  или LUT утилита. Adobe Premiere понадобится lumetri, который встроен в текущем СС Premiere. В Photoshop CC вы можете загрузить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: n/aПоддерживаемая ОС: OS X 10.7  +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56FAF0622D4169740DF9662913FF101BE971D083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518632   (640481) от 04.07.2012
-
-Maple 16.01 MacOS
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_640481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадская компания Maplesoft представила очередную версию своего флагманского пакета технических вычислений Maple 16. Одним из самых заметных отличий новой версии стала высочайшая скорость решения дифференциальных уравнений. Столь же значительные улучшение внесены и во все остальные математические функции, включая базовые операции и сложные алгоритмы обработки данных. Дополнительно в состав пакета включено более 100 совершенно новых математических функций и типов графиков.
-
-По заверениям производителя, пакет Maple 16 является лидером по масштабируемости и производительности (благодаря поддержке многоядерных процессоров). У пакета Maple 15 есть уникальное свойство – он поддерживает символьное решение дифференциальных уравнений – таких возможностей нет ни у одного конкурирующего продукта. Новая версия Maple демонстрирует рекордный показатель, решая 96% из эталонного набора дифференциальных уравнений.
-С помощью пакета Maple 16 пользователи могут обрабатывать очень крупные массивы данных и создавать еще более мощные (   Читать дальше...   )Название программы: Maplesoft MapleЯзык интерфейса: English
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

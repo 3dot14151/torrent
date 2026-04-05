@@ -1,3 +1,32 @@
+###  Публикация: 1180728   (337775) от 05.11.2017
+
+Fozzy - Judas (2017) [FLAC|Lossless|image + .cue] <Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Judas (4:11)
+02.Drinkin With Jesus (3:56)
+03.Painless (4:00)
+04.Weight Of My World (3:18)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8399228299B4FD7FAE2E8757857A2915CE336A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419799   (337698) от 29.10.2020
 
 Rick Miller - Unstuck In Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
@@ -6,7 +35,7 @@ Rick Miller - Unstuck In Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337698.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Armored Saint - Punching The Sky (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Heavy 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337690.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Thin Lizzy - Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337681.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bullet-Proof - De-Generation (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337651.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Unleashed - Sworn Allegiance (2004) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337630.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Ghost Town - Evolution (2015) [FLAC|tracks|WEB-DL]<Post-Hardcore, Electronic, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337498.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Ektomorf - Aggressor (2015) [FLAC|image+.cue]<Groove / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337488.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337479.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ we.own.the.sky - Earths Collide (2015) [OGG| 429-502 кб/с]<Experimental Instr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337358.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Southern Rock Christmas (2015) [MP3|320 кб/с]<Christmas, Southern Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337357.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Oh Hiroshima - In Silence We Yearn (2015) [OGG| 469-499 кб/с]<Alternative, Ex
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337352.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Keep Calm and Salute Queen (2015) [MP3|320 кб/с]<Rock, Hard Rock, Metal,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337349.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Scorpions - Taken By Force (1977) 50th Anniversary Deluxe Edition /2015, BMG/ [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337195.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - 20 лет Питерскому Рок-клубу (2001) [MP3|320 кб/с]<R
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337172.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Scorpions - World Wide Live (1985) 50th Anniversary Deluxe Edition /2015, BMG/ [
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336914.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336902.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Cornerstone - Arrival (2000) [WavPack|Lossless|image + .cue] <Hard Rock, Heavy M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336842.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336782.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Brainless - Ruler Of Everthing (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336620.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Conflagration - Destructive Generation (2011) Re-recorded Version 2022 [FLAC|Los
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336619.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Carnal Ruin - Soulless I Remain (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336618.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Bridg3s - Aria; Asunder (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern, Melodic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336617.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Band of Spice - 5 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336615.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Atrophia Red Sun - Fears (1997) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336614.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Brainless - Brainless World (1992) Remastered, 2017, Battle Cry Records [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336613.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Brainless - Brainless World (1992) Remastered, 2017, Battle Cry Records [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50F4FAA951AA0EFB11D79AC087AD36E91C649856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578787   (336612) от 27.09.2022
-
-Spellbook -  Magick & Mischief (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wands to the Sky [00:03:47]
-02. Black Shadow [00:03:51]
-03. Ominous Skies [00:04:44]
-04. Not Long for This World [00:08:37](   Читать дальше...   )Жанр: Heavy Rock, Doom MetalПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C09E6CF558C021F9A9C3EF3A8A5F03E9D83899
 ```
 
 https://mybot314.ru/tekegram_catalog/

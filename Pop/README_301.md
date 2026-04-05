@@ -1,175 +1,3 @@
-###  Публикация: 426712   (163678) от 02.11.2023
-
-Поющие Гитары - Лучшее (2011) [FLAC|Lossless]<Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Толстый Карлсон (2:46)
-02. Суббота (3:23)
-03. Синий иней (2:55)
-04. Воскресенье (3:16)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C87E7EE89C82AA329855EEB9391CDDB9C4D5BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346557   (163470) от 19.12.2019
-
-VA - Первый танцевальный, Vol. 19 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163470.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Zivert - Credo
-2. MONATIK - Каждый раз
-3. Вандер Фил/Feduk - Сахарок
-4. Nola/2 Ляма - Чувства из дерева(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABCF85C7D99A0AEB58B42B68C0330DC182E488F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597772   (163258) от 18.12.2022
-
-Chester - Hold The Line (1987) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold The Line (Extended Version)
-02. Hold The Line (Dub Version)Жанр: Electronic, Italo-DiscoПродолжительность: 00:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD8FD7FCD414E8C2D5A310763B51B8DE7A1D4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432620   (163030) от 18.12.2020
-
-Градусы - На твоей съёмной (2020) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163030.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Об альбоме
-2. Меланхолия (Intro)
-3. Меланхолия
-4. Твои волосы (Intro)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E347A303DD0A30F63FFDF43797B5846D49F433EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653114   (162927) от 03.11.2023
-
-Ружена Сикора - Великие исполнители России XX века. Ружена Сикора (2004) 2CD [FLAC|Lossless|image + .cue]<Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162927.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Воспоминание (Исаак Дунаевский – Давид Самойлов) – 2:41
-2. Я тебе писать не стану (Кирилл Молчанов – Яков Халецкий) – 2:39
-3. С первым снегом (Валерий Зубков – Ашот Гарнакерьян) – 3:46
-4. Только не я (И. Вирнажский, обр. Владимира Горышника – Ольга Фадеева) – 2:17(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 02:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:138FC620EA336470FD0552EFBAE236B6FC0D66B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432621   (162926) от 18.12.2020
-
-Soprano Турецкого - Новогодние хиты (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162926.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jingle Bells (Intro)
-2. We Wish You а Merry Christmas
-3. Рождество и Новый год
-4. Колядка(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DB0F868C91DA3359C9ADAB1A1FCBBA55C880A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432713   (162896) от 18.12.2020
 
 Денис Майданов - Я остаюсь (2020) [MP3|320 Kbps] <Pop>
@@ -178,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162896.jpg" />
 </div>
 
 
@@ -207,7 +35,7 @@ Barbara Law - Take All Of Me (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162889.jpg" />
 </div>
 
 
@@ -236,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162881.jpg" />
 </div>
 
 
@@ -265,7 +93,7 @@ VA - Для тебя, Рио-Рита! (2007) [FLAC|Lossless]<Ретро>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162874.jpg" />
 </div>
 
 
@@ -294,7 +122,7 @@ VA - Незабытые танго (2010) [APE|Lossless]<Retro>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162863.jpg" />
 </div>
 
 
@@ -323,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162861.jpg" />
 </div>
 
 
@@ -352,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162860.jpg" />
 </div>
 
 
@@ -381,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162859.jpg" />
 </div>
 
 
@@ -410,7 +238,7 @@ Rod Stewart - The Tears of Hercules (2021) Japanese Edition [FLAC|Lossless|image
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162854.jpg" />
 </div>
 
 
@@ -439,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162850.jpg" />
 </div>
 
 
@@ -468,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162841.jpg" />
 </div>
 
 
@@ -494,7 +322,7 @@ V.A. - В русском ресторане - Романсы (Выпуск 2) (2
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162835.jpg" />
 </div>
 
 
@@ -523,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162825.jpg" />
 </div>
 
 
@@ -552,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162799.jpg" />
 </div>
 
 
@@ -578,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162795.jpg" />
 </div>
 
 
@@ -607,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162792.jpg" />
 </div>
 
 
@@ -636,7 +464,7 @@ VA - Кружатся диски. Хиты 70-х (2002) CD № 1 [FLAC|Lossless]
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162783.jpg" />
 </div>
 
 
@@ -671,7 +499,7 @@ VA - В русском ресторане. Оригинальные записи
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162781.jpg" />
 </div>
 
 
@@ -700,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162779.jpg" />
 </div>
 
 
@@ -729,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162777.jpg" />
 </div>
 
 
@@ -743,6 +571,180 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A86A46627E491049AD8BF4B2419939AC13A3C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634908   (162772) от 03.11.2023
+
+ВИА «Лейся, Песня !» - Лейся, песня international (2004) [FLAC|Lossless]<Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Песенка сапожника (Д. Тухманов – В. Харитонов)"
+02. "Ты мне не снишься (В. Добрынин – М. Рябинин)"
+03. "Кто тебе сказал (В. Добрынин – Л. Дербенёв)"
+04. "Горько (В. Добрынин – Л. Дербенёв, И. Шаферан)"(   Читать дальше...   )Жанр: RetroПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6E658AB677CC8A6B90CE458A9AD9E3E759F4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593822   (162770) от 03.11.2023
+
+Валентина Толкунова - Лучшее (2 CD) (2010) [FLAC|Lossless]<Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы на лодочке катались
+02. Ничего не кончается
+03. А любовь - то лебедем
+04. Поговори со мною мама(   Читать дальше...   )Жанр: RetroПродолжительность: 01:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB0AED91C6C6CFDB6C63D315B55F773B1743591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517543   (162765) от 15.12.2021
+
+VA - Superhits 2021 [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nils van Zandt - Green Light, Red Light (2:26)
+02. Sean Finn & Selda - Don't Cha (feat Inaya Day) - Don't Cha (2:44)
+03. DJ F.R.A.N.K & T-Spoon - No Time 2 Waste 2021 (HouseWerk remix) (2:39)
+04. AMARI & Lowkie - Survive (2:32)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2FFF70790DD0E2EF5F1673C5DBE25461B920F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589602   (162760) от 03.11.2023
+
+VA - Мелодии и ритмы советской эстрады (2003) (Выпуск 1-2) [FLAC|Lossless]<Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Клен - ВИА 'Синяя птица'
+02 - Вологда - ВИА 'Песняры'
+03 - Честно говоря - ВИА 'Цветы'
+04 - На острове Буяне - ВИА 'Ариэль'(   Читать дальше...   )Жанр: RetroПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2823BC5845CE0D63902B341D1B9C299C5CB9A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584258   (162745) от 03.11.2023
+
+VA - Песни 70-х (2 CD) (2005) [FLAC|Lossless]<Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Машина времени "Поворот"
+02. Весёлые ребята "Уходило лето"
+03. Синяя птица "Клён"
+04. Песняры "Вологда"(   Читать дальше...   )Жанр: RetroПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908E4E2FD83E0248ED5BD15CE6D9E3D652E1626F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 656911   (162724) от 03.11.2023
+
+Алла Пугачёва - Grand Сollection (2001) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. До свидания, лето (А.Зацепин - Л.Дербенёв)
+02. Арлекино (Э.Димитров - Б.Барокас)
+03. Паромщик (И.Николаев - Н.Зиновьев)
+04. Миллион алых роз (Р.Паулс - А.Вознесенский)(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B7D73B76D845E2D848C55D0CF110D1E2DBAEB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,119 +1,18 @@
-###  Публикация: 605186   (995948) от 19.01.2013
+###  Публикация: 603619   (996825) от 15.01.2013
 
-Zaraza - 2 альбома + Demo (1994 - 2003) Дискография [MP3|320 кб/с]<Industrial Doom Metal/Experemental Metal>
+Зелёный Шершень / The Green Hornet (2011) BDRip [1080p] [Вертикальная анаморфная стереопара 3D] [Hand Made 16:9]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Necessary (13:26)
-02. 24 Hours (6:21)
-03. A Quickie (Screw Rave) (3:06)
-04. A Foreplay (Screw Seduction) (1:59)
-05. A Screw (5:28)
-06. Zaraza (16:23)
-07. Slavic BlasphemyЖанр: Industrial Doom Metal/Experemental MetalПродолжительность: 02:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A9E4BA4A0A58593B02C093BCD891323C1DF8FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605408   (995947) от 19.01.2013
-
-Angellore - 2 EP (2008-2009) [MP3|128 кб/с]<Atmospheric Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Atmospheric Doom MetalПродолжительность: 00:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE408B204B67033AD7D29DDF0B6CE8AD932C4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605299   (995941) от 19.01.2013
-
-Ronski Speed - True to Trance (January 2013) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten - WKND
- 02. Eleven.Five - The Way We Were (Toby Hedges Remix)
- 03. ID - ID
- 04. Dennis Sheperd feat. Molly Bancroft - Silence (Steve Brian Remix)
- 05. ID - ID
- 06. Christian Burns, Paul Oakenfold & JES - As We Collide (Orjan Nilsen Remix)
- 07. ID - ID
- 08. Andain - What It's Like (Sneijder Remix)
- 09. Aly & Fila vs. John O'Callaghan - VapourizeЖанр: TranceПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC70743D1C5A6A9CDE94FE63ED8B6CDFCF37D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605124   (995940) от 19.01.2013
-
-Kalorin Nemayothin - Feel by Kal (2009) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Till  [03:28]
-02. Night And Day  [03:29]
-03. As Time Goes By  [02:57]
-04. Tea For Two  [03:12]
-05. For Sentimental Reason  [04:02]
-06. Stranger In Paradise  [04:25]
-07. Where Or When  [03:45]
-08. I Get A Kick Out Of You  [03:46]
-09. Dream  [02:32]
-10. It's Magic  [03:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:42
+Сын медиа-магната «прожигает» свою жизнь в вечных пьянках и бесчисленных случайных связях. Но после неожиданной смерти отца он наконец осознает бесцельность своего существования и решает все изменить. Вместе с другом они становятся супергероями, которые борются с преступностью ее же методами, совершенно не считаясь с законом…Жанр: Боевик, Триллер, Комедия, КриминалРежиссер: Мишель ГондриАктеры: Сет Роген,  Джей Чоу,  Кристоф Вальц,  Кэмерон Диаз,  Том Уилкинсон,  Дэвид Харбор,  Эдвард Джеймс Олмос,  Джэми Харрис,  Чад Коулмэн,  Эдвард ФерлонгПеревод: ДублированныйПродолжительность: 01:58:53
 
 ## Скачать торент
 ```bash
@@ -125,34 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605303   (995934) от 19.01.2013
+###  Публикация: 600906   (996824) от 15.01.2013
 
-Psychic - 1 album, 1 single (2012-2013) Discography [MP3|192-320 кб/с]<Progressive Metal, Djent>
+WinUAE 2.5.1 + BIOS (эмулятор Amiga) [Amiga CD32] [English] (2012)
 
->>Архив торрентов
->>Архив Музыки
+>>Консольные Игры
+>>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996824.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Progressive Metal, DjentПродолжительность: 00:42:23
-1. Samara´s Dream 05:27
-2. Paranormal Cats 04:05
-3. Compression of Damage Melusine 404 05:58
-4. Octopussy 04:33
-5. Sky Trajection 04:51
-6. Heretic Error of Magnetic Forces 05:50
-7. Dolly in the Christmas Blood 04:32
-8. Wicker 03:58
-9. Katy Perry - I Kissed a Girl (Psychic REMIX) 03:05
+Лучший эмулятор для Amiga 500/500+/600/1000/1200/3000/4000/CD32/CDTV для WindowsЖанр: ЭмуляторЯзык интерфейса: English
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE7B485C7B363190BB7B94631EEAC64ECF70BCB0
+magnet:?xt=urn:btih:177DF08756396B99BC1EDE588AEADA855D2CE7C2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,121 +50,23 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605155   (995933) от 19.01.2013
+###  Публикация: 603300   (996823) от 15.01.2013
 
-Angellore - Errances (2012) [MP3|192 кб/с]<Atmospheric Doom Metal/Gothiс Metal>
+"Лаборатория Касперского" раскрыла международную шпионскую сеть
 
->>Архив торрентов
->>Архив Музыки
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dans Les Vallсes Eternelles (8:23)
-02. Tears Of Snow (8:23)
-03. I Am The Agony (6:49)
-04. Weeping Ghost (4:30)
-05. Errance (2:14)
-06. ...Where Roses Never Die... (7:30)
-07. Shades Of Sorrow (8:28)Жанр: Atmospheric Doom Metal/Gothiс MetalПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F0DAE61DB25548CFF170A182A89680C63548D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605309   (995927) от 19.01.2013
-
-Markus Schulz - Global DJ Broadcast (17-01-2013) [MP3|256 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lange - Hold That Sucker Down (Intro Mix)
- 02. Ferry Corsten - Kudawudashuda
- 03. Aerofoil vs. E&G - One Word (Markus Schulz Big Room Reconstruction)
- 04. Markus Schulz Featuring Ana Diaz - Nothing Without Me (Markus Schulz Return to Coldharbour Remix)
- 05. Gal Abutbul & Sigal Cohen - Patana (Tucandeo Remix)
- 06. Lana Del Rey - Summertime Sadness (Cedric Gervais Remix)
- 07. SkyKeeper - Tornado 2013 (Reload Mix)
- 08. DNS Project - ShatterЖанр: TranceПродолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F659797979F8DD5BEBEE190584933AEDC5B3DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605529   (995926) от 19.01.2013
-
-[Wallpapers] vodopad
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены фотографии водопадов разных стран.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE21FE67E8E69353349D8A4DF667F92171011D77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605200   (995925) от 19.01.2013
-
-Panadda Reungwut - Feel By Panadda (2009) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Fall In Love  [03:14]
-02. It Had To Be You  [03:58]
-03. Quando Quando Quando  [04:31]
-04. How High The Moon  [02:51]
-05. Someone To Watch Over Me  [04:16]
-06. I've Got You Under My Skin  [04:04]
-07. Body And Soul  [04:30]
-08. A Time For Love  [04:05]
-09. I Could Have Danced All Night  [03:32]
-10. If Ever I Would Leave You  [02:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:32
+
+14.01.2013Антивирусная "Лаборатория Касперского" обнаружила международную сеть под кодовым названием "Red October" ("Красный октябрь"), используемую для кибершпионажа. Первая часть "исследования операции 'Red October'" опубликована на сайте лаборатории 14 января. Анонсирована также вторая часть, "содержащая детальный технический анализ всех известных модулей", которая должна выйти в течение нескольких дней.
+(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -286,30 +78,49 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605156   (995924) от 19.01.2013
+###  Публикация: 603117   (996822) от 15.01.2013
 
-Eddie and Vaan Shaw - Naked (2009) [FLAC|Lossless]<Blues,Acoustic>
+Кинг Конг / King Kong [Extended Cut] (2005) [H.264/720p-LQ] BDRip
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Me And My Boy
-02. Lick Skillet
-03. Greedy Man
-04. Voices Crying
-05. Mississippi Sax
-06. Greenville Bound
-07. My Friend Roscoe
-08. Black Eyed Peas
-09. Pickin' Cotton
-10. Motel 6(   Читать дальше...   )Жанр: Blues, AcousticПродолжительность: 00:51:35
+В 1930-м году съемочная группа под предводительством режиссера-неудачника Карла Дэнхэма отправляется на загадочный Остров Черепа неподалеку от Суматры, чтобы изучать легенды о гигантской горилле по кличке Конг. По прибытии на место они обнаруживают, что Кинг Конг и правда существует.
+
+Горилла живет в самой чаще непроходимых джунглей, где помимо него, спрятанные от всего мира, обитают многие создания из доисторических времен. Исследователи оказываются между двух огней — с одной стороны Кинг Конг, а с другой — его враги динозавры…Жанр: Приключения, Мелодрама, БоевикРежиссер: Питер ДжексонАктеры: Наоми Уоттс, Джек Блэк, Эдриан Броуди, Томас Кречманн, Колин Хэнкс, Энди Серкис, Ивэн Декстер Парк, Джэми Белл, Лобо Чан, Джон Саммер, Крэйг Холл, Кайл Чандлер,Билл Джонсон, Марк Хэдлоу, Джеральдин Брофи, Дэвид Дэнис, Дэвид Питту, Пип Мушин, Джим Нобелок, Рик Херберт, Ли ДонахьюПеревод: Дублированный (вставки двухголосый закадровый (Гланц и Королева) на расширенные места),  Двухголосый закадровый (Гланц и Королева)Продолжительность: 03:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:971FDCBBFAD2205F32766E11774C972924F35463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603627   (996821) от 15.01.2013
+
+Подшивка журналов | Компоненты TI. Полный спектр применений №21-36 (2009-2012) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996821.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Компоненты TI - Полный спектр применений" предназначен для разработчиков электроники, в том числе встроенных систем управления. В числе наших читателей - специалисты предприятий, занятых выпуском серийной продукции, создатели инновационных решений на основе цифровых сигнальных процессоров семейств TMS320C2000/С5000/С6000, RISC-микроконтроллеров с ультранизким (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
@@ -321,30 +132,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605174   (995922) от 19.01.2013
+###  Публикация: 603633   (996820) от 15.01.2013
 
-Elliott and the Untouchables - Danger Zone (1997) [FLAC|Lossless]<Blues>
+Ограбление казино / Killing Them Softly (2012) [1080p] BDRip
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>След.
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sweet Little Woman
- 02. Ain't No Big Thing
- 03. More Than That
- 04. Empty Heart
- 05. Where Were You
- 06. Check Out Time
- 07. Crazy 'Bout You
- 08. Why Baby Why
- 09.  J.T.'s Groove
- 10. Danger Zone(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:56
+Во время подпольной игры в покер совершено ограбление, и угроза повисла над всем воровским сообществом. Воротилы мафии рассчитывают, что Джеки Коган найдет виновных. Однако, вращаясь среди нерешительных заказчиков, жуликов-ростовщиков, усталых убийц и тех, кто спланировал «дело», даже специалисту трудно сохранить контроль над ситуацией…Жанр: Триллер, Драма, КриминалРежиссер: Эндрю ДоминикАктеры: Брэд Питт, Ричард Дженкинс, Джеймс Гандольфини, Рэй Лиотта, Скут МакНэйри, Бен Мендельсон, Винсент Куратола, Тревор Лонг, Макс Каселла, Сэм ШепардПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:37:06
 
 ## Скачать торент
 ```bash
@@ -356,34 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605273   (995921) от 19.01.2013
+###  Публикация: 603656   (996819) от 15.01.2013
 
-VA - 15 Top Trance Hits (2013-01) [MP3|320 кб/с]<Trance>
+Дорога на Эльдорадо / The Road to El Dorado (2000) [H.264] DVDRip
 
->>Архив торрентов
->>Архив Музыки
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996819.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. W&W - Lift Off (Original Mix)
- 02. Markus Schulz ft Ana Diaz - Nothing Without Me (Antillas & Dankann Club Mix)
- 03. Planet Perfecto - Bullet In The Gun (Eddie Halliwell Remix)
- 04. Emma Hewitt - Rewind (Mikkas Remix)
- 05. Solarstone vs Scott Bond - 3rd Earth (Heatbeat Remix)
- 06. Roger Shah ft Adrina Thorpe - Island (Antillas Club Mix)
- 07. Tritonal vs Super8 & Tab - Arc (Radio Edit)
- 08. Heatbeat - Chow Mein (Noah Neiman Remix)
- 09. Yahel & Liya - Creatures (Paul Oakenfold Remix)
- 10. RAM & Alex M.O.R.P.H. - Grotesque (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:46
+Тулио и Мигель, герои этой полнометражной мультипликационной картины, предпочитают не зарабатывать деньги тяжелым трудом. Эти два отпетых мошенника обожают, когда золотишко само идет к ним в руки. Случилось так, что этим проходимцам крупно повезло. Им посчастливилось найти таинственную карту, на которой обозначен величественный Город Золота, мифический Эльдорадо. (   Читать дальше...   )Жанр: Мультфильм, приключения, семейныйРежиссер: Бибо Бержерон, Уилл Финн, Дон Пол, Дэвид Силверман, Джеффри КатценбергПерсонажи: Кевин Клайн, Кеннет Брэна, Рози Перес, Арманд Ассанте, Эдвард Джеймс Олмос, Джим Каммингс, Фрэнк Уэлкер, Тобин Белл...Перевод: Дублированный, многоголосый, двуголосый, авторскийЯзык субтитров: Русские, английскиеПродолжительность: 01:29:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE23C3BC611F0A5B003FE08BCC9E5DAA3ED387BE
+magnet:?xt=urn:btih:EC8446E71CEC6F3F770FF64C8810A7FA7DD60F86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,92 +184,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605008   (995919) от 19.01.2013
+###  Публикация: 603758   (996817) от 15.01.2013
 
-VA - Deep House Masters (2013) [MP3|320 кб/с]<Deep House>
+Облачный атлас / Cloud Atlas (2012) BDRip [576p] iPad
 
->>Архив торрентов
->>Архив Музыки
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996817.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gabriel Marchisio and Keshia - I Don't No (Retro Lounge Mix)
-02. Pedro Costa - By Your Side (Chris Rubz Remix)
-03. DL3R - Sarasvati
-04. Hector Moran - Ying Feng
-05. Mark Faderfaz - Take Me to the Rhythm
-06. Sandro Peres feat. Raphael - Music Is My Life (Soul Mix)
-07. Funk Force - Walking Dance
-08. Atomic Electrolab - Me and You
-09. Pedro Costa - Indian Flute
-10. Jeancarlo Santin - AmelieЖанр: Deep HouseПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615686AAE837CAB7333910DBFDB8787E8AE06591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605434   (995918) от 19.01.2013
-
-Профессия  репортер. Из логова зверя (2013.01.19) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995918.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Он плакал и просил о помощи. Ему поверили и вышли на улицы. И только он знал, что Ирина никогда не вернется. О чем молчал Алексей Кабанов? Кто помогал ему, а кто не поверил? Что станет с детьми убийцы?
-Эксклюзивные кадры из логова зверя и хронология преступления — в специальном выпуске программы «Профессия — Репортер».Жанр: ДокументальныйПродолжительность: ~ 00:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B43CDE3F5E7ABA21169971C00BEFE661E41417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605163   (995914) от 19.01.2013
-
-Eddie Baytos & The Nervis Bros. - Take Some Mambo Time (1991) [FLAC|Lossless]<Blues-Zydeco>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind Suspicion
- 02. Painted Dream
- 03. Don't Beat Yourself Up
- 04. Come Together
- 05. Do Sumpin'
- 06. Lonely Man
- 07. Post Man
- 08. I Ain't Drunk
- 09. Take Some Mambo Time
- 10. Loiusanne(   Читать дальше...   )Жанр: Blues-ZydecoПродолжительность: 00:51:39
+Шесть историй — пять реинкарнаций, происходящих в разное время, тесно переплетаются между собой… Многослойный сюжет начинается с истории американского нотариуса из 19 века, за ним следом идёт бедный музыкант-англичанин из 1930. Далее — издатель гламурных журналов, герой нашего времени. В ближайшем будущем центральным персонажем станет клон-бунтарь, и всё закончится на примитивном человеке на Гавайях, который пережил апокалипсис.Жанр: Фантастика, драма, детективРежиссер: Лана Вачовски, Том Тыквер, Энди ВачовскиАктеры: Том Хэнкс, Холли Берри, Джим Броудбент, Хьюго Уивинг, Джим Стёрджесс, Пэ Дуна, Бен Уишоу, Джеймс Д’Арси, Кит ДэвидПеревод: ДублированныйФормат: MP4 (контейнер m4v)Продолжительность: 02:52:07
 
 ## Скачать торент
 ```bash
@@ -488,30 +210,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605022   (995912) от 19.01.2013
+###  Публикация: 603745   (996815) от 15.01.2013
 
-Velcra - 3 Альбома (2002-2007) Дискография [FLAC|Lossless]<Industrial Metal | Electronic | Rapcore | Female Vocal>
+Хэнкок / Hancock (2008) (Расширенная версия) BDRip [576p] iPad
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996815.jpg" />
 </div>
 
 
 ###  Подробнее
 
-<<<
-----------------------------------------------------------------------------
-01. The Big Sleep
-02. White Knuckle Mountains
-03. New Recruit
-04. Dusk Becomes A Dawn
-05. Dead End Lane
-06. We Must Start Again
-07. Nautifungus
-08. Higher State Of Truth(   Читать дальше...   )Тип издания: ДискографияЖанр: Industrial Metal | Electronic | Rapcore | Female VocalПродолжительность: 00:46:43 >>>
+Жанр: фантастика, боевик, драма, комедияРежиссер: Питер БергВ ролях: Уилл Смит, Шарлиз Терон, Валери Эзлинн, Джейсон Бейтман, Стефен Бишоп, Саманта Кэннон, Кейт Кларк, Ши Керри, Кайла ДангПеревод: ДублированныйФормат: MP4 (контейнер m4v)Продолжительность: 01:42:14
 
 ## Скачать торент
 ```bash
@@ -523,34 +236,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605287   (995910) от 19.01.2013
+###  Публикация: 603347   (996814) от 15.01.2013
 
-Armin van Buuren - A State of Trance Episode 596 (17-01-2013) [MP3|256 кб/с]<Trance>
+Сергей Панзин | Ubuntu-Server. Видеокурс [2011] PCRec
 
->>Архив торрентов
->>Архив Музыки
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andy Moor & Betsie Larkin - Love Again (Andrew Rayel Remix) (Ava)
- 02. Denis Kenzo feat. Sveta B. - Lullaby Lonely (Progressive Mix) (Infra Progressive)
- 03. Audien - Warfayer (Anjunabeats)
- 04. Vadim Spark - Lost Angeles (Club Mix) (Vendace)
- 05. Kyau & Albert - All Your Colours (Euphonic)
- 06. Steve Brian & Cressida - Casablanca (Tool Trance)
- 07. Eximinds - Revolved (Anjunabeats)
- 08. Antillas & Dankann - Synapse (Soundpiercing)
- 09. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Lange Remix) (High Contrast)
- 10. Armin van Buuren & Markus Schulz - The Expedition (ASOT 600 Anthem) (Original Mix)Жанр: TranceПродолжительность: 01:57:02
+Видеокурс из 6-ти уроков по Ubuntu-Server от Сергея Панзина.Жанр: Обучающие материалыПродолжительность: 1:05:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B757B2FF87A07BD8489944223D2BDD74745B56C
+magnet:?xt=urn:btih:D957DE1230E174A14F98F6AB19793945328E804F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,91 +262,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 603689   (995905) от 19.01.2013
+###  Публикация: 601838   (996813) от 15.01.2013
 
-Whispers In The Shadow - The Rites Of Passage (2012) [MP3|320 кб/с]<Gothic Rock>
+Шаблоны - Расписание уроков, Трансформеры [TIF]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 (path 29)
-2 The Rites Of Passage
-3 Words Made Flesh
-4 Call To Arms
-5 Back To The Wound
-6 The Tempest
-7 Reinvention
-8 Wormwood Star
-9 Transmutation Babalon
-10 Secret Of Silence(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4BF6238317D7C5F52B9BBD419C518327B19FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604958   (995904) от 19.01.2013
-
-Фотография - Фотограф Ирина Жиркова
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Ирина ЖирковаРазрешение файлов: ~  500x750 ~ 800x800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7E8375BF643A2F1DE8C8DC06C07D34DEDA1C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605421   (995901) от 19.01.2013
-
-VA - Live at What Hi-Fi? Cafe (2007) [FLAC|Lossless]<Jazz, Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jacintha - The Look of Love  [04:10]
-02. Jacintha - California Dreaming  [05:42]
-03. Lauren White - Blue Bayou  [05:46]
-04. Eden Atwood - Meditation  [05:48]
-05. Jacintha - So Danco Samba  [03:14]
-06. Jim Brock - O Vazio  [06:57]
-07. Jacintha - Manha De Carnival  [06:12]
-08. Bernstein - Gabriela Lena Frank : The Mestizo Waitz  [03:13]
-09. Lauren White - Superstar  [04:32]
-10. Jacintha - Que Sera Sera  [05:12](   Читать дальше...   )Жанр: Jazz, Jazz VocalПродолжительность: 01:12:09
+Расписание уроков на тему Трансформеров
+Полностью редактируется, слои сохранены.Разрешение файлов: 1280х960
 
 ## Скачать торент
 ```bash
@@ -654,25 +289,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605494   (995898) от 19.01.2013
+###  Публикация: 603789   (996812) от 15.01.2013
 
-[Wallpapers] Wallpapers Fantasy №18(Pavel)
+Упражнения для увеличения пениса [2012] [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Научная и техническая литература
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола 50 шт
+Вы наверняка получали большое количество электронных писем с рекламой по увеличению члена и скорее всего слышали, что подобная реклама – обман, что это невозможно. Данная книга изменит ваши представления об упражнениях, направленных на увеличение пениса, раз и навсегда! Автор объединил свой опыт и опыт тысячи мужчин для описания специальных тренировок мышц полового члена.
+
+Результат – не только увеличение размеров, но и более здоровая простата и сосудистая система, сильная и продолжительная эрекция, яркие оргазмы и даже профилактика рака предстательной железы. Данная методика была одобрена многими читателями из разных стран, в том числе врачами.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B28F0ADA238D790D9F0F3B83C647FE2C2518029
+magnet:?xt=urn:btih:4B6DA92EFD1168F92886671425BA1787DF2E4F46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,22 +317,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 603057   (995896) от 19.01.2013
+###  Публикация: 603608   (996811) от 15.01.2013
 
-[Рисованная графика] Marvel Swimsuit Special Vol 1 No3 (1994)
+Pano2VR 4.0 Pro (x86/x64) [Multi/Rus]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Третий выпуск знаменитого альбома комиксов Marvel Swimsuit Special Vol 1 No3 (1994 г.вып. №3)
-46 изображений
+Pano2VR это приложение, для преобразования сферических или цилиндрических панорамных изображений в форматы Adobe Flash 10, HTML5 (WebGL / iPhone / IPad), или QuickTime VR (QTVR) с такими функциями, как настраиваемые скины, добавления анимации, направленного звука, автоматическим вращением, поддержкой гигапиксельных панорам.Название программы: Pano2VR 4.0 Pro (x86/x64)Язык интерфейса: Мультиязычный (русский присутствует)
 
 ## Скачать торент
 ```bash
@@ -707,86 +343,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 603418   (995891) от 19.01.2013
+###  Публикация: 603198   (996810) от 15.01.2013
 
-Dusky - Stick By This (2011) [FLAC|Lossless]<Progressive House, House, Downtempo, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Silence Never Heard (2:53)
-02. - Lost In You (feat. Janai) (5:15)
-03. - Stick By This (5:51)
-04. - Plastique (4:12)
-05. - I'm Running (feat. Soloman) (5:44)
-06. - Falling (7:00)
-07. - Grain (4:06)
-08. - Lost Highway (6:47)
-09. - Mr Miyagi (4:51)
-10. - Thoughts & Motions (4:40)(   Читать дальше...   )Жанр: Progressive House, House, Downtempo, Deep HouseПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605071   (995889) от 19.01.2013
-
-Контрольная закупка - Пельмени (18/01/2013) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Контрольная закупка - своеобразная потребительская энциклопедия.Товары народного потребления здесь тестируют эксперты, проверяя их соответствие государственным стандартам. Ничто не может ускользнуть от взгляда опытных профессионалов.Вкусовые качества продуктов питания, наоборот, тестируют не специалисты, а обычные покупатели, случайно оказавшиеся в магазине. Народная экспертиза строга, но справедлива.Главная интрига передачи – соревнование брендов. Наверняка каждый из нас ощущал на себе очарование имиджа известных торговых марок. Находясь под давлением рекламы раскрученных брендов, мы некритично воспринимаем качество продуктов питания, которые они предлагают.Жанр: ТелепередачаПродолжительность: 00:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D10EEF80B08153DEC06599D15D983E7B8D3BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604332   (995885) от 19.01.2013
-
-Журнал | Железный мир №6 [2012] [PDF]
+Олег Рой | Собрание сочинений в 33 книгах [2007-2013] [FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Железный мир" был задуман как профессиональное издание, посвященное силовым видам спорта. На страницах журнала находят свое отражения события, происходящие в мире бодибилдинга, пауэрлифтинга, армрестлинга. В журнале вы найдете информацию, посвященную методикам построения тренировочного процесса и спортивному питанию, советы профессиональных спортсменов. Много внимания уделяется соревнованиям, как проходящим у нас в стране, так и зарубежным, мировым и российским новостям.Формат: PDF
+Олег Юрьевич Рой (настоящая фамилия Резепкин; род. 12 октября 1965, Магнитогорск) — российский писатель.
+Писательскую деятельность начал в 2001 году. Член Союза писателей России, Союза писателей Европы и Международного детектив-клуба, член PEN-клуба. Многие его произведения переведены через «Берлинский книжный дом» на европейские языки и выпущены на Западе.
+По его произведениям сняты телевизионные сериалы «Дом без выхода» и «Индус».Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B244F0149BD068E2E1EE20DE8C51843F01272E6
+magnet:?xt=urn:btih:4E9A243590D36F6457DB9C0E8A08EEA7F8A1AE27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -794,32 +371,331 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605376   (995884) от 19.01.2013
+###  Публикация: 603761   (996809) от 15.01.2013
 
-City of the Lost - At the Edge (2013) [MP3|320 кб/с]<Atmospheric, Post-Metal, Instrumental>
+Photodex ProShow Producer 5.0.3297 RePack by KpoJIuK [Русский / Английский]
 
->>Архив торрентов
->>Архив Музыки
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Coming Storm
-02. The Nightingale
-03. Omen, Pt.1 (Temple Keepers)
-04. Back to the Future
-05. Rise as One
-06. 86 Days of Despair
-07. Basilisk
-08. Omen, Pt.2 (The Stargazer)Жанр: Atmospheric, Post-Metal, InstrumentalПродолжительность: 00:38:41
+ProShow Producer 5 – новая версия приложения для создания профессиональных презентаций, которая включает в себя сотни новых функций и обновленный интерфейс. Программа поддерживает работу со слоями и дает возможность использовать неограниченное число слоев для каждого слайда. Программа поддерживает прозрачность для файлов PSD, PNG, TIFF и GIF, дает возможность использовать маски слоя, эффекты перехода, градиентную заливку или заливку цветом. Фотографии, используемые в презентации, можно редактировать, применяя к ним такие инструменты как повышение четкости, изменение контрастности и насыщенности цветов. Презентация может содержать подписи, в том числе и анимированные, и фоновую музыку. Готовый проект может быть сохранен в одном из четырнадцати форматов, в том числе в HD Video, Flash и QuickTime.
+
+(   Читать дальше...   )Название программы: Photodex ProShow ProducerЯзык интерфейса: Русский / Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F700A2EB12B1F6B173055504B96CC814BAF4F54D
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603447   (996808) от 15.01.2013
+
+Невозможное / Lo imposible / The Impossible (2012) DVDScr
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996808.jpg" />
+</div>
+
+
+###  Подробнее
+
+То, что произошло в 2004-м году в Индийском океане, вернее — на его берегу, до сих пор будоражит воображение и заставляет кровь стыть в жилах. Тогда, на территории Таиланда, произошла настоящая беда: огромное цунами после землетрясения смело тысячи людей в океан. Ну а в центре сюжета этого фильма, основанных, как уже понятно, на реальных событиях, - одна европейская семья. Муж и жена вместе с тремя детками решили провести в тёплом Таиланде рождественские каникулы.Жанр: Боевик, Триллер, ДрамаРежиссер: Хуан Антонио БайонаПродюсер: Белен Атьенца, Альваро Аугустин, Гислен БаруаАктеры: Юэн МакГрегор, Наоми Уоттс, Том Холлэнд, Сэмюэл Джослин, Оакли Пендергаст, Марта Этура, Шенке Мёринг, Джеральдин Чаплин, Плой Хиндачоте, Жомжаои Сэ-ЛимПеревод: Любительский (двуголосый)Продолжительность: 01:53:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602656   (996807) от 15.01.2013
+
+Teachvideo.ru | Домашний компьютер для чайников (Сборник видеоуроков) [2012] [ISO]
+
+>>След.
+>>Компьютеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный сборник видеокурсов поможет начинающим и неопытным пользователям освоить работу на домашнем компьютере. В сборнике представлены видеокурсы по многим популярным и часто используемым на домашних пк программам и сервисам, таким как Microsoft Office 2010, Adode Photoshop, Kaspersky Antivirus, Pinnacle Studio, SoundForge, ВКонтакте, Однокласники, Википедия, Gmail и YouTube.Жанр: Обучающий видео курсФормат: ISO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931765BBDC9799A470E53417CDAC98C810CE8F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603503   (996806) от 15.01.2013
+
+SONY Sound Forge Pro 10.0e Build 507 [MULTi + Русский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sound Forge™ Pro 10 обеспечивает эффективную и надежную работу монтажеров и звуковых режиссеров, с полным учетом всех аспектов звукового монтажа и мастеринга. И в студии, и в полевых условиях это исключительно полезная программа для медиа-профессионалов, которым требуется создавать и редактировать звуковые файлы - быстро и точно. С новыми прецизионными возможностями монтажа на базе событий, включающими интегрированные средства записи компакт-дисков disc-at-once, профессиональные средства шумопонижения и временную растяжку исходной временной шкалы, Sound Forge Pro 10 является полной программой монтажа, содержащей все необходимые функции для профессиональной записи звука и мастеринга, звукового дизайна, реставрации и создания CD по стандарту Red Book. Включает ПО Noise Reduction™ 2, плюс Mastering Effects Bundle 2 с управлением от iZotope™.
+
+(   Читать дальше...   )Название программы: Sony Sound Forge ProЯзык интерфейса: английский + русский + немецкий
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603783   (996805) от 15.01.2013
+
+Киллер Джо / Killer Joe (2011) BDRip [576p] iPad
+
+>>Аудио и Видео
+>>Зарубежное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о брате и сестре, которые замышляют убийство матери, чтобы получить деньги по страховке, и по этому случаю они нанимают киллера Джо Купера — копа и наемного убийцу.Жанр: триллер, драма, комедия, криминалРежиссер: Уильям ФридкинАктеры: Мэттью МакКонахи, Эмиль Хирш, Джуно Темпл, Томас Хейден Чёрч, Джина Гершон, Скотт А. Мартин, Грэйлен Брайант Бэнкс, Кэрол Саттон, Дэнни Эппер, Джефф ГалпинПеревод: Профессиональный (двуголосый, закадровый)Формат: MP4 (контейнер m4v)Продолжительность: 01:42:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603260   (996802) от 15.01.2013
+
+Семь психопатов / Seven Psychopaths (2012) [H.264] BDRip [Line]
+
+>>След.
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непутевый писатель потерял вдохновение и никак не может справиться с новым сценарием. Волей случая он оказывается втянутым в похищение собаки, затеянное его эксцентричными дружками. Выясняется, что украденное животное — любимый пёс главного местного гангстера, которому ничего не стоит в два счета вычислить и уничтожить оболтусов.Жанр: Комедия, КриминалРежиссер: Мартин МакДонаПродюсер: Грэхэм Броадбент, Питер Чернин, Мартин МакДонаАктеры: Колин Фаррелл, Сэм Рокуэлл, Кристофер Уокен, Вуди Харрельсон, Том Уэйтс, Эбби Корниш, Желько Иванек, Майкл Питт, Майкл Стулбарг, Габури Сидибе ...Перевод: Дублированный (чистый звук)Продолжительность: 01:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F35DFF6ED57FC1BCE691C8247D063AF6CB35E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603275   (996801) от 15.01.2013
+
+Настольная Игра | Манчкин [2000 - 2012] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Манчки́н — настольная карточная игра, которая пародирует одновременно настольные ролевые игры (такие, как Dungeons & Dragons) и коллекционные карточные игры (как Magic: The Gathering), но в то же время является самостоятельной игрой.
+
+Девиз игры — «Мочи монстров, хапай сокровища, подставляй друзей» (англ. kill the monsters, steal the treasure, stab your buddy)
+
+Описание с коробки — «Быстрая и дурацкая игра „Манчкин“ превратит любую компанию в сборище хохочущих истериков»
+Список расширений и дополненийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BA66CF7898BAA95EE71DFD8B3133968D070D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603086   (996800) от 15.01.2013
+
+Devil May Cry 4 [Ru] (RePack/1.5) 2008 | R.G. REVOLUTiON
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый блокбастер от создателей оригинальной Devil May Cry и Resident Evil 4, события которого разворачиваются в фантастическом мире, полном опасностей и невероятных приключений.
+
+Сотни лет Орден Меча защищал прибрежный город Фортуну от вторжения сил Тьмы, огнем и мечом искореняя выходцев из Преисподней. Сотни лет воины Ордена поклонялись Спарде, могущественному демону, когда-то сражавшемуся на стороне человечества. Сотни лет казалось, будто благополучию Фортуны никто и ничто не угрожает, пока в городе не появился Данте, сын легендарного Спарды. Свирепый и непобедимый, он ворвался в храм собственного отца, безжалостно истребляя рыцарей Меча, не ожидавших нападения. Лишь один из них, молодой Неро, благодаря своим сверхъестественным способностям смог противостоять Данте и обратить его в бегство.
+Но трагедия в храме была только началом. Повсюду стали открываться врата в другой мир, и орды кровожадных чудовищ хлынули в город, грозя уничтожить Фортуну. Многие полагают, что виной тому – Данте. Однако кое-кто уверен – Зло уже давно проникло в город, разрушая его изнутри. И только отважному Неро под силу установить истину.
+
+(   Читать дальше...   )Тип издания: RePackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF9BFA86D8C062ED14B893F2B1C7DB9DA4FC9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514769   (996799) от 15.01.2013
+
+Tom Clancy's Ghost Recon: Future Soldier (RePack/1.6) [Ru/En/Multi12] 2012 l R.G. Catalyst
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996799.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Призраки», элитные бойцы в составе сил специального назначения, готовы выполнить поставленную задачу в любой точке земного шара. Их работа – борьба с терроризмом, нейтрализация вражеских агентов и уничтожение превосходящих сил противника. Со временем этот легендарный отряд перестал быть просто одним из подразделений спецназа и превратился в идеальный инструмент, способный изменить судьбу человечества.
+
+    Оснащенные по последнему слову техники, снабженные лучшими разработками военных технологий, эти специалисты составят вам компанию в целом ряде особых боевых операций. Вас ждут раскаленные пески Африки и антарктические льды, миссии по скрытному проникновению и битвы на выживание. В роли одного из бойцов вам предстоит сражаться бок о бок с лучшими оперативниками отряда. Пришло время продемонстрировать, на что способны настоящие профессионалы!(   Читать дальше...   )Тип издания: RePackРазработчик: Ubisoft ParisЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Испанский, Шведский, ... Multi12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F77055C367002AC920069F8EA91314C671872697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603687   (996798) от 15.01.2013
+
+KMSmicro WO w7 o2010-13 v1.0.1 (2012-01-15) [Английский]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Локальный KMS-сервер для активации продуктов Microsoft VL редакциий. Активирует: Windows Vista, Windows 7, Office 2010, Office 2013. Не активирует Retail редакции. Возможность использовать с флешки. KMSmicro содержит встроенный инструмент для накрутки счётчиков активации (с форума MDL). Накрутка счетчиков производится внутри KMSmicro и никак не влияет
+на активируемый компьютер. Так же включает бонус: KMSEmulator. В раздачу вложено подробное
+описание !!! Прочти Меня !!!. Там подробно описана работа с данным продуктом.
+
+(   Читать дальше...   )Разработчик: MSFree Inc. (Ratiborus & Evgeny972 & Co)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603315   (996797) от 15.01.2013
+
+Fieldrunners 2 [En] (P) 2013 | ALI213
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много составляющая, стратегическая и динамичная игра из категории Tower Defense еще никогда не была настолько забавной и увлекательной! Защити свой Мир от вторжения путем построения извилистых тропинок из впечатляющего нового оружия! Призывай помощь с воздуха и расставляй взрывающиеся ловушки, чтобы ударить противника в самое слабое место. (   Читать дальше...   )Тип издания: ПираткаЖанр: Strategy (Tower Defense) / Top-downЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B66C32BB3640C2B99E6288D9667FE94749EC951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504461   (996796) от 15.01.2013
+
+LogonScreens (Экраны регистрации) Для Windows XP/Vista/Seven/8 Pro (15.01.2013) [Русский] Обновляемая
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочные экраны для Windows созданы, чтобы изменить стандартный экран загрузки Windows на свой, сделав таким образом вашу ОС оригинальной и неповторимой. Данная процера установки, предложенная мной, не затрагивает системных файлов, ни их изменения сторонними патчами, что делает установку Бутскринов безопасной и надежной.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 1586187   (217954) от 25.10.2022
+
+Брюс Ли, Человек и Легенда / Bruce Lee, the Man and the Legend (1973) BDRip [H.264/1080p] [VO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый первый документальный фильм о жизни и смерти первой азиатской международной кинозвезды.
+Впервые в русском переводе спустя практически полвека.Производство: Гонконг, Concord Productions, Golden Harvest CompanyЖанр: документальный, история, биографияРежиссер: Ши ВуПеревод: одноголосый любительский (kosmos87)Субтитры: английскиеПродолжительность: 01:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2259A183E2CA6C7308D8DEF1A1EC85E6BDA842F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343365   (217863) от 06.12.2019
+
+Как устроен мир (2018-2019) HDTVRip [H.264/720p-LQ] (серии 60 из 60)
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый выпуск не уступает голливудскому фильму-катастрофе. Тимофей Баженов бросает вызов беспощадным стихиям и преподносит научные факты так, что от них невозможно оторваться!Производство: Россия, РЕН ТВЖанр: ДокументальныйРежиссер: Артем ЛядовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 60 x ~ 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF404E6C43247DC21F22586A57394E26CDDBC408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586275   (217740) от 25.10.2022
+
+Возрождение дирижабля (2017) IPTV [H.264]
+
+>>Документалистика и Телепередачи
+>>Авиация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расцвет дирижаблестроения пришелся на 20-30 годы ХХ века, им сулили самые радужные перспективы, но несколько трагедий с аппаратами легче воздуха, надолго закрыли тему. 6 мая 1937 года, перелетев океан, самый крупный в мире дирижабль "Гинденбург" прибыл из Франкфурта в американский Лейкхерст. Когда началось причаливание, от удара молнии наполненный водородом (   Читать дальше...   )Производство: Россия, ООО "Под знаком "ПИ"Жанр: документальный, историяРежиссер: Татьяна РодницкаяЯзык озвучки: русскийСубтитры: русские (Культура, ВГТРК)Продолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100EE533D34EC447A2361512248576817454314F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514436   (217692) от 03.12.2021
+
+По следу монстра (27.11.2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217692.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дружба до гроба» Астрахань, 2010 год: кто-то жестоко расправился с целой семьей, включая 5-летнего ребенка. Сыщики не исключали, преступление могло быть связано с серией квартирных краж. Тем временем город потрясло новое убийство. Сколько всего загубленных жизней на счету преступника, который не жалел даже друзей? «По следу монстра» пошла женщина-следователь.Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CD19E5D1B63478D1B1A70A773350FEA0A67712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514375   (217569) от 03.12.2021
+
+Следствие вели... (28.11.2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217569.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хромоногий дьявол». 1979 год. В Астрахани одну за другой нашли убитыми девушек. Жестокость и извращенность преступлений поразила даже оперативников. У сыщиков не было ни зацепки, пока в отдел не пришел важный свидетель. Какую роль в деле сыграли подростки и мальчик-инвалид? И как так вышло, что садист-душегуб никого не убивал?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A91ECB4919FB61CA1EA88EECD48EB6EAE2901287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269800   (217443) от 16.12.2018
+
+Танцы (2018.12.15) WEB-DLRip [H.264/720p-LQ] (сезон 5, выпуск 20)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятый сезон станет самым необычным и интригующим - впервые в истории в нем будет сразу три наставника! Отбирать участников будут Мигель, Татьяна Денисова и вернувшийся в проект Егор Дружинин. Новый сезон соберет в себе все лучшее, что было в проекте, продолжит развивать танцевальную культуру, искать таланты по всей стране и показывать зрителям запредельные танцы! (   Читать дальше...   )Телекомпания: Россия, Comedy Club Production, Телеканал ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19942D636D32E8C420BB567E2261C13368A82594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084707   (217392) от 19.12.2016
 
 Что? Где? Когда? (2016.12.18) SATRip (Зимняя серия: игра 4)
@@ -6,7 +163,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217392.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217314.jpg" />
 </div>
 
 
@@ -59,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217298.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217278.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217173.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217004.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216966.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216941.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216907.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216875.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216872.jpg" />
 </div>
 
 
@@ -293,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216868.jpg" />
 </div>
 
 
@@ -319,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216849.jpg" />
 </div>
 
 
@@ -345,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216834.jpg" />
 </div>
 
 
@@ -371,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216811.jpg" />
 </div>
 
 
@@ -397,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216776.jpg" />
 </div>
 
 
@@ -423,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216695.jpg" />
 </div>
 
 
@@ -449,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216664.jpg" />
 </div>
 
 
@@ -475,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216614.jpg" />
 </div>
 
 
@@ -501,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216559.jpg" />
 </div>
 
 
@@ -512,164 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8637F68064BBAE13926075C9FB2CE7434BF509A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587550   (216551) от 12.12.2012
-
-Ежегодный шоу-показ мод / The Victoria's Secret Fashion Show (2012) HDTVRip [MPEG-2/1080i] [EN]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока Нью-Йорк отходит от стихийных бедствий, ведущий бренд нижнего белья Victoria’s Secret устроил здесь грандиозное фэшн-шоу с участием топ-моделей и звезд шоу-бизнеса. Новую феерическую коллекцию женского белья Victoria's Secret демонстрировали такие звезды подиума, как Адриана Лима, Миранда Керр, Алессандра Амбросио, Даутцен Крус, Лили Олдридж, Кэндис Свейнпол (   Читать дальше...   )Производство: СШАЖанр: Музыкальное fashion-шоуРежиссер: Hamish HamiltonПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 00:38:52Реклама: вырезана вся реклама и сольное выступление подростка (да простят меня его фанаты, если есть таковые у нас  =)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5D5023BE244CFB452746E379783E2CE3251574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426051   (216544) от 23.11.2020
-
-Региональный природный парк Лотарингии / Au coeur du Parc naturel regional de Lorraine (2018) IPTV [H.264/1080p-LQ] [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216544.jpg" />
-</div>
-
-
-###  Подробнее
-
-На востоке Франции находится природный парк Лотарингии с удивительным разнообразием пейзажей. Он включает в себя долины, холмы и равнины, леса и влажные зоны. Парк был создан в 1974 году благодаря усилиям мужчин и женщин, ассоциаций и местных депутатов, чтобы сохранить уникальные пейзажи, а также флору и фауну этого края.Производство: Франция, MC4 / LCP, Ushuaïa TV, TV5 Monde, TV8 Mont BlancЖанр: Документальный, природа, флора, фаунаРежиссер: Лоран ШарбонньеПеревод: отсутствуетСубтитры: Русские (неотключаемые)Продолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E97129479DEB385DCA5825FC4FD588429A4E2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966929   (216538) от 19.12.2015
-
-Теория заговора. Страхование вкладов (2015.12.19) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная финансовая «страшилка» нашего времени. Центробанк отзывает лицензии у банков с частотой раз в неделю, а то и чаще. У вкладчиков одна на всех надежда – Агентство по страхованию вкладов.Производство: РоссияТелекомпания: Первый каналЖанр: ДокументальныйПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AADA6CD788434A8153AF08DC77737AC899F5ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967053   (216532) от 19.12.2015
-
-МастерШеф. Дети (Россия) (2015.12.19) SATRip (сезон 1, выпуск 7)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216532.jpg" />
-</div>
-
-
-###  Подробнее
-
-«МастерШеф. Дети» дает возможность юным поварам продемонстрировать свои кулинарные таланты и побороться за звание лучшего юного повара страны. Это единственный российский аналог всемирно известного шоу «MasterChef Junior», которое с успехом идет уже более чем в 50 странах мира. Несмотря на возраст, маленьким кулинарам предстоит столкнуться с испытаниями, которые (   Читать дальше...   )Телекомпания: СТСЖанр: Кулинарное шоуРежиссер: Роман БутовскийПродолжительность: ~ 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B9AC9E9ADFE013C0344E7A7554EC5C4A502FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 336886   (216529) от 03.12.2021
-
-Всесоюзный парад физкультурников 12 августа 1945 (2011) SATRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216529.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 мая 2011 года в рамках проекта «Великой Победе посвящается» на телеканале был показан документальный фильм «Всесоюзный парад физкультурников. 12 августа 1945 года»
-Победный 1945 год. Впервые после Великой Отечественной войны на Красной площади проходит парад физкультурников. На трибуне Мавзолея стоят руководители страны. На гостевых трибунах представители иностранных (   Читать дальше...   )Производство: ЦСДФТелекомпания: Телеканал «Россия-Культура»Жанр: Телепередача, ДокументальныйРежиссер: В. БеляевПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94CF8B48E48770570A530EE5C992653072CA8324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967046   (216515) от 19.12.2015
-
-Главная сцена. Сезон 2. Выпуск 13 (2015.12.19) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216515.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Главная сцена" – это крупнейшая музыкальная академия, цель которой – поиск современных талантливых артистов, способных стать новыми звездами российской эстрады.
-В новом сезоне задача для конкурсантов усложняется: участники проекта будут исполнять песни только на русском языке, с первого выхода они должны доказать, что готовы стать настоящей звездой российской (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйПродолжительность: 02:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A931AF52321AC19BF9C42F541EAA78125631B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 916537   (590912) от 08.07.2015
+
+Дружелюбные тени - BabyBus 2.0 [Ru]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ой, как темно! Что это за шум под кроватью? И что это за тени на стене? Кики немного страшно, но не паникуйте! Давай вместе исследуем комнату, чтобы найти причудливые тени. Посмотри, вот тень медвежонка Тедди, а вот тень маленького плюшевого зайчика! Они немного застенчивые и совсем не страшные. Малыш, подружись скорее с ними!
+Данное приложение учит ребенка преодолеть (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 23 июня 2015 г.Разработчик: BabyBusПоддерживаемая ОС: Android 2.3+Жанр: ДетскиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ACCABA9E397F9EF81D4F22C39E0EDB8FA3E117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916412   (590871) от 08.07.2015
+
+Детские стихи и песни 1.01 [Ru]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник стихов и песен для детей.
+Стихи для детей на русском языке.
+Приложение оптимизировано для работы на экранах мобильных телефонов, имеет простое управление и совершенно бесплатно.Тип издания: FreeРелиз состоялся: 6 июля 2015 г.Разработчик: by.andreidanilevichПоддерживаемая ОС: Android 2.3+Жанр: ДетскиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E72565E435643741FAAA2107402011084AAD3EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441379   (590536) от 14.05.2022
+
+tinyCam Monitor PRO v15.3.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшее приложение под Android для удаленного видеонаблюдения, управления и записи изображений с IP камер, видеосерверов и цифровых видеорегистраторов с CCTV камерами (более чем 5 миллионов загрузок). Мониторьте вашего ребенка, домашних животных, дом, бизнес, трафик и погоду удаленно и безопасно (данные не пересылаются третьим лицам). Купите сейчас, чтобы получить (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 9 мая 2022 г.Разработчик: Tiny Solutions LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5335BB833F1DFEE9F7838D2D8AA41D6357D3200A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916421   (590375) от 09.07.2015
+
+Memory для детей 1.0.0 [Ru]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развивающее приложение «Memory for kids» - это электронный вариант обучающей детской настольной игры, которую мы сделали для Вас и Вашего малыша. В игре парные карточки с картинками произвольно разложены «рубашками» вверх, а ребенок поочередно переворачивая карточки должен найти и открыть все пары картинок. Игра «Мемори» тренирует визуальную память, внимательность, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 30 июня 2015 г.Разработчик: familion.ruПоддерживаемая ОС: Android 2.3.3+Жанр: ДетскиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCD9D25A9CDED3DA143F375A8F86810FEF14A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551429   (590198) от 15.05.2022
 
 Aqua Map Marine - Boating GPS v20.4 [En]
@@ -6,7 +113,7 @@ Aqua Map Marine - Boating GPS v20.4 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590198.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Voice Reader - читает вслух 7.2.15 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589794.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Cool Reader 3.1.2-69 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589788.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ anipet Aquarium Lve Wallpaper v2.5 [En] - Морской аквариум на �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589486.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ Quick PDF Scanner + OCR Pro 9.0.1433 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589384.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ Lightricks Motionleap (Enlight Pixaloop) (Mod By AlexaLiza) v1.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589315.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ Puffin Browser Pro 9.7.1.51314 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589306.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ Pepi Tree 1.06 [En] - 6 развивающих игр для детей 3-7 ле
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589025.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ NeuroNation - тренировка мозга v2.1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589006.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ Lightricks Motionleap (Enlight Pixaloop) (Mod By Anik555) v1.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588918.jpg" />
 </div>
 
 
@@ -268,7 +375,7 @@ GoArt – Art NFT Creator v3.0.17.37 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588846.jpg" />
 </div>
 
 
@@ -296,7 +403,7 @@ XSCANPET / Инвентарь и штрих-коды и Excel v4.70 <Ru/Multi>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588533.jpg" />
 </div>
 
 
@@ -323,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588453.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ Zoner Mobile Security v1.9.1 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588423.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588410.jpg" />
 </div>
 
 
@@ -402,7 +509,7 @@ BitTorrent Pro 6.8.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588404.jpg" />
 </div>
 
 
@@ -428,7 +535,7 @@ Photo Recovery v1.63 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587624.jpg" />
 </div>
 
 
@@ -454,7 +561,7 @@ WiFi Premium 4.120.02 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586665.jpg" />
 </div>
 
 
@@ -480,7 +587,7 @@ GPX Viewer PRO v1.40.4 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586599.jpg" />
 </div>
 
 
@@ -506,7 +613,7 @@ ABC Bukvarik \ Букварик v2.0 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585646.jpg" />
 </div>
 
 
@@ -532,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585622.jpg" />
 </div>
 
 
@@ -558,7 +665,7 @@ ABBYY TextGrabber + Translator 1.13.1.209 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585108.jpg" />
 </div>
 
 
@@ -569,118 +676,6 @@ ABBYY ТехtGrаbber — это очень интересная програм�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E689B208537C30F2B9655AD8AD803593E1D48E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919017   (584789) от 17.07.2015
-
-Пищевые добавки 1.01 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник самых распространенных пищевых добавок (Е), витаминов и микроэлементов.
-Приложение оптимизировано для работы на экранах мобильных телефонов и совершенно бесплатно.
-Удобный поиск по номерам или ключевым словам.Тип издания: FreeРелиз состоялся: 11 июля 2015 г.Разработчик: by.andreidanilevichПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A698563277D7AFDEF66BF385A6F4CE49E5DF64D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918997   (584717) от 17.07.2015
-
-Сказки для детей 1.04 [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки для детей - это приложение из разряда 'must have' для любого родителя!
-Большой сборник - Сказки для детей это 1350 сказок!
-Приложение оптимизировано для работы на экранах мобильных телефонов, имеет простое управление и совершенно бесплатно.Тип издания: FreeРелиз состоялся: 16 июля 2015 г.Разработчик: by.andreidanilevichПоддерживаемая ОС: Android 2.3+Жанр: ДетскиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886CE6D164F2817E02915FE18F81FD835DC57D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553084   (584641) от 23.05.2022
-
-ЭкоГид: Грибы - Определитель v1.0.4 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584641.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПОЛЕВОЙ определитель и атлас-энциклопедия грибов России, с помощью которого можно ОПРЕДЕЛИТЬ название гриба по морфологическим и экологическим признакам! 329 ВИДОВ ГРИБОВ
-В определитель включены Сумчатые и Базидиальные грибы, распространенные в пределах лесной и лесостепной зон от западных границ России до Дальнего Востока. Из Сумчатых это строчки, сморчки, пецицы (   Читать дальше...   )Тип издания: Пиратка (разблокирован Pro)Релиз состоялся: 27.09.2021Разработчик: EcosystemaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6F94B021966E95FEDDAAB906BA5639579C238A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527514   (584510) от 23.05.2022
-
-Компьютер: основы v3.0 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение содержит статьи, связанные с компьютерными технологиями.
-В приложении присутствуют 4 раздела:
-1. Аппаратное обеспечение 🖥️
-2. Сборка ПК ⚙️(   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 19 мая 2022 г.Разработчик: SergeyV AppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046831798E44D3DC00D992D69058F352EDAD3699
 ```
 
 https://mybot314.ru/tekegram_catalog/

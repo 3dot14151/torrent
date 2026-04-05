@@ -1,3 +1,133 @@
+###  Публикация: 598456   (385479) от 05.09.2022
+
+Петькины трюки (1980) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм про то, как толстый и ленивый мальчик Петя из-за обмана вредной девочки Сусанны убежал из дома, а добрая девочка Лёлишна помогла родителям его найти...Производство: СССР, Пермь-телефильмЖанр: детский, кукольныйРежиссер: Леонид КощениковАктеры: Гликерия Богданова-Чеснокова, Елена Стурова, Пелагея Семенова, Т. Хазунова Н. Никифорова, Владимир МартьяновСубтитры: ОтсутствуютПродолжительность: 00:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0162435EC8C857300F22939A28D1AF088A5A4AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414048   (385387) от 08.10.2020
+
+Скуби-Ду и Скреппи-Ду / Scooby-Doo and Scrappy-Doo (1979-1980) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные герои сериала пёс Скуби и щенок Скрэппи через 10 лет вместе появляются на экранах. До этого Скуби был уже популярным в сериале «Скуби-Ду, где же ты?». Героев в основном четверо: закадычные друзья Скуби и Шегги, племянник Скуби Скрэппи и какое-нибудь чудище. Смысл мультсериала заключается в том, что когда приходит чудище, Скуби и Шегги пытаются спасаться бегством, (   Читать дальше...   )Производство: США / Hanna-Barbera ProductionsЖанр: Мультфильм, комедия, детектив, семейныйРежиссер: Чарльз А. Николс, Оскар Дюфо, Джордж ГордонПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: ~ 00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6C560F99E504D0E5B697ACACA6263C9F69AFF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414423   (385311) от 08.10.2020
+
+101 далматинец 2: Приключения Патча в Лондоне / 101 Dalmatians II: Patch's London Adventure (2003) BDRip [H.265/1080p] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллионерша Стервелла Де Виль, чья первая попытка похитить 101 далматинца и пошить из их шкурок роскошную шубу с треском провалилась, готовит новый дьявольский план по захвату славных песиков.Она потирает руки в ожидании легкого успеха, но на пути негодяйки встают храбрый щенок Патч и его новый друг Громобой - четвероногая звезда экрана! Улицы Лондона никогда еще (   Читать дальше...   )Производство: США / Disney Television Animation, Walt Disney PicturesЖанр: мультфильм, мюзикл, комедия, приключения, семейныйРежиссер: Джим Каммеруд, Брайан СмитПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712AEBAC55749F3F3914AB2E4300256AC1D16F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253232   (385257) от 08.10.2018
+
+Новое шоу Дятла Вуди / The New Woody Woodpecker Show (1999-2000) DVB (Сезоны 1-3, Серий 53 из 53)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вуди Вудпекер, самый известный в мире забавный дятел, возвращается. И вместе с ним - его заразительный смех и компания его уморительных друзей. Они участвуют в девяти новых фантастически увлекательных мультипликационных историях.Производство: СШАЖанр: Приключения, КомедияРежиссер: Jeff Nimoy, Charles Schneider / Джефф Нимой, Чарльз ШнайдерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: ~00:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B84CBA9E5821E50577D46FDB87DA052EED8062D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405902   (385175) от 08.10.2020
+
+Бесконечный поезд / Infinity Train (2020) WEB-DLRip (сезон 3, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время одной из исследовательских миссий Апекса, Грейс и Саймон отделяются от своей команды и понимают: чтобы выжить в опасных вагонах поезда, им необходимо работать сообща. Во всём они твёрдо придерживаются идеологий Апекса, пока не встречают жизнерадостную девочку Хейзел с её другом-гориллой Трубачом, вскоре начав понимать, что есть другой путь жизни на поезде, (   Читать дальше...   )Производство: США, HBO MaxЖанр: Фантастика, фэнтези, драма, комедия, детектив, приключения, семейныйРежиссер: Оуэн ДэннисПеревод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:11:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268DB18B2AB108ED345AC41F501356371A9B6EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253191   (385121) от 08.10.2018
 
 Монстры на каникулах 3: Море зовёт / Hotel Transylvania 3: Summer Vacation (2018) UHD Blu-ray [H.265/2160p] [4K, HDR, 10-bit]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385121.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385023.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384839.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384560.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384558.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384529.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384501.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384397.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384177.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384076.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383585.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383580.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383546.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383545.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383543.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383535.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383456.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383430.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383418.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383327.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383154.jpg" />
 </div>
 
 
@@ -537,138 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F16982B31A13E96AC29F512955ECBE3075EF007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571580   (382754) от 09.11.2012
-
-Приключения братца Кролика / Brer Rabbit Tales (1989) VHSRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм по мотивам "Сказок дядюшки Римуса" Джоэля Чандлера Харриса.Жанр: Рисованная анимация, Детский, КомедияРежиссер: Al Guest, Jean MathiesonПерсонажи: Братец Кролик и прочиеПеревод: ДублированныйПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADFFB068C2973E6A136CD151E82C973C9C7DCF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308462   (382508) от 21.09.2019
-
-Любовь, смерть и роботы / Love, Death & Robots (2019) WEBRip [H.264/720p] (сезон 1, серии 1-18 из 18) BTI Studios, Есарев [PR]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект «Любовь, смерть и роботы» - это отдельный вид искусства. Сериал представляет собой великолепную смесь историй, представленных в совершенно различных жанрах. Здесь вас ожидает столкновение с классическими элементами научной фантастики, необычным юмором, удивительным фэнтезийным миром и по-настоящему пробирающим до мурашек ужасом. Каждый из персонажей в проекте (   Читать дальше...   )Производство: США, Blur Studio, NetFlixЖанр: мультфильм, ужасы, фантастика, фэнтези, комедия, боевик, криминал, минисериал,
- для взрослыхРежиссер: Виктор Мальдонадо, Альфредо Торрес, Габриэле ПенначиолеПеревод: Дубляж (BTI Studios & Пифагор по заказу Netflix), Авторский (Дмитрий Есарев)Субтитры: отсутствуютПродолжительность: 03:17:12 (18 серий по ~00:11:00)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E63B125F3A1AA3DC80CD20C855A1CB1A548960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567392   (382446) от 09.11.2012
-
-Совершенный Человек-Паук / Ultimate Spider-Man (Сезон: 1, серии: 1-26 из 26) (2012) WEB-DL [H.264/720p-LQ] [Обновляемая] [EN/RU sub]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный Человек-Паук» - американский мультсериал о приключениях знаменитого супергероя Человека-паука из комиксов Marvel, премьера которого состоялась 1 апреля 2012 года.
-Мультсериал основан на одноимённой серии комиксов, повествующих о ещё молодом Человеке-пауке.Жанр: анимация / экшенСубтитры: ВшитыеЯзык: АнглийскийФормат: MKVКачество: WEB-DLПродолжительность: 23 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45D3830CB4FB263BEE14DC903FF94F9E9BC7CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 404400   (382390) от 29.10.2011
-
-Моя семья (1989) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДетскийРежиссер: Наталья МарченковаПродолжительность: 00:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1338CDB6B1A1A9940FE062E7170DF24532550CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833417   (382193) от 23.10.2014
-
-Как приручить дракона 2 / How to Train Your Dragon 2 (2014) DVD5 [BD -> DVD]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382193.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента примирения викингов и драконов прошло пять лет. Пока Астрид, Сморкала и остальные ребята проводят время, соревнуясь друг с другом в популярных на острове драконьих гонках, Иккинг и Беззубик путешествуют по небу, составляя карту неизвестных мест. Когда одно из их приключений приводит к открытию тайной ледяной пещеры, которая является домом для сотен ранее (   Читать дальше...   )Жанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Дин ДеБлуаАктеры: Джей Барушель. Кейт Бланшетт, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер Кристен Уиг, Джимон ХонсуПеревод: ДублированныйЯзык субтитров: Русский (Full, Forced), Английский (Full)Продолжительность: 01:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A88B30A954747C70E233904813415A61A70FAB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

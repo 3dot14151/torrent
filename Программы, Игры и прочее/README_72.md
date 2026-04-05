@@ -1,3 +1,110 @@
+###  Публикация: 1013267   (452356) от 08.10.2016
+
+Total Media Player v1.7.7 Pro [Ru/Multi] - многофункциональный медиа проигрыватель под Android
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проигрывание в любом формате медиа-файлов: MP4, MKV, M4V, MOV, FLV, AVI, RMVB, RM, TS, TP, торрент, Web, m3u8, M3U, MP2, WAV, MP3, AAC, VOB и многие другие.Тип издания: ПираткаРелиз состоялся: 08.10.2016Разработчик: ClumixПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE569977A22D204B0F667CB4911B2FDA36EEEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321988   (452205) от 27.08.2019
+
+Simpler Premium v2.18.210 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой помощник в изучении английского языка.
+
+…Правила английского языка в доступной и простой форме
+…Запоминание новых слов(   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 2017Разработчик: ZengaltПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FE0FC7704E768805B754CB5CC52C71EE86BB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322129   (452203) от 27.08.2019
+
+Drift Max Pro v2.1.01 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452203.jpg" />
+</div>
+
+
+###  Подробнее
+
+От создателей легендарной гоночной игры Drift Max - совершенно новая гоночная игра Drift Max Pro!Тип издания: Пиратка (Разблокирована)Релиз состоялся: 06.08.2019Разработчик: TiramisuПоддерживаемая ОС: Android 4.1+Жанр: ГонкиЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6A24BC06A1EFDA60754AEE86F9898E21747A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247173   (450065) от 16.09.2018
+
+Garmin: City Navigator Europe NTU 2019.20 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорожная карта Европы для навигаторов Гармин.Тип издания: лицензияРелиз состоялся: август 2018Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFC079A338353232A54AF2CE51460E97A12AB6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 857957   (450057) от 16.09.2018
 
 Squid: Take Notes, Markup PDFs v3.4.4.6-GP  [Ru/Multi] - удобные заметки
@@ -6,7 +113,7 @@ Squid: Take Notes, Markup PDFs v3.4.4.6-GP  [Ru/Multi] - удобные заме
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450057.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447996.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446919.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446059.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438765.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437729.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ Bookari Premium (бывшая Mantano Ebook Reader) v4.2.4 [Ru/Multi] - Чита
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436830.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435844.jpg" />
 </div>
 
 
@@ -224,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435343.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435268.jpg" />
 </div>
 
 
@@ -276,7 +383,7 @@ ReGYM v2.5 [Ru/En] - дневник тренировок (фитнес и пау
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433737.jpg" />
 </div>
 
 
@@ -302,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433097.jpg" />
 </div>
 
 
@@ -331,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431260.jpg" />
 </div>
 
 
@@ -357,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431087.jpg" />
 </div>
 
 
@@ -383,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427122.jpg" />
 </div>
 
 
@@ -411,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424706.jpg" />
 </div>
 
 
@@ -438,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421047.jpg" />
 </div>
 
 
@@ -464,7 +571,7 @@ Endel: звуковые фоны 3.60.460 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421044.jpg" />
 </div>
 
 
@@ -491,7 +598,7 @@ Ear Scout: Super Hearing 1.4.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421042.jpg" />
 </div>
 
 
@@ -517,7 +624,7 @@ Call Log Analytics 2.1.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421037.jpg" />
 </div>
 
 
@@ -545,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420960.jpg" />
 </div>
 
 
@@ -571,7 +678,7 @@ Phases of the Moon Pro 4.5.1 [Ru] - Фазы луны
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420675.jpg" />
 </div>
 
 
@@ -582,116 +689,6 @@ Phases of the Moon Pro 4.5.1 [Ru] - Фазы луны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3398F2E5A66F06245FD2982F49448A5612A1B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368163   (420570) от 27.08.2022
-
-Electronics Database v2.36 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой справочник параметров импортных полупроводниковых элементов (без цоколевок). На данный момент в базе содержится более 8000 электронных компонентов.
-
-Приложение содержит в себе базу с функциями поиска по наименованию и параметрам для следующих элементов:
-- транзисторы (биполярные, MOSFET, IGBT);(   Читать дальше...   )Тип издания: AdFree (удалена реклама)Релиз состоялся: 25.08.2022Разработчик: Alexander GlushanenkoПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E155539727F2FF479D2651AC93511F23E63B7009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947194   (420057) от 16.10.2015
-
-Фортуна Астрология 1.0 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фортуна Астрология (приложение также известно как "Гороскоп + Периоды Судьбы" =
-Основные функции:
-* Астрологический расчёт жизненных периодов (на основе расчета прогрессии Луны)
-* Расчет астрологических коэффициентов активности, риска, удачи(   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 14 августа 2014Разработчик: Sinin StudioПоддерживаемая ОС: 3.0 +Язык интерфейса: Русский/Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D37AB7A6983B5761F2F828AFE26D2AC805033D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947323   (420048) от 16.10.2015
-
-ГИБДД + ШТРАФЫ PRO 15.0.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всегда под рукой самые актуальные ПДД, Дорожные знаки, КоАП и Штрафы ГИБДД с пояснениями, Приказ 185 МВД РФТип издания: ПираткаРелиз состоялся: 13 декабря 2014Разработчик: tvoiAndroidПоддерживаемая ОС: Android 3.2 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE93D2F96F842171B94EA1CE1B78783EECA9C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947200   (419906) от 16.10.2015
-
-VideoReg Pro 6.96 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа фиксирования на видео движения вашего автомобиля.Тип издания: ПираткаРелиз состоялся: 16.10.15Разработчик: RubberBigPepperПоддерживаемая ОС: 1.5 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC54E3071CB1210FCBCDFFCEC9023E2031DC9D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

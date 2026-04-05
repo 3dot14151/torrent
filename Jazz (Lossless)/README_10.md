@@ -6,7 +6,7 @@ Chick Corea - Plays (2020) Concord Jazz, 2 CD, Live [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031379.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Charlie Christian - The Genius Of The Electric Guitar (1939 - 1941) 4CD, 2002, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031210.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Orquestra Was - Forever's A Long, Long Time (1997) [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031207.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Jazz Q - Zneni a Sneni (Znění a Snění) (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030971.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Dean Martin - BD Voices: L'Histoire de Dean Martin (1944 - 1958) 2CD, 2008, Noct
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030969.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Workshy - Love Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Funk, Soul-Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030937.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Louis Armstrong (Луи Армстронг) - Original Album Classics (5CD Box S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030846.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Curtis Fuller - Eight Classic Albums (1950 - 1961) 4CD, 2020, Enlightenment [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030748.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Ray Gelato And The Giants - Locked Down But Not Out (2021) Double Scoop Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030741.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - Stevie Wonder in Jazz: A Jazz Tribute to Stevie Wonder (2023) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030739.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Duke Pearson - The Classic Albums Collection (1959 - 1964) 4CD, 2018, Enlightenm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030724.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Georges Arvanitas - Three of Us (1970) 1991, Saravah[FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030712.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Rita Reys And The Pim Jacobs Trio - At the Golden Circle Club, Stockholm (1963) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030251.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Cameron Graves - Seven (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030235.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Yellowjackets & WDR Big Band - Jackets XL (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030147.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Wynton Marsalis - Thick In The South: Soul Gestures in Southern Blue, Vol. 1 (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030053.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Harry Edison - Three Classic Albums Plus (1956 - 1958) 2CD, 2011, Avid Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030022.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Takuro - Journey Without a Map II (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030002.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Marcus Schinkel Trio & Joscho Stephan - Classic Meets Gypsy (2019) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029991.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ E.S.T. (Esbjörn Svensson Trio, Esbjorn Svensson) - Discography 22 Releases (199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029852.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Wingy Manone - 1944 - 1946 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029783.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Elmo Hope - The Final Sessions (1966) 2CD, Original Jazz Classics [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029782.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Vince Guaraldi - Alma-Ville (1969) 2005, Wounded Bird Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029611.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Red Norvo - Improvisations (1944) 1987, Mercury [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029606.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Lucky Millinder - 1943 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029591.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Duke Ellington - Live And Rare (1965 - 1973) 3CD, 2002, Bluebird [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029587.jpg" />
 </div>
 
 

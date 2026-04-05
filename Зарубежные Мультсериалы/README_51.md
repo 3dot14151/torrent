@@ -1,3 +1,55 @@
+###  Публикация: 1508540   (156633) от 18.12.2021
+
+Корпорация «Заговор» / Inside Job (2021) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди-ящерицы? Правда. Высадка на Луне? Фикция. Нескладная учёная и ее незадачливая команда каждый день имеют дело с тайными сообществами и теориями заговора.Производство: США, Bento Box Entertainment, Neptoon Studios, Netflix AnimationЖанр: Для взрослых, фантастика, фэнтези, комедияРежиссер: Пит Мишелс, Виталий Строкоус, Майк ХоллингсвортАктеры: Уилл Блэгроув, Тиша Кэмпбелл, Лиззи Каплан, Эндрю Дэйли, Джон Ди Маджио, Кларк Дьюк, Бретт Гельман, Бобби Ли, Кристиан СлэйтерПеревод: Многоголосый профессиональный (NewStation) - Присутствует ненормативная лексика!Субтитры: русские, украинские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55D0D56017B3E32D042B794157E5E72A7B34B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508538   (156605) от 18.12.2021
+
+Корпорация «Заговор» / Inside Job (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди-ящерицы? Правда. Высадка на Луне? Фикция. Нескладная учёная и ее незадачливая команда каждый день имеют дело с тайными сообществами и теориями заговора.Производство: США, Bento Box Entertainment, Neptoon Studios, Netflix AnimationЖанр: Для взрослых, фантастика, фэнтези, комедияРежиссер: Пит Мишелс, Виталий Строкоус, Майк ХоллингсвортАктеры: Уилл Блэгроув, Тиша Кэмпбелл, Лиззи Каплан, Эндрю Дэйли, Джон Ди Маджио, Кларк Дьюк, Бретт Гельман, Бобби Ли, Кристиан СлэйтерПеревод: Многоголосый профессиональный (NewStation) - Присутствует ненормативная лексика!Субтитры: русские, украинские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6D991DDAB58FB441E2D6B40D51DD8442A73796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 107507   (156477) от 19.12.2018
 
 Сумасшедшие за стеклом / Drawn Together (2004 - 2007) DVDRip (Сезон 1-3, серий 36)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156477.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156340.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156125.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156008.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155664.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155247.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155046.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Headspace: Руководство по медитации / Headspace Guide to M
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154786.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154106.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154090.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153417.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Larva Island  (2018) WEB-DL [H.264/1080p] (сезон 1, серии 1-13 из 13
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152946.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152528.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152340.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152236.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151583.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151539.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151443.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151338.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151174.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150173.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150067.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149463.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148884.jpg" />
 </div>
 
 
@@ -616,59 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E383F36E4EF0E324A5F0E747764305ACB72E81C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677920   (148829) от 19.11.2023
-
-Пинки и Брейн / Pinky and the Brain (1995-1998) SATRip (Сезоны 1-6, Серии 1-144 из ??) Дублированный
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пинки и Брейн - 2 лабораторные мыши. После проведения учеными очередного генетического эксперимента над ними Брейн стал гениальным, а Пинки почти сумасшедшим. Брейн твердо решил завоевать мир, а Пинки, преданный и верный его друг, старается помочь ему, хотя он, по-видимому, не до конца оценил всей важности затеи Брейна. Во время операций захвата мира с Пинки и Брейном (   Читать дальше...   )Производство: США, Warner Bros. AnimationЖанр: мультфильм, фантастика, фэнтези, комедия, приключения, семейныйРежиссер: Кирк Тингблад, Чарльз Виссер, Нельсон РесиносАктеры: Роб Полсен, Морис ЛаМарш, Тресс МакНилл, Фрэнк Уэлкер, Джефф Беннетт, Билли Уэст, Джим Каммингс, Ларри Седар, Родди МакДауэлл, Джесс ХарнеллПеревод: Дублированный (полное дублирование включая песни)Язык озвучки: русскийСубтитры: ОтсутствуютПродолжительность: 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03151F649F60014D747E4B94C7BBB777CED75BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258351   (148103) от 24.12.2018
-
-Южный Парк / South Park (2018) WEB-DL [H.264/720p-LQ] (22 сезон, серия 01-10 из 10)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южный Парк / South Park — американский мультсериал, созданный Мэттом Стоуном и Треем Паркером. Иногда название переводится также как «Саут-Парк» или «Саус-Парк». Выпускается кабельным телеканалом Comedy Central с 1997 года. Основу сюжета составляют приключения четырёх мальчиков и их друзей, живущих в маленьком городке Саут-Парк, штат Колорадо. Сериал высмеивает недостатки (   Читать дальше...   )Производство: СШАЖанр: Для взрослых, КомедияРежиссер: Трей Паркер, Эрик Сточ, Мэтт СтоунАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Элиза Шнайдер, Эдриан Бирд, Мэри Кэй Бергман, Дженнифер Хауэлл, Кайл Маккаллок и др.Перевод: Профессиональный, двухголосый закадровыйОзвучка: Paramount Comedy, Кубик в кубеСубтитры: АнглийскиеПродолжительность: 10x ~00:22:10Реклама: Вырезана
- Присутствует ненормативная лексика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251BF8EED96801425F6F16783166938164B40590
 ```
 
 https://mybot314.ru/tekegram_catalog/

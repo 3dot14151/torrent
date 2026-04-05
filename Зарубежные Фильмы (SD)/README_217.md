@@ -1,55 +1,3 @@
-###  Публикация: 886004   (769676) от 09.04.2015
-
-Чем дальше в лес... / Into the Woods (2014) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золушка мечтает попасть на бал, Пекарь, когда-то проклятый Ведьмой, и его Жена горюют о том, что у них нет ребенка, Джек хочет, чтобы его корова Беляночка наконец-то дала молоко, его Мать мечтает быть богатой, а Красной Шапочке очень нужен каравай хлеба — гостинец (   Читать дальше...   )Производство: СШАЖанр: Мьюзикл, Фэнтези, Комедия, СемейныйРежиссер: Роб МаршаллАктеры: Мэрил Стрип, Эмили Блант, Джонни Депп ...Перевод: Дублированный (iTunes)Язык субтитров: РусскийПродолжительность: 02:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8288C3C2E5AAA18107333EF7CB67BB53C2A830AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 886521   (769672) от 09.04.2015
-
-Пятьдесят оттенков серого / Fifty Shades of Grey (2015) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анастейша Стил — скромная студентка, живущая вместе с близкой подругой-сокурсницей Кейт. За неделю до выпускного в университете, Анастейша, по просьбе заболевшей Кейт заменить её, берёт интервью у молодого красавца-миллиардера Кристиана Грея. Интервью складывается не очень удачно, и Анастейша не думает, что они когда-либо встретятся вновь. Неожиданно Грей появляется (   Читать дальше...   )Производство: США, Michael De Luca Productions, Focus FeaturesЖанр: Драма, мелодрамаРежиссер: Сэм Тейлор-ДжонсонАктеры: Джейми Дорнан, Дакота Джонсон, Дженнифер Или, Люк Граймс, Виктор Расук, Элоиза Мамфорд, Марша Гей, Харден Рита, Ора Макс Мартини Каллум, Кит РенниПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE080551B977F5F905D761A3FD6C56852E6CDF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 886597   (769598) от 09.04.2015
 
 Искатель воды / The Water Diviner (2014) BDRip [H.264] [Line]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769598.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769584.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769530.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769467.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769461.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769449.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769447.jpg" />
 </div>
 
 
@@ -243,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769446.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769412.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769145.jpg" />
 </div>
 
 
@@ -322,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769019.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768875.jpg" />
 </div>
 
 
@@ -376,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768849.jpg" />
 </div>
 
 
@@ -402,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768825.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768797.jpg" />
 </div>
 
 
@@ -454,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768737.jpg" />
 </div>
 
 
@@ -480,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768735.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768683.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768639.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768585.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768449.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768441.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768394.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768271.jpg" />
 </div>
 
 
@@ -673,6 +621,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF65EA66DD91C2FEBBFEA17E8A35F79E95302EC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278600   (768255) от 26.01.2019
+
+Убийца внутри меня / Killers Within (2018) HDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офицер-полицейский Аманда Дойл вместе со своим бывшим мужем и тремя не особо надежными союзниками, принимает участие в отчаянной операции по вызволению сына из лап бандитов. Но всё не так просто...Производство: Ирландия /  Fever Kid Films, Millbrook Studios, Two Joker FilmsЖанр: Триллер, УжасыРежиссер: Брайан О`НиллАктеры: Патрик Мерфи, Джонни Эллиотт, Сэм Лукас Смит, Джефф Дойл, Кормак Мелиа, Сараз Лонг, Сью Уолш, Эндрю Мюррей, Синед О РиорданПеревод: Двуголосый закадровый, любительский (HiWay Grope)Субтитры: отсутствуютПродолжительность: 01:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A12182EF7E820DC5082BA522ED5F3EF663F8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213612   (767984) от 17.03.2018
+
+Уиджи: Проклятие Вероники / Veronica (2017) BDRip [Line]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уиджи — это доска для спиритических сеансов вызова душ умерших. Ее называют доской Дьявола, потому что общение с загробным миром не обходится для живого человека без последствий. Тот, кто берет в руки Уиджи, должен знать, что она обладает страшной властью открывать врата чудовищному злу, противостоять которому практически невозможно.
+Вероника, красивая и веселая (   Читать дальше...   )Производство: Испания / Apaches EntertainmentЖанр: ужасы, драмаРежиссер: Пако ПласаАктеры: Сандра Эскасена, Бруна Гонсалес, Клаудия Плейсер, Иван Чаверо, Ана Торрент, Консуэло Трухильо, Анхела Фабиан, Карла Кампра, Миранда ГасПеревод: Дублированный (Чистый звук)Субтитры: отсутствуютПродолжительность: 01:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDFE927BB025FE21F2FE718A15DC07FAD629AE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

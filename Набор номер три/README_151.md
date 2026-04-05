@@ -1,3 +1,161 @@
+###  Публикация: 877224   (841799) от 15.03.2015
+
+Гарри Поттер / Harry Potter (2001-2011) BDRemux [VC-1, H.264/1080p] [Антология]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия англо-американских фильмов, основанных на романах о Гарри Поттере английской писательницы Д. К. Роулинг. Серия выпущена компанией Warner Bros. и состоит из 8 фильмов в жанре фэнтези, начиная с Гарри Поттер и философский камень и заканчивая Гарри Поттер и Дары Смерти: часть 2.Серия англо-американских фильмов, основанных на романах о Гарри Поттере английской писательницы Д. К. Роулинг. Серия выпущена компанией Warner Bros. и состоит из 8 фильмов в жанре фэнтези, начиная с Гарри Поттер и философский камень и заканчивая Гарри Поттер и Дары Смерти: часть 2.Производство: США, Великобритания, Warner BrosЖанр: Приключения, Фэнтези, СемейныйРежиссер: Дэвид ЙэтсАктеры: Дэниел Рэдклифф, Эмма Уотсон, Руперт Гринт, Ричард Харрис, Алан Рикман, Мэгги Смит, Робби Колтрейн, Саундерс Триплетс, Фиона Шоу, Гарри Меллинг, Ричард Гриффитс, Дерек Дэмэн, Ян ХартПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 02:38:50, 02:54:25, 02:21:42, 02:37:05, 02:18:14, 02:33:31, 02:26:05, 02:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6546E771E52C170DB57F9B460D39C836798393EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 688332   (841446) от 30.03.2014
+
+Nuance VocalizerEx TTS Milena Rus v1.0.2.3j - система озвучивания текста голосом (30.03.2014) <Ru/Multi>
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Nuance представила новый голос на русском языке для 5-ой версии программы Nuance Vocalizer. Созданный с применением последних разработок, новый женский голос Milena может использоваться для синтеза высококачественной и естественно звучащей речи в call-центрах и в различных сетевых речевых системах, а также в автомобильных, настольных и мобильных приложениях. (   Читать дальше...   )Разработчик: Nuance Communications Inc.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF56DBBA3B0589ACACEA50F93981A610F71A91FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529054   (841441) от 30.03.2014
+
+Загрузка антивирусных утилит 9.0.0.0 [Ru]
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта программа позволит выкачивать лечащие утилиты от Dr. Web, Касперский, Malwarebytes' Anti-Malware, AVZ, Hijack This,  Universal Virus Sniffer, GMER, McAfee Avert Stinger, COMODO Cleaning Essentials, Emsisoft Emergency Kit, VirusTotal Uploader, Hitman Pro, ComboFix, AnVir Task Manager без посещения их сайтов.
+А так же LivCD от Dr.Web, Kaspersky, Avira, ESET, BitDefender, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0082C450C790714C29A5148D072BDACB70119889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 110864   (841404) от 18.04.2010
+
+Maxthon 2.5.12.4586 [Русский] (Updated 18.04.2010) (TechnicsKuzya mod)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maxthon - это мощный многооконный браузер, предназначенный для массового пользователя. Кроме основной функциональности интернет-обозревателя Maxthon предоставляет богатый набор функций для увеличения удобства навигации в сети.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 193180   (841321) от 18.04.2010
+
+Безумцы / The Crazies (2010) [Лицензия|Дубляж] DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841321.jpg" />
+</div>
+
+
+###  Подробнее
+
+В окрестностях небольшого городка падает самолёт, на борту которого чрезвычайно опасный вирус. Зараза попадает в водную систему города, люди один за другим «заболевают» и начинают яростно набрасываться на всех подряд. Военные оперативно запирают город на карантин, периодически отстреливая заразных.Жанр: ужасы, фантастика, триллерРежиссер: Брек Эйснер / Breck EisnerАктеры: Тимоти Олифант, Рада Митчел, Джо Андерсон, Даниэль Панабэйкер, Кристи Линн Смит, Бретт Рикаби, Престон Бэйли, Джон Эйлуорд, Джо Риган, Гленн Моршауэр...Формат: AVI  //СОВМЕСТИМО С БЫТОВЫМИ ПЛЕЕРАМИ//Продолжительность: 01:33:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003536   (840935) от 04.04.2016
+
+Windows 10 – самая популярная ОС среди геймеров
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_840935.jpg" />
+</div>
+
+
+###  Подробнее
+
+В марте 2016 Windows 10 стала самой популярной операционной системой в Steam
+В Steam появились очередные статистические данные относительно железа и платформ, на которых работает сервис. Пришел тот день, когда Windows 10 стала самой популярной операционной системой среди ПК-геймеров. Крупнейший магазин игр для ПК, Steam, опубликовал статистику используемых операционных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974976   (840934) от 04.04.2016
 
 Hai to Gensou no Grimgar / Grimgar of Fantasy and Ash / Гримгар фантазии и праха [2016, TV, 12] HDTV 720p raw
@@ -6,7 +164,7 @@ Hai to Gensou no Grimgar / Grimgar of Fantasy and Ash / Гримгар фант�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840934.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ The Walking Dead: Michonne - Episode 1-2 (2016) [Ru/Multi] (1.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840933.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Mirillis Action! 1.30.3.0 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840924.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_840919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_840919.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Symantec Endpoint Protection 12.1.6867.6400 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840914.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840909.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840908.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ Navitel / Навител Навигатор v9.7.2286 Full и другие дл�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840848.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840844.jpg" />
 </div>
 
 
@@ -240,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_840823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_840823.jpg" />
 </div>
 
 
@@ -266,7 +424,7 @@ Total Commander 10.00 LitePack & PowerPack & ExtremePack + Portable 2021.10 by S
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840816.jpg" />
 </div>
 
 
@@ -292,7 +450,7 @@ Windows 11 Media Creation Tool 10.0.22000.253 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840813.jpg" />
 </div>
 
 
@@ -318,7 +476,7 @@ Alan Wake Remastered (2021) [Ru/En] (Build 33793/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840808.jpg" />
 </div>
 
 
@@ -344,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840771.jpg" />
 </div>
 
 
@@ -370,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840768.jpg" />
 </div>
 
 
@@ -396,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_840534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_840534.jpg" />
 </div>
 
 
@@ -422,7 +580,7 @@ Windows XP SP3 Standard Edition 03.2011 CD [Только русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840509.jpg" />
 </div>
 
 
@@ -448,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840497.jpg" />
 </div>
 
 
@@ -474,7 +632,7 @@ Black Prophecy (L/0.8.9) [Eng] 2010
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840496.jpg" />
 </div>
 
 
@@ -500,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840495.jpg" />
 </div>
 
 
@@ -512,164 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309623   (840494) от 16.03.2011
-
-[Crack] Shogun 2: Total War | NeTShoW (CHINA)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Позволяет поиграть в игру, под названиемЖанр: Strategy (Real-time / Turn-based) / 3D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842578395B933E1542D9D09A938343E03C1B91AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309715   (840491) от 16.03.2011
-
-ABBYY FineReader 8.0  Professional Edition (Portable) [русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840491.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBYY FineReader 8.0 Professional Edition - профессиональная версия от мирового лидера в области систем распознавания. С её помощью можно быстро и точно переводить бумажные документы, PDF-файлы и цифровые фотографии документов в редактируемые форматы с возможностью поиска по тексту. Программа сохраняет внешний вид даже сложно оформленных документов, даёт возможность контролировать процесс распознавания. ABBYY FineReader 8.0 Professional Edition незаменим для тех, кто часто распознаёт документы. ABBYY FineReader 8.0 Professional Edition незаменим для тех, кто часто распознает документы. Эта версия будет полезна как дома, так и в офисе небольшой компании.
-Данная версия не требует установки и может работать с флешки.Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309768   (840487) от 16.03.2011
-
-[Lossless Repack] Shogun 2: Total War [Ru] 2011 | R.G. Catalyst
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Середина XVI столетия. Феодальная Япония, некогда находившаяся под властью императора, раздроблена и поделена между множеством враждующих кланов. В роли даймё — лидера одного из них — игроку предстоит воевать, решать разноплановые хозяйственные вопросы и вести тонкую дипломатическую игру, чтобы добиться главной цели: прекратить междоусобные распри и объединить страну под своим началом, став правителем всей Японии.Тип издания: RepackЖанр: Strategy (Real-time / Turn-based) / 3DЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 878838   (840260) от 16.03.2015
-
-Grim Dawn (2013) [En] (0.3.3.3b24) Unofficial 3DM [Early Access]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grim Dawn - мрачный рассвет нового века, где железо заменило золото в качестве валюты и обыкновенная соль приобрела такую цену, что ее перестали использовать в еде. Небольшие разрозненные анклавы оставшихся в живых существуют по всему миру, скрываясь в убежищах. Наблюдая, как враждующие захватчики грызут друг другу глотки, люди начали изучать слабые и сильные стороны (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Crate EntertainmentЖанр: Action/RPG (Hack and slash)Язык озвучки: Отсутствует, музыкальное сопровождениеЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7DEE24575AF9D2B8D4F0FE206ECBBD7EC48217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876532   (840244) от 16.03.2015
-
-Uncharted 3: Drake's Deception / Uncharted 3: Иллюзии Дрейка (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO Install ISO] [Unofficial / 1.19] [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная часть нашумевшего PS3-эксклюзива рассказывает о новых и захватывающих приключениях охотника за сокровищами, известного как Дрейк. В поиска наследия Френсиса Дрейка главный герой отправляется в пустыню Руб-эль-Хали, где по легенде спрятана великая Атлантида песков – городок, описанный Лоуренсом Аравийским.
-Вместе со своим учителем Виктором Салливаном главный (   Читать дальше...   )Тип издания: UnofficialРазработчик: Naughty DogЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7644D83304B0F543951F139A5E85D64A7282986A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710914   (839695) от 31.03.2014
-
-Ходячие мертвецы / The Walking Dead (2013-2014) WEB-DLRip (Сезон 4, серия 1-16 (16)) (Fox)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалипсических масштабов захлестнула земной шар. Шериф Рик Грайм путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Жанр: Мистический триллер, ужасы, зомбиРежиссер: Эрнест Р. Дикерсон, Гай Ферленд, Гвинет Хордер-ПэйтонАктеры: Эндрю Линкольн, Сара Уэйн Кэллис, Лори Холден, Стивен Юн, Чендлер Риггз, Джон Бернтал, Джеффри ДеМанн, Норман Ридус, Айрон Э. Синглтон, Мелисса Сюзанн МакБрайд, Лорен Коэн, Эмили Кинни, Скотт Уилсон, Джейн МакНейлл, Джеймс Аллен МакКьюн, Мэдисон Линтц, Эмма Белл, Джерил Прескотт, Эндрю С. МакМиллан, Эндрю Ротенберг, Майкл Рукер, Хуан Гэбриел Парейа, Майкл Зеген, (   Читать дальше...   )Перевод: Профессиональный (многоголосый, закадровый) (Fox)Формат: AVIПродолжительность: ~00:45:00  серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B297328DA0C6D6CD9695717FF64C8AA07A9492
 ```
 
 https://mybot314.ru/tekegram_catalog/

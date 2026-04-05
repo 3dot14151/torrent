@@ -1,3 +1,166 @@
+###  Публикация: 1543373   (629259) от 11.04.2022
+
+Beitthemeans - Crude Alabama Storytellers (2008) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hard Blues Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down The River [00:04:54]
+02. Mr. Devil And The Black Widow Woman [00:04:35]
+03. The Hillside [00:03:59]
+04. Wicked Well [00:03:44](   Читать дальше...   )Жанр: Hard Blues Rock, Southern Rock, Stoner RockПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEB96604248C3A577E6AC4123E4F4236F1B913A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543329   (629244) от 11.04.2022
+
+Scorpions - Lovedrive (1979) Reissue, 1989, Mercury [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving You Sunday Morning
+02. Another Piece of Meat
+03. Always Somewhere
+04. Coast to Coast(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110C561FBF0AE52B7F6004C62412A90D402E9371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520782   (629189) от 10.07.2012
+
+Al Kooper - Soul Of A Man & White Chocolate (1995 - 2008) [FLAC|Lossless]<Blues, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_629189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Time [04:55]
+02. You Never Know Til You Get There [04:04]
+03. Calling You [04:53]
+04. I Love You More Than Words Can Say [05:31]
+05. It Takes A Lot To Laugh (It Takes A Train To Cry) [04:46]
+06. I Cried So Hard [04:21]
+07. Staxability [04:04]
+08. You Make Me Feel So Good (All Over) [04:25]
+09. Susan [03:52]
+10. Hold On (Feat Catharine Russell) [03:51](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520876   (629084) от 10.07.2012
+
+It Bites - Map of The Past (2CD) (2012) [FLAC|Lossless]<Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_629084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man In The Photograph (3:46)
+02. Wallflower (4:50)
+03. Map Of The Past (4:37)
+04. Clocks (5:44)
+05. Flag (4:36)
+06. The Big Machine (5:19)
+07. Cartoon Graveyard (5:03)
+08. Send No Flowers (4:15)
+09. Meadow And The Stream (6:42)
+10. The Last Escape (6:06)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:52:40 / 00:56:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521024   (628804) от 10.07.2012
+
+Asia - The Platinum Collection 1982-2010 (5 CD Box Set) (2011) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628804.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Showdown
+02. Countdown To Zero
+03. End Of The World
+04. The Longest Night
+05. Wishing
+06. Through My Veins
+07. You're The Stranger
+08. Wherever You Are
+09. Rock And Roll Dream(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03FD20ABECD8C924691CE23CCEE9BAB548C8638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521143   (628734) от 10.07.2012
 
 И Друг Мой Грузовик - Годы геологов (2012) [MP3|320 кб/с]<Rock>
@@ -6,7 +169,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628734.jpg" />
 </div>
 
 
@@ -41,7 +204,7 @@ Cactus - 10 Альбомов (1970-2010) [MP3|320 кб/с]<Hard Rock\Blues-Rock\
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628733.jpg" />
 </div>
 
 
@@ -76,7 +239,7 @@ Klandestyn - Wounds Bleeding Black (2009) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628682.jpg" />
 </div>
 
 
@@ -105,7 +268,7 @@ Thanatos - Angelic Encounters (2000) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628680.jpg" />
 </div>
 
 
@@ -134,7 +297,7 @@ Evol - The Saga of the Horned King (1995) [APE|Lossless|image + .cue] <Atmospher
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628679.jpg" />
 </div>
 
 
@@ -163,7 +326,7 @@ The Resistance - Coup de grâce (2016) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628677.jpg" />
 </div>
 
 
@@ -192,7 +355,7 @@ Hellwitch - Anthropophagi (1994) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628675.jpg" />
 </div>
 
 
@@ -221,7 +384,7 @@ Mortuorial Eclipse - The Aethyrs' Call (2012) [FLAC|Lossless|image + .cue] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628674.jpg" />
 </div>
 
 
@@ -250,7 +413,7 @@ Mutzie - Light of Your Shadow (1970) Reissue Synton Archive Productions[MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628672.jpg" />
 </div>
 
 
@@ -279,7 +442,7 @@ Bonrud - Save Tomorrow (2012) Japan Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628671.jpg" />
 </div>
 
 
@@ -308,7 +471,7 @@ Cartoon Theory - Planet Geisha (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628669.jpg" />
 </div>
 
 
@@ -337,7 +500,7 @@ Wolf - Wolf (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628645.jpg" />
 </div>
 
 
@@ -366,7 +529,7 @@ Neko Case, k.d. lang, Laura Veirs aka case-lang-veirs - case-lang-veirs (2016) [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628642.jpg" />
 </div>
 
 
@@ -395,7 +558,7 @@ Doro - Strong And Proud / 30 Years Of Rock And Metal (2016) Live [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628624.jpg" />
 </div>
 
 
@@ -424,7 +587,7 @@ Dew-Scented - Intermination (2015) [MP3|320 кб/с]<Death/Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628580.jpg" />
 </div>
 
 
@@ -453,7 +616,7 @@ Kegan DeBoheme - Songs of Woe (2015) [MP3|320 кб/с]<Classic Rock 70's>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628577.jpg" />
 </div>
 
 
@@ -482,7 +645,7 @@ Steven Tyler - We're All Somebody From Somewhere (2016) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628537.jpg" />
 </div>
 
 
@@ -511,7 +674,7 @@ Sleeper - The Modern Age (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628487.jpg" />
 </div>
 
 
@@ -540,7 +703,7 @@ Lucy Rose - 7 releases (2012 - 2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628481.jpg" />
 </div>
 
 
@@ -569,7 +732,7 @@ King James - MaXimus 2013 (2016) [FLAC|Lossless|image + .cue] <Christian Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628480.jpg" />
 </div>
 
 
@@ -598,7 +761,7 @@ Dagoba - Tales Of The Black Dawn (2015) [MP3|320 кб/с]<Groove, Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628476.jpg" />
 </div>
 
 
@@ -612,146 +775,6 @@ Dagoba - Tales Of The Black Dawn (2015) [MP3|320 кб/с]<Groove, Melodic Death 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8019BDFCF5161C972F608407BF564B49C73C26C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909096   (628475) от 17.06.2015
-
-Darker By Design - Sinister At Last (2015) [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omen
-02. A Grim Conception
-03. …And This Night’s The Nightingales
-04. HELLFORGED(   Читать дальше...   )Жанр: Melodic Death Metal/Продолжительность: 00:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084DD5CD0F043DEE636854B4E2B446E810B9F3CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909590   (628473) от 17.06.2015
-
-Whispered - Sakura Omen (2015) Single [MP3|320 кб/с]<Melodic Death Metal, Folk Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628473.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sakura Omen
-2. Boomer Kuwanger (Bonus track)Жанр: Melodic Death Metal, Folk Metal, Symphonic MetalПродолжительность: 00:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590E569D5EEEEB99638AA5F7B38732741CF3EB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294390   (628370) от 08.04.2019
-
-VA - Music Inspired by the Film Roma (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciudad de México – Tepeji 21 (The Sounds of Roma) (02:36)
-02. Patti Smith – Wing (04:44)
-03. Beck – Tarantula (03:47)
-04. Billie Eilish – When I Was Older (04:31)(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B11B8083D091DFEB984570B90B4359A42BD568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908883   (628347) от 17.06.2015
-
-Palace Of The King - White Bird - Burn The Sky (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Take Your Medicine
-2. No Chance In Hell
-3. Another Thing Coming
-4. Burn My Bridges(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4042CB282793B498F6A9FB7F89701D181FE44EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909411   (628198) от 17.06.2015
-
-Fire - Could You Understand Me (1973) Reissue /2005, Skyf Zol/ [FLAC|image+.cue]<Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственный альбом чумового хорватского пауэр-трио Fire из города Чаковец (Cakovec). Одна из самых тяжёлых и громких групп Югославии 70-х годов. Но их там мало кто знал... Потому что, во-первых, пели они в основном на английском языке. И, во-вторых, власти им просто запрещали выступать, так как группа была бескомпромиссной и не шла ни на какие переговоры с властью (   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236FC50A128088AFDB2677C11C0E68F6C3D3F66E
 ```
 
 https://mybot314.ru/tekegram_catalog/

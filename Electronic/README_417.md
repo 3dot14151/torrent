@@ -1,3 +1,119 @@
+###  Публикация: 1343011   (221422) от 04.12.2019
+
+VA - A Lovely Connection Chilling Music (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gesolreut - Faux Pas 05:37
+02. Komplextum - Behind the Curve 05:37
+03. Dustin Lefholz - Fresh Lemon Haze 03:34
+04. Sonnenburg - Degage 05:33(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F25F1CB5D1F3F379A30B3F73CC8CD40129B4A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269290   (221417) от 14.12.2018
+
+VA - Remembering the 90s: Best Hits Remixed (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damon Paul feat. Simone Mangiapane and Tony T. - Rhythm Is a Dancer (Rap Festival Mix)
+02. Felicia Uwaje - A Deeper Love (Akira Yamamoto Radio Edit)
+03. Markus D'Ambrosi feat. Marga Gonzales - Lick It (Miami Mix)
+04. Tosch feat. Christina - Somewhere over the Rainbow (Steve Cypress Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B266935E78CD950DBBFDFE87597B2DEBA9565778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513816   (221318) от 01.12.2021
+
+VA - Vocal House Essentials (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lopi Native - Let Me Love You (Indy Lopez Remix) (06:41)
+02. KaiMack - Magic (06:02)
+03. Claire Wakeman - Addicted To You (Indy Lopez Remix) (05:29)
+04. Naked Flame - Follow You (Vocal Mix) (04:07)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B33870327DA3B6642723766F622331F1B2B0CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207292   (221311) от 04.12.2019
+
+Wolves And Horses - Discography 9 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dark Ambient, Tribal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuvvuagittuq (07:28)
+ 02. Mount Kamet (06:10)
+ 03. Fanjingshan (07:32)
+ 04. Gleann Comhann (05:36)(   Читать дальше...   )Тип издания: WEBЖанр: AmbientПродолжительность: 05:44:19 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF78DA68FD23D6EB0D3886323E21A60518D81C9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651657   (221181) от 07.08.2023
 
 Philtron - None (1997) [FLAC|Lossless|image + .cue] <Synth-Pop>
@@ -6,7 +122,7 @@ Philtron - None (1997) [FLAC|Lossless|image + .cue] <Synth-Pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221181.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Press Play Vol. 3 (Mixed By Susana) (2015) [MP3|320 кб/с] <Trance, Vocal
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220943.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ StereOMantra - Observatory (2016) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220869.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Oskar Sala - Discography 15 Releases (1961-2016) Erdenklang, Fax +49-69/450464 [
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220769.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Monstercat - Best of 2016 (2016) [MP3|320 Kbps] <Electro, House, Glitch Hop, Dru
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220687.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Feeling Relaxed Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220613.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Marsh - Lailonie (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220589.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - ADE Inspirations (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220524.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Fejka - Hiraeth (2022) LP [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220452.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ KiLN (Waterwheel, Fibreforms) - Discography 16 Releases (1997-2020) Thalassa, Gh
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220389.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Planet Boelex - Discography 12 Release (2006-2020) Monotonik, Soft Phase [FLAC|L
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220358.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Jo Berger Myhre & Olafur Bjorn Olafsson (Jo Berger Myhre & Ólafur Björn Ólafs
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220232.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Alter Ego Records: Best Of (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220187.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Frankmusik - Day Break (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220151.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Jo Berger Myhre & Olafur Bjorn Olafsson (Jo Berger Myhre & Ólafur Björn Ólafs
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220134.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Trance The Annual 2020 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220112.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Trance Universe Vol.01 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220082.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Best of 2019 Dance Music (2019) [MP3|320 Kbps] <Dance, House, Electro House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220075.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Suduaya - Venus (2016) [FLAC|Lossless|WEB-DL|24Bit] <Psybient, Downtempo, Breaks
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219902.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ E-Mantra - Discography 13 Releases + Bonus (2008-2014) [MP3|320 кб/с]<Goa Tra
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219829.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Angela Werner - 2 Albums (1981, 1982) LP [MP3|320 Kbps] <Electronic, New Wave, S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219752.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Calm Winter Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219605.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Calm Winter Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8B089B49EEB98C004CE1C35ECFD69E78D0236D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652071   (219538) от 09.08.2023
-
-Moon Boots - Ride Away (Remixed) (2023) [FLAC|24/44.1|tracks|WEB-DL] <Deep House, Speeeedyunderground, TechHouse>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride Away (Loods Remix) [00:03:54]
-02. Come Back Around (Romain Garcia Remix) [00:04:23]
-03. Hot Minute (Kareem Ali Remix) [00:03:47]
-04. Take Me To Your Body (Demuir's Playboi Edit) [00:03:51](   Читать дальше...   )Жанр: Deep House, Speeeedyunderground, TechHouseПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0717CC1E21692349709ABA110D770224952B1739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152130   (219499) от 05.12.2019
-
-Dement3d Records - Label-Pack 23 Releases (2011-2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blurry Youth (Elise Reshape) (05:08)
- 02. Slave No Slave (Bambounou Reshape) (06:41)
- 03. Falling For Her (Prequel Tapes Reshape) (07:19)
- 04. Blurry Youth (Bjarki Reshape) (05:06)(   Читать дальше...   )Жанр: Techno/Electro/IDM/ExperimentalПродолжительность: 01:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38D3D0341D5D34E5B014793FD065564F2B790BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514271   (219486) от 02.12.2021
-
-VA - Best of Progressive Vocal Trance (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raz Nitzan & Elara - Paralyzed 3:19
-02. Costa & Cathy Burton - Always 2021 3:45
-03. Zetandel & Tiff Lacey - Higher Ground (Costa & Aurosonic Remix) 3:45
-04. Aurosonic, Spark7 & Sarah Russell - Touched By An Angel 4:09(   Читать дальше...   )Жанр: TranceПродолжительность: 04:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4E4E1FEAAAD3D24624484F295242D52B47D6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652019   (219475) от 09.08.2023
-
-Hybernoid - Advanced Technology (1998) [FLAC|Lossless|image + .cue] <Breakbeat, Breaks, Big Beat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Trapped
-03. Recoil
-04. Kullu(   Читать дальше...   )Жанр: Breakbeat, Breaks, Big BeatПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFC8F8DA0625F94692A3D0EB94D48B519192C59
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1703685   (114809) от 01.03.2024
-
-Александр Барыкин - Эй, смотри! (1990) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. В стиле Рок (М. Пушкина) — 4.46
-02. С нами любовь (М. Пушкина) — 4.05
-03. Гала (А. Барыкин) — 4.36(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D30C1D61B7442CE880E26751D6EBC5BEBE8AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703679   (114808) от 01.03.2024
 
 Bananarama - Pop Life (1992 (1991)) [FLAC 24/192|Lossless|tracks] <Pop>
@@ -35,7 +6,7 @@ Bananarama - Pop Life (1992 (1991)) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114808.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Blind Channel - Exit Emotions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114803.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Asher Monroe - Songs of the Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114799.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Liv Kristine - Deus ex Machina (1998) Remastered, 2024, Metalville [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114793.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Jacob Collier - Djesse Vol. 4 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114792.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114791.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Nirvana - Studio Albums (5 releases) (1989-1994) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114698.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ AC/DC - If You Want Blood You've Got It (1978) Live [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114681.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114665.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Андрей Петров - Музыка из к/ф "Жестокий ро�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114663.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114657.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Suldusk - Anthesis (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Atmospheric Dark,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114649.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Liam Gallagher & John Squire - Liam Gallagher & John Squire (2024) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114640.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Lars Leonhard - Reflections (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114633.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114632.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Elevenwire - Blood Red Sun (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114621.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Big Big Train - The Likes of Us (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114619.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Yard Act - Where’s My Utopia? (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114618.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Firewind - Stand United (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114617.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ REO Speedwagon - Hi Infidelity (1980) Remaster, 2024, Epic - Legacy [FLAC 24/192
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114612.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114610.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ R.E.M. - Studio Albums (9 releases) (1991-2011) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114406.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Madis - 4 Альбома, 1 Сингл (2022-2023) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114375.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Dire Straits (Даэр Стрэйтс) - Love Over Gold (Любовь дорож
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114372.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114368.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ A1 Красная Стрела(   Читать дальше...   )Жанр: Pop�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9202D179DFE1B0A29B53B2E56224393935B38D54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704402   (114361) от 04.03.2024
+
+Deep Purple - Дым над водой. Архив популярной музыки 8 (1987) [FLAC 24/192|Lossless|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Black Night
+02. Fireball
+03. Space Truckin'(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0B97578B507A2B7FA2C3FDAE59E9C857FB1EF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

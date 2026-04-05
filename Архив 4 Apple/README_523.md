@@ -6,7 +6,7 @@ iShot Pro-ScreenShot Recording 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236592.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lungo 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236590.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ QLab 5.0.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236584.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Omni Recover 3 v3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236582.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Posterino 3 v3.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236577.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Nevercenter CameraBag Pro 2023.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236574.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Yate 6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236570.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ DRmare Tidal Music Converter 2.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236556.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ FinalShot 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236555.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ MenuBar Stats 3 v3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236551.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Smart Disk Image Utilities 2.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236542.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Advanced Duplicate Cleaner 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236528.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Performance Index 64 Pro 4.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236524.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Acorn 7 v7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236520.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ ProFind 1.21.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236517.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Dato 4.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236508.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ SiteSucker 5.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236497.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Contacts Journal CRM 3.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236493.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Apeaksoft Screen Recorder for Mac 2.1.36 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236489.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ System Dashboard 4.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236486.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Scrutiny 10 v10.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236485.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236478.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Data Creator 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236471.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ SQLPro Studio 2021.90 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236467.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Soulver 3 v3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236455.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ GraphicConverter 11 v.11.8 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236454.jpg" />
 </div>
 
 

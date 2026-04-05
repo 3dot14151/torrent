@@ -1,31 +1,3 @@
-###  Публикация: 1403864   (686028) от 22.08.2020
-
-[Udemy] Maximilian Schwarzmüller | Ускоренное обучение JavaScript / Accelerated JavaScript Training (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубоко погрузитесь в JavaScript, язык, который необходимо знать в веб-разработке, с практическим подходом, основанным на примерах.
-Изучите один из самых важных языков в веб-разработке - быстро и с нуля!
-JavaScript - одна из самых важных частей каждой современной, реактивной, удобной веб-страницы или приложения. Несмотря на этот факт, вы, возможно, знаете много руководств, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68BDBEA6478BEDB528F82FD5F2410D5D86ED948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403856   (685711) от 22.08.2020
 
 [Foxminded] Sergey Nemchinskiy | GRASP and GoF Design patterns Advanced On-line Course (2020) CamRip (re-encoded) (2020) CamRip
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685711.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684560.jpg" />
 </div>
 
 
@@ -87,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684454.jpg" />
 </div>
 
 
@@ -113,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684443.jpg" />
 </div>
 
 
@@ -142,7 +114,7 @@ Yandex.ru |  Курсы информационных технологий [2011]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681049.jpg" />
 </div>
 
 
@@ -168,7 +140,7 @@ Udemy, Aray Kaken | Основы DevOps (2021) HDRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680090.jpg" />
 </div>
 
 
@@ -196,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679772.jpg" />
 </div>
 
 
@@ -224,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679758.jpg" />
 </div>
 
 
@@ -250,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679041.jpg" />
 </div>
 
 
@@ -278,7 +250,7 @@ Yandex.ru |  Второй Курс информационных технолог
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_679040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679040.jpg" />
 </div>
 
 
@@ -306,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678910.jpg" />
 </div>
 
 
@@ -332,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677864.jpg" />
 </div>
 
 
@@ -358,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677767.jpg" />
 </div>
 
 
@@ -386,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677766.jpg" />
 </div>
 
 
@@ -415,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677759.jpg" />
 </div>
 
 
@@ -442,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676348.jpg" />
 </div>
 
 
@@ -468,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671827.jpg" />
 </div>
 
 
@@ -496,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671568.jpg" />
 </div>
 
 
@@ -522,7 +494,7 @@ ProfIT | Исключения - "серебряная пуля" для прог�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671215.jpg" />
 </div>
 
 
@@ -550,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669749.jpg" />
 </div>
 
 
@@ -578,7 +550,7 @@ Convert Monster | Google Adwords 2.0 (2015) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663883.jpg" />
 </div>
 
 
@@ -604,7 +576,7 @@ Oleg Lav | Как создать флешку восстановления Windo
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658661.jpg" />
 </div>
 
 
@@ -630,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658409.jpg" />
 </div>
 
 
@@ -659,7 +631,7 @@ eXeLaB.ru | Курс видеоуроков КРЭКЕРСТВО + ПРОГРА�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657525.jpg" />
 </div>
 
 
@@ -685,7 +657,7 @@ Marlin | Объектно-ориентированное программиро�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656371.jpg" />
 </div>
 
 
@@ -696,6 +668,32 @@ Marlin | Объектно-ориентированное программиро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D98231869F9E511E49D73BBADDE8145DDE71415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226131   (656350) от 19.05.2018
+
+Marlin | Самый понятный курс по php для начинающих (2018) PCRec [H.264]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс особенно будет полезен каждому начинающему. А также застрявшим где-то на пути синтаксиса, утонувшим в океане под названием фреймворк (Laravel, Yii2 и т.д.). И тем кто потерялся в глухом городе под названием «Не вижу и не понимаю куда двигаться?». Всем тем, которые задаются вопросом А как это работает? Я же так повторить не смогу! И наконец тем, которые еще ни (   Читать дальше...   )Жанр: Программирование, PHPПродолжительность: 22:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB77C83244EE49AA9C82F2F44138C60CA81CC7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

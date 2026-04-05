@@ -1,162 +1,3 @@
-###  Публикация: 1272112   (143837) от 27.12.2018
-
-А. Вторников | Стек, или путешествие туда и обратно (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена простой и удивительно элегантной структуре данных – стеку. Описаны скобочные структуры, подпрограммы (в том числе рекурсивные), передача параметров, разбор и вычисление выражений, распознавание последовательностей символов. Также рассмотрено описание устройства и реализация простой, но достаточно мощной стековой машины; приведены многочисленные примеры (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B730FE3353E90C26AE70F81261BC2FF13DF14B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678719   (143598) от 22.11.2023
-
-Rene Cacheaux, Josh Berlin | Advanced iOS App Architecture, 4th Edition (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет вам создать одно реальное приложение, написанное на разных архитектурах, и получить практический опыт работы с различными архитектурами. Кроме того, в этой книге вы получите теоретические знания, необходимые для создания прочного фундамента архитектурных концепций, что позволит вам принимать обоснованные решения о том, как использовать их в своей (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Kodeco IncФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB7CB315927B4C8281DB193BA6991CF203D44AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678729   (143512) от 22.11.2023
-
-Cesar Bravo, Desilda Toska | The Art of Social Engineering (2023) [PDF][EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Социальная инженерия - один из наиболее распространенных методов, используемых злоумышленниками для кражи данных и ресурсов у частных лиц, компаний и даже государственных структур. Эта книга представляет собой исчерпывающее руководство по пониманию атак социальной инженерии и способам защиты от них.
-
-В начале книги дается обзор современного ландшафта киберугроз, (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A7E20204E415343416C5FCD08EA8DB06F006A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435392   (143307) от 28.12.2020
-
-Мориц Ленц | Python. Непрерывная интеграция и доставка (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите методы и инструменты, которые обеспечивают плавный и эффективный процесс разработки программного обеспечения, с помощью этого краткого и практического руководства по непрерывной интеграции и непрерывной доставке с использованием Python. В книге представлены различные виды тестирования и показано, как настроить автоматизированные системы, которые выполняют (   Читать дальше...   )Жанр: Информационные технологииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4518C6DCD9A1119593A822B8E008DC47728F1FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435414   (143252) от 28.12.2020
-
-Бриан Тоуманнен | Программирование GPU при помощи Python и CUDA (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предлагает быстрое погружение в программирование GPU. Вы узнаете, как применять закон Амдала, использовать профилировщик для определения узких мест в коде на Python, настроить окружения для программирования GPU. По мере чтения вы будете запускать свой код на GPU и писать полноценные ядра и функции на CUDA C, научитесь отлаживать код при помощи NSight IDE и (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84B2F3FF65596599565C3563E4E73CEA9F98085A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435564   (143198) от 28.12.2020
-
-Андреа Лонца | Алгоритмы обучения с подкреплением на Python (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет читателю овладеть алгоритмами обучения с подкреплением (ОП) и научиться реализовывать их при создании самообучающихся агентов.
-В первой части рассматриваются различные элементы ОП, сфера его применения, инструменты, необходимые для работы в среде ОП. Вторая и третья части посвящены непосредственно алгоритмам. В числе прочего автор показывает, как (   Читать дальше...   )Жанр: Информационные технологииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B16021E43FB43B056C3084FA0B5220B3BFA3206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435535   (143164) от 28.12.2020
 
 В. Черников | Разработка мобильных приложений на C# для iOS и Android (2020) [PDF, RTF]
@@ -165,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143164.jpg" />
 </div>
 
 
@@ -191,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142674.jpg" />
 </div>
 
 
@@ -218,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142637.jpg" />
 </div>
 
 
@@ -244,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142469.jpg" />
 </div>
 
 
@@ -272,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141836.jpg" />
 </div>
 
 
@@ -298,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141283.jpg" />
 </div>
 
 
@@ -325,7 +166,7 @@ James Gale | The Complete Linux Manual / Полное руководство п�
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140730.jpg" />
 </div>
 
 
@@ -351,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140610.jpg" />
 </div>
 
 
@@ -377,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140596.jpg" />
 </div>
 
 
@@ -404,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140535.jpg" />
 </div>
 
 
@@ -430,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140432.jpg" />
 </div>
 
 
@@ -456,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140211.jpg" />
 </div>
 
 
@@ -484,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140117.jpg" />
 </div>
 
 
@@ -510,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140022.jpg" />
 </div>
 
 
@@ -536,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139834.jpg" />
 </div>
 
 
@@ -562,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139305.jpg" />
 </div>
 
 
@@ -589,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138847.jpg" />
 </div>
 
 
@@ -616,7 +457,7 @@ Marinko Spasojevic, Vladimir Pecanac | Ultimate ASP.NET Core Web API First & Sec
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138800.jpg" />
 </div>
 
 
@@ -645,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138532.jpg" />
 </div>
 
 
@@ -673,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138452.jpg" />
 </div>
 
 
@@ -685,6 +526,167 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D25F80DF7B9EA0F311ACB92E4D8CBA874A2A03EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679445   (137439) от 25.11.2023
+
+Jenn Mishra | Art Styles: Create Unique AI Image Prompts with ChatGPT or Claude (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используйте промты ChatGPT или Claude для создания уникальных художественных стилей в Midjourney.
+Уже есть готовые промты с деталями дизайна, и вы можете начать с предпочтительного стиля или темы.
+В моих промтах сочетаются реальные и воображаемые стили, что позволяет создавать по-настоящему уникальные произведения искусства.
+Найдите сочетание, которое вам понравится, (   Читать дальше...   )Жанр: ИскусствоЯзык: АнглийскийИздательство: GumroadФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A364BAB94ED34B8CBDC50688859912CD94770D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088492   (137429) от 31.12.2016
+
+Хорхе Паласиос | Unity 5.x. Программирование искусственного интеллекта в играх (2017) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игровой движок Unity 5 включает в себя множество инструментов, помогающих разработчикам создавать потрясающие игры, снабженные мощным искусственным интеллектом. Эти инструменты вместе с прикладным программным интерфейсом Unity и встроенными средствами открывают безграничные возможности для создания собственных игровых миров и персонажей. Данная книга охватывает как (   Читать дальше...   )Жанр: Искусственный интелект. Экспертные системыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF79F9820EA64F9A9584AEDBD92C384D955BEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679431   (137424) от 25.11.2023
+
+Jenn Mishra | 100+ Art Styles for Midjourney (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта электронная книга представляет собой сборник художественных стилей и терминов из чрезвычайно популярной серии на моем канале YouTube «Создание фотографии». Художественные стили — мощный способ преобразить ваши изображения, созданные искусственным интеллектом. ИИ знает эти художественные стили, а вы — нет! Добавление 1 или 2 слов стиля к подсказкам изображений (   Читать дальше...   )Жанр: ИскусствоЯзык: АнглийскийИздательство: GumroadФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3294C9FCD05DD4EC651457296D47379E6C2EB42B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088656   (137412) от 31.12.2016
+
+Эрик Шпикерманн | О шрифте (2017) [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт сопровождает нас везде: на упаковках продуктов, вывесках, экранах телевизоров и смартфонов. Немецкий дизайнер Эрик Шпикерманн научит разбираться в тонкостях типографики и общаться с помощью этого неотъемлемого элемента нашей жизни более эффективно.
+
+Благодарность за предоставленный в открытый доступ материал уважаемомуЖанр: Маркетинг. Общие вопросыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2AB92C6A027C4FB3E53F938440923418A21CF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679392   (137233) от 25.11.2023
+
+Елена Капаца | Машинное обучение доступным языком (2023) [PDF, FB2, EPUB]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Краткий гайд для новичков по машинному и глубокому обучению с разбором кода. Здесь вы найдете необходимый минимум по предмету, истолкованный языком, понятным школьнику. Некоторые разделы написаны с помощью chatGPT. По прочтении вы избавитесь от страха перед технологией и освоите базовый инструментарий подготовки данных, их загрузке в модель и ее донастройки. Подходит (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АвторФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B05FFEF91D531328B1271F4CDAE50042F45A0F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679435   (137080) от 25.11.2023
+
+Jenn Mishra | 100+ Best Prompts for Midjourney (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта электронная книга представляет собой сборник моих любимых подсказок, включенных в видеоролики на моем канале YouTube «Making the Photo». Это ваш личный ключ к сокровищнице творческих поисков. Эти подсказки не просто впечатляют. Они подобраны так, чтобы пробудить в вас творческий потенциал, разжечь воображение и показать удивительный потенциал, заложенный в Midjourney. (   Читать дальше...   )Жанр: ИскусствоЯзык: АнглийскийИздательство: GumroadФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6D4B0CF7C187DD8EBBDE3228A81C4405CD5D7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

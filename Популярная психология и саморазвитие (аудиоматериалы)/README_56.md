@@ -1,3 +1,168 @@
+###  Публикация: 1815840   (4676) от 02.09.2025
+
+Люси Маддокс | Измени жизнь к лучшему за год. Терапевтические практики на каждый месяц (2024) [MP3, Мария Сми]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люси Маддокс – практикующий психолог. Она много лет помогает людям восстанавливать душевное здоровье и ведет просветительские подкасты.В этой книге она обобщила многолетний опыт своей работый. Каждая глава посвящена одному месяцу, свойственным ему трудностям и практикам из разных психологических школ.
+С вызовами, о которых пишет Люси Маддокс нам приходится сталкиваться (   Читать дальше...   )Жанр: ПсихологияИздательство: БОМБОРАПродолжительность: 07:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182FA5A3FE48CFCD08EA16490CAC5BB9329172A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816115   (4541) от 03.09.2025
+
+Лианн Маскелл | СДВГ работает на вас. Как превратить нейроотличие в профессиональное преимущество (2025) [MP3, Анна Мосолова]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Думаете, СДВГ – это обязательно крест на карьере и финансовом благополучии? Ошибаетесь. Автор книги, опираясь на опыт жизни с официальным диагнозом и психологическое образование, придумала неординарные способы удержания внимания нейроотличных людей. Ее подход оказался настолько эффективным, что лег в основу обучения сотрудников и руководителей Microsoft, Yahoo и (   Читать дальше...   )Жанр: ПсихологияИздательство: БОМБОРАПродолжительность: 03:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC1EECD0F1280D62B6F684BED7618D986B69568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617160   (4260) от 06.09.2025
+
+Максим Вердикт | Авторские курсы (16 курсов) (2020-2025) [MP3, Максим Вердикт] [Обновляемая]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Максим Вердикт — один из известнейших в русскоязычном сегменте интернета людей, оказывающий помощь мужчинам в правильном построении отношений с женщинами. Изучать тематику взаимоотношений начал достаточно давно, более 10 лет назад. Первоначально консультировал как женщин, так и мужчин, но затем переключился исключительно на консультации мужчин. Максим учит правильно (   Читать дальше...   )Жанр: Психология отношенийПродолжительность: 44:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BB4A43012EFC4A2629EB9C13D189C6F05ECA60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816265   (4095) от 06.09.2025
+
+Роберт Лихи | Свобода от тревоги. Справься с тревогой, пока она не расправилась с тобой (2021) [PDF, MP3, Александр Карлов]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед любым ответственным событием вы трясетесь от ужаса?
+Не можете уверенно разговаривать с начальником?
+Боитесь, что с вашими детьми случится что-то плохое?
+Из этой книги вы узнаете, как обмануть свой страх и научиться справляться со стрессом. Здесь вы найдете простое пошаговое руководство, чтобы преодолеть любые виды беспокойства. Теперь вы навсегда избавитесь (   Читать дальше...   )Жанр: ПсихологияИздательство: ПитерПродолжительность: 12:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB9051C211124B777C559DABFE5B5A8F3A7BE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816450   (4088) от 06.09.2025
+
+Вероника Хлебова | Быть жертвой больше не выгодно (2022) [MP3, Наталья Журавлёва] [Дополненное издание]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти никого из нас не научили в первую очередь заботиться о себе и своих чувствах. Аудиокнига поможет услышать себя и свои потребности, разобраться с созависимостью и перестать быть жертвой.
+Вероника Хлебова – экзистенциальный психолог, блогер, автор 4 книг, в том числе бестселлера «Сепарация: как перестать зависеть от других людей».
+Нас учили нести ответственность (   Читать дальше...   )Жанр: ПсихологияИздательство: АСТПродолжительность: 05:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E39213AD33116DF4BBD344F670E4149819820B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816867   (3848) от 07.09.2025
+
+Дмитрий Хара | 4:44. Последний Штрих. До этого все было компромиссом (2025) [MP3, Вадим Прохоров]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда жизнь напоминает пазл, где все детали будто бы на месте, но картинка не складывается — эта книга становится тем самым недостающим элементом. Продолжение нашумевшего бестселлера «П.Ш.» ведет читателя через:
+- глубинный процесс самопознания
+- трансформацию восприятия реальности
+- обретение подлинной любви к себе и мируЖанр: ПсихологияИздательство: АСТПродолжительность: 18:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2797AD2380E6AF954BABC2ED957D679D7702B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817035   (3720) от 08.09.2025
 
 Алексей Козлов | Главное — ценить себя. Как перестать подстраиваться под других и научиться дорожить собой (2023) [MP3, Алексей Козлов]
@@ -6,7 +171,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3720.jpg" />
 </div>
 
 
@@ -33,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3461.jpg" />
 </div>
 
 
@@ -59,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3455.jpg" />
 </div>
 
 
@@ -86,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3431.jpg" />
 </div>
 
 
@@ -113,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3205.jpg" />
 </div>
 
 
@@ -140,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3136.jpg" />
 </div>
 
 
@@ -169,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2954.jpg" />
 </div>
 
 
@@ -195,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2797.jpg" />
 </div>
 
 
@@ -221,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2648.jpg" />
 </div>
 
 
@@ -247,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2487.jpg" />
 </div>
 
 
@@ -274,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2310.jpg" />
 </div>
 
 
@@ -301,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1823.jpg" />
 </div>
 
 
@@ -328,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1307.jpg" />
 </div>
 
 
@@ -356,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1178.jpg" />
 </div>
 
 
@@ -382,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_461.jpg" />
 </div>
 
 

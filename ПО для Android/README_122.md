@@ -1,3 +1,110 @@
+###  Публикация: 1720593   (56388) от 16.05.2024
+
+WiFi Analyzer v5.4 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем вам новый способ проверки и оптимизации сетей WiFi. Превратите ваше Android-устройство в анализатор Wi-Fi сетей! WiFi Analyzer порекомендует вам лучшую сеть Wi-Fi и самое оптимальное место для ее использования. WiFi Analyzer предоставит вам самую полезную информацию об оптимизации сети, чтобы помочь вам снизить уровень помех и увеличить скорость и стабильность (   Читать дальше...   )Тип издания: ProРелиз состоялся: 13.05.2024Разработчик: olgor.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BBAC417D0399ACC0E5A82DFE334F9A8A8DE6C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723516   (56378) от 16.05.2024
+
+Не курю! v3.8.5 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы мечтаете бросить курить, то это приложение то, что вам нужно!
+Приложение позволяет наблюдать:
+– сколько времени прошло с момента выкуривания последней сигареты.
+– количество не выкуренных сигарет.(   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.05.2024Разработчик: A7-studioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2112FE582EBDA1819ECD5DB07C703AD333F3139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723759   (56377) от 16.05.2024
+
+Memrise: говори на новом языке 2024.04.29.0 Mod by AppModz [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Memrise - шикарный образовательный проект предлагающий желающим учить сразу несколько иностранных языков с максимально отдачей и результативностью. Проект постоянно совершенствуется и растёт за счёт того, что пользователи сами помогают ему в этом. Их ждёт 30000 видео с носителями языков, карточки, разные задания, испытания и многое другое, что поможет в игровой форме (   Читать дальше...   )Тип издания: ProРелиз состоялся: 08.05.2024Разработчик: MemriseПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6849209E12C22BDA32605A6DABEE700B209322D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723632   (56363) от 16.05.2024
+
+CamScanner 6.64.1.2405070000 Mod by maxi123444 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56363.jpg" />
+</div>
+
+
+###  Подробнее
+
+CamScanner - Мощное приложение для сканирования. Оно представляет собой способ сканировать любые документы с максимальным качеством, автоматическим определением границ, программным улучшением изображений и прочими техническими особенностями, что понравятся всем кому необходим данный спектр возможностей. Так же пользователи смогут удобно создавать надписи, комментарии, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 12.05.2024Разработчик: RS Mobile GroupПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80703E45AD106DD875EC9CCF55533029A08ED07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723678   (56361) от 16.05.2024
 
 Onvier - IP Camera Monitor (Ранее. Onvifer) 19.11 Mod by Alex.Strannik [Ru/Multi]
@@ -6,7 +113,7 @@ Onvier - IP Camera Monitor (Ранее. Onvifer) 19.11 Mod by Alex.Strannik [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56361.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ CalenGoo - Calendar and Tasks 1.0.183 (build 1647) Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56349.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ AccuWeather - прогноз погоды 20.2-3-google Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56339.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ Abstruct - Wallpapers in 4K 2.9 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56337.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ FX Player Pro 3.7.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56334.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ Denoise it - ИИ фоторедактор v1.1.8 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56269.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ MX Player Pro v1.78.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56172.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ Spatial Touch™ 1.1.1 Mod by IndAlok [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56128.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56086.jpg" />
 </div>
 
 
@@ -243,7 +350,7 @@ Busuu - изучение языков 31.22.0(1019875) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56062.jpg" />
 </div>
 
 
@@ -269,7 +376,7 @@ Moon+ Reader Pro v9.4 (build 904000) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56057.jpg" />
 </div>
 
 
@@ -295,7 +402,7 @@ Polarr v6.9.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56038.jpg" />
 </div>
 
 
@@ -321,7 +428,7 @@ Colorfy PLUS - Coloring Book v3.26 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56031.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ Bluetooth Codec Changer 1.6.7 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55977.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ RS File Manager / RS Файловый менеджер 2.1.2.2 Mod by Mixroot [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55947.jpg" />
 </div>
 
 
@@ -399,7 +506,7 @@ ESET Mobile Security Antivirus 9.0.14.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55884.jpg" />
 </div>
 
 
@@ -425,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55746.jpg" />
 </div>
 
 
@@ -451,7 +558,7 @@ AIDA64 2.01 (ARM64) Mod by CMAPTOC [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55725.jpg" />
 </div>
 
 
@@ -477,7 +584,7 @@ Transparent clock & weather / Прозрачные часы и погода 7.01
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55634.jpg" />
 </div>
 
 
@@ -503,7 +610,7 @@ MiX Camera 8.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55626.jpg" />
 </div>
 
 
@@ -529,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55535.jpg" />
 </div>
 
 
@@ -555,7 +662,7 @@ Foreca Погода / Foreca Weather 4.55.6 (ARM64) Lite-Mod by alenka_persikova
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55430.jpg" />
 </div>
 
 
@@ -566,110 +673,6 @@ Foreca Weather - весьма популярное погодное прилож
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EFA565E3E43035007E7EDBE20404DD9DCEE7604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725730   (55403) от 25.05.2024
-
-Foreca Погода / Foreca Weather 4.55.6 Mod by funnysith [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Foreca Weather - весьма популярное погодное приложение, что завоевало аудиторию за счёт своих качеств, особенностей, а так же удобств в управлении функциями и быстрого восприятия выводимой информации. Отличный стиль и интерфейс, возможность задавать различные параметры на одном экране, понятные значки и описания, статистика, графики, точные прогнозы от метеостанций (   Читать дальше...   )Тип издания: Adfree-Mod (без рекламы)Релиз состоялся: 22.05.2024Разработчик: ForecaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D7B66226030127E709034E31BAF82BC40E1701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725724   (55394) от 25.05.2024
-
-n7player Music Player 3.2.10-3002010 Lite-Mod by CMAPTOC [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55394.jpg" />
-</div>
-
-
-###  Подробнее
-
-n7player Music Player - весьма впечатляющий своими возможностями музыкальный проигрыватель, который помимо своего классического спектра функций предлагает пользователям серьёзно поработать с имеющейся библиотекой. Это очень пригодиться если всё "валяется" в одной папке или же альбомов и исполнителей в наличии столько, что существенной разницы между этими (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 13.09.2023Разработчик: N7 Mobile Sp. z o.o.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3612214A9BC10EC4E2951E6DCBA8CF53174CF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725834   (55362) от 26.05.2024
-
-Цифровое ТВ v3.9.7 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы, сериалы, мультфильмы, новости, музыка и спорт - это прямой эфир самых популярных общероссийских телеканалов в отличном качестве специально для Вас! С приложением Цифровое ТВ популярные программы доступны круглосуточно и абсолютно бесплатно. Теперь Вы не пропустите любимые передачи или прямой эфир матчей, стоя в пробке, отдыхая на даче или ожидая рейс в аэропорту. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 24.05.2024Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537352E91E487E0A8B340762CDAEF202C5765F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725832   (55337) от 26.05.2024
-
-Rutube v29.4.1 Mod by vadj [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите что любите: в любое время, с любых устройств. Смотрите что любите: в любое время и с любых устройств! Развлекательная платформа Rutube — это один из крупнейших российских видеохостингов, на котором более 10 млн зарегистрированных пользователей. На сервисе представлен премиальный контент российских и иностранных правообладателей.Тип издания: ModРелиз состоялся: 23.05.2024Разработчик: RuTubeПоддерживаемая ОС: Android / Android TV 7.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2143E91AEDCF5E90675C9B94407CE8CAB34A876
 ```
 
 https://mybot314.ru/tekegram_catalog/

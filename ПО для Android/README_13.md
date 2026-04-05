@@ -1,3 +1,108 @@
+###  Публикация: 1844635   (1050251) от 27.12.2025
+
+Лайт HD ТВ v4.5.3 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лайт — это ваше HD ТВ онлайн. Все каналы бесплатно. Можно смотреть ТВ-передачи в поездке, в очереди, на обеде, на даче, дома — телевизор всегда с собой. Простое, удобное и лёгкое приложение, чтобы телевидение смотреть: онлайн и бесплатно. 330+ ТВ-каналов бесплатно. Смотрите онлайн ТВ, кино, сериалы и мультфильмы.Тип издания: Premium / ModРелиз состоялся: 22.12.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+ и Android TVЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7334279E79C0A771A691D3BFBF53432AED035E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844631   (1050250) от 27.12.2025
+
+AdGuard Ad Blocker Premium [No-Root] v4.14.33 [Nightly] Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050250.jpg" />
+</div>
+
+
+###  Подробнее
+
+AdGuard — лучший способ избавиться от навязчивой рекламы и онлайн-отслеживания, а также защитить свое устройство от вредоносного ПО. Сделайте свой веб-серфинг быстрее, безопаснее и комфортнее с AdGuard!
+AdGuard — уникальный блокировщик рекламы без прав root для Android, который удаляет рекламу в приложениях и браузерах, защищает вашу конфиденциальность и помогает (   Читать дальше...   )Тип издания: Premium / Extra ModРелиз состоялся: 26.12.2025Разработчик: AdGuard Software LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F507FAF2DC751CD3B9357DB7BA0036FDD06B9F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844841   (1050169) от 28.12.2025
+
+Device Info / Информация об устройстве v3.4.1.1 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Device Info — простое, но мощное приложение для Android, которое предоставляет полную информацию о мобильном устройстве с расширенными пользовательскими интерфейсами. Например, информация об устройстве/телефоне включает информацию о ЦП, оперативной памяти, ОС, датчиках, памяти, аккумуляторе, SIM-карте, Bluetooth, сети, установленных приложениях, системных приложениях, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 28.12.2025Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068A919E117AAAD64E788E46F884651720EDF88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844840   (1050149) от 28.12.2025
+
+Vanced Tube v5.5.80.324 Mod by TRUMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 27.12.2025Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD7BC78F76F9B790E504214EA0CAD551CFCBD0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844431   (1050070) от 27.12.2025
 
 Rosetta Stone: Изучение языков 8.34.4 Mod by Balatan [Ru/Multi]
@@ -6,7 +111,7 @@ Rosetta Stone: Изучение языков 8.34.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050070.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Smart AudioBook Player Pro v11.6.5 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050048.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Smart AudioBook Player Pro v11.6.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050047.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050043.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049894.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ PianoMeter – Piano Tuner v5.0.0 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049892.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049891.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ Flud v1.12.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049890.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ FacePic - AI Face App v3.3.1 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049889.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ ProShot v8.32.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049790.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ Cozy Magnifier & Microscope Plus v7.0.1 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049789.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049786.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049785.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ Lighting calculations / Расчеты освещения v6.1.11 Mod by Balatan
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049782.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ Grok - ИИ ассистент v1.0.93-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049777.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ Smart AudioBook Player Pro v11.6.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049776.jpg" />
 </div>
 
 
@@ -425,7 +530,7 @@ TapScanner v3.0.92 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049554.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ Hear Clear / Услышать на расстоянии v1.2.0.2 Mod by Garant68
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049538.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ Mary’s recipes: рецепты, меню v7.0.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049537.jpg" />
 </div>
 
 
@@ -506,7 +611,7 @@ One Read / Все Документы Читатель - Офис v1.2.7 Mod by T
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049512.jpg" />
 </div>
 
 
@@ -532,7 +637,7 @@ Vanced Tube v5.5.80.317 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049511.jpg" />
 </div>
 
 
@@ -558,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049416.jpg" />
 </div>
 
 
@@ -569,112 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2CC68885D269E1623370B666A5408169A560DCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843464   (1049399) от 20.12.2025
-
-Мультфильмы v313 Mod by clubtime2009 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите любимые Мультфильмы и Сказки онлайн прямо сейчас. Хотите всегда иметь доступ к анимационному контенту Мультфильмов и Сказок и получать новинки каждый день?Тип издания: AdfreeРелиз состоялся: 09.11.2025Разработчик: Мульт твПоддерживаемая ОС: Android / Android TV 5.0Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:790A0A789F23C60544684C554169D05767E5833E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843478   (1049387) от 20.12.2025
-
-Bananastreet: Deep House & EDM v4.1.63 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наша жизнь – это череда событий. Чтобы эмоции были ярче достаточно подобрать правильный саундтрек. Включай Bananastreet и открывай для себя новую музыку от лучших диджеев каждый день!
-Слушай плейлисты для разных занятий и настроений, чарты с популярными треками, а также тысячи релизов от топовых российских и мировых диджеев.Тип издания: ModРелиз состоялся: 18.12.2025Разработчик: Bananastreet EUПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4077A7CF0F1BB27312F1071407B5E81FE6E665B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843495   (1049386) от 20.12.2025
-
-NokoPrint v5.24.8 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виртуальный принтер для вашего устройства. Поддерживает печать с вэб-страницы. Позволяет отправить на печать файлы прямо с телефона. Печатайте фотографии и делитесь ими с друзьями и близкими. Печатайте документы, PDF-файлы, счета, квитанции, посадочные талоны и многое другое дома, на работе или в дороге!
-Вы можете печатать изображения, фотографии, веб-страницы, PDF-документы (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.12.2025Разработчик: AlbafateПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F663D3A24DE6B7D5BB7AB3F704003B57F7E0146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843456   (1049380) от 20.12.2025
-
-Эфир ТВ + : Телевизор Онлайн v4.2.8 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049380.jpg" />
-</div>
-
-
-###  Подробнее
-
-OTT Онлайн прямое телевидение, в котором вы найдете прямой эфир, а также все популярные тв каналы: в том числе 20 цифровых общероссийских каналов и не менее интересное и познавательное региональное цифровое ТВ & ТВЦ. Наше мобильное приложение это ваш ключ к миру “Ц” телевидения нового поколения! Забудьте о скучных программах и ограниченных возможностях традиционного (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.12.2025Разработчик: Лайм ЭйчДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCC0C1EED43433C3551CD81E613C5822848D00A
 ```
 
 https://mybot314.ru/tekegram_catalog/

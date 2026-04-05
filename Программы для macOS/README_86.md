@@ -1,3 +1,55 @@
+###  Публикация: 1564696   (498533) от 20.07.2022
+
+Couverture 1.1.4 [Multi]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Couverture — это редактор пружинных и плавных кривых, который позволяет усиливать анимацию в приложениях, веб-сайтах и ​​прототипах. Кривые Spring, Easing или Timing Curves предназначены для указания скорости изменения анимации с течением времени. Couverture позволяет вам управлять, редактировать и просматривать эти кривые в режиме реального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.06.2022Разработчик: © 2022 IXEAUПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E523B7163B2298AACD10328CAC3AEBE2854A864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564902   (497790) от 21.07.2022
+
+Scroll 2.4.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497790.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью приложения Scroll исправьте чрезмерно чувствительную прокрутку в некоторых приложениях с помощью Magic Mouse или прокрутите только одним касанием трекпада. Ограничьте прокрутку Magic Mouse. Прокрутите одним касанием сенсорной панели. Поддерживает Magic Mouse и любой трекпад Apple.Тип издания: macOS SoftwareРелиз состоялся: 21.07.2021Разработчик: © 2021 Ryan HansonПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24AF8476F577C97A24A7B8998127DC4F4ED4B25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564967   (497787) от 21.07.2022
 
 ColorWell 7.3.5.1 [Multi]
@@ -6,7 +58,7 @@ ColorWell 7.3.5.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497787.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ PCalc 4.10.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497782.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Invisible 2.5.7.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497737.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ WebToLayers 1.3.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497735.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ SSH Config Editor Pro 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497723.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ MP3 Gain - Audio Normalization 5.3.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497721.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ USBclean 3.6.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497720.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ eMail Address Extractor 3.5.9.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497655.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Wondershare PDFelement Pro 9.0.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497647.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ DrawOutX 2.3 U2B  [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496805.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Image Optimizer - Compression 2.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496740.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ AVAide Blu-ray Player for Mac 1.0.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496717.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ FileMaker Pro 17 Advanced 7.0.2.205 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495890.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Complete Anatomy Full Version (3D4Medical) 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495855.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ Cisdem PDFConverterOCR 6.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494227.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ Weather Guru 2.3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494208.jpg" />
 </div>
 
 
@@ -438,7 +490,7 @@ Money (with sync) 6.6.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494115.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ NoFlashTube - A player for YouTube 2.2.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493429.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ Easy Audio Mixer 2.8.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492592.jpg" />
 </div>
 
 
@@ -520,7 +572,7 @@ xSearch for Safari 1.8.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492580.jpg" />
 </div>
 
 
@@ -547,7 +599,7 @@ Faronics Deep Freeze 7 v7.40.220.0004 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492433.jpg" />
 </div>
 
 
@@ -573,7 +625,7 @@ Downie 2.9.9 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491849.jpg" />
 </div>
 
 
@@ -602,7 +654,7 @@ Tagr 5 v5.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490507.jpg" />
 </div>
 
 
@@ -629,7 +681,7 @@ NCH Debut Professional 8.42 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490432.jpg" />
 </div>
 
 
@@ -640,63 +692,6 @@ NCH Debut Professional 8.42 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F1169D4FA861AC36CE97076E9CBD4BAAE1B8BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565800   (490431) от 25.07.2022
-
-Mission Control Plus 1.8 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте окнами в Mission Control Plus, добавляйте навигацию с помощью клавиатуры, ярлыки и многое другое.
-Верните «контроль» обратно в Центр управления полетами. Управляйте своими окнами в Mission Control Plus, добавляя навигацию с помощью клавиатуры, ярлыки и многое другое.
-Закрывайте окна прямо из приложения. Быстро закрывайте окна, нажимая кнопку (X).Тип издания: macOS SoftwareРелиз состоялся: 25.07.2022Разработчик: © 2021 Rony FadelПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933AE8A797157E06507167240B64111347E7DCDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055220   (490360) от 21.09.2016
-
-Recordee 1.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Recordee маленькое и легкое приложение для записи аудио на вашем Mac.
- Он находится на панели меню, как маленький значок и требует всего два щелчка, чтобы начать запись.
- Он продолжает делать свою работу в самой строке меню. Таким образом, это делает его полностью скрытым от вашего внимания, которое  полезно при записи рассказа.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 сентября 2016Разработчик: inspiringlife.coПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587A4A440EEB93F09D68B331B337809763318FD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

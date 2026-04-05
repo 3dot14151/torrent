@@ -1,32 +1,3 @@
-###  Публикация: 1642095   (210627) от 25.06.2023
-
-Jethro Tull - Stand Up (1969) SACD, Remastered, 2023, Analogue Productions [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A New Day Yesterday
-02 - Jeffrey Goes To Leicester Square
-03 - Bourée
-04 - Back To The Family(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD111939237D4A3676690FF964DDE0C2703CD1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642286   (210529) от 26.06.2023
 
 Paul McCartney – The McCartney Years (2007) 2 discs [DTS 5.1 CD-DA|44.1/16|image+.cue|DVD-Video] <Rock, Pop>
@@ -35,7 +6,7 @@ Paul McCartney – The McCartney Years (2007) 2 discs [DTS 5.1 CD-DA|44.1/16|ima
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210529.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210315.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210261.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210213.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Alan Parsons – A Valid Path (2004) 2006 [DTS 5.1 CD-DA|16/44.1|image+.cue|Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210121.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Opus3 - A Selection from Test-records 1,2 & 3 (2008) [DSD64 5.1, 2.0|image(iso)|
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210000.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Eagles - On The Border (1974) 2022 [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic R
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209996.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ Azul Y Negro - Digital (1983)  [FLAC|2.0 24/192|image (Vinyl-Rip)<Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209828.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ BluScenes: Gallery Musee (2012) [DTS-ES 6.1 CD-DA|24/44.1|image+.cue|BD-Video] <
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209478.jpg" />
 </div>
 
 
@@ -292,7 +263,7 @@ Amanda Marshall - Everybody’s Got A Story (2001) 2002 [DTS 5.1 CD-DA|44.1/16|i
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209458.jpg" />
 </div>
 
 
@@ -318,7 +289,7 @@ Bloodbound - Studio Albums (10 releases) (2005-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209326.jpg" />
 </div>
 
 
@@ -347,7 +318,7 @@ VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209223.jpg" />
 </div>
 
 
@@ -376,7 +347,7 @@ VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209153.jpg" />
 </div>
 
 
@@ -405,7 +376,7 @@ Blackmore's Night - Дискография (13 albums) (1997-2021) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208677.jpg" />
 </div>
 
 
@@ -435,7 +406,7 @@ Megadeth - Дискография (23 releases) (1985-2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207992.jpg" />
 </div>
 
 
@@ -465,7 +436,7 @@ Sinead O'Connor - I Do Not Want What I Haven't Got (1990/1993) Reissue, Unoffici
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207971.jpg" />
 </div>
 
 
@@ -494,7 +465,7 @@ VA - K-Tel's 40 Super Greats (1975) 2 x LP, Compilation, Gatefold [FLAC|24/96|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207751.jpg" />
 </div>
 
 
@@ -523,7 +494,7 @@ VA - In Love - Greatest Love 5 (1991) Compilation, Gatefold [FLAC|24/96|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207678.jpg" />
 </div>
 
 
@@ -552,7 +523,7 @@ Sarah Brightman & The London Symphony Orchestra – Time To Say Goodbye (1997) 2
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207551.jpg" />
 </div>
 
 
@@ -578,7 +549,7 @@ Pink Floyd - Animals (2018 Remix) (1977) Reissue, 2022, Analogue Productions  [D
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207429.jpg" />
 </div>
 
 
@@ -607,7 +578,7 @@ Queen - Greatest Hits (1990) Мелодия, по лицензии EMI Records L
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207268.jpg" />
 </div>
 
 
@@ -636,7 +607,7 @@ Immortal - Studio Albums (8 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207230.jpg" />
 </div>
 
 
@@ -666,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207094.jpg" />
 </div>
 
 
@@ -695,7 +666,7 @@ Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, It
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206927.jpg" />
 </div>
 
 
@@ -724,7 +695,7 @@ Slipknot - Studio Albums (8 releases) (1997 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206839.jpg" />
 </div>
 
 
@@ -738,6 +709,35 @@ Slipknot — американская ню-метал-группа, образо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1050291E06C2252D8BA123877438EB18260F506E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311369   (206695) от 03.10.2022
+
+Middle Of The Road - Middle Of The Road (1972/1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206695.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	The Talk Of All The USA
+A2	Samson And Delilah
+A3	Try A Little Understanding
+A4	Louise(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: Pop Rock, Classic Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE1ED0C9C05634CFAF60E03361524E05D29FEE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

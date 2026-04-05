@@ -1,3 +1,59 @@
+###  Публикация: 1503009   (825032) от 16.10.2021
+
+Helper for GoPro Files 2.6 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_825032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Helper for GoPro Files - небольшая утилита, которая поможет оптимизировать файлы экшен-камеры GoPro.
+• Автоматическая сортировка видео и фото файлов в папке на каждый день
+• Автоматическое переименование видео и фото файлов
+• Автоматическое удаление файлов * .lrv и * .thm(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2021Разработчик: © Marvin WagnerПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCC4DE3A6CEFCAAFDD6C5F0E0666E278370D259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115986   (824668) от 19.03.2017
+
+Little Audio App 2.0 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Little Audio App -  упрощенное воспроизведение и экспорт
+Little Audio App представляет собой удобный инструмент для воспроизведения и экспорта практически любого файла, который содержит аудио. Он может обрабатывать почти все, если файл содержит аудио в той или иной форме. Используя Little Audio App 2 вы можете создавать, редактировать и сохранять плейлисты m3u. Это (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 марта 2017Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC067C7F9F7978B29CB93B4057804485C6385E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116490   (824650) от 19.03.2017
 
 oneSafe 2.1.4 [Multi/Ru]
@@ -6,7 +62,7 @@ oneSafe 2.1.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824650.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ Stellar Phoenix Mac Data Recovery 7.1.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824624.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ Panorama - Perspective Image Stitcher 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824584.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ Microsoft Office Standard 2016 v15.21.1 (with License/Serializer Installer) [Mul
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824525.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ Mosaic - Photo Collage, Blend and Tile 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824366.jpg" />
 </div>
 
 
@@ -142,7 +198,7 @@ Memory Cleaner 5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824225.jpg" />
 </div>
 
 
@@ -171,7 +227,7 @@ Movavi Screen Capture 4 v4.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824084.jpg" />
 </div>
 
 
@@ -200,7 +256,7 @@ Art Text 2.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823225.jpg" />
 </div>
 
 
@@ -228,7 +284,7 @@ App Uninstaller 2.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823129.jpg" />
 </div>
 
 
@@ -256,7 +312,7 @@ Mirror for Panasonic TV 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822898.jpg" />
 </div>
 
 
@@ -285,7 +341,7 @@ Bartender 3 v3.1.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822649.jpg" />
 </div>
 
 
@@ -312,7 +368,7 @@ iCollections 7 v7.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821516.jpg" />
 </div>
 
 
@@ -338,7 +394,7 @@ ArtRage 4.5.9 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820900.jpg" />
 </div>
 
 
@@ -364,7 +420,7 @@ Live Interior 3D Pro 2.9.8 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820776.jpg" />
 </div>
 
 
@@ -391,7 +447,7 @@ PDF Expert 2.2.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820439.jpg" />
 </div>
 
 
@@ -420,7 +476,7 @@ Movavi Video Editor 5.2.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820416.jpg" />
 </div>
 
 
@@ -446,7 +502,7 @@ Benvista PhotoZoom Pro 7.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820410.jpg" />
 </div>
 
 
@@ -473,7 +529,7 @@ Boxy: email client for "Inbox by Gmail" 1.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819759.jpg" />
 </div>
 
 
@@ -502,7 +558,7 @@ TextSoap 8 v8.6.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819686.jpg" />
 </div>
 
 
@@ -528,7 +584,7 @@ PhoneRescue 2.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819647.jpg" />
 </div>
 
 
@@ -554,7 +610,7 @@ BookReader 5.1 (AppStore) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819643.jpg" />
 </div>
 
 
@@ -583,7 +639,7 @@ Typinator 8 v8.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819599.jpg" />
 </div>
 
 
@@ -612,7 +668,7 @@ DrawnStrips Reader - The Best Comic Reader 3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819558.jpg" />
 </div>
 
 
@@ -641,7 +697,7 @@ Simplify 3.3.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819557.jpg" />
 </div>
 
 
@@ -653,58 +709,6 @@ Simplify — это самый удобный способ управлять м
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57676C0312EF2DC7186B403C9E8DBB8BA9F07A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503489   (819493) от 19.10.2021
-
-AirFoil+Airfoil Satellite 5.10.5 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819493.jpg" />
-</div>
-
-
-###  Подробнее
-
-AirFoil – специальное программное обеспечение, позволяющее транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: Rogue Amoeba Software, IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983017CF7305951452CC89AE5537A22D23316BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007892   (819447) от 16.04.2016
-
-Flux 6.0.17 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flux является передовым программным обеспечением для веб-дизайнеров, создающих сайты на XHTML и CSS. На западе Flux называют убийцей Dreamweaver. Флюкс может оказаться полезной тем, кто тыкал и пытался что-то сделать в iWeb, но не имеет терпения почитать книжек и запустить, например, Coda или Textmate. Flux поддерживает наиболее распространенные на сегодняшний день (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 апреля 2016Разработчик: The Escapers Ltd.Поддерживаемая ОС: Mac OS X 10.11 +Язык интерфейса: Русский, Английский, Испанский,  Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260C23C20D4F299C4A6399A97A3297F12788862E
 ```
 
 https://mybot314.ru/tekegram_catalog/

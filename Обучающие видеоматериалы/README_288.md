@@ -1,3 +1,29 @@
+###  Публикация: 1725069   (109066) от 23.05.2024
+
+Полина Вострякова | Способы борьбы с сезонной «депрессией» осенью (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на видеоурок "Способы борьбы с сезонной депрессией осенью" от опытного психолога Полины Востряковой! В этом уроке вы узнаете эффективные методы и техники, которые помогут справиться с осенней хандрой и вернуть радость жизни в этот непростой период.Жанр: ВидеоурокЯзык озвучки: РусскийПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411BFB89F2311A8879CA54A6BDB80C90318CBB56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733847   (107268) от 30.06.2024
 
 Austin School of Furniture & Design, Austin Waldo | Книжный шкаф из деревянных планок / Shiplap Bookcase (2021) WEBRip [EN, RU / EN Sub]
@@ -6,7 +32,7 @@ Austin School of Furniture & Design, Austin Waldo | Книжный шкаф из
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107268.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104445.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104443.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ karpov.courses, Валерий Бабушкин и др. | Хардкорный 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104436.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Blender Secrets, Jan van den Hemel | Hard Surface Sculpting in Blender (2023) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102699.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Fairtex Muay Thai - Concepts On Training & Combat Strategy [2004] DVDRip
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102450.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Kobezzza, Дмитрий Холстинин | Сборка во Frontend (2025) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100926.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Skill Issue, Skill Issue | Подготовка к Golang собеседован
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100900.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99922.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99137.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98557.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94655.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ CyberYozh Academy, Евгений Ивченков, Павел Хавский | 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91277.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ Slurm (Слёрм), Виталий Лихачев | Golang-разработчи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91237.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ Sova film | Самомассаж: снимаем боль своими рука�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90502.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89756.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89722.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87612.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ Freevods. Всё покерное видео. Обновления за март
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86219.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85821.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84188.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83176.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Artaliance | Кайдзен. Управление производством. У
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83140.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83083.jpg" />
 </div>
 
 
@@ -667,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82134.jpg" />
 </div>
 
 
@@ -680,36 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E8A75D341DCE0CDE44860E3562C8395F07A6239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465233   (82122) от 14.03.2012
-
-Ангелина Шам | Лекции по психологии бизнеса [2009 - 2010] DVDRip
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждому человеку приходится сталкиваться с тем, что принято называть деловым общением. Что значит "умело вести деловые переговоры"? Как научиться быть в них одновременно твердым и гибким? Какой стиль ведения таких переговоров оптимален? Во многом от того, насколько вы владеете наукой и искусством убеждения, зависит успех вашей деятельности.
-В курсе содержится три лекции:
-1. Как побеждать за столом переговоров
-2. Эффективное манипулирование людьми
-3. Язык жестовЖанр: Бизнес - психологияПродолжительность: 02:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B24BF551704F840C6A9BDAA264CE82D136BE92E
 ```
 
 https://mybot314.ru/tekegram_catalog/

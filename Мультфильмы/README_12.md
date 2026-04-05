@@ -1,3 +1,134 @@
+###  Публикация: 1437471   (1041868) от 05.01.2021
+
+Гигантозавр / Gigantosaurus (2019-2020) WEB-DL [H.264/1080p-LQ] (сезон 1-2, серии 1-52 из 52) [Обновляемая]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красочный мультсериал о приключениях четырёх юных динозавров: Мазу, Билла Рокки и малыша Крохи. Друзья вместе увлекательно исследуют мир и узнают много нового.
+Вырасти в меловую эру — это не мелочь: новые вулканы образуются каждый день, метеоритные дожди могут обрушиться на Землю в любое время, не говоря уже о постоянной угрозе огромных трицератопсов! Но лучшие друзья (   Читать дальше...   )Производство: Франция | Cyber Group StudiosЖанр: Мультсериал, ПриключенияРежиссер: Оливье ЛелардуПеревод: Русский / Дублированный (Невафильм)Субтитры: ОтсутствуютПродолжительность: ~00:11:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2880FA4C2565D06D5D280F9615994DF67AEBFF24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437355   (1041831) от 05.01.2021
+
+Семейка Крудс: Новоселье / The Croods: A New Age (2020) WEB-DL [H.265/2160p-LQ] [4K, HDR, 10-bit] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордАктеры: Николас Кейдж, Эмма Стоун, Райан Рейнольдс, Кэтрин Кинер, Клорис Личмен, Кларк Дьюк, Лесли Манн, Питер Динклэйдж, Келли Мари Трэн, Kailey CrawfordПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced), украинские (Full), английские (SDH)Продолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4638DF88234CA8DBF583356FD71198FFDBAE1DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437601   (1041822) от 05.01.2021
+
+Семейка Крудс: Новоселье / The Croods: A New Age (2020) WEB-DLRip [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордАктеры: Николас Кейдж, Эмма Стоун, Райан Рейнольдс, Кэтрин Кинер, Клорис Личмен, Кларк Дьюк, Лесли Манн, Питер Динклэйдж, Келли Мари Трэн, Kailey CrawfordПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (отдельным файлом)Продолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C21CE378EE0B5FF271DDF1B6F06F43213A22F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581494   (1041783) от 09.02.2023
+
+Три Богатыря, Иван Царевич и Серый Волк (2004 - 2022) BDRip, WEB-DLRip [Коллекция]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция мультфильмов "Три Богатыря" и "Иван Царевич и Серый Волк" (2004 - 2022)Производство: Россия / Кинокомпания CTB / СТВ, Анимационная студия «Мельница»Жанр: мультфильм, комедия, приключения, мюзикл, фэнтези, мелодрамаРежиссер: Константин Бронзит, Илья Максимов, Сергей Глезин, Константин Феоктистов, Владимир ТоропчинПеревод: не требуется (Русский)Субтитры: отсутствуютПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB19CAF9E447B1F522803F467BB7B89D681E739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611092   (1041563) от 10.02.2023
+
+Кот в сапогах / Puss in Boots (2011) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кот в сапогах объединяется с умным Шалтай-Болтаем и сообразительной Кисой, чтобы украсть знаменитую Гусыню, несущую золотые яйца.Производство: США / DreamWorks Animation, Pacific Data Images (PDI)Жанр: мультфильм, фэнтези, мелодрама, комедия, детектив, приключения, семейныйРежиссер: Крис МиллерПеревод: дублированный, профессиональный многоголосыйЯзык озвучки: русский, украинский, казахский, английскийСубтитры: русские (forced, full), украинские (forced, full), английские (full, SDH)Продолжительность: 01:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9093B17308FA3E64F2B48B144C55C41AD59E11B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611374   (1041314) от 11.02.2023
 
 Смерть и возвращение Супермена / The Death and Return of Superman (2019) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [MVO]
@@ -6,7 +137,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041314.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041228.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040806.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040805.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040762.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040744.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040578.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040466.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040244.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039727.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039618.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039539.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039511.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039452.jpg" />
 </div>
 
 
@@ -371,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039447.jpg" />
 </div>
 
 
@@ -397,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039416.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039320.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039221.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039183.jpg" />
 </div>
 
 
@@ -501,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039061.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038985.jpg" />
 </div>
 
 
@@ -538,137 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:878BC80E4C612088DCEADA6F2A56097472E774DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439896   (1038941) от 16.01.2021
-
-Следующее поколение / Next Gen (2018) WEBRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее. Девушке-подростку Мэй приходится расти в изоляции: папа ушёл из семьи, а мама больше интересуется новыми технологиями, чем собственной дочерью. Однажды она приводит Мэй на выставку последних достижений науки и техники, где та случайно помогает сбежать из лаборатории роботу последнего поколения. Наконец-то у подростка появляется настоящий друг.Производство: Китай, Канада, США / Netflix, Baozou Manhua, Tangent AnimationЖанр: мультфильм, фантастика, боевик, приключения, комедияРежиссер: Кевин Р. Адамс, Джо Ксандер, Рикардо КертисПеревод: Дублированный (АРК-ТВ VSI International)Субтитры: русские (Full), английские (SDH)Продолжительность: 01:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83B6AB77856F9D2150AC05216A0CD3D9DFAEE31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438897   (1038918) от 16.01.2021
-
-Трансформеры: Война за Кибертрон / Transformers: War For Cybertron (2020) WEB-DL [H.264/1080p] (сезон 2, серии 1-6 из 6) LostFilm
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038918.jpg" />
-</div>
-
-
-###  Подробнее
-
-В разгар непрекращающейся войны на планете Кибертрон армии добра и зла сталкиваются, когда ищут источник своей силы. Возможно, это не та жизнь, которую они себе представляли, но это жизнь, за которую стоит бороться.Производство: США / Rooster Teeth Animation, Hasbro, Netflix StudiosЖанр: Мультфильм, фантастика, боевикРежиссер: Такаси Камэи, Кадзума Симидзу, КодзиПеревод: Многоголосый профессиональный (LostFilm)Субтитры: Русские, АнглийскиеПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEB4F3CBCEED37AE96A444D4BDD893244DD7683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358832   (1038916) от 16.01.2021
-
-Щенячий патруль / PAW Patrol (2019-2020) WEBRip [H.264] (сезон 6-7, серии 1-43 из 52) [MP4|1920x1080] (обновляемая)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зик Райдер — озорной десятилетний мальчик, талантливый не по годам. Он отлично разбирается в электронике и технике и умело с ней обращается. Его жизнь насыщена и полна бесстрашных приключений. Вместе с шестью веселыми и храбрыми щенятами он создал отважную команду под названием «Щенячий патруль».
-Сообща они выполняют спасательные миссии: с удовольствием помогают (   Читать дальше...   )Производство: Канада, США / NickelodeonЖанр: Детский, ПриключенияРежиссер: Джэми Уитни, Чарльз Е. БастьенПеревод: Дублированный (SDI Media)Продолжительность: ~ 00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2486A3C25A400AE1C0F5DBE59BDE44DA568F09E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440437   (1038718) от 17.01.2021
-
-Академия монстров / Escuela de Miedo / Cranston Academy: Monster Zone (2020) BDRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьнику Дэнни живется несладко: он не может подружиться с одноклассниками и не находит общего языка с преподавателями. И всему виной его гениальность. Но однажды он попадает в школу для одаренных детей, где случайно открывает портал в мир... монстров.Производство: Мексика / Anima Estudios, ReDefineЖанр: мультфильмРежиссер: Леопольдо АгиларПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03AAB34E22FE4C609E9AD233E9571C8043F9388D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571430   (1038711) от 21.02.2023
-
-Белая змея / Bai She: Yuan qi / White Snake (2019) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Династия Тан подходит к своему логическому завершению, но перед тем, как полностью растворится и стать лишь отметкой в истории, народный правитель решает отдать приказ всем солдатам своего королевства – поймать всех змей, которые только возможно найти и убить их. Белая королевская змея, обитающая в прибрежных лесах, узнает об этом и отправляется в путешествие, чтобы (   Читать дальше...   )Производство: Китай / Light Chaser Animation Studios, Warner Bros., Beijing Joy PicturesЖанр: мультфильм, мелодрама, фэнтезиРежиссер: Амп Вон, Чжао ЦзиАктеры: Чжан Чжэ, Ян Тяньсян, Тан Сяоси, Чжан Хэ, Чжэн Сяопу, Лю Цзылин, Чжан Яохань, Чжан Бохэн, Ма Чэн, Чэн ИньПеревод: Дублированный (IVI)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D87E410AE27D93DDA7DA23892849720D4F42C85
 ```
 
 https://mybot314.ru/tekegram_catalog/

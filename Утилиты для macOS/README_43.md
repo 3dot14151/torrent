@@ -1,3 +1,29 @@
+###  Публикация: 1655268   (193872) от 25.08.2023
+
+MacDroid Pro 1.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193872.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacDroid поможет вам преодолеть барьер передачи данных между Android и Mac. Передача фотографий, видео, музыки и папок между компьютером Mac и устройством Android, подключенным через USB. Все, что вам нужно, это MacDroid.Тип издания: macOS SoftwareРелиз состоялся: 17.08.2023Разработчик: © 2021 Electronic Team, Inc.Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FB3B6DB3A84493806652DAE5DA3AA8051B07D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587757   (191692) от 03.11.2022
 
 Parallels Desktop Business Edition 18.0.3 (build 53079) [Multi/Ru]
@@ -6,7 +32,7 @@ Parallels Desktop Business Edition 18.0.3 (build 53079) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191692.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ TG Pro (Temperature Gauge Pro) 2.83 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190577.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Folder Tidy 2.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190170.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ WiFi Scanner 3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190074.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Omni Toolbox 1.4.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189821.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189173.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ Wipr – Ad and Tracker Blocker 1.46 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188912.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ File Cabinet Pro 8.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188583.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Launchpad Manager Pro 1.0.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188294.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Speech 1.11.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188265.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Cool Menu 1.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188243.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ DiskWarrior 5.3.1 (Standalone) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188207.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ PullTube 1.8.4.14 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185467.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ Rectangle Pro 2.7.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185382.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ AnyTrans 8.9.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185187.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ My Favorites 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184611.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ Clipboard Booster 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184527.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ New File Menu 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184471.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ Particulars 34 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184446.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ GPG Suite 2020.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182401.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ KeyKey v.2.9.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182236.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ ForkLift 3.4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182136.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ DoublePane 1.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181660.jpg" />
 </div>
 
 
@@ -626,7 +652,7 @@ PDF Protector 1.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181647.jpg" />
 </div>
 
 
@@ -652,7 +678,7 @@ Big Sur Cache Cleaner 16.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180766.jpg" />
 </div>
 
 
@@ -663,33 +689,6 @@ Big Sur Cache Cleaner - это отмеченный наградами инст�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B8CC013040D722B88A1856AC858FCADDD3840A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428493   (180221) от 02.12.2020
-
-Duplicate Files Sweeper 3.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Files Sweeper - приложение для очистки дубликатов, которое поможет вам легко избавиться от повторяющихся файлов с вашего Mac.
-Duplicate Files Sweeper помогает вам тщательно сканировать ваш Mac для поиска дубликатов файлов, фотографий, музыки, видео, архивов и даже дубликатов приложений, которые могут быть разбросаны по разным папкам на вашем Mac. Большое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: Wise Tech Labs Private LimitedПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022E17F70EE8B8E74E68E5810F349F2D5CBFFADA
 ```
 
 https://mybot314.ru/tekegram_catalog/

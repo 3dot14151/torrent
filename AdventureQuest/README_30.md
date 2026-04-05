@@ -1,3 +1,81 @@
+###  Публикация: 1150153   (663565) от 12.05.2018
+
+Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0upd1) License GOG [Episodes 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663565.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как Джесси и его команде удалось одолеть Иссушающую бурю, спасти мир и обрести всеобщее признание, их жизнь сделалась чуточку... сложнее. Обязанностей стало больше, а на старые добрые приключения времени почти не осталось, так что их дружба начала угасать. Но не тут-то было: в один прекрасный день рука Джесси застревает в жуткой перчатке, некогда принадлежавшей (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8522C04668CFA9051E24A7DD4A16D95384416846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016721   (661840) от 31.05.2017
+
+Dreamfall Chapters (2014-2016) [Ru/Multi] (5.4.1.1) License GOG [Special Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamfall Chapters: The Longest Journey - продолжение приключенческой игры The Longest Journey, которая развивает историю предыдущих частей и завершит рассказ истории Зои Кастильо. Chapters - это 3D-приключение, выполненное в жанре point-and-click квеста. Игроки могут переключаться между тремя персонажами и двумя мирами - Arcadia и Stark - которые существуют параллельно (   Читать дальше...   )Тип издания: LicenseРазработчик: Red Thread Games и Blink StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FAA65EC680096A9CF774260919C1F08F7C2C2D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225259   (661714) от 14.05.2018
+
+Dark Fall 3: Lost Souls (2009) [En] (1.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пять лет назад Эми Хейвен исчезла. Инспектор, который вёл это дело, был убеждён, что в похищении виноват местный бродяга по имени м-р Кости, но у него не было доказательств. Поэтому, он решил взять закон в свои руки и сделать «доказательство». О незаконности действий инспектора узнали, дискредитировали. Он стал изгоем в городе, а Эми так и не была найдена. После (   Читать дальше...   )Тип издания: LicenseРазработчик: Darkling RoomЖанр: Adventure (Point & Click), HorrorЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82733001A242169802837F48DBB4F1A37409D8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139283   (660917) от 01.06.2017
 
 RiME (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
@@ -6,7 +84,7 @@ RiME (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660917.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Batman - The Telltale Series (2016) [Ru/En] (1.0.0.1) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660609.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ RiME (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659812.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Secret Doctrine (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658556.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ RiME (2017) [Ru/Multi] (1.01) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658551.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Asemblance: Oversight (2018) [En] (1.01) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658473.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ AntVentor (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657429.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Perils of Man (2015) [Ru/Multi] (1.0)  License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656467.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ The Cat Lady (2012) [Ru/Multi] (1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656466.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656441.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ The Room Two (2016) [Ru/Multi] (1.0.4) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654492.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ FAR - Lone Sails (2018) [Ru/Multi] (1.02) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653490.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653151.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack xatab [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651888.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1/upd1) License CODE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651878.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651369.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651117.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) License CPY
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650646.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack Other s [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650123.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Copoka (2016) [En] (1.0.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649008.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ We. The Revolution (2019) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648182.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ In Cold Blood / Не зная страха (2000) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646313.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ The Office Quest (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644380.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ The Office Quest — это интересное приключение с ме�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00132536DF925BD4548713021A980A0DE6DB9AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255226   (644333) от 30.03.2019
-
-LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/upd5/dlc) License CODEX [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо быть плохим… Погрузитесь в новые приключения LEGO, став лучшим злодеем во вселенной DC. Игроки смогут создавать новых суперзлодеев и управлять ими. Они проделывают злобные выходки и сеют хаос. Лига Справедливости исчезла, оставив Землю своим коллегам из Синдиката Справедливости.Тип издания: LicenseРазработчик: TT GamesЖанр: Action, Adventure, Indie, 3DЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00E02405ED83C385E9BF1C02F6D6E78512C219A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518307   (642600) от 03.07.2012
-
-The Lost Crown: A Ghosthunting Adventure / The Lost Crown: Призраки из прошлого [Ru] (RePack/1.1) 2008 | R.G. Element Art
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642600.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Призраки из прошлого» - игра о контактах с потусторонними силами. О старинных обрядах общения с призраками и о современных средствах обнаружения привидений. Мир игры - живой и пугающий - создан на основе фотографий графства Корнуолл, расположенного на юго-западном побережье Англии. Это живописное место вдохновляло на создание мистических рассказов многих британских писателей, среди которых были Чарльз Диккенс, Вилки Коллинз и Артур Конан Дойл. Вместе с главным героем вы отправитесь в мрачный городок на восточном побережье Великобритании. Ваша цель - разгадать очень старую загадку этого места. В вашем распоряжении - новейшая техника, которой пользуются профессиональные «охотники на призраков» в реальной жизни. Но берегитесь - приходу чужака будут рады не все жители города, неважно - живые или давно умершие...(   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85550894C71816C5AFB4D74CE555E67B4AE232F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033289   (639361) от 10.07.2016
-
-Zero Escape: Zero Time Dilemma (2016) [En/Ja] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девять участников просыпаются в подземном сооружении, со странным черным браслетом на запястье. Для того, чтобы сбежать, они должны сыграть в игру со смертельными последствиями. Правила просты - после того, как шесть человек погибнут, аварийный люк откроется. Кто будет жить, а кто умрет? Выбор за вами. Да начнется "Игра"...Тип издания: RepackРазработчик: Spike Chunsoft Co., Ltd.Жанр: Psychological thriller, PuzzleЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA2CE5EBE8B5187B57FFEC6F46D9E35AEEF7BBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

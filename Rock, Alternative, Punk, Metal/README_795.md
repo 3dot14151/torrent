@@ -1,3 +1,32 @@
+###  Публикация: 1624441   (255473) от 06.04.2023
+
+Children of Bodom - Hexed (2019) Japanese Ed. [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Road
+02. Under Grass and Clover
+03. Glass Houses
+04. Hecate's Nightmare(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A18FB173B35065D09DFC99FE64BBE744C74DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624645   (255472) от 06.04.2023
 
 Turilli / Lione Rhapsody - Zero Gravity (Rebirth And Evolution) (2019) Japanese Edition [WavPack|Lossless|image + .cue] <Symphonic Power Metal>
@@ -6,7 +35,7 @@ Turilli / Lione Rhapsody - Zero Gravity (Rebirth And Evolution) (2019) Japanese 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255472.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ King Solomon - Heights (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255471.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Framauro - Alea Iacta Est (The Die Is Cast) (2023) [MP3|320 Kbps] <Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255443.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Mono Inc. - Ravenblack (2023) [FLAC|Lossless|image + .cue] <Gothic Rock, Darkwav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255441.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Vaultwraith - Decomposing Spells (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255413.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Numenor - Tales From The Edge Of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255412.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Fifth Angel - 3 albums, 4CD (1986-2018) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255411.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - The Rock Collection: Soft Rock (1992) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255375.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Chris Rosander - The Monster Inside (2023) [FLAC|Lossless|image + .cue] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255344.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Zio - Truewaves (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255343.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Hoplites (Oplitis) - Trothisomeni (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255342.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Amberjacks - The Ride (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 7
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255340.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ King Diamond - The Puppet Master (2003) Reissue, 2013, Metal Blade Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255337.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Destination Unknown - Destination Unknown (2023) [FLAC|Lossless|image + .cue] <A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255335.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ T3nors - Naked Soul (2023) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255333.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Vision Divine - When All The Heroes Are Dead (2019) 2xCD, Japanese Edition [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255297.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Chaos and The Cosmos - Our Song (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255274.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Fear Shatter - Том I (2023) [MP3|320 Kbps] <Horror Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255272.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Keep of Kalessin - Katharsis (2023) [MP3|320 Kbps] <Melodic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255271.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The Savage Blush - Ether Dome (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255270.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255261.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ D'ercole - Mass Formation (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255260.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Powerwolf - Interludium (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255236.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Magnus Karlsson’s Free Fall - Hunt the Flame (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255235.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Old Rock 90s (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255232.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Old Rock 90s (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61EE8173F8B12C84E9E8E548878CCAED49BB2936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626187   (255231) от 13.04.2023
-
-VA - Rock Workout Hits 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons -- Enemy (from the series Arcane League of Legends) (2:53)
-02. Coin -- Cutie (3:04)
-03. Easy Life -- ocean view (2:55)
-04. renforshort -- wannabe (2:32)(   Читать дальше...   )Жанр: RockПродолжительность: 03:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D255F5DA13D8C9FFFE916037EE9421750A136CC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

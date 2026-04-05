@@ -1,3 +1,111 @@
+###  Публикация: 617509   (972516) от 12.02.2013
+
+Журнал | Дом и я в нем № 7(8) [июнь 2007] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скоро лето, а вместе с ним — прекрасная пора, когда каждая хо­зяюшка имеет возможность воплотить свои изобретения, фантазии,
+не­стандартные задумки... в банках! Закаточный сезон откроют ароматные ягоды, хрустящие огурчики, нежные чесноч­ные стрелочки,
+краснобокие томаты, изысканная цветная капуста, слад­кий горошек... Мы постарались собрать самые лучшие,
+проверенные вре­менем и одобренные читателями рецепты консервирования даров лета.
+Уверены, такие бесценные подсказки помогут разнообразить ваш зимний стол витаминными, пахнущими летними ароматами блюдами.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E043ED6945C6222AA0E2AB38B6DC45B5DE0642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617491   (972470) от 12.02.2013
+
+Журнал | Добрые советы. Люблю готовить! № 6 [июнь 2008] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулинарный журнал состоит из рецептов, присланных в редакцию читателями. По самым интересным рецептам шеф-повар редакции готовит блюда, и их фотографии появляются в журнале со знаком качества.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5FBD9115ABB5D1F766A7DD4E617E55B876B80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617974   (972462) от 12.02.2013
+
+Журнал | Добрые советы. Люблю готовить! № 12 [декабрь 2010] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулинарный журнал состоит из рецептов, присланных в редакцию читателями. По самым интересным рецептам шеф-повар редакции готовит блюда, и их фотографии появляются в журнале со знаком качества.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF6B78F1D4D91667A4D0A6267760EF689E56BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617992   (972460) от 12.02.2013
+
+Журнал | Рецепты на бис № 1(14) [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Рецепты на Бис» кулинарный журнал, который помогают составлять читатели. Каких рецептов тут только нет: аппетитные салаты, сытные закуски, супы, горячие блюда из мяса, рыбы, птицы овощей и грибов, домашняя выпечка, десерты.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D81196143FBE5ED0BBF11792222A685664293DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617979   (972405) от 12.02.2013
 
 Журнал | Рецепты на бис №1(4) [2007] [PDF]
@@ -6,7 +114,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972405.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972396.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972183.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972111.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972096.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972094.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972032.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972024.jpg" />
 </div>
 
 
@@ -218,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971891.jpg" />
 </div>
 
 
@@ -244,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971861.jpg" />
 </div>
 
 
@@ -270,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971844.jpg" />
 </div>
 
 
@@ -296,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971352.jpg" />
 </div>
 
 
@@ -322,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971222.jpg" />
 </div>
 
 
@@ -348,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970989.jpg" />
 </div>
 
 
@@ -374,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970936.jpg" />
 </div>
 
 
@@ -400,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970927.jpg" />
 </div>
 
 
@@ -426,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970925.jpg" />
 </div>
 
 
@@ -453,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970878.jpg" />
 </div>
 
 
@@ -479,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970814.jpg" />
 </div>
 
 
@@ -505,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970772.jpg" />
 </div>
 
 
@@ -531,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970625.jpg" />
 </div>
 
 
@@ -558,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_970618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_970618.jpg" />
 </div>
 
 
@@ -570,113 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBD219014D186B1D7FCB91A8160EB703EBD49AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744758   (970613) от 12.01.2014
-
-Журнал | Благодарение №1 (2007) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Благодарение" был задуман как один из видов благотворительности — чтобы помогать людям стать здоровыми, счастливыми и успешными на 4-х уровнях: физическом, социальном, интеллектуальном и духовном.
-Мы осознанно не продаем никаких пищевых добавок и вообще ничего — ибо чем больше продаж, тем менее объективным становишься. Также мы не состоим ни в какой (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16100766897ED40811931753E787AB3346246023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744763   (970611) от 12.01.2014
-
-Журнал | Благодарение №4 (2010) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Благодарение" был задуман как один из видов благотворительности — чтобы помогать людям стать здоровыми, счастливыми и успешными на 4-х уровнях: физическом, социальном, интеллектуальном и духовном.
-Мы осознанно не продаем никаких пищевых добавок и вообще ничего — ибо чем больше продаж, тем менее объективным становишься. Также мы не состоим ни в какой (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0216A667E3350BE4D4F3DDC5D12CE41C1DA5C307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975987   (970585) от 16.01.2016
-
-Журнал | Maxim [Россия] №2 (Февраль 2016) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Maxim радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC616276848E24B6B10B31B07CD67B79FC9A053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744766   (970528) от 12.01.2014
-
-Журнал | Благодарение №5 (2012) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Благодарение" был задуман как один из видов благотворительности — чтобы помогать людям стать здоровыми, счастливыми и успешными на 4-х уровнях: физическом, социальном, интеллектуальном и духовном.
-Мы осознанно не продаем никаких пищевых добавок и вообще ничего — ибо чем больше продаж, тем менее объективным становишься. Также мы не состоим ни в какой (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963B1EE974A9F6F124BE36C9C1A9919BAA28BCBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

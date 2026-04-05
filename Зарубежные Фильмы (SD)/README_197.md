@@ -1,55 +1,3 @@
-###  Публикация: 1200844   (793483) от 23.01.2018
-
-Мой любимый динозавр / My Pet Dinosaur (2017) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793483.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате неудачного военного биологического эксперимента рождается удивительное создание. Это существо находит подросток и прячет у себя дома. Новый друг начинает стремительно расти и распространять хаос по всему городу. Это, конечно, сразу же вызывает недовольство людей в форме. Но они еще не знают, что на защиту животного выйдет команда местных подростков.Производство: Австралия / Hive Studios InternationalЖанр: Боевик, приключения, семейныйРежиссер: Мэтт ДраммондАктеры: Джоэнн Сэмюэл, Дэвид Робертс, Тириел Мора, Дариус Уильямс, Кристофер Габарди, Бет Чемпион ...Перевод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FBEE72918595E3A5BC7D664181653B8783DF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012533   (793332) от 01.05.2016
-
-Король Джек / King Jack (2015) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь 15-летнего Джека в провинциальном американском городке далека от безоблачной. Удастся ли ему, несмотря на унижения окружающих, вернуть корону, которой наградил его отец?Производство: США / Buffalo Picture House, Dominic Buchanan Productions, Stink FilmsЖанр: ПриключенияРежиссер: Феликс ТомпсонАктеры: Чарли Пламмер, Кори Николс, Кристиан Мэдсен, Дэн Флаэрти, Дави Эрин, Хлоя Ливайн, Кит Скотт, ЛеонардПеревод: Одноголосый закадровый, любительскийСубтитры: ОтсутствуютПродолжительность: 01:20:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A786F8D466D35CB09F00D6408CCD583EC7332A2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012513   (793325) от 01.05.2016
 
 Дикость 2 / Wild Things 2 (2004) WEB-DLRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793325.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793272.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793249.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793240.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793234.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793201.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793165.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793137.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793076.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793027.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793025.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793024.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ SuperАлиби / Alibi.com (2017) WEB-DLRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793018.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793016.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792909.jpg" />
 </div>
 
 
@@ -448,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792908.jpg" />
 </div>
 
 
@@ -474,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792863.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792856.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792851.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792804.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792801.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792777.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792742.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792738.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB0B854B0B4419713FB165066EB635C4533293BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274458   (792697) от 07.01.2019
+
+Помешанный на времени / Time Freak (2018) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бросила девушка? Неужели уже ничего нельзя изменить? Можно! Студент-физик изобретает машину времени и отправляется в недалекое прошлое, чтобы исправить ошибки. В результате фатального сбоя главным действующим лицом этой любовной истории становится его лучший друг. С кем же останется девушка?Производство: США | QC Entertainment,Rhodes Entertainment,Beach PicturesЖанр: Фантастика, Драма, Мелодрама, КомедияРежиссер: Эндрю БоулерАктеры: Эйса Баттерфилд, Софи Тернер, Скайлер Гизондо, Обри Рейнольдс, Джозеф Парк, Кэйден Дж. Грегор, Корал Чэмберс, Марк Блокович, Мэри Элизабет Бойлэн, Ками КристиансенПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E5F88C8B8B00F450A95253DD55D545985BE28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509731   (792616) от 14.11.2021
+
+Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) WEB-DLRip [H.264] [IMAX Edition]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастеру боевых искусств Шан-Чи предстоит противостоять призракам из собственного прошлого, по мере того как его втягивают в паутину интриг таинственной организации «Десять колец».Производство: США, Австралия, Fox Studios Australia, Marvel Studios Inc., Walt Disney PicturesЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Дестин Дэниел КреттонАктеры: Симу Лю, Тони Люн Чу Вай, Аквафина, Мишель Йео, Чжан Мэнъэр, Чэнь Фала, Ронни Чиэн, Флориан Мунтяну, Бен Кингсли, Юэнь ВаПеревод: Дублированный (Невафильм / КиноПоиск HD)Язык озвучки: Русский, АнглийскийСубтитры: русские (форсированные, полные), английские (форсированные, полные, SDH)Продолжительность: 02:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982867400F8D029A318139B027790EFBC587AB99
 ```
 
 https://mybot314.ru/tekegram_catalog/

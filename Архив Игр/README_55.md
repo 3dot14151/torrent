@@ -1,3 +1,56 @@
+###  Публикация: 563249   (404354) от 21.10.2012
+
+NBA 2K13 [En] (RePack/1.0.1.1) 2012 | R.G. Shift
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404354.jpg" />
+</div>
+
+
+###  Подробнее
+
+NBA 2K13 является продолжением серии баскетбольных симуляторов от компании 2K. В новом сезоне был улучшен режим карьеры MyCareer, переработана система быстрых пасов, у всех спортсменов, воссозданных с реальных баскетболистов, появились свои уникальные качества и способности. Кроме этого появилась возможность столкнуть между собой в одном матче лучших баскетболистов в истории NBA с талантливыми новичками. (   Читать дальше...   )Тип издания: RepackЖанр: Sport (Basketball) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E110CB258BA267D190583B40FCFE19D49FED70D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562681   (404271) от 21.10.2012
+
+Viking: Battle for Asgard [Ru/En/Multi7] (P/1.0.u.1) 2012
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Викинги, беспощадные и яростные воины, всю свою жизнь посвящали сражениям. Умереть на поле боя — высшая честь для скандинавского воина, ведь павших храбрецов ждет вечная жизнь в Валгалле, где они будут готовиться к новым подвигам, но уже в битвах богов! Близится роковое противостояние высших существ. Реки наполнятся кровью, небесное царство Асгард превратится в руины, а мир погрузится в лютый холод и тьму — грядет Рагнарек.
+  Скандинавы оставили после себя богатую мифологию, и благодаря новому проекту от создателей серии Total War вы лично можете принять участие в противостоянии древних богов. Ареной для сражений станет мир простых смертных, беззащитных перед жерновами всесокрушающей войны. Остановить «апокалипсис» способен только Скарин — выдающийся бесстрашный герой. Именно ему предстоит отправиться в опасное путешествие, собрать войско для последней битвы и лицом к лицу столкнуться с опасным врагом. (   Читать дальше...   )Тип издания: ПираткаЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: Английский, французский, итальянский, испанскийЯзык интерфейса: Английский, немецкий, французский, итальянский, испанский, русский, польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A1508E369BE3849596FC3D9E5C5737474B7ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564054   (403431) от 22.10.2012
 
 Medal of Honor: Warfighter - Deluxe Edition [En/Ru] (Update №1) 2012
@@ -6,7 +59,7 @@ Medal of Honor: Warfighter - Deluxe Edition [En/Ru] (Update №1) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_403431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_403431.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Medal of Honor: Warfighter - Digital DELUXE EDITION [En/Ru] (Crack/v.1.0.0.2) 20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_403373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_403373.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403371.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ Medal of Honor: Warfighter - Limited Edition [En/Ru] (Crack/v.1.0.0.2) 2012 | 3D
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_403368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_403368.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ Medal of Honor Warfighter: Limited Edition [Ru/Multi8] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403313.jpg" />
 </div>
 
 
@@ -147,7 +200,7 @@ Hob (2017) [Ru/Multi] (1.10.2.0) Repack CoolGames
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402980.jpg" />
 </div>
 
 
@@ -173,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_402755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402755.jpg" />
 </div>
 
 
@@ -205,7 +258,7 @@ Sleeping Dogs - Limited Edition [Ru/En] (L/1.5/5 DLC) 2012 3xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402741.jpg" />
 </div>
 
 
@@ -232,7 +285,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402652.jpg" />
 </div>
 
 
@@ -262,7 +315,7 @@ Medal of Honor Warfighter: Deluxe Edition [Ru] (Lossless RePack/1.0.0.2) 2012 | 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402594.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402591.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ Medal of Honor: Warfighter - Digital Deluxe Edition [En/Ru] (Crack/1.0.0.2) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401675.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ RUINER (2017) [Ru/Multi] (1.0) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401074.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400744.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ Medal of Honor Warfighter [En] (L) 2012 | FairLight
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400740.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ Borderlands 2: Premier Club Edition [Ru/En] (RePack/1.1.2.u.5/6 DLC) 2012 | R.G.
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400700.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Repack/1.0.0.2) 2012 | R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400697.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400696.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400654.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400651.jpg" />
 </div>
 
 
@@ -571,7 +624,7 @@ Medal of Honor Warfighter: Deluxe Edition [Ru/En] (Origin-Rip) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400641.jpg" />
 </div>
 
 
@@ -597,7 +650,7 @@ Of Orcs and Men [En/Ru] (Repack/1.0) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399739.jpg" />
 </div>
 
 
@@ -627,7 +680,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399650.jpg" />
 </div>
 
 
@@ -664,7 +717,7 @@ SBK Generations [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398916.jpg" />
 </div>
 
 
@@ -675,64 +728,6 @@ SBK Generations [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44E35D748605181E0A3EE9DD78EFC924DF8FC34E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566261   (398875) от 27.10.2012
-
-King's Bounty: Warriors of the North [Ru] (RePack/1.3.1) 2012 | SEYTER
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398875.jpg" />
-</div>
-
-
-###  Подробнее
-
-King’s Bounty: Воин Cевера - продолжение культовой приключенческой саги.
-
-Действие игры пройдет в уже известном вам мире Эндории: в Дарионе, в подземельях гномов, а также на землях викингов, куда не заплывал даже знаменитый Билл Гилберт.
-(   Читать дальше...   )Тип издания: RepackРазработчик: 1C-SoftClub/Katauri InteractiveЖанр: Tactical role-playing gameЯзык озвучки: РусскийСубтитры: РусскиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0FF89C0EF0BE5C538E0EE1CCF3D00F70A64182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566240   (398859) от 27.10.2012
-
-King's Bounty: Warriors of the North [Ru] (Repack) 2012 |  DangeSecond
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398859.jpg" />
-</div>
-
-
-###  Подробнее
-
-King’s Bounty: Воин Cевера - продолжение культовой приключенческой саги.
-
-Действие игры пройдет в уже известном вам мире Эндории: в Дарионе, в подземельях гномов, а также на землях викингов, куда не заплывал даже знаменитый Билл Гилберт.
-(   Читать дальше...   )Тип издания: RepackРазработчик: 1C-SoftClub/Katauri InteractiveЖанр: Tactical role-playing gameЯзык озвучки: РусскийСубтитры: РусскиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E24CE29D79B92881FC92A8D6CF42A5DA34DA4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

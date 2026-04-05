@@ -1,3 +1,133 @@
+###  Публикация: 990314   (905717) от 28.02.2016
+
+Пикник у Висячей скалы / Picnic at Hanging Rock (1975) BDRip [H.264] [Режиссёрская версия / Director's Cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905717.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1900 году, в День Святого Валентина, группа австралийских школьниц во главе с учительницей отправляются на пикник в район Висячей скалы, местной достопримечательности, и бесследно исчезают…Производство: Австралия / BEF Film Distributors Pty. Ltd., McElroy & McElroy, Picnic Productions Pty. Ltd., The Australian Film CommissionЖанр: Драма, ДетективРежиссер: Питер УирАктеры: Рейчел Робертс, Хелен Морс, Доминик Гард, Джон Джэррэт, Маргарет Нельсон, Энн-Луиз Лэмберт, Карен Робсон, Кристин Шулер, Джейн Вэллис, Вин Робертс ...Перевод: Профессиональный двухголосый закадровый, Профессиональный многоголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4D46B5018FA95CFF3BC6312F23088AD955DA5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990733   (905673) от 28.02.2016
+
+Настолько раздеты, что никакого стыда... / Spogliamoci cosi, senza pudor... (1976) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет картины составили четыре самостоятельных новеллы, снятые в жанре эротических киноанекдотов. В центре первой истории — частный детектив, выслеживающий жену по заказу своего клиента. Во второй новелле молодой человек оказывается членом женской команды по футболу. В третьей истории — амурные приключения, поджидавшие вора, решившего проникнуть в богатый дом в запертом (   Читать дальше...   )Производство: Италия / Medusa DistribuzioneЖанр: Комедия, ЭротикаРежиссер: Серджо МартиноАктеры: Урсула Андресс, Барбара Буше, Джонни Дорелли, Альберто Лионелло, Альдо Маччоне, Энрико Монтезано, Джанрико Тедески, Бренда Уэлш, Надя Кассини, Нинетто Даволи, Джанфранко Барра, Альваро Витали, Армандо Бранча, Риа Де СимонеПеревод: Одноголосый закадровый, любительскийЯзык субтитров: РусскийПродолжительность: 01:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1434BD4B950C8A15BA0815657B7FA3B85E598220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492247   (905472) от 28.08.2021
+
+Мэри Пикфорд. Отказ от притязаний / The Renunciation (1909) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905472.jpg" />
+</div>
+
+
+###  Подробнее
+
+В шахтерском поселке появляется маленькая красотка Китти. И очень она нравится двум парням Джо и Сэму. Они начинают соперничать за ее внимание. Да так соперничать, что доселе закадычные друзья с детства, вызывают друг друга на смертельную дуэль. У Джо есть прозвище - "снайпер". Понятно, что у него больше шансов... Но финал весьма неожидан для них. Правда (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: Короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Мэри Пикфорд, Энтони О’Салливан, Джеймс Кирквуд, Гарри Солтер, Билли Куирк, Эдвин Аугуст, Артур В. Джонсон, Уилфред Лукас, В. Кристи МиллерПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F50B3DCEA18FF5895E1EE5671DADB3B0C3822DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738495   (904594) от 23.02.2014
+
+Полицейская в Нью-Йорке / A policewoman in New York / La poliziotta a New York (1981) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о приключениях женщины-полицейской и ее непутевого помощника в Нью-Йорке.Производство: Италия, Франция | Medusa ProduzioneЖанр: КомедияРежиссер: Мишель Массимо ТарантиниАктеры: Эдвиж Фенек, Альваро Витали, Джакомо Риццо, Эдит Питерс, Энцо Андронико, Галлиано Сбарра, Fidel Bauna, Жак Стани, Ренцо Монтаньяни, Альдо Маччоне, Эннио Антонелли, Паоло Мерози, Лина ФранкиПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55B8DA08C2DD21A35AE5B438CD92755AB9B5685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739911   (904581) от 23.02.2014
+
+Доктор Джекилл и милая дама / Dottor Jekyll e gentile signora (1979) DVDRip[VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Циничный и вероломный промышленник превращается в свою противоположность — добрейшего и милейшего человека. Впрочем, это всё равно влечёт катастрофические последствия для его жизни...Производство: Италия | Dania Cinematografica, Medusa ProduzioneЖанр: КомедияРежиссер: СтеноАктеры: Паоло Вилладжо, Эдвиж Фенек, Джанрико Тедески, Гордон Митчелл, Паоло Паолони, Гуэррино Кривелло, Эоло Капритти, Франко Аннибальди, Уолтер Уильямс, Клементе Укмар, Джефри Коплстон, Паола Ардуини, Анджело Боскариоль, Лучано Фоти, Джузеппе Мароччу, Фульвио Мингоцци, Лучано ДзануссиПеревод: Одноголосый закадровый (Николай Живаго)Субтитры: ОтсутствуютПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B48B05D54048530459A25F0F77DE05D3767B5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991814   (904236) от 29.02.2016
 
 Тигр любит свежую плоть / Le Tigre aime la chair fraiche (1964) DVDRip
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904236.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904157.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904007.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903995.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903980.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903979.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903961.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903913.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903409.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902956.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902471.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902361.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902322.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901614.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901403.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900806.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899363.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899237.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899197.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899137.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898927.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8629CAE108A5DA0B84DD09695B1F12F98990E7C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867496   (897515) от 11.02.2015
-
-Каморрист / Il camorrista (1986) DVDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой неаполитанский парень, вступившись за честь сестры, убил обидчика. В тюрьме он получил прозвище Профессор, потому что научился разбираться в законах получше любого адвоката. Умный и безжалостный, объединив вокруг себя преданную ему братву, он по трупам идет к абсолютной власти и вскоре становится крестным отцом неаполитанской мафии-каморры…Производство: Италия / Arlac Film, Reteitalia, TitanusЖанр: Драма, КриминалРежиссер: Джузеппе ТорнатореАктеры: Бен Газзара, Лаура дель Соль, Лео Гульотта, Марцио Онорато, Лучано Бартоли, Никола Ди Пинто, Анита Дзагария, Франко Интерленги, Бьяджо Пеллигра, Мария КартаПеревод: Многоголосый закадровыйПродолжительность: 02:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B42B919FB83353675638E9769228BCE1118355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993117   (896792) от 04.03.2016
-
-Амазонки / Amazons (1986) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злой колдун с помощью своей магии хочет захватить их страну. Существует легенда, что победить злодея можно только с волшебным мечом, который пропал 500 лет назад. В поисках легендарного меча двоим амазонкам придётся забыть о семейной вражде, сражаться бок о бок ради свержения злого колдуна, и отправиться в опасное путешествие, в котором они столкнутся с дикими племенами, (   Читать дальше...   )Производство: Аргентина / Aries Films International, New Horizons PictureЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Алехандро СессаАктеры: Минди Миллер, Пенелопа Рид, Джозеф Випп, Даница Кингсли, Вольфрам Хехт, Жак Арндт, Чарльз Финч, Франсиско Кокусса, Сантьяго Малло, Анита ЛаррондеПеревод: Одноголосый закадровый (den904)Язык субтитров: РусскийПродолжительность: 01:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5BEDC09FB53A569E87F7CA605720139F16D663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101295   (895858) от 06.02.2017
-
-Невеста пирата / La fiancee du pirate (1969) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мари всеми силами старается использовать свои женские чары в корыстных целях. Она добивается расположения нескольких весьма уважаемых горожан. Но местные моралисты добиваются изгнания Мари из города. Вскоре у женщины созрел план, как заставить своих мучителей заплатить за все унижения.Производство: Франция / Cythère Films, Paris FilmЖанр: ДрамаРежиссер: Нелли КапланАктеры: Бернадетт Лафон, Жорж Жере, Анри Черняк, Клер Морье, Жюльен Гиомар, Жан Паредес, Паскаль Маззотти, Жак Марен, Френсис Лакс, Мишель КонстантенПеревод: Двуголосый закадровый (студия" Инис" по заказу Камертон-Медиа)Субтитры: ОтсутствуютПродолжительность: 01:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC567BB08E740FAE96EBD7D51B1398BDA8ADB519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493556   (895443) от 03.09.2021
-
-Мэри Пикфорд. Гессенские изменники / The Hessian Renegades (1909) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время американской войны за независимость молодого солдата, несущего важное донесение генералу Вашингтону, замечает и преследует группа британских солдат. Он укрывается в доме местных фермеров, но его обнаруживают. После этого семья фермеров их соседи должны что-то предпринять, чтобы донесение все-таки  было доставлено.Производство: США, Biograph CompanyЖанр: Короткометражный, драма, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Оуэн Мур, Линда Арвидсон, Кейт Брюс, Уильям Дж. Батлер, Verner Clarges, Дэвид Уорк Гриффит, Мэри Пикфорд, Роберт Херрон Артур В. Джонсон Джеймс Кирквуд Флоренс ЛоуренсПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские hardsubПродолжительность: 00:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACD6F544A32B794C4D2BF19572F8877CB5745C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455904   (895334) от 05.03.2016
-
-Фраккия против Дракулы / Fracchia contro Dracula (1985) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедия ужасов, пародирующая стереотипы и штампы жанра. Застенчивый агент по продаже недвижимости Джандоменико Фраккиа получает ультиматум: или он наконец-то продаст хоть одному клиенту хоть один дом, или вылетит с работы. И компьютер показывает Фраккии отвечающий всем требованиям клиента особняк — замок в Трансильвании, построенный в незапамятные времена и принадлежавший (   Читать дальше...   )Производство: Италия / Faso Film S.r.l., Maura International FilmsЖанр: Ужасы, КомедияРежиссер: Нери ПарентиАктеры: Паоло Вилладжо, Эдмунд Пурдом, Жижи Редер, Ания Пьерони, Федерика Брайон, Джузеппе Чедерна, Сузанна Мартинкова, Андреа Гнекко, Филиппо Де Гара, Пауль МюллерПеревод: Двуголосый закадровый (НТВ), Одноголосый закадровый (В. Штейн)Продолжительность: 01:27:11
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

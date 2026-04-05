@@ -1,3 +1,32 @@
+###  Публикация: 1331534   (320848) от 17.10.2019
+
+Mr. Big - Lean Into It (1991) Japan, 2009 [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy, Brother, Lover, Little Boy (The Electric Drill Song) (3:56)
+02. Alive And Kickin' (5:29)
+03. Green Tinted Sixsties Mind (3:30)
+04. CDFF-Lucky This Time (4:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8BC99C51913AB491C98BD320A0DA118EA6C702B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075210   (320792) от 22.11.2016
 
 Tori Amos - Boys For Pele (2016) Remastered, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -6,7 +35,7 @@ Tori Amos - Boys For Pele (2016) Remastered, Deluxe Edition [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320792.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320776.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Yes - Yes 50 Live (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320656.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Mr. Big - Bump Ahead (1993) Japan, 2009 [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320654.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ In Flames - Battles (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Modern
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320569.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Denny Laine - Collection Hits [2CD] (2012) [FLAC|Lossless]<Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_320337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_320337.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320204.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ Thiary - Learn To Swim (2011) EP [MP3|320 Kbps] <Melodic Death Metal, MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319939.jpg" />
 </div>
 
 
@@ -250,7 +279,7 @@ Esabuc - Taciturn (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319904.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Jamie Lenman - King of Clubs (2020) [FLAC|Lossless|tracks + .cue] <Post-Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319900.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ Platinum Overdose - Back For The Thrill (2020) [FLAC|Lossless|image + .cue] <Gla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319893.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ Toh Kay - 2 альбома (2010-2011) [MP3|320 kbps] <Rock, Acoustic, Ska>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_319872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319872.jpg" />
 </div>
 
 
@@ -369,7 +398,7 @@ Spice - SPICE (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Goth Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319815.jpg" />
 </div>
 
 
@@ -398,7 +427,7 @@ Puscifer (Maynard James Keenan of Tool & A Perfect Circle) - What Is... Puscifer
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319710.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ Pearl Jam - MTV Unplugged (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319709.jpg" />
 </div>
 
 
@@ -456,7 +485,7 @@ Scorpions - World Wide Live (1985) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319581.jpg" />
 </div>
 
 
@@ -485,7 +514,7 @@ Bon Jovi & Queen - FM Broadcast (2020) [MP3|320 Kbps] <Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319540.jpg" />
 </div>
 
 
@@ -514,7 +543,7 @@ Fats Domino - Greatest Hits (1991) [MP3|320 Kbps] <Rock'n'roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319424.jpg" />
 </div>
 
 
@@ -543,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319379.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ Tempo Bay - Disco Ball (2017) Single [MP3|320 Kbps] <Indie Rock, Dance Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319338.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Fish - A Feast Of Consequences (2013) [FLAC|image + .cue]<Symphonic Rock, Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319276.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319270.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ The Korea - Cosmogonist (2015) [MP3|233-320 кб/с]<Metalcore, Djent>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319264.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Gentle Giant - Octopus (Steven Wilson Remix) (2015) [FLAC|tracks +.cue]<Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319263.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ Epica - Consign To Oblivion (2005) Expanded Edition, 2015 [MP3|320 кб/с]<Symp
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319262.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ Epica - Consign To Oblivion (2005) Expanded Edition, 2015 [MP3|320 кб/с]<Symp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B893A252425F5B613EA22A5B8F2443F223C0E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182075   (319216) от 09.11.2017
-
-Amberian Dawn - Darkness of Eternity (2017) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm the One
-02. Sky Is Falling
-03. Dragonflies
-04. Maybe(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53ADFF7676EFC883336836ABD8FE65A04E8F89B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

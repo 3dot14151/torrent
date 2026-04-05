@@ -6,7 +6,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471944.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471860.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471756.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470184.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470026.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468665.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466744.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465897.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465620.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465201.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465008.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463946.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463562.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463506.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460249.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458757.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456057.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456039.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454896.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454826.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453761.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453747.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452802.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451497.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451265.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450949.jpg" />
 </div>
 
 

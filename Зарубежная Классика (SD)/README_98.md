@@ -1,3 +1,55 @@
+###  Публикация: 493250   (247060) от 10.07.2023
+
+Пианист / The Pianist (2002) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о судьбе Владислава Шпильмана — выдающегося польского пианиста, еврея по национальности. Вынужденный жить в Варшавском гетто во время Второй мировой войны, он сполна познает вкус унижений, страдания и борьбы. Один из офицеров отступающей немецкой армии обнаруживает его среди руин разрушенного бомбежками города и помогает ему выжить.Производство: Le Studio Canal+ / Interscope Communications / Meespierson Film CV, Франция — Германия — Великобритания — ПольшаЖанр: Драма, Военный, Биография, ИсторияРежиссер: Роман ПоланскиАктеры: Эдриан Броуди (Wladyslaw Szpilman), Эмилия Фокс (Dorota), Михал Жебровский (Jurek), Эд Стоппард (Henryk), Морин Липмен (Mother), Фрэнк Финлей (Father), Джессика Кейт Мейер (Halina), Джулия Рейнер (Regina), Ваня Муес (SS Slapping Father), Ричард Райдингс (Mr. Lipa), Номи Шаррон (Feather Woman), Энтони Милнер (Man Waiting to Cross)Перевод: Профессиональный (полное дублирование)Язык субтитров: Русский, АнглийскийПродолжительность: 02:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8339A0CB2CE5F746E215096555C1A1A06BC7EE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563121   (245789) от 25.07.2022
+
+Кристина / Christine (1958) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трогательная история, снятая по роману популярного в начале века писателя, повествующая о трагической любви молодой девушки Кристины к красавцу-драгуну Францу...Производство: Франция, Италия / Play Art, Rizzoli Film S.p.a., Spéva Films S.A.Жанр: Драма,МелодрамаРежиссер: Пьер Гаспар-ЮиАктеры: Роми Шнайдер, Ален Делон, Жан-Клод Бриали, Франсуа Шометт, Жак Дуби, Софи Гримальди, Жан Дави, Бернар Деран, Жан Галлан, Жан ЛагашПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D43AB0C37DEC33435C33CC4BB52A8847D0ACAED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615964   (245699) от 20.03.2023
 
 Тень тонкого человека / Shadow of the Thin Man (1941) DVDRip [AVO]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245699.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245698.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245676.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245561.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245499.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245266.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245231.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244948.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244864.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244793.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244373.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244294.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244247.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244224.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244104.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244085.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243939.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243810.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243549.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243064.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242967.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242826.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242469.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242381.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6D4AD63DC2E9C5B0F859B86F9F60A399273C739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618269   (242258) от 05.04.2023
-
-Дневная жена / Day-Time Wife (1939) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ко второй годовщине бракосочетания молодая Джейн понимает, что ее муж проводит все вечера вовсе не в офисе, как рассказывает ей. Его внимание занимает не только бизнес, но и миловидная секретарша. Джейн решает не устраивать скандалов, а задается вопросом: «Чем таким обладают эти... секретарши, чего нет у нас, порядочных жен?» Ответ на этот вопрос она решает искать (   Читать дальше...   )Производство: США, 20th Century Fox Film CorporationЖанр: мелодрама, комедияРежиссер: Григорий РатовАктеры: Тайрон Пауэр, Линда Дарнелл, Уоррен Уильям, Бинни Барнс, Уэнди Барри, Джоан Дэвис, Джоан Валери, Леонид Кински, Милдред Говер, Рени РианоПеревод: Одноголосый любительский (Andre1288)Язык озвучки: Русский, АнглийскийСубтитры: русские (отдельным файлом)Продолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079BCB604EC6AFF30794BDC09A4420CBA0191D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538595   (242012) от 13.04.2022
-
-Цветок кактуса / Cactus Flower (1969) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джулиан Уинстон, смешной холостяк — дантист, который под влиянием жизненных обстоятельств попадает в различные комические ситуации. Уинстон встречается с головокружительной блондинкой Тони, обманывая её и говоря, что у него есть жена и трое детей. Но когда он узнает, что она пыталась совершить самоубийство из-за него, твердо обещает жениться на ней. Тони добивается (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Frankovich ProductionsЖанр: Мелодрама, КомедияРежиссер: Джин СэксАктеры: Уолтер Мэттау, Ингрид Бергман, Голди Хоун, Джек Уэстон, Рик Ленц, Вито Скотти, Ирен Херви, Ив Брюс, Ирвин Чарон, Мэттью СаксПеревод: Дублированный, многоголосый профессиональный, двуголосый профессиональный, авторскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213F6B5977C887E660E99CFBE42DACCE0C28C93A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,85 @@
+###  Публикация: 1835950   (252332) от 08.11.2025
+
+Данияр Сугралинов, Денис Ратманов | Цикл "Жатва душ" [4 книги] (2025) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще вчера я пил ром и валялся на пляже. Сегодня я проснулся с таким похмельем, что сперва решил — в глазах двоится от выпитого. Но нет, эти мельтешащие символы оказались частью инопланетного интерфейса, а вокруг уже не туристы, а бездушные оболочки. Ну, это не я их так назвал, а система. А для меня они, мать их так, зомби!
+Отломанная ножка стула стала первым оружием, (   Читать дальше...   )Жанр: Постапокалипсис, РеалРПГ, Боевая фантастикаИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA076AC5C37211E8423073B3AFE97E3E99BECA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634070   (252182) от 18.05.2023
+
+Роман Прокофьев | Земли Теней (2023) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вечность сожрала местное солнце три оборота галактики назад.
+На его месте черная дыра с диском аккреции, люди отбрасывают две тени, а жизнь возможна только в Кругах, образованных гигантскими светоносными Древами. За их пределами — ледяной холод и Тьма, а на границе — Тень, края вечного заката.
+Здесь обитают странные Существа и растут необычные Травы, никогда не видевшие (   Читать дальше...   )Жанр: Попаданцы в магические миры, Героическая фантастика, РеалРПГИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D2DDE670300C779CB12789F9DFF02A24E6AD43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834352   (250993) от 05.11.2025
+
+Дмитрий Дорничев | Компиляции циклов [11 циклов] (2020-2025) [EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дмитрий Дорничев (р. 2 марта 1987) г. Южно-Сахалинск. Как современный российский автор, Дмитрий  активно развивает жанры фэнтези и фантастики, создавая произведения, которые находят отклик у широкой аудитории.
+Автор известен своими масштабными циклами в жанре фэнтези и боевой фантастики , где мастерски создаёт миры, населённые уникальными расами, сложными системами (   Читать дальше...   )Жанр: Роман, Бояръ-Аниме, Городское фэнтези, Юмор, РеалРПГ, Боевое фэнтези, ЛитРПГ,  Бояръ-Аниме, ПриключенияИздательство: СамиздатФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5547E153D0032611E70DB4BFB4795B43206AAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835566   (250756) от 06.11.2025
 
 Василий Маханенко | Цикл "Соло" [4 книги] (2025) [FB2] [Обновляемая]
@@ -6,7 +88,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250756.jpg" />
 </div>
 
 
@@ -33,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250723.jpg" />
 </div>
 
 
@@ -59,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250718.jpg" />
 </div>
 
 
@@ -88,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250717.jpg" />
 </div>
 
 
@@ -114,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250529.jpg" />
 </div>
 
 
@@ -140,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250231.jpg" />
 </div>
 
 
@@ -166,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249748.jpg" />
 </div>
 
 
@@ -194,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248905.jpg" />
 </div>
 
 
@@ -221,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246755.jpg" />
 </div>
 
 
@@ -248,7 +330,7 @@ lanpirot | Товарищ «Чума» [12 книг] (2024-2025) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246731.jpg" />
 </div>
 
 
@@ -274,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246730.jpg" />
 </div>
 
 
@@ -300,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246686.jpg" />
 </div>
 
 
@@ -326,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246350.jpg" />
 </div>
 
 
@@ -353,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246348.jpg" />
 </div>
 
 
@@ -379,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246152.jpg" />
 </div>
 
 
@@ -406,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246134.jpg" />
 </div>
 
 
@@ -434,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245530.jpg" />
 </div>
 
 
@@ -460,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243781.jpg" />
 </div>
 
 
@@ -487,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243541.jpg" />
 </div>
 
 
@@ -515,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243495.jpg" />
 </div>
 
 
@@ -542,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243441.jpg" />
 </div>
 
 
@@ -570,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242783.jpg" />
 </div>
 
 
@@ -596,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242206.jpg" />
 </div>
 
 
@@ -607,89 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EBED5667CFDBDA9E9A247455E2B826A3AD13793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569837   (241476) от 14.08.2022
-
-Алексей Вязовский, Сергей Линник | Цикл  "Сапер" 1-3 [3 книги] (2021-2022) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241476.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Он свою Войну прошел. От и до. Начал в сорок первом, закончил в 45-м в Берлине. Но судьба дает ему второй шанс. Зачем? За ответ придется заплатить кровью.
-
-2. Сапер начал свою войну заново, не зная, что его ждет. Он уже сделал свои первые шаги, чтобы предотвратить катастрофу. Какова же его главная цель?
-(   Читать дальше...   )Жанр: Альтернативная история, ПопаданствоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3A05B907D2888A9CE7C77E2CED08051C18A0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627783   (239610) от 20.04.2023
-
-Альбина Нури | Варварин Остров (2022) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пережив развод и потерпев крах в карьере, Андрей Давыдов приезжает в уединенный городок, расположенный на острове, чтобы поселиться в доме, доставшемся от отца.
-Постепенно Андрей понимает, что Варварин остров – по-настоящему страшное место: поведение жителей настораживает его все больше, по ночам тут оживают кошмары, а вдобавок всплывают мрачные тайны прошлого – (   Читать дальше...   )Жанр: Триллеры, УжасыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975F9A223E7363489C8737E542647418000B4626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627776   (239221) от 20.04.2023
-
-Альбина Нури | Гиблые земли (2023) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Катя – обычная школьница, живущая с мамой в деревеньке на краю леса, недалеко от живописного озера, на противоположном берегу которого строится элитный коттеджный поселок.
-Неожиданно на летние каникулы приезжает двоюродный брат-подросток, которого Катя толком и не знает, и с его приездом начинается невероятная череда событий, захвативших не только семью, но и всю (   Читать дальше...   )Жанр: Триллеры, УжасыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1538BBA2AC4D56C0DC185957DD994038D5BB171
 ```
 
 https://mybot314.ru/tekegram_catalog/

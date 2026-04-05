@@ -1,3 +1,55 @@
+###  Публикация: 1038561   (606595) от 28.07.2016
+
+Ф. Готтенрот | Царство людей. Одежда, утварь, обычаи (1994) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный ученый Ф. Готтенрот собрал в ХIХ веке уникальные сведения о культуре народов древних и новых времен, живших в Европе и Азии, о том, как менялся их быт, одежда, утварь, оружие, мебель, украшения, инструменты, нравы и обычаи. Книга содержит огромное количество иллюстраций - рисунков автора. Содержание книги энциклопедично. "Царство людей" - это (   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6B97517C8297C8B7F3F20BE9DCDF4F226DD023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038392   (606593) от 28.07.2016
+
+Т. Арзуманова | Самое интересное о тайнах мифологии в вопросах и ответах (2008) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга приглашает вас совершить увлекательное путешествие в страну мифов и легенд народов мира. На протяжении столетий люди из разных уголков Земли передавали из уст в уста рассказы о жизни богов и героев, о происхождении мира и человека, о добре и зле. Теперь у вас есть уникальная возможность познакомиться с этим бесценным даром. Читая эту книгу, вы с первых (   Читать дальше...   )Жанр: МифыФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:668F24C60AB3FE2DA807AC0247AD7A1E1BCAADCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297138   (606561) от 20.04.2019
 
 П.А. Баранов | ОГЭ. История. Справочник с комментариями ведущих экспертов (2019) [PDF]
@@ -6,7 +58,7 @@
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606561.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605942.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605505.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605444.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605443.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605089.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605057.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604955.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604932.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604850.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604834.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604723.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604709.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604683.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604681.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604478.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604221.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604046.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603970.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603665.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603594.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603581.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603416.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603409.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F278D0AF2E0DC18F2CC93743B1B870DC3F164EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547445   (603005) от 28.04.2022
-
-Бен Гутерсон | Диковинные загадки отеля «Зимний дом». Книга 3 (2022) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отель «Зимний дом» готовится отметить Пасху, и Элизабет радостно окунается в шумную жизнь своего нового дома. Но вскоре она и Фредди оказываются втянуты в новую зловещую тайну. Гости отеля начинают вести себя странно, а дар Элизабет всё чаще проявляется с не самой лучшей стороны.
-Пока необъяснимые толчки сотрясают фундамент отеля, Элизабет слышит крики о помощи Грацеллы (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Екатерина ЗиганшинаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F271BF80377466FF3A57C75F15C2DAB580411E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547453   (602986) от 28.04.2022
-
-Алекс Милвэй | Отель «Фламинго» [4 книги] (2019-2021) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алекс Милвэй (родился в 1978 году) - британский детский писатель и художник, который обожает животных. И хотя его любимчики - лемуры, все прочие постояльцы и сотрудники отеля "Фламинго" у Алекса тоже получаются очень обаятельными. Даже тараканы с улитками на страницах этой книги - и те вызовут умиление у всякого, кто любит добрые, вдохновляющие сказки. (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Анастасия ЖемчуговаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5E00B16B55A2F44E5BC991075955122C1778FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

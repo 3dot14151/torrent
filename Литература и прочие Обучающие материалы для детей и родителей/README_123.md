@@ -1,3 +1,31 @@
+###  Публикация: 1504811   (810215) от 24.10.2021
+
+Кьяра Пиродди | Расту счастливым. Первая книга об осознанности и внимании к себе (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый родитель мечтает, чтобы его ребенок чаще радовался и меньше тревожился. А что нужно для этого сделать? Как помочь малышу вырасти счастливым?
+С помощью этой книги ребенок освоит практики осознанности и научится сохранять внутреннее спокойствие.
+Автор Кьяра Пиродди работает психологом, она помогает взрослым и детям обрести баланс и развить эмоциональный интеллект. (   Читать дальше...   )Жанр: Педагогика/Воспитание детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5286EC06BDD776458C4B7E8EE3C0AD38BA4DCC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467619   (810213) от 24.10.2021
 
 Дэрмот О’Лири | Расследование ведёт Тото, кошка-ниндзя! [4 книги] (2019-2021) [FB2, EPUB, MOBI]
@@ -6,7 +34,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810213.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810141.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809975.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809780.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809669.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809665.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809556.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809542.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809504.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809390.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809370.jpg" />
 </div>
 
 
@@ -295,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808814.jpg" />
 </div>
 
 
@@ -321,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808741.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808435.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808398.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808340.jpg" />
 </div>
 
 
@@ -430,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808213.jpg" />
 </div>
 
 
@@ -457,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808211.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808205.jpg" />
 </div>
 
 
@@ -509,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808073.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807873.jpg" />
 </div>
 
 
@@ -564,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807795.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807587.jpg" />
 </div>
 
 
@@ -617,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807466.jpg" />
 </div>
 
 
@@ -643,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807082.jpg" />
 </div>
 
 
@@ -654,33 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B78157032900961E37CC7E163D287B442188B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119237   (806730) от 28.03.2017
-
-Самиздат | Раскраски по цифрам (2016) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскраски по цифрам(номерам) для детей - это изображение разделенное на пронумерованные области, каждую из которых следует закрасить  соответствующим цветом. Раскраски по цифрам(номерам) помогут вашему ребенку в игровой форме с пользой провести время развивая у него внимательность и усидчивость.
-Многие оценят их по достоинству.Жанр: РаскраскаФормат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D942B9589A5DEB79F333DFC0757351A0085F18
 ```
 
 https://mybot314.ru/tekegram_catalog/

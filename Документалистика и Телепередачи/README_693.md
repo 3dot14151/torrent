@@ -1,3 +1,159 @@
+###  Публикация: 1518353   (156062) от 19.12.2021
+
+Сто к одному (19.12.2021) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BFE3A420C5EECCBADEF571D942D85AA3FEF9C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518419   (155896) от 19.12.2021
+
+Своя игра (19.12.2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85F574B756DDB039AACE4A8C2A057BE32C493FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518358   (155755) от 19.12.2021
+
+Пластиковый океан / A Plastic Ocean (2016) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм «Пластиковый океан» режиссёра Крейга Лиссона расскажет шокирующую правду о пластике. На первый взгляд, безобидная упаковка продуктов питания и других покупок становится мусором, который постепенно поглощает планету. Сегодня пластик, а точнее его микрочастицы, обнаружены практически везде, даже в арктических морских льдах. Пластик обнаруживают (   Читать дальше...   )Производство: Великобритания, ГонконгЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Крэйг ЛисонПеревод: Двуголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978CCE7F30908B131E4412D544AF0E8D3EF7E152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518334   (155736) от 19.12.2021
+
+Новые Танцы (2021) WEBRip [H.264/1080p] (сезон 1, выпуск 22)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое танцевальное шоу! Лучшие танцовщики страны снова выходят на сцену. Теперь не будет наставников и их команд, а только очные танцевальные поединки между участниками в четырёх категориях: соло, дуэты, дети и команды. Оценивать выступления участников будет Мигель совместно с двумя приглашенными гостями. Компанию неизменной ведущей Ляйсан Утяшевой составит Ульяна (   Читать дальше...   )Телекомпания: Россия, Comedy Club Production, Телеканал ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35AF654DDF4579ACC588BFF13A0DB61A14D1A306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194523   (155707) от 25.12.2017
+
+Интервью Сергея Юдаева (2017) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харьковского политзаключенного Сергея Юдаева 6 ноября 2017 г. освободили в зале суда по амнистии. Гражданский активист «Антимайдана» в г. Харьков был арестован в апреле 2014 г., обвинялся по статьям «Хулиганство», «Массовые беспорядки» и пробыл 3,5 года в заключении на Украине. Сын военнослужащего (контразведчика), православный христианин сумел пережить испытания, (   Читать дальше...   )Производство: Россия, информационно-аналитическое сетевое издание Сегодня.руЖанр: ПолитикаПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C08D11675564F6C99DF20CED1F6AE493B010413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270707   (155705) от 20.12.2018
+
+Демоны в раю / Demons in Paradise (2017) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шри-Ланка, 1983 год. На острове начинается гражданская война. Джуду Ратману пять лет, и он бежит на поезде от кровавой резни, спровоцированной правительством Великобритании . В наши дни режиссёр Джуд Ратман на том же поезде отправляется с юга на север острова. По мере его путешествия следы 30-летней войны, которая превратила борьбу тамилов за свободу в саморазрушительный (   Читать дальше...   )Производство: Франция, Sister Productions, Stuff MovieЖанр: Документальный, драмаРежиссер: Джуд РатманПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C79C48E9A656B50794C7DA019B5741104BB33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518433   (155668) от 19.12.2021
 
 Следствие вели... (19.12.2021) WEBRip [H.264/1080p]
@@ -6,7 +162,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155668.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155651.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155554.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155539.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155535.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155533.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155530.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155521.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155483.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155465.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155435.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155411.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155396.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155395.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155210.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155206.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155202.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155148.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155065.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155057.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C70A919758057D66E9DDA195951B96260923975A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431101   (155035) от 28.12.2022
-
-Гафт, который гуляет сам по себе (2010) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155035.jpg" />
-</div>
-
-
-###  Подробнее
-
-У этого актера репутация человека с непростым характером. Валентин Гафт менял театры, с проклятьями покидал съемочные площадки, ссорился с режиссерами, уходил от жен и даже дрался с коллегами по актерскому цеху.Телекомпания: РоссияЖанр: Документальный, БиографияПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBCE1BED155F951E5D8451F49CF9209119CA5BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347012   (154980) от 21.12.2019
-
-История русского танка (2019) WEB-DL [H.264/1080p-LQ] (серии 8 из 8)
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154980.jpg" />
-</div>
-
-
-###  Подробнее
-
-За сто лет своего существования отечественная школа танкостроения явила миру не один выдающейся образец бронетехники. Многие из них на десятилетия вперёд задали тон развитию мирового танкостроения. За эти годы танки превратились из вспомогательного средства на поле боя в основную ударную силу сухопутных войск. Танк сегодня - это несколько больше, чем просто гусеничная (   Читать дальше...   )Производство: Россия, ООО «СТУДИЯ «КРЫЛЬЯ», ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный, вооружение, война, историяРежиссер: Андрей КулясовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 8 х ~00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745D7B42C7938139AF50EDB9776B6CF8A4641768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194508   (154859) от 25.12.2017
-
-Рокко / Rocco (2016) HDRip
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает историю жизни Рокко Сиффреди — мировой знаменитости, суперзвезды первой величины международной порноиндустрии, который фактически является ее живым олицетворением. Его мать хотела, чтобы он стал священником, но Рокко посвятил свою жизнь служению другому «богу» — желанию.Производство: Франция / Centre National de la Cinematographie (CNC), Falabracks, Mars Films, Orange Cinema Series, Program 33Жанр: Документальный, биографияРежиссер: Тьерри Демезьер, Альбан ТерлеАктеры: Рокко Сиффреди, Роза Карачиоло, Абелла Дейнджер, Джеймс Дин, Габриэль Галетта, Марк Шпиглер, Келли Стэффорд, Джон СтаглианоПеревод: Двухголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCC92781860F0D8E555B9FAAE004F452324A470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433891   (154830) от 22.12.2020
-
-Битва дизайнеров (19.12.2020) WEB-DL [H.264/1080p-LQ] (выпуск 24)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайнеры со всей страны соберутся, чтобы выяснить, кто из них лучший! У каждого будет комната площадью 5 квадратных метров, двое рабочих, бюджет 70 тысяч рублей и 8 часов, чтобы реализовать свой проект. Тех дизайнеров, которые пройдут проверку, будет ждать второе задание – ремонт в настоящей квартире. Кто из дизайнеров лучше других справится с задачей? Кому доверят (   Читать дальше...   )Телекомпания: ИП «Кочуков Станислав Андреевич» по заказу АО «ТНТ-Телесеть»Жанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2066AA8261328EDB49D1620FBED5739ECCF2F407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085978   (154823) от 23.12.2016
-
-Вечерний Ургант (2016.12.22) SATRip (cезон 10, выпуск 73)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3B062B3081CFAA4F2161A9DE3455F1965FEEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433936   (154769) от 22.12.2020
-
-Пиренеи / The Pyrenees (2020) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горная система Пиренеи, простирающаяся более чем на 430 километров между Испанией и Францией, отделяет Пиренейский полуостров от остальной Европы. Самая высокая точка Пиренеев – пик Ането высотой 3404 метра.Производство: ИспанияЖанр: Документальный, видовойРежиссер: Хави ЛорбадаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C11B0A378ADAF417EA9D7CA345527A4CB6553EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

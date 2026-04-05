@@ -1,3 +1,160 @@
+###  Публикация: 1486979   (1001058) от 14.08.2021
+
+Круиз по джунглям / Jungle Cruise (2021) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отважная исследовательница дикой природы Лили Хоутон намерена отправиться в верховья Амазонки, чтобы найти легендарное дерево, которое – согласно преданиям южноамериканских индейских племен – обладает магическими целебными свойствами. Сопровождать Лили будут её утонченный брат Макгрегор и бесшабашный капитан круизного пароходика Фрэнк. В дебрях джунглей путников (   Читать дальше...   )Производство: США, 7 Bucks Productions, Davis Entertainment, Flynn Picture Company, TSG Entertainment, Walt Disney Pictures, Zaftig FilmsЖанр: Приключения, Комедия, ФэнтезиРежиссер: Жауме Кольет-СерраАктеры: Дуэйн Джонсон, Эмили Блант, Эдгар Рамирес, Джек Уайтхолл, Джесси Племонс, Пол Джаматти, Вероника Фалькон, Энди Найман, Филипп Максимилиан, Дэни РовираПеревод: Многоголосый закадровый (HDRezka Studio)Субтитры: Русские, Украинские, Английские, мультиязычныеПродолжительность: 02:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9133AC528026D9CF9EA4900031E65A8A06F1D08A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352119   (1000934) от 14.01.2020
+
+Первый Ил-96-400М передан в цех окончательной сборки
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый летный опытный образец самолета Ил-96-400М передан в цех окончательной сборки. В настоящее время завершена стыковка фюзеляжа и консолей крыла. На следующем этапе предстоит монтаж систем управления воздушным судном и установка интерьера.
+«Работы по программе создания нового пассажирского самолета Ил-96-400М идут по графику. Изготовление опытного образца планируется (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352126   (1000926) от 14.01.2020
+
+Новое открытие может ответить на вопрос о возникновении человеческого разума
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда ученых из Германии и Греции обнаружила новые свойства головного мозга, которые в перспективе могут объяснить возникновение уникального разума и сознания человека.Науке до сих пор неизвестно, почему люди умнее пауков, обезьян или птиц. Почему, глядя на закат солнца, мы можем заплакать от переполняющих нас чувств. Происходящие в нашей голове процессы коренным (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352357   (1000916) от 14.01.2020
+
+Стоимость услуг операторов связи повышается из-за «пакета Яровой»
+
+>>3
+>>12
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оператор связи «Мегафон» поднимет стоимость архивных тарифов с 13 января, компания «Вымпелком» — с 16 января. В «Мегафоне» сообщили, что повышают стоимость тарифов из-за роста потребления услуг. В компании отметили, что повышение затронет небольшую часть абонентов. В «Вымпелкоме» сказали, что повышают цены из-за расходов на реализацию требований российских законов, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352520   (1000735) от 15.01.2020
+
+SCUM (2018) [Ru/Multi] (0.3.67.19766/dlc) Repack Mr_Weegley [Early Access]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миру недостаточно простых развлечений. Теперь он жаждет крови, и медийный гигант TEC1 готовит премьеру второго сезона телевизионной сенсации SCUM, чтобы удовлетворить потребности зрителей. В новом сезоне участники не будут ограничены закрытыми аренами; их ждут густые леса, холмистые поля и труднопроходимая местность на персональном острове TEC1 — SCUM. Новые заключенные (   Читать дальше...   )Тип издания: RepackРазработчик: Gamepires, CroteamЖанр: Action, Survival, RPG (Open World), 3rd Person, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FFDE8B7C4444FEDEF96F0E0ABDCC796485F7D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352561   (1000725) от 15.01.2020
+
+Adobe Photoshop 2020 21.0.2.57 RePack (& Portable) by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop — это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A470BF5E237C11BD201AC78050D18AE1713C1ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345917   (1000714) от 15.01.2020
 
 Пространство / Экспансия / The Expanse (2019) WEBRip [H.264/720p-LQ] (сезон 4, серий 10 из 10) LostFilm
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000714.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ The Surge 2 (2019) [Ru/Multi] (1.09u5/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000713.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3) Rip xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000711.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ Halo: Dilogy [En/Ru] (Rip) 2002 - 2007 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000564.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ Severance: Blade of Darkness [En/Ru] (RePack/1.01) 2001 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000291.jpg" />
 </div>
 
 
@@ -139,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000289.jpg" />
 </div>
 
 
@@ -165,7 +322,7 @@ Win8PE (x86) by Xemom1 [Англ.\Рус.]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000286.jpg" />
 </div>
 
 
@@ -191,7 +348,7 @@ Medal of Honor Warfighter: Limited Edition [Ru/En] (RePack/1.0.0.3) 2012 l R.G. 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000285.jpg" />
 </div>
 
 
@@ -221,7 +378,7 @@ SamDrivers 13.0 - Сборник драйверов для всех Windows (Dri
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000284.jpg" />
 </div>
 
 
@@ -251,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000084.jpg" />
 </div>
 
 
@@ -277,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000082.jpg" />
 </div>
 
 
@@ -303,7 +460,7 @@ Heroes of Might and Magic: Anthology / Герои Меча и Магии: Ант
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000080.jpg" />
 </div>
 
 
@@ -335,7 +492,7 @@ Medal Of Honor. Warfighter: Digital Deluxe [Ru] (Repack/1.0.0.3/3 DLC) 2012 | Fe
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1000079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1000079.jpg" />
 </div>
 
 
@@ -365,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999799.jpg" />
 </div>
 
 
@@ -392,7 +549,7 @@ Shadow Defender 1.2.0.355 [Английский + Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999524.jpg" />
 </div>
 
 
@@ -420,7 +577,7 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.779.0 RePack [MULTi / Ру
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999480.jpg" />
 </div>
 
 
@@ -446,7 +603,7 @@ Doom 3 BFG Edition [Ru/En] (L/1.0.0.1u1) 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999473.jpg" />
 </div>
 
 
@@ -472,7 +629,7 @@ Far Cry 3 [Ru] (L/1.04) 2012
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999469.jpg" />
 </div>
 
 
@@ -498,7 +655,7 @@ Call of Duty Black Ops 2/II (2012) [Ru/En] (1.0.0.1 upd3) Rip R.G. Механи�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999467.jpg" />
 </div>
 
 
@@ -524,7 +681,7 @@ NVIDIA GeForce Desktop 310.90 WHQL + For Notebooks [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999223.jpg" />
 </div>
 
 
@@ -537,166 +694,6 @@ NVIDIA GeForce Desktop 310.90 WHQL + For Notebooks
 Адрес официального сайта: NVIDIA
 Язык интерфейса: MULTi / РусскийЛечение: не требуется
 Системные требования:Windows 8, 7, Vista, XP (x32/x64)Описание: Вышла новая официальная версия драйверов для видеокарт на базе графических процессоров компании nVidia. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599319   (999207) от 06.01.2013
-
-Skins kaspersky internet security 2013 3.0 [Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка скинов для Kaspersky Internet Security 2013. 28 штук в одном инсталляторе. Вы получите не только измененный вид окон, но и дополнительную кнопку "Активация ключом" и некоторые дополнительные настройки.Название программы: skins kaspersky internet security 2013Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599641   (998992) от 07.01.2013
-
-Recovery Partition for ASUS K56 CM / Windows 8 (х64)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998992.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ разделов Recovery жесткого диска ноутбука ASUS K56CM-XX064H
-Образ Recovery Partition ASUS K56CM.tib содержит в себе оригинальный MBR и скрытые разделы восстановления
-Образ создан программой Acronis True Image Home 2012 после первого включения ноута.Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599649   (998991) от 07.01.2013
-
-[Автомагнитола Masushita NSDN-W59] (2009) файл для SD карты
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Папка PRIVATE закидывается на отформатированную sd-карту, затем вставляется в слот в нижней части дисплея. И магнитола считав файл загружается в рабочий режим.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2215C942C2D97FF9F9DA4F2E7130F0738EE8FA9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599602   (998990) от 07.01.2013
-
-Ключи для ESET NOD32, Kaspersky, Avast, Dr.Web, Avira от 06.01.2013
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник ключей для популярных антивирусных программ: ESET NOD32, Kaspersky, Avast, Dr.Web, Avira.Название программы: Ключи для ESET NOD32, Kaspersky, Avast, Dr.Web, AviraЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598572   (998987) от 07.01.2013
-
-Семь психопатов / Seven Psychopaths (2012) DVDRip [Line]
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непутевый писатель потерял вдохновение и никак не может справиться с новым сценарием. Волей случая он оказывается втянутым в похищение собаки, затеянное его эксцентричными дружками. Выясняется, что украденное животное — любимый пёс главного местного гангстера, которому ничего не стоит в два счета вычислить и уничтожить оболтусов.Жанр: Комедия, КриминалРежиссер: Мартин МакДонаПродюсер: Грэхэм Броадбент, Питер Чернин, Мартин МакДонаАктеры: Колин Фаррелл, Сэм Рокуэлл, Кристофер Уокен, Вуди Харрельсон, Том Уэйтс, Эбби Корниш, Желько Иванек, Майкл Питт, Майкл Стулбарг, Габури СидибеПеревод: ДублированныйПродолжительность: 01:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AEAE1F157C94FDF5475BD5375C5B40D6396394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595642   (998986) от 07.01.2013
-
-Новогодний конкурс от DG Win&Soft
-
->>3
->>66
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний конкурс от DG Win&Soft 
-Поздравляем одноклубников с наступающим Новым годом и Рождеством!
-Продолжая традицию отмечать праздники проведением общественных мероприятий, объявляем о проведении конкурса информационных  материалов (текстовых статей, очерков, обзоров) по Программному Обеспечению.Тематика: любая, на выбор автора.(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

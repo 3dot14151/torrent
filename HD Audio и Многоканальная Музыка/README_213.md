@@ -1,32 +1,3 @@
-###  Публикация: 1807707   (65102) от 20.07.2025
-
-Sweet Talk - Switch On (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Summertime Speakeasy (2:53)
-02.  Backseat Of My Car (4:07)
-03.  Millers Bay (4:19)
-04.  Stoned In Texas, Queensland (3:29)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDAD8A4073F6AFC8B0EA259470F25D05C11CD793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807716   (65098) от 20.07.2025
 
 Tomas Jo´ Group - Be A Little Kind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -35,7 +6,7 @@ Tomas Jo´ Group - Be A Little Kind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65098.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65097.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ The Black Zodiac - The Tyrant (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65095.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Grand Alchemist - Studio Albums (2 releases) (2003; 2012) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65091.jpg" />
 </div>
 
 
@@ -149,7 +120,7 @@ Magneton - Jo Fiu Leszek [Magneton 2] (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65089.jpg" />
 </div>
 
 
@@ -178,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65088.jpg" />
 </div>
 
 
@@ -207,7 +178,7 @@ Aswekeepsearching - kyun? (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65086.jpg" />
 </div>
 
 
@@ -236,7 +207,7 @@ Dwellers - Corrupt Translation Machine (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65044.jpg" />
 </div>
 
 
@@ -265,7 +236,7 @@ Florian Grey - Beautiful Nightmares (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65042.jpg" />
 </div>
 
 
@@ -294,7 +265,7 @@ Galactic & Irma Thomas - Audience With the Queen (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65041.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ Harem Scarem - Chasing Euphoria (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65040.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ Gazzara - Criminal Sounds (A Musical Journey Into 1960_70s Cop and Spy Movies) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65039.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ Harry Newcock - My Unexamined Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65038.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ VA - 4-й Альбом Супрафона 2 (1966) Partially Mixed, Sampler [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65035.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ Dio - Lock Up The Wolves (1990) Reissue, 2021, Vertigo [FLAC|24/96|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65031.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ Christophe Deschamps, Philippe Almosnino - Go Cats Go Rockabilly (2025) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65028.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ Jawbone - Jawbone II (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65023.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ Huckleberry - Lets Get Drunk And Huck (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65022.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ Evan Arview - Deeper Still (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65021.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ Fred and the Healers - No Escape (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65017.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ Eric Essix - My Heartbeat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65016.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ Alex G - Headlights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & In
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65015.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ Iain Hornal - Return To The Magic Kingdom (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65014.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ Split Chain - motionblur (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu-Metal, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64998.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ Jessica Winter - My First Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64980.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ Jessica Winter - My First Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53CC83C3A7CC20B07C7711445F16FFBEC79AF38E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808284   (64978) от 24.07.2025
+
+Laura Jane Grace - Adventure Club (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, New-Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WWIII Revisited [00:01:23]
+02. Wearing Black [00:03:00]
+03. I Love To Get High [00:02:38]
+04. Active Trauma [00:01:49](   Читать дальше...   )Жанр: Punk, New-WaveПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31AE92B71E7B03EE5B717B6AE5C7E22A307A92A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1153502   (557969) от 27.07.2017
+
+Alice Cooper - Paranormal (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paranormal
+02. Dead Flies
+03. Fireball
+04. Paranoiac Personality(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF112C55728E6DAD77B42385EC7D34BFB65C3B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556815   (557074) от 11.06.2022
+
+CoreLeoni - III (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Life Begin Tonight
+02. Purple Dynamite
+03. Guilty Under Pressure
+04. Sometimes(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BF5C261694273432200620A5DFCCA99016D286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235953   (556603) от 14.07.2018
+
+Graham Bonnet Band - Live… Here Comes The Night (Japanese Edition) (2017) [WavPack|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes Of The World
+02. All Night Long
+03. S.O.S.
+04. Stand In Line(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91CCF9B9C87FB6C9039C97E5769461C8F1E244B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557004   (556472) от 12.06.2022
 
 Yet Again - Revival (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +93,7 @@ Yet Again - Revival (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556472.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Darian And Friends - Lost Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556464.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ MegaSnake - Charming (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556397.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Kingdom Come - Classic Album Collection 1988-1991 (2019) 3CD Remastered [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556111.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ Bloody Heels - Rotten Romance (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556099.jpg" />
 </div>
 
 
@@ -150,7 +237,7 @@ Raider - Runaway (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556094.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ Hardbone - Tailor-Made (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554691.jpg" />
 </div>
 
 
@@ -208,7 +295,7 @@ Hardbone - Bone Hard (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554684.jpg" />
 </div>
 
 
@@ -237,7 +324,7 @@ Hardbone - This Is Rock'n'Roll (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554507.jpg" />
 </div>
 
 
@@ -266,7 +353,7 @@ Kiss - The Best Of Kiss Volume 2 (2004) [FLAC|Lossless|image + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554031.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Joker - Joker (1990) 1991, TECP-25726 [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553291.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Buckcherry - Warpaint (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552876.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Vasco Rossi - Stupido Hotel (2001) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551934.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ David Byron - 5 albums, 6CD (1975-2008) [FLAC|Lossless|image + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551891.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Blue Tears - The Innocent Ones (2006) [FLAC|Lossless|tracks + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551028.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Snаке Неаd Rituаl - Сеrеmоniаl Тhundеr (2016) [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549326.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Andy Timmons - And-Thology I & II - The Lost Ear X-tacy Tapes (2001) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549243.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ The Screaming Jets - Do Ya (2008) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549174.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ King Company - One For The Road (2016) Jараnеsе Еditiоn [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549169.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ The Dead Daisies - Make Some Noise (2016) [FLAC|Lossless|image+.cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549166.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Kiss - Kiss Rock Vegas (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549102.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Wonderworld - 2 альбома: Wonderworld, II (2014,2016) [FLAC|Lossless|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548267.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Ace Frehley - Origins Vol. 1 (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547361.jpg" />
 </div>
 
 
@@ -657,92 +744,6 @@ Ace Frehley - Origins Vol. 1 (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B511BEF96C776556C7AA93C553AE1D211C76525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238341   (547075) от 29.07.2018
-
-Icon - 4 альбома (1984 - 1989) [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icon - американская группа heavy metal / glam metal, созданная в 1979 году, расформированная в 1990 году. Ревормировалась в 2008 году, в настоящее время состоит из трех участников классического состава: Dan Wexler (guitar), Stephen Clifford (lead vocals) и John Aquilino (guitar), а также Dave Henzerling (bass) и Gary Bruzzese (drums). Началось все в 1981 году со (   Читать дальше...   )1984 - Icon
-1985 - Night Of The Crime
-1987 - An Even More Perfect Union (2009)Жанр: Hard Rock, GlamПродолжительность: 03:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC8198F6D928DD3947FA44A608662049F3AD433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048360   (546533) от 02.09.2016
-
-Shotgun - Dallasian Rock (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Star Queen 03:10
-02. In The Music 04:15
-03. Seems Like You Would Understand 02:38
-04. Play The Game 03:31(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98660F9A4E99E7D4346390A287B501A47491131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048621   (545803) от 03.09.2016
-
-Stereoside - Hellbent (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miracle
-02. Apple Pie
-03. Hellbent
-04. Crazier Than You(   Читать дальше...   )Жанр: Hard Rock, Post-GrungeПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D0E5578F79EB87E59EADCEFE012FB5AC964E85
 ```
 
 https://mybot314.ru/tekegram_catalog/

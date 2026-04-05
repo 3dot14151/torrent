@@ -1,3 +1,61 @@
+###  Публикация: 921862   (568124) от 29.07.2015
+
+Joe Hisaishi - Sonatine (1999) [FLAC|tracks+.cue]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonatine I - Act Of Violence (03:40)
+02. Light And Darkness (06:49)
+03. Play On The Sands (04:43)
+04. Rain After That (00:26)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E828710FD44174ECB809AD7E0A3B6593D6444680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921930   (568053) от 29.07.2015
+
+David Arnold & Michael Price - Sherlock-Original Television Soundtrack (2012-2014) Season 1-3 [MP3|260-320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How It Was Done (02:45)
+02. God Rest His Soul (01:44)
+03. Floating Dust (03:29)
+04. #SherlockLives (02:50)(   Читать дальше...   )Жанр: OSTПродолжительность: 03:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E737FD4F189B973B054C00E83C28BBA897705897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921967   (568026) от 29.07.2015
 
 Luca Stricagnoli - Luca Stricagnoli (2015) [MP3|320 кб/с] <Instrumental, Acoustic, Guitar, New Age>
@@ -6,7 +64,7 @@ Luca Stricagnoli - Luca Stricagnoli (2015) [MP3|320 кб/с] <Instrumental, Acou
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568026.jpg" />
 </div>
 
 
@@ -38,7 +96,7 @@ Wil Bolton - Under A Name That Hides Her (2012) [MP3|320 кб/с]<Meditative, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567596.jpg" />
 </div>
 
 
@@ -69,7 +127,7 @@ Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567127.jpg" />
 </div>
 
 
@@ -95,7 +153,7 @@ Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566849.jpg" />
 </div>
 
 
@@ -124,7 +182,7 @@ Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566821.jpg" />
 </div>
 
 
@@ -153,7 +211,7 @@ Sammy Kershaw - Labor Of Love (1997) [FLAC|Lossless|image + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565994.jpg" />
 </div>
 
 
@@ -182,7 +240,7 @@ Nawang Khechog - The Tibetan Healing Music (2013) [MP3|320 Kbps] <New Age, Yoga>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565916.jpg" />
 </div>
 
 
@@ -211,7 +269,7 @@ Thomas Lemmer - Pure (2016) [MP3|320 Kbps] <Ambient, Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565362.jpg" />
 </div>
 
 
@@ -240,7 +298,7 @@ Rachel Laven - Love & Luccheses (2016) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565341.jpg" />
 </div>
 
 
@@ -269,7 +327,7 @@ Katee Kross - Beautiful Dreamer (2016) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565319.jpg" />
 </div>
 
 
@@ -298,7 +356,7 @@ FAUN - Midgard (2016) Deluxe Edition [MP3|320 Kbps] <Folk, Pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564895.jpg" />
 </div>
 
 
@@ -327,7 +385,7 @@ Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564594.jpg" />
 </div>
 
 
@@ -362,7 +420,7 @@ VA - Simply Chillout (2005) 4CD[FLAC|image+.cue]<Electronic, Ambient, Pop, Rock,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564488.jpg" />
 </div>
 
 
@@ -391,7 +449,7 @@ Michele McLaughlin - Memoirs (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pian
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563984.jpg" />
 </div>
 
 
@@ -420,7 +478,7 @@ Joel Kanning - Ubiquitous Frequency Oscillation (UFO) Vol.1,2 (2009-2017) [FLAC|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563145.jpg" />
 </div>
 
 
@@ -449,7 +507,7 @@ David & Steve Gordon - Sacred Spirit Drums (1994) [MP3|320 кб/с]<New Age, Nat
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562951.jpg" />
 </div>
 
 
@@ -484,7 +542,7 @@ Nelson Riddle & Bob Harris - Lolita / Лолита (Режиссёр Stanley Kub
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562947.jpg" />
 </div>
 
 
@@ -519,7 +577,7 @@ Milva & Astor Piazzolla - Live At The "Bouffes Du Nord" (1984) [FLAC|Lossless]<L
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562681.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Win Kowa - 6 альбомов (1992 - 2000) [MP3|192, 320 кб,]<New age, Relax,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562526.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Корол�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561847.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Alan Menken & VA  - Aladdin / Аладдин (Original Motion Picture Soundtrack
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561840.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Корол�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561714.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Ancient Legacy - New Age Armenia II (2003) [FLAC|Lossless|image + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561671.jpg" />
 </div>
 
 
@@ -700,7 +758,7 @@ Alan Menken & VA - Aladdin / Аладдин (Оригинальный саунд
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561567.jpg" />
 </div>
 
 
@@ -714,64 +772,6 @@ Alan Menken & VA - Aladdin / Аладдин (Оригинальный саунд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9EE8F0504D912C3611E673264771590BF21BC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304662   (561563) от 27.05.2019
-
-Alan Menken & VA - Aladdin / Аладдин (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Арабская ночь (2019) (03:13)
-02. На миг быстрее (02:55)
-03. На миг быстрее (Реприза) (01:00)
-04. Смелой (Часть 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ACC0003FD26CBFC92376E77DD2B2C5776E18268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152250   (561486) от 25.07.2017
-
-VA - Anxiety Free. Clear Peaceful Mind: Deep Relaxation of the Soul (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calm Music Zone - Anxiety Free
-02. Meditation Mantras Guru - Breathe In & Breathe Out
-03. Calm Music Masters - Prepare Your Body for Meditation
-04. Sound Therapy Masters - Morning Meditation Music(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B6ACB54915E251EA227842230CCA0C5936C6CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1332010   (313311) от 20.10.2019
+
+История игрушек 4 / Toy Story 4 (2019) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический рейнджер Баз Лайтер, ковбой Вуди, собака Спиралька, тиранозавр Рекс и вся команда игрушек снова вместе, и они как никогда готовы к приключениям. С тех пор как Энди поступил в колледж, игрушки поселились в доме своей новой хозяйки Бонни. В свой первый день в школе Бонни смастерила себе из отходов новую игрушку Вилкинса, что положит начало череде событий, (   Читать дальше...   )Производство: США, Walt Disney Studios Motion PicturesЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джош КулиПеревод: Дублированный (Лицензия BD EUR), многоголосый (HDRezka Studio)Субтитры: Русские, английскиеПродолжительность: 01:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C335E1D5F506EB8832B583EB4ED27A6C2B067A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 844733   (313289) от 27.11.2014
+
+Волшебный футбол / Настольный футбол / Metegol (2013) HDRip (AlexFilm)
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313289.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Амадео, застенчивого мальчика с добрым сердцем, и его друзей — отважных футболистов, с помощью которых Амадео должен вернуть себе честь, достоинство и настоящую любовь. Это фильм о дружбе, верности и страсти, действие которого разворачивается на футбольном поле.Жанр: Компьютерная анимация, приключения, семейный, спортРежиссер: Хуан Хосе КампанеллаПеревод: Профессиональный многоголосый закадровый - AlexFilmОзвучка: Татьяна Манетина, Владимир Курдов, Михаил Суслов, Сергей Пономарёв, Роман Сопко, Константин ПогодаевФормат: AVIПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE60A4F0F952867DFF6539A4720C743A06C4CEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583732   (312877) от 02.12.2012
+
+Суперпес Крипто (9 серий) / Krypto the Superdog (2005) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительный пес Крипто прибывает на Землю, и с помощью своего нового друга — мальчика Кевина, не покладая лап выручает из беды животных и сражается с межгалактическими преступниками.Жанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Скотт ДжералдсПеревод: ДублированныйПродолжительность: 01:49:04 (1 серия - 00:21:18, 8 серий х ~00:11:00)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CEEB297A7F9C00A2F3C9F44D083D13A73784FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 265256   (312809) от 02.12.2010
+
+Гадкий Я / Despicable Me (2010) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гадкий снаружи, но добрый внутри Грю намерен, тем не менее, закрепить за собой статус главного архизлодея в мире, для чего он решает выкрасть Луну при помощи созданной им армии миньонов. Дело осложняют конкуренты, вставляющие высокотехнические палки в колеса, и семейные обстоятельства в виде трех сироток, о которых Грю вынужден заботиться.Жанр: Анимация, Комедия, СемейныйРежиссер: Пьер Соффин, Крис РеноАктеры: Стив Карелл, Джейсон Сигел, Расселл Брэнд, Джули Эндрюс, Уилл Арнетт, Кристен Уиг, Миранда Косгров, Дэна Гайер, Элси Фишер, Пьер СоффинПеревод: ДублированныйЯзык субтитров: Русские, Румынские, АнглийскиеПродолжительность: 01:34:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583779   (312773) от 02.12.2012
+
+Мишка Мохнатик (4 серии из 13) / Mis Kudlatek (1971) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения забавного мохнатого медвежонкаЖанр: ДетскийРежиссер: Владислав НегребецкийПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:37:46 (4 х ~00:09:40)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98B2F11031127463DBFA89562B3172E76C778FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422215   (312736) от 07.11.2020
 
 Кровь Зевса / Blood of Zeus (2020) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) NewStation
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312736.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312538.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312485.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312442.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312126.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311938.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311905.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311680.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311071.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310983.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310981.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310865.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310796.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310498.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310427.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309433.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309402.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309285.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309222.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309154.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309137.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DA0F1E07B9F3F293E4291C7FB7C60DC7F5E4166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 418785   (309128) от 04.12.2011
-
-Ледниковый период: Рождество мамонта / Ice Age: A Mammoth Christmas (2011)  WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Сид случайно разрушает рождественскую скалу, Мэнни говорит ему, что Сид попал в черный список Санты, и что ленивцу придется лететь на северный полюс просить извинения у Санты. На северном полюсе Сид хотел все сделать как лучше, но только усугубил ситуацию . Теперь дело за Мэнни и компанией, только они объединившись сохранят Рождество для всего мира!Жанр: Комедия, мультфильм, семейныйРежиссер: Карен ДишерПерсонажи: Куин Латифа, Дэнис Лири, Джон Легуизамо, Рэй Романо, Джошуа РашПеревод: Многоголосый закадровый (2вида) + одноголосый закадровыйСубтитры: нетПродолжительность: 00:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78ABF2EE24FA56921FEE07834A7CBE92276DCA1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332293   (309106) от 22.10.2019
-
-Тайная жизнь домашних животных 2 / The Secret Life of Pets 2 (2019) DVD9
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс уезжает с хозяйкой, мужем и ребёнком в гости на ранчо. Тем временем, в городе у Снежка и Гиджет свои приключения.Производство: США, Франция, Япония / Universal Pictures, Illumination Entertainment, Chris Meledandri ProductionЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Крис Рено, Джонатан дель ВальАктеры: Пэттон Освальт, Кевин Харт, Харрисон Форд, Эрик Стоунстрит, Дженни Слейт, Тиффани Хэддиш, Лэйк Белл, Дэна Карви, Бобби Мойнахан, Хэннибал БёрессПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, латышские, литовскиеПродолжительность: 01:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F881291393A0EF1A70EED512F314EB01C64D2551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912952   (309001) от 27.11.2015
-
-Монстры на каникулах / Hotel Transylvania (2012) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Граф Дракула для себя и своей любимой дочки построил хорошо укрытый от посторонних глаз отель, куда монстры со всего света приезжают отдохнуть от семейных забот, повседневной суеты и, конечно… людей. Но вездесущие американские туристы проникают и сюда.Производство: США, Columbia Pictures, Sony Pictures Animation, Sony Pictures Imageworks (спецэффекты), Пифагор (дубляж)Жанр: Компьютерная анимация, Фентези, Комедия, СемейныйРежиссер: Генндий ТартаковскийПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8709E53C4197C50E6C415BC3CA1475D102238877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260664   (308956) от 08.11.2018
-
-Пришельцы в доме / Luis and His Friends from Outer Space (2018) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308956.jpg" />
-</div>
-
-
-###  Подробнее
-
-У 12-летнего Луиса нет друзей, а у его отца постоянно не хватает на него времени. Тот страстно увлечен уфологией и даже не догадывается, что те, кого он так жаждет найти, находятся прямо у него перед носом. Луис становится единственным свидетелем аварийной посадки трех чудаковатых инопланетян рядом с их домом. Троица пришельцев быстро находит общий язык с мальчиком. (   Читать дальше...   )Производство: Германия, Люксембург, ДанияЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Кристоф Лауэнштайн, Вольфганг Лауэнштайн, Шон МакКормакАктеры: Каллум Малони, Дермот Магеннис, Йен Коппингер, Пол Тайлак, Люси Кэролан, Эйн Дэйли, Эйлин Митен, Саймон Тоул, Данна Дэвис, Сьюзи Пауэр...Перевод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58B47C4C9545DEAEED7F587FB6F389A0FE9BB4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332459   (308945) от 22.10.2019
-
-Король Лев / The Lion King (2019) BDRip [H.265/720p] [10-bit] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308945.jpg" />
-</div>
-
-
-###  Подробнее
-
-История об отважном львенке по имени Симба. Знакомые с детства герои взрослеют, влюбляются, познают себя и окружающий мир, совершают ошибки и делают правильный выбор.Производство: США / Walt Disney Pictures, Fairview EntertainmentЖанр: Мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Джон ФавроАктеры: Джеймс Эрл Джонс, Дональд Гловер, Чиветел Эджиофор, Джон Оливер, Джон Кани, Элфри Вудард, Джейдон Маккрэри, Шахади Райт Джозеф, Пенни Джонсон, Кигэн-Майкл КиПеревод: Дублированный (iTunes)Субтитры: Русские (Full, SDH), английские (Full)Продолжительность: 01:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD53549A0324E42087EDEB2C656C5D770C3F1CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

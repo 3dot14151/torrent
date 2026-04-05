@@ -1,3 +1,83 @@
+###  Публикация: 1315964   (832603) от 03.05.2020
+
+Охотник на оленей / The Deer Hunter (1978) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>След.
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832603.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о трех американцах русского происхождения — их жизни до, во время и после войны во Вьетнаме.Производство: США / EMI Films, Universal PicturesЖанр: Драма, ВоенныйРежиссер: Майкл ЧиминоАктеры: Роберт Де Ниро, Джон Казале, Джон Сэвидж, Кристофер Уокен, Мэрил Стрип, Джордж Дзундза, Чак Эспегрен, Ширли Столер, Рутаня Олда, Пьер Сегаи, Мади Каплан, Эми Райт, Мэри Энн Хэнел, Ричард КассПеревод: Многоголосый профессиональный, АвторскийСубтитры: Русские, АнглийскиеПродолжительность: 03:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34723988E7861B5ADEFD5BB4F3FAE60F6D09D5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772922   (832572) от 04.04.2014
+
+Король комедии / The King of Comedy (1982) BDRemux [1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неутомимый неудачник Руперт Папкин уверен, что он призван быть гениальным юмористом. Вопреки полному отсутствию таланта, он точно знает, что его ждет немеркнущая слава блистательного шоумена. Нужно лишь один разок выступить перед зрителями — и он станет звездой.
+
+Решив начать свою карьеру с самого верха, Руперт осаждает популярнейшего ведущего «Вечернего шоу» Джерри (   Читать дальше...   )Жанр: Комедия, ДрамаРежиссер: Мартин СкорсезеАктеры: Роберт Де Ниро, Джерри Льюис, Дайэнн Эбботт, Сандра Бернхард, Шелли Хэк, Эд Херлихи, Лу Браун, Лоретта Туппер, Питер Потульски, Винни ГонзалесПеревод: Двуголосый закадровый, Авторский одноголосый /Горчаков/Язык субтитров: Русский, Английский, Испанский, Французкий, ИтальянскийПродолжительность: 01:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA3F6EB55DEE4D276EB79FB4F042061C0B1BB51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772232   (832350) от 04.04.2014
+
+Поруганная честь Катарины Блюм / Die verlorene Ehre der Katharina Blum (1975) BDRip [H.264/720p-LQ] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шлендорф, известный своими блестящими экранизациями, поставил картину вместе со своей женой Маргарет Фон Тротта по одноименному рассказу Генриха Белля, в котором используются реальные факты. Авторам удалось передать настроение латентной истерии, свойственной кажущимся далекими сейчас годам левого экстремизма и охоты на ведьм. Катарина Блум (великолепная роль Винклер), (   Читать дальше...   )Производство: Германия (ФРГ) / Биоскоп Фильм, Paramount-Orion Filmproduktion, Westdeutscher Rundfunk (WDR)Жанр: ДрамаРежиссер: Фолькер Шлендорфф, Маргарете фон ТроттаАктеры: Ангела Винклер, Марио Адорф, Дитер Лазер, Юрген Прохнов, Хайнц Беннент, Ханнелоре Хогер, Рольф Беккер, Вернер Айххорн, Карл Хайнц ФосгерауПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: Немецкий, АнглийскийПродолжительность: 01:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8398C97DA9CA54EEAFFA55F0E01FFAC9E7C31A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499960   (831817) от 12.10.2021
 
 Негодяи / The Spoilers (1942) BDRip [H.264/720p]
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831817.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831757.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831658.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829694.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829691.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829057.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829047.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828992.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828137.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828022.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827901.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827717.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827569.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827555.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827467.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825816.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825731.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825236.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824482.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824362.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824203.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823122.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823046.jpg" />
 </div>
 
 
@@ -596,85 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E0853FCF04AA2B2F7E2B02E2C6422459DDC8A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111996   (822612) от 20.03.2017
-
-Военный фургон / The War Wagon (1967) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Уэйн играет владельца ранчо Тау Джексона, который хочет сеять смерть при попытке взятия бронированного почтового дилижанса принадлежащего местному «барону» среди скотоводов, который украл все его состояние и облил грязью доброе имя.
-Чтобы совершить это ограбление Джексон объединяется в команду со старым актером, полуобразованным индейцем, молодым пьяницей и (   Читать дальше...   )Производство: США / Batjac Productions, Marvin Schwartz Productions Inc., Universal PicturesЖанр: ВестернРежиссер: Берт КеннедиАктеры: Джон Уэйн, Кирк Дуглас, Ховард Кил, Роберт Уокер мл., Кинен Уинн, Брюс Кэбот, Джоэнна Барнс, Валона Ноланд, Брюс Дерн, Джин ЭвансПеревод: Многоголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A39287AB0C6870F3AB4FB940DAA5F6522EC3C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007275   (822586) от 14.04.2016
-
-Крестный отец 3 / The Godfather: Part III (1990) BDRip [H.265/1080p] [Main10]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заключительная часть знаменитой гангстерской эпопеи, в которой продолжается рассказ о делах «семьи» дона Корлеоне. Через двадцать лет после событий, описанных в предыдущей картине, Майкл Корлеоне решает заняться легальным бизнесом. Однако противодействие внутри клана заставляет его вспомнить об испытанных кровавых методах общения с противником, что приводит к трагическому (   Читать дальше...   )Производство: США / Paramount Pictures, Zoetrope StudiosЖанр: Боевик, Драма, Криминал, ТриллерРежиссер: Френсис Форд КопполаАктеры: Аль Пачино, Энди Гарсиа, Талия Шайр, Илай Уоллак, Джо Мантенья, София Коппола, Фрэнк Д’Амброзио, Джордж Хэмилтон, Бриджит Фонда, Раф Валлоне, Донал Доннелли, Ричард Брайт, Хельмут Бергер, Дон НовеллоПеревод: Многоголосый закадровый, профессиональный (Киномания)Язык субтитров: Английский, французский, испанский, русскийПродолжительность: 02:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:211400B7CDB8EF1D7D7FFF60E48D8C4EAA6EBE93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111231   (822479) от 20.03.2017
-
-Три монеты в фонтане / Three Coins in the Fountain (1954) WEB-DL [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три американки работают в Риме. Одна уже давно влюблена в своего босса, сладкоречивого писателя, который в ответ «ни в зуб ногой». Другая, нарушая строгие правила, крутит роман с итальянцем. Третья, новенькая, встречает настоящего принца и буквально теряет голову. Каждая из них надеется отыскать счастье в Риме, они бросают монетки в фонтан Треви, и… как поёт в фильме (   Читать дальше...   )Производство: США, 20th Century Fox Film CorporationЖанр: ДрамаРежиссер: Жан НегулескоАктеры: Клифтон Уэбб, Дороти МакГуайр, Джин Питерс, Луи Журдан, Мэгги МакНамара, Россано Брацци, Ховард Ст. Джон, Кэтрин Гивни, Кэтлин Несбит, Мерри АндерсПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DB61C55A125FEB160CBD302415D132C9325787
 ```
 
 https://mybot314.ru/tekegram_catalog/

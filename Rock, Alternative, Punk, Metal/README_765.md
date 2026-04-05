@@ -1,3 +1,32 @@
+###  Публикация: 1424114   (295928) от 15.11.2020
+
+Darwin - Darwin 2: A Frozen War (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightmare of My Dreams
+02. Future History
+03. Eternal Life
+04. A Frozen War(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA68C450E4E78A5CA4641E60ED578E9E9CE4DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079191   (295725) от 03.12.2016
 
 The Rolling Stones - Blue & Lonesome (2016) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
@@ -6,7 +35,7 @@ The Rolling Stones - Blue & Lonesome (2016) [FLAC|Lossless|image + .cue] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295725.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Black Stone Cherry - The Human Condition (2020) [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295667.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Foreigner - The Best Of Foreigner 4 & More (2014) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295657.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295575.jpg" />
 </div>
 
 
@@ -124,7 +153,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295560.jpg" />
 </div>
 
 
@@ -153,7 +182,7 @@ Fleetwood Mac - Rumours (1977) [FLAC 2.0 24/96|tracks (WEB-DL)]<Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295484.jpg" />
 </div>
 
 
@@ -182,7 +211,7 @@ VA - Jesus Christ Superstar (1970) 2CD, Remaster (De-Noised) SMRP, 2020, Russia 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295449.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295043.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ Electric Light Orchestra - Zoom (2001) /2013, Avalon/ [FLAC|Image+.cue]<Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295018.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ The Smashing Pumpkins - Shiny and Oh So Bright Vol. 1 / LP: No Past. No Future. 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295009.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ VA - Hard Life. Heavy Music. Metallection (3CD) (2001-2004) [MP3|320 кб/с]<Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294927.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ The Smashing Pumpkins - Shiny and Oh So Bright Vol. 1 / LP: No Past. No Future. 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294901.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ The Rolling Stones - Voodoo Lounge Uncut (2018) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294895.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ P.O.D. - Circles (2018) [MP3|320 Kbps] <Alternative Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294891.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Lunatic Soul (Mariusz Duda, ex.Riverside) - 3 Albums (2008 - 2017) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294885.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Santa Cruz - Katharsis (2019) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294871.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Eskimo Callboy - Rehab (2019) Deluxe Edition [MP3|320 Kbps] <Post-Hardcore, Alte
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294868.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Motorhead - Overkill (1979) [FLAC|tracks+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294833.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294831.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Animal ДжаZ - Время любить (2019) [MP3|320 Kbps] <Alternative Rock
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294779.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294773.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294614.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Mark Knopfler - Down the Road Wherever (2018) Deluxe Edition [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294596.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Sam Roberts Band - TerraForm (2016) [MP3|320 Kbps] <Alternative, Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294372.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Naberus - The Lost Reveries (2016) [MP3|320 Kbps] <Melodic Death, Thrash, Groove
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294277.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Naberus - The Lost Reveries (2016) [MP3|320 Kbps] <Melodic Death, Thrash, Groove
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6F320C9BBCE9E1FF3D9BD859F144C9BCFA7D248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079560   (294188) от 04.12.2016
-
-Hardbone - Tailor-Made (2016) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Man's Land (03:07)
-02. It's A Man Thing (04:33)
-03. Tailor-Made Woman (04:49)
-04. Blood From Hell (03:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC514C2973DFCF8BA75C5CC3BB156F2AE7CA4244
 ```
 
 https://mybot314.ru/tekegram_catalog/

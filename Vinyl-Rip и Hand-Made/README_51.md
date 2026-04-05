@@ -1,3 +1,32 @@
+###  Публикация: 1628375   (199452) от 23.04.2023
+
+Paul Mauriat/Оркестр Поля Мориа - Музыка из кинофильмов (1974) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Говорите тише (Н. Рота)
+02 Пассажир под дождем (Ф. Лэй)
+03 Мужчина и женщина (Ф. Лэй)
+04 Мелодия (М. Жарр)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96368F347797398978C270F1DF0D328A7FA1B988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632482   (198677) от 10.05.2023
 
 Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock>
@@ -6,7 +35,7 @@ Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198677.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Bing Crosby - Бинг Кросби (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198612.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198325.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ James Last - The James Last Album (1971) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198016.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Chris Rea - Легенды зарубежного рока (2000) [FLAC 2.0|48/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197851.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196226.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194449.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Dee Snider - Studio Albums & Projects (11 releases) (1992-2021) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193512.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193427.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Amorphis - Дискография (26 releases) (1991-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193411.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193257.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193218.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193169.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193142.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193139.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193138.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193101.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193069.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Tankard - Studio Albums (19 releases) (1986 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192877.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Lo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192771.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192745.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Hellyeah - Studio Albums (6 releases) (2007 - 2019) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192610.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192447.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лице
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192270.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Ultimate Divas 1940 - 2004, feat. B. Holiday • E. Fitzgerald • S. Vaugh
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192096.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Blue Moon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53055E9F1D693BEBDE63303FB266FADFAEB68DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151821   (191974) от 02.11.2022
-
-Ronnie Montrose - Territory (1986) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz-Rock, Ambient, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191974.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Catscan
-A2 I'm Gonna Be Strong
-A3 Love You To
-A4 Odd Man Out(   Читать дальше...   )Жанр: Jazz-Rock, Ambient, ExperimentalПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C2ECB1A4E68A9AA920216258EDA61DFC5983EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

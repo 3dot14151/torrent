@@ -1,3 +1,116 @@
+###  Публикация: 1296872   (608402) от 19.04.2019
+
+VA - Kiez Beats: Synthwave, Vol. 4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LGHTNNG - Desert King (3:58)
+02. Neon Nox - Checkpoint (feat. Rebecka Stragefors) (5:25)
+03. Sellorekt / LA Dreams - Remnants (3:51)
+04. NINA - Beyond Memory (3:35)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33AAE3A10DB2F8AA795C9FBE39421338824B1C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546392   (607994) от 23.04.2022
+
+ScAnDroid Experiment's - Neosynthetic (2022) авторская раздача [MP3|320 Kbps] <Experimental, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neosynthetic (Intro)
+02. Sweet Chase (Original Mix)
+03. Retroholic (Original Mix)
+04. Easy Winter Walk ... Without Snow (Original Mix)(   Читать дальше...   )Жанр: Experimental, Synthwave, RetrowaveПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F2782D98E3162565AEC442B959A4FD3D23C4B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546346   (607563) от 23.04.2022
+
+Ic3peak - Discography 19 Releases (2014-2022) [MP3|320 Kbps] <Coldwave, Darkwave, Witch House>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Червь _ Worm (Single) [00:02:54]Жанр: Coldwave, Darkwave, Witch HouseПродолжительность: 19CD, 05:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3825AA794BCFF75E869BD948D26E3C84C00214AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147632   (607419) от 03.07.2017
+
+Goldie - The Journey Man (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Experimental>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horizons (ft. Terri Walker and Swindle)(07:09)
+ 02. Prism (06:07)
+ 03. Mountains (05:14)
+ 04. Castaway (04:30)(   Читать дальше...   )Жанр: Drum & Bass, ExperimentalПродолжительность: 03:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B025477589760E4F02E4887919F9FCC00360B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525595   (607162) от 21.07.2012
 
 VA - Razormaid! 7th Anniversary Box Set (1992) 7CD Limited Edition[FLAC|Lossless]<Synth-pop, New Beat, Disco, Italo-Disco>
@@ -6,7 +119,7 @@ VA - Razormaid! 7th Anniversary Box Set (1992) 7CD Limited Edition[FLAC|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_607162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607162.jpg" />
 </div>
 
 
@@ -41,7 +154,7 @@ VA - Secret Weapons (2015) [MP3|320 кб/с]<Techno, Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607146.jpg" />
 </div>
 
 
@@ -70,7 +183,7 @@ VA - Clubbers Culture (Classified Trance Tracks) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607126.jpg" />
 </div>
 
 
@@ -99,7 +212,7 @@ VA - Silent Shore Selections Top 20: Spring (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607124.jpg" />
 </div>
 
 
@@ -128,7 +241,7 @@ VA - The Best Of Critical State 001 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607120.jpg" />
 </div>
 
 
@@ -157,7 +270,7 @@ VA - Blue Marlin Ibiza Vol. 09 (Mixed by UNER & Dosem) (2015) [FLAC|Lossless]<Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607090.jpg" />
 </div>
 
 
@@ -186,7 +299,7 @@ VA - Suanda Music - World Cup Of Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607053.jpg" />
 </div>
 
 
@@ -215,7 +328,7 @@ VA - Technique Summer (2018) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606960.jpg" />
 </div>
 
 
@@ -244,7 +357,7 @@ Ian Hawgood - Impermanence (2019) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606926.jpg" />
 </div>
 
 
@@ -273,7 +386,7 @@ VA - Paris Lounge Night (2016) [FLAC|Lossless|tracks] <Еаsу-Lіstеnіng>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606825.jpg" />
 </div>
 
 
@@ -302,7 +415,7 @@ Jay-Jay Johanson - Tattoo (1998) [FLAC|Lossless|tracks + .cue] <Electro, Trip Ho
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606805.jpg" />
 </div>
 
 
@@ -331,7 +444,7 @@ Japan - Exorcising Ghosts (1984) Anthology [FLAC|Lossless|tracks + .cue] <Synth-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606795.jpg" />
 </div>
 
 
@@ -360,7 +473,7 @@ Nova - Passages (2014) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybien
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606791.jpg" />
 </div>
 
 
@@ -389,7 +502,7 @@ Scann-Tec - Morpheus | live Nuit Hypnotique #4 (2015) Ultimae Records [FLAC 2.0|
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606788.jpg" />
 </div>
 
 
@@ -418,7 +531,7 @@ Mollono.Bass & Ava Asante - Birds Flying High, Pt.1 (2016) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606730.jpg" />
 </div>
 
 
@@ -447,7 +560,7 @@ Mizoo - Greenosophy Chapter II (2017) Ultimae Records [FLAC 2.0|44.1/24|tracks|W
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606685.jpg" />
 </div>
 
 
@@ -476,7 +589,7 @@ Fishimself - Ambrosia (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <P
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606684.jpg" />
 </div>
 
 
@@ -505,7 +618,7 @@ Mahiane - Oxycanta III (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606681.jpg" />
 </div>
 
 
@@ -534,7 +647,7 @@ Solar Fields - Origin # 02 (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-D
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606668.jpg" />
 </div>
 
 
@@ -563,7 +676,7 @@ Kompromat - Traum und Existenz (2019) Clivage Music [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606417.jpg" />
 </div>
 
 
@@ -592,7 +705,7 @@ VA - Sudbeat Showcrates 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605746.jpg" />
 </div>
 
 
@@ -621,7 +734,7 @@ VA - Psychedelic Experiences of the Free Spirits of the Earth (2017) [MP3|320 Kb
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605737.jpg" />
 </div>
 
 
@@ -635,140 +748,6 @@ VA - Psychedelic Experiences of the Free Spirits of the Earth (2017) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E9B91FD58105A93202C54558EE06EDBE2DC2C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525707   (605525) от 22.07.2012
-
-VA - Ministry Of Sound - Chilled II 1991-2009 (2009) 3CD [FLAC|Lossless]<Deep House, Downtempo, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_605525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ожидаемое продолжение сборника Chilled I 2008 года от именитой студии Ministry of Sound представляет собой фантастический и действительно всесторонний раунд классических вещей Chillout`а от Air, Groove Armada, Coldplay, Zero 7, Everything But The Girl, Daft Punk, Leftfield, Primal Scream, Unkle и многих других. Дополняют общую картину великолепные смеси дип-хауса Эрика Прайдза "Pjanoo" и Кида Коуди "Day And Nite".01. 808 State - Pacific State :: 03:45
-02. The Beloved - Sun Rising :: 04:15
-03. Leftfield - Original :: 04:03
-04. Primal Scream & Denise Johnson - Don't Fight It, Feel It :: 06:44
-05. Sneaker Pimps - 6 Underground :: 03:20
-06. Groove Armada - At The River :: 04:07
-07. St Germain - Dub Experience II :: 03:43
-08. A Man Called Adam - Barefoot In The Head :: 03:58
-09. Moloko - Sing It Back :: 03:06
-10. Kinobe - Slip Into Something More Comfortable :: 04:41(   Читать дальше...   )Жанр: Deep House, Downtempo, AmbientФормат: 3xCD, Compilation, MixedПродолжительность: 03:55:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525771   (605523) от 22.07.2012
-
-Goldfish - Caught In The Loop (2005) [FLAC|Lossless]<Afrobeat, Future Jazz, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_605523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два джазовых виртуоза из Южной Африки познакомились, изучая музыку в университете, и организовали электронный дуэт, играющий только вживую. Первую пластинку они записали самостоятельно, используя контрабас, саксофон и несколько синтезаторов. Этот андеграундный альбом, Caught in the loop, стал 1 в их родной стране и положил начало их звездной карьере и культовому статусу.01. The Real Deal :: 04:49
-02. Times May Change You :: 04:30
-03. Love And Hate :: 04:02
-04. Mbira Beat :: 05:02
-05. All Night :: 03:45
-06. Eqyptology :: 04:48
-07. Wait A Minute :: 05:23
-08. The Four Forty Five Blues :: 04:35
-09. Last Tango In Paradise :: 04:00
-10. Dream :: 04:16(   Читать дальше...   )Жанр: Afrobeat, Future Jazz, Deep HouseФормат: CD, AlbumПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231528   (605242) от 18.06.2018
-
-Pom Pom - 35 (2018) [FLAC|Lossless|tracks|Vinyl] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled A1 (04:55)
- 02. Untitled A2 (06:19)
- 03. Untitled B1 (05:21)
- 04. Untitled B2 (06:36)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FB64D39AF17189052BE1DBEA2C18F4177B7792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525946   (605222) от 22.07.2012
-
-VA - Ministry Of Sound - Addicted To Bass (2012) 3CD [FLAC|Lossless]<Progressive House, Dubstep, Tech House, Breakbeat, Hip-House, Electro, Drum n Bass>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_605222.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ministry of Sound» - название одного из крупнейших лондонских ночных клубов, а также связанной с ним звукозаписывающей компании. Девиз компании - «To create the moments people live for» («Создавать моменты, ради которых живут люди»). Addicted To Bass - мощнейший сборник различной басс-музыки в трех частях. В состав сборника вошли хиты таких музыкальных стилей, как: дабстеп, драм энд бейс, електро хаус. Addicted To Bass - рецепт заряда отличным настроением!01. Dj Fresh Feat. Rita Ora - Hot Right Now  :: 02:34
-02. Utah Saints - What Can You Do For Me (Drumsound & Bassline Smith Original Mix) :: 02:44
-03. Example - Midnight Run (Flux Pavilion Mix) :: 04:04
-04. Calvin Harris - Feel So Close (Nero Remix) :: 04:40
-05. Foreign Beggars Feat. Skrillex - Still Getting It :: 03:12
-06. Joker Feat. William Cartright - On My Mind :: 03:30
-07. Porter Robinson - Unison (Knife Party Remix) :: 04:13
-08. High Contrast Feat. Tiesto & Underworld - The First Note Is Silent :: 04:04
-09. Camo & Krooked Feat. Ayah Marar - Cross The Line :: 03:41
-10. Friction Feat. McLean - Someone :: 03:41(   Читать дальше...   )Жанр: Progressive House, Dubstep, Tech House, Breakbeat, Hip-House, Electro, Drum n BassФормат: 3xCD, Compilation, MixedПродолжительность: 03:52:34
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

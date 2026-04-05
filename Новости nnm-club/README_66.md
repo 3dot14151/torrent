@@ -1,3 +1,29 @@
+###  Публикация: 1502454   (826109) от 15.10.2021
+
+Victoria 5.37 Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатная программа "Victoria" предназначена для тестирования, измерения характеристик, сервисного обслуживания накопителей HDD, SSD, Flash с интерфейсами IDE/SATA, USB, SCSI, и др., в рамках стандарта по управлениюЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D474C4CE3B241801A5421B0F1A064605FB9354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115458   (825682) от 18.03.2017
 
 Набор обновлений UpdatePack7R2 17.3.15 [Multi/Ru]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825682.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Proteus 8 Professional 8.6 SP2 Build 23525 RePack [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825661.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825657.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ PowerTube 4.5.1 [Ru/En] (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825622.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Tanki X (2016) [Ru] (29.12.17) License
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825515.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825510.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824893.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Nexus: The Jupiter Incident HD (2016) [Ru/Multi] (1.02) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824506.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824505.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Kingdom (2015) [En/Multi] (1.2.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824503.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824484.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824096.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823955.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_823941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_823941.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Ultimate Adobe Photoshop Plug-ins Bundle 2015.03 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823933.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Clover 3.5.4.20416 beta [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823840.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4498.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823812.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823731.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823131.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823130.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823112.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822572.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822465.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822443.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822231.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:429D4983D740C6F3A34ACB7D5DDA93FFA3162281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116091   (822144) от 20.03.2017
-
-Создан новый тип памяти, способной обеспечить сохранность данных на протяжении тысячи лет
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_822144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследовательская группа из университета Кобэ (Kobe University), Япония, разработала технологию, позволяющую создавать устройства хранения информации, способные обеспечить сохранность записанных в них данных на протяжении одной тысячи лет. Кроме этого, чипы такой памяти имеют показатель плотности записи информации, сопоставимые с аналогичным показателем современных жестких дисков.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

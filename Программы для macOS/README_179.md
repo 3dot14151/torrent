@@ -1,3 +1,57 @@
+###  Публикация: 1701263   (116525) от 20.02.2024
+
+Stats 2.10.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 18.02.2024Разработчик: © 2023 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A080C682672117C9186273E5ADB8C1F44117D83B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701310   (116523) от 20.02.2024
+
+PhotoMill X 2.5.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116523.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoMill X – групповая обработка фотографий.
+PhotoMill X (aka Reformator) помогает Вам преобразовать большую часть изображений в самые популярные форматы изображения, дать Вашим файлам значащие имена, сделать watermark с текстом и изображением, изменить цвет фотографии (яркость/насыщенность/и т.д.)., изменить параметры геометрии (масштаб/кадрирование/и т.д.).
+Удалите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.02.2024Разработчик: © 2024 Overmacs TeamПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA03F290E1C62AD36E60292BE640C8AEC199F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701385   (116511) от 20.02.2024
 
 JixiPix Artista Impresso Pro 1.8.26 [En]
@@ -6,7 +60,7 @@ JixiPix Artista Impresso Pro 1.8.26 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116511.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Markdown + 3.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116503.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Sound Siphon 3.6.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116488.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Iris 1.6.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116476.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ Music Tag Editor Pro 7.5.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116385.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ Path Finder 2168 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116376.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ PhotoSweeper X 4.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116353.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ Texifier 1.9.25 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116329.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ DirEqual 5.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116328.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ Aiseesoft AnyCoord for Mac 1.0.36 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116193.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ Final Draft 13 v.13.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116188.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ Acorn 7 v.7.4.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116179.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ AnyTrans for iOS 8.9.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116072.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ Master of Typing 3 - Practice 15.14.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116010.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ Iridient Developer for Mac 4.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115989.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ TinkerTool System 7 v.7.98 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115988.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ OmniZip - Universal Extractor Pro for Mac 2.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115986.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ Aiseesoft FoneEraser 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115977.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ DRmare Tidal Music Converter 2.14.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114518.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ Ulysses 33.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114512.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ ProPresenter 7.16.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114489.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ GrandTotal 8.2.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114483.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ CopyQ for Mac 7.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114474.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ iShowU Instant (Advanced) 1.4.19 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114473.jpg" />
 </div>
 
 
@@ -630,61 +684,6 @@ iShowU Studio предоставляет эффективные инструме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC4C94E20F69A44CA636EFC3746780D609F7D322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704224   (114471) от 03.03.2024
-
-ServerCat for Mac 1.8.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114471.jpg" />
-</div>
-
-
-###  Подробнее
-
-ServerCat — это приложение Docker Management и SSH Terminal.
-ServerCat позволяет легко отслеживать состояние вашего сервера на вашем мобильном телефоне. Он показывает подробное состояние работы ваших серверов и докер-контейнеров.
-Требуется только учетная запись SSH без каких-либо других зависимостей. Он не будет устанавливать какие-либо инструменты в вашу систему.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2024Разработчик: © 2024 BayeПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Упрощенный китайский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD7B15882B65CFBFBF735E736B03B38714D0459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704201   (114469) от 03.03.2024
-
-iShowU Studio 2 v.2.3.14 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный редактор видео поможет вам записывать видео и аудио контент, а затем обработать результаты, сделать свои собственные аннотации, и многое другое.
-iShowU Studio предоставляет эффективные инструменты для редактирования видео в стильной, организованной среде, и направлена на оказание помощи для создания качественных проектов, не тратя слишком много времени. iShowU (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.03.2024Разработчик: shinywhitebox ltdПоддерживаемая ОС: macOS 10.14.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0F1818516272527F2B6EA253A3103C246FAC50
 ```
 
 https://mybot314.ru/tekegram_catalog/

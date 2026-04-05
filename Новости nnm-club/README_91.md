@@ -1,3 +1,29 @@
+###  Публикация: 1280939   (756571) от 05.02.2019
+
+NVIDIA GeForce Desktop 418.81 WHQL + For Notebooks + DCH [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756571.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4301CBFD60C7011C26036D4E727BE356AAB2CBF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280815   (756435) от 05.02.2019
 
 Обойти блокировку Android-смартфона можно звонком по Skype
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756435.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Devil May Cry HD Collection (2018) [Ru/Multi] (1.0) Rip R.G. Revenants
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756407.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756130.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756126.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756010.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Adobe Muse CC 2018 1.0.266 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755895.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755894.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ NetSpeedMonitor 2.5.4.0 [Мультиязычный (русский присут
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755549.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755548.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755328.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ RusTV Player 3.2 Final Portable by Valx [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754990.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ SpyHunter 4.22.8.4668 RePack (& Portable) by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754989.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754977.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754909.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_754903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754903.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754685.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Mindroid Pro v6.4 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754507.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Dead Cells (2018) [Ru/Multi] (27/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754504.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1/upd7) 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754151.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753823.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_753682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753682.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753205.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4366.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753199.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753194.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Nvidia DriverPack v.451.67 RePack by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753177.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Nvidia DriverPack - это единый пакет со стандартными
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04CB9F88298C9BE3BEEAEFD4FC8136A279FB3C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307096   (753165) от 11.07.2020
-
-Cooking Simulator (2019) [Ru/Multi] (3.3.0/dlc) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы – повар, который работает в личном передвижном кафе и путешествует по всему миру на нем. Постепенно к вам заглядывают посетители и желают опробовать вашу еду. Вы должны удовлетворить их требования и приготовить изысканные блюда. Сама же готовка будет проходить все этапы, начиная с приготовления ингредиентов и нарезки, заканчивая тщательным поджариванием и смешиванием. (   Читать дальше...   )Тип издания: RepackРазработчик: Big Cheese StudioЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2720EC7DEDA9FE2DB60446E9CF90DE5FD0ED17
 ```
 
 https://mybot314.ru/tekegram_catalog/

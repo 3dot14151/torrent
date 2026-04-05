@@ -1,3 +1,32 @@
+###  Публикация: 1631064   (241160) от 04.05.2023
+
+Daddy Cruel - Let's They Rot (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mars Kelamin (03:54)
+02 - Hell What a Stench! (03:50)
+03 - Spinning up She's Head (04:03)
+04 - Damned! (03:20)(   Читать дальше...   )Жанр: Death 'n' RollПродолжительность: 00:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:103304B0D89E1A48942558E436BDA4E071A231A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619533   (241140) от 17.03.2023
 
 Kamelot - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
@@ -6,7 +35,7 @@ Kamelot - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241140.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Aura of Birth - Immersive (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241127.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Darkthrone - Goatlord (Original) (2023) [FLAC|Lossless|WEB-DL|tracks] <Death met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241122.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Hulkoff - Pansarfolk (2020) 2xCD [FLAC|Lossless|image + .cue] <Folk Metal, Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241118.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The William Loveday Intention - Early Demos, Vol. 2 (The Devil and God Entwined)
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241104.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Dominoe - The Lost Radio Show (2018) [FLAC|Lossless|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241095.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Decemberance - Implosions (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241093.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Dawn Ray'd - To Know the Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241086.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ VA - The Rock: The Ultimate Collection (2011) Box Set, 3CD [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241085.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Dead Chasm - Sublimis Ignotum Omni (2023) [FLAC|Lossless|WEB-DL|tracks] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241079.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Treat - The Endgame (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241074.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Decimate Our Kind - Hogs in Badges (2023) [FLAC|Lossless|WEB-DL|tracks] <Experim
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241072.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ SUPERтемп - От звонка до звонка (2023) [FLAC|Lossless|WEB-DL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241068.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Thunder - Dopamine (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241065.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Enforcer - Nostalgia (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241063.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Zadra - Guiding Star (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241060.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Decipher - Arcane Paths to Resurrection (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241059.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241055.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Haunt - Golden Arm (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241051.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Necronomicon - Constant To Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241038.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ VA - 70s Lost & Found (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241036.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241035.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Savage Grace - Sign Of The Cross (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241029.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ VA - Rock Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241025.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Unbeing - Delta (2020) [MP3|320 Kbps] <Progressive Metal, Instrumental Music>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241022.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Unbeing - Delta (2020) [MP3|320 Kbps] <Progressive Metal, Instrumental Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FF9C5AA8145E1A4CE34CE895AEB29643C04F249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548036   (241016) от 02.05.2022
-
-Crashdiet - Automaton (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Automaton [00:00:39]
-02 - Together Whatever [00:03:50]
-03 - Shine On [00:03:39]
-04 - No Man's Land [00:03:54](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0E7C0F98471A80A9EDE2A1116A7CFFEC721FD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

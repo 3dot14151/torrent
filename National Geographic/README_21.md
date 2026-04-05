@@ -6,7 +6,7 @@ NG: Миссия Плутон (Встреча с Плутоном) / Mission Plu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585749.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580873.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578795.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Пир драконов / Dragons Feast (Into the Dragon's Lair) (2012) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578058.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Кошачья душа / Soul of the Cat (2017) HDTVRip [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577928.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Дикая природа Индонезии / Wild Indonesia (2014) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577867.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Хиросима: На следующий день / Hiroshima: The Next Dey
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577835.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577517.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW: Птичья популяция / Bird Nation (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576000.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NGW: Хищник в раю. Прибрежные убийцы / Predator in Par
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575995.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NGW. Королевство обезьян: Брат против брата / K
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575987.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NGW: По следам мифических чудовищ. Монгольски
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575784.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575191.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575186.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG: Осушить океан: затонувший город пиратов / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574057.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NG: Восхождение чёрного волка / The Rise of black Wolf (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572596.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG: Дикая природа Таиланда / Wild Thailand (2013) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572375.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571685.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NGW: Слон: Король Калахари / Elephant. King of the Kalahari (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570902.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570759.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NGW: Прекрасная Америка. На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570631.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NG: Последние животные / The Last Animals (2017) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570507.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NG:  Дорога в ад / Descent into Hell (2002) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568680.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NG.Запреты: Соединённые Штаты алкоголя / NG.Taboo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568675.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567025.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ NGW: Хищник в раю. Битва в джунглях / Predator in Paradi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566993.jpg" />
 </div>
 
 

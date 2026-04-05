@@ -1,3 +1,61 @@
+###  Публикация: 1393227   (768428) от 29.06.2020
+
+VA - Open Fields (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768428.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. GMO - Be Yourself (6:47)
+2. Tranonica; Fluxsense - Hypnotica (8:01)
+3. Sine - Entrance (5:26)
+4. Martin Nonstatic - Orcinus Orca (7:17)(   Читать дальше...   )Жанр: Psychill, Psybient, DowntempoПродолжительность: 57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919E1D63C62AEE40ED994C7C465A52DE5E22E683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393219   (768354) от 29.06.2020
+
+VA - Voyager: Third Plateau (2020) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HelixNebula - Over The City Of The Future (10:13)
+02. Artifact303 - Consequences (HelixNebula Remix) (09:56)
+03. Celestial Intelligence - Constant Motion (Median Project Remix) (09:21)
+04. Median Project - Flights in Dream and Reality (08:10)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9384A02BCE4B3816325B8C8801B894F4EBBFF07D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393214   (768293) от 29.06.2020
 
 The Flying Mars - Cosmochemistry (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Downtempo>
@@ -6,7 +64,7 @@ The Flying Mars - Cosmochemistry (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768293.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Aegean Chill (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768203.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Global DJ Broadcast: Top 20 March (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768200.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - High Class Fitness Session (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768193.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Funky Disco House Grooves Vol.09 (2018) [MP3|320 Kbps] <House, Indie-Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768186.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Black Hole Trance Music 03 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768184.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Wake Your Mind Sessions 003 (Mixed by Cosmic Gate) (2018) [MP3|320 Kbps] <P
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768183.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Dense - Bellwether (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psyb
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768166.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Trance Mission (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768110.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Unique Sense In Miami (Mixed by Abstract Vision) (2017) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768106.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Sirup Deep Anthems Mykonos (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768103.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Dense - Tide Forger (2017) [MP3|320 Kbps] <Ambient, Downtempo, Psychill>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768094.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768093.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Special Sport Songs 7 (2017) [MP3|320 Kbps] <House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768068.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Spring Lounge 2017: Chill Sounds Like Sunshine (Mixed by DJ Maretimo) (2017
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768066.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Afterlife - Reimagine (2017) [MP3|320 Kbps] <Electronic, Ambient, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768063.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - 80s Comeback Hits Remixed & Reloaded (2017) [MP3|320 Kbps] <Funky, Club Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767928.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Experimenta (1994) A13 [FLAC|Lossless|tracks+.cue] <Electro, IDM, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767857.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Bruno Sanfilippo - Pianette (2019) ad21 [FLAC|Lossless|WEB-DL|tracks] <Modern Cl
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767844.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Stars As Eyes - Loud New Shit (2003) [FLAC|Lossless|tracks + .cue] <Leftfield, A
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767840.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Sylver - Turn The Tide (2000) Maxi Single [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767839.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Alcove - Universal Implication (1994) Visible Records [FLAC|Lossless|tracks+.cue
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767735.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Giorgos Zaras - 2 Albums (2013, 2017) [MP3|320 Kbps] <Electronic, New-Age, Ambie
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767730.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Sport Music 2020 [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767689.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Sport Music 2020 [MP3|320 Kbps] <House, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49ACA535FEB914FC59D6E481229F0B0A28D1620B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278803   (767678) от 27.01.2019
-
-Royal Gigolos - California Dreamin' (2004) [FLAC|Lossless|tracks + .cue] <House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Dreamin' (Tek-House Single) (3:34)
-02. California Dreamin' (Clubhouse Single) (3:29)
-03. California Dreamin' (Tek-House Extended) (4:46)
-04. California Dreamin' (Clubhouse Extended) (5:01)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 00: 21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F2FD11F3BB39B059D777D8431E51AFC5A633EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393443   (767646) от 30.06.2020
-
-VA - Balkan Connection Summer 2020 (2020) [MP3|320 Kbps] <Progressive-House, Deep-House, Melodic-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volkan Erman & Ugur Pato - Memories (Rick Pier O'Neil & Anthony G Remix) 6:58
-02. GMJ - Oranai (DJ San Remix) 7:05
-03. B Selekt - Raum (Original Mix) 9:17
-04. Mangata & Gabriel Filip - Elicit Spirit (Fabri Lopez Remix) 8:44(   Читать дальше...   )Жанр: Progressive-House, Deep-House, Melodic-HouseПродолжительность: 09:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7D174042CCF55C99DFA3A25DF28A26670C8B9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

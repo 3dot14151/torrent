@@ -1,3 +1,32 @@
+###  Публикация: 1253060   (385438) от 08.10.2018
+
+Roger Waters - Pros & Cons Of New York - The Classic 1985 Broadcast (2017) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Machine 8:30
+02. Set The Controls For The Heart Of The Sun 9:55
+03. Money 8:10
+04. If 4:01(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 02:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296AD4ADC99FF1D0DBD8340CA24D4F868819E338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174566   (385426) от 15.10.2017
 
 Robin Beck - Love Is Coming (2017) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -6,7 +35,7 @@ Robin Beck - Love Is Coming (2017) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385426.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Five Finger Death Punch - A Decade Of Destruction Vol. 2 (2020) Compilation [MP3
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385392.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Royal Philharmonic Orchestra - Plays Hits Of Pink Floyd (1994) [WavPack|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385382.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) Super Deluxe Edition,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385259.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Pink Floyd - Meddle: The High Resolution Remasters (1971) Remastered, 2018, The 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385251.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Woslom - A Near Life Experience (2016) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385232.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Livores Mortis - Vivere Militare Est (1998) [FLAC|Lossless|image + .cue] <Atmosp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385208.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385194.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385127.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Sven Gali - Sven Gali (1993) Japan [APE|Lossless|image + .cue] <Hard Rock, Glam>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385118.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Stan Meissner - Dangerous Games (1984) [APE|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385115.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Otto Dix - Левиафан (2017) [MP3|320 Kbps] <Darkwave>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385068.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Slash & Myles Kennedy And The Conspirators - Living The Dream Tour (2019) Live [
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384988.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384980.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Lumen - Тёмные ночи. Бэтмен. Металл. (2019) [MP3|320 Kbps]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384975.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Robert Plant - Carry Fire (2017) [FLAC|Lossless|tracks + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384950.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Once Human - The Life I Remember (2015) [FLAC|Lossless|image + .cue] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384915.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ The Jimi Hendrix Experience - 4 Releases (1967-1968) Japanese and USA Remasters 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384851.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ The Black Sorrows - Faithful Satellite (2016) [FLAC|Lossless|tracks] <Roots Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384773.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Amaranthe - Maximalism (2016) Japanese Edition [FLAC|Lossless|image+.cue]<Modern
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384359.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ LEAFDALE - Kentucky, USA (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383923.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Recrucide - Terahate (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383922.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Born Divided - Impending Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <MDM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383920.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Casus Belli - Ad Calendas Graecas (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383916.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383914.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7AA38833F8164BEBBF9034F65B93659DF7B2823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574626   (383913) от 06.09.2022
-
-SkiZma - Unfairytales (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heads of Tales
-02 - Slot Machine
-03 - Anomalines
-04 - Division(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B32559AF0C53F7451FFC6115DBA9B2C9B36BF67
 ```
 
 https://mybot314.ru/tekegram_catalog/

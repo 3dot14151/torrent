@@ -1,3 +1,32 @@
+###  Публикация: 68036   (276350) от 26.11.2018
+
+Billy Joel - River Of Dreams (1993) [APE|Lossless] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Man's Land [4:48]
+02. The Great Wall Of China [5:47]
+03. Blonde Over Blue [4:55]
+04. A Minor Variation [5:36](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F704686D923032ECEB80255364164F1749BC4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337085   (276217) от 09.11.2019
 
 Pretty Maids - Undress Your Madness (2019) [MP3|320 Kbps] <Melodic Heavy Metal, Hard Rock>
@@ -6,7 +35,7 @@ Pretty Maids - Undress Your Madness (2019) [MP3|320 Kbps] <Melodic Heavy Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276217.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Dark Element - Songs the Night Sings (2019) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276212.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Jinjer - Macro (2019) [FLAC|Lossless|tracks + .cue] <Metalcore, Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276174.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - XXXL 10-Рок (2003) [FLAC|Lossless|image + .cue]<Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276144.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276128.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276119.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Zucchero - D.O.C. (2019) [MP3|320 Kbps] <Pop, Rock, Latin>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276111.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ John Fogerty - 50 Year Trip Live at Red Rocks (2019) [MP3|320 Kbps] <Classic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276092.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Aracner - Nación Tierra (2016) [MP3|320 Kbps] <Progressive, Thrash Metal, Melod
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276020.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Niva - Atmospherical (2016) Japanese Edition [MP3|320 Kbps] <Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275919.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Trey Gunn(King Crimson) - Raw Power (1999) [FLAC|Lossless|image + .cue] <Avant-G
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275918.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275831.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Distemper - Мир, разделённый пополам (2017) [MP3|320 Kbps] 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275824.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Snakes in Paradise - 6 альбомов (1994-2002) [MP3|320 кб/с]<Melodic Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275786.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ U2 - Songs Of Experience (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275720.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275647.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ The Rolling Stones - On Air (2017) Deluxe Edition [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275640.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ The Hatters - Forever Young Forever Drunk (2017) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275527.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Sting - Greatest Hits (2017) 2CD [MP3|320 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275380.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Rush - Sectors (1974-1989) 15CDs Box Set, remastered /2011, Anthem/ [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275288.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275222.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Blodulv - Wehrkraft (2009) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275076.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Blodulv - Diatribe (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275075.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Blodulv - Blodulv (2003) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275074.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Blodulv - III - Burial (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275027.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Blodulv - III - Burial (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C34FC1C21AFEFCA23A094D1855649F7FC8D7554A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188421   (275025) от 02.12.2017
-
-Thormenthor - Abstract Divinity (1994) [APE|Lossless|image + .cue] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstract divinity
-02. The proportional dream
-03. Encircled by aura sphere
-04. Nothing expanded(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC95211B58C382D9FA7EBED4479CAF97E7573F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

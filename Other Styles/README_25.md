@@ -1,3 +1,61 @@
+###  Публикация: 1099659   (903399) от 02.02.2017
+
+Andreas - Music for Pregnant Women (2013) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music for Pregnant Women (16:00)
+02. Touch of Magic (05:46)
+03. Bluebells and Angels (05:11)
+04. Sanctify (06:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D713BA18DF55B6B4068E3FAD8F6A2C53AE67BC46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099606   (903376) от 02.02.2017
+
+Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <New Age, World, Aboriginal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  She Is Untouchable  (06:37) 
+02|  The Journey  (05:38) 
+03|  Gift from the Spirits  (07:01) 
+04|  Woodpecker Dance  (05:42) (   Читать дальше...   )Жанр: New Age, World, AboriginalПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0AF4D0AF1DADFF081F2467EE98C6FD1555782E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099714   (903278) от 02.02.2017
 
 Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
@@ -6,7 +64,7 @@ Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903278.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Paul Sills - Electric Storm (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903264.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Impressions Of Native America (2001) [MP3|320 кб/с] <Native american, Et
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902692.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Romantic Collection - Aria & Mystique (2000) 2CD [FLAC|Lossless|image + .cu
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902336.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Ethnic Music...indians, Dreams, Visions (2012) 2CD [MP3|320 Kbps] <Native A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901708.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Jamie McMenamy - Oceanlands (2017) [MP3|320 Kbps] <Ambient, Downtempo, Relaxatio
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901581.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Acoustic R&B Chill Playlist. Eighteen Smooth and Chilled Tracks (2017) [MP3
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901482.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Wychazel - In Search of Lemuria (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901397.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Ешь богатых / Eat the Rich (1987) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901369.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Vicente Amigo - Apasionadas Cuerdas del Alma (2015) [FLAC|Lossless|image + .cue]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901314.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ John Carpenter - Lost Themes (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<Soundtrack, 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901039.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Ryuichi Sakamoto, Alva Noto & Bryce Dessner - The Revenant / Выживший (2
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900906.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Klaus Back & Tini Beier - Enigma Of Faith (1995) [MP3|320 Kbps] <New Age, Enigma
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899532.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899486.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Spirit Of Africa 2 - The Unforgettable Musical Journey Continues (2008) [MP3|320
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899214.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Spirit Of Africa - Sacred Verses And Tribal Chants Of Native Africa (1996) [MP3|
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899165.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Give Ireland Back To The Irish (10 CD) (2000) [MP3|320 kbps]<Irish folk, tr
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898667.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Maurizio Filardo - Perfetti sconosciuti (Colonna sonora originale del film) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898533.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898335.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ Lesiem - 5 альбомов (2000 - 2005) [FLAC|Lossless|tracks + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898175.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ Phaedrus - Gravity, Vol. 1 (2007) [MP3|192 Kbps] <New Age, Enigmatic, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898009.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Enigma - 7 Albums, 2 Compilations (1990 - 2008) [FLAС|Lossless|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898003.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ VA - 69 Must Have Chillout & Lounge Songs (2013) [MP3|320 кб/с]<Downtempo, Ch
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897879.jpg" />
 </div>
 
 
@@ -664,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897557.jpg" />
 </div>
 
 
@@ -678,64 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A500BE76D6E956477C13D91123BC88BD1A962510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867235   (896269) от 12.02.2015
-
-Wikluh Sky - Сербский фильм / A Serbian Film (2010) [MP3|320 kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balcan Sex God
-02. Cheaporn
-03. Decollection
-04. Fancy Porn(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2C15A44D45AA3BAC3141986F4BC6D60EE7CCD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992682   (895246) от 05.03.2016
-
-VA - Straight Outta Compton (Music From The Motion Picture) (2016) [FLAC|Lossless|tracks + .cue] <Hip Hop, Funk, Soul>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.W.A - Straight Outta Compton (4:17)
-02. Parliament - Flash Light (Single Version) (4:29)
-03. Eazy-E - We Want Eazy (5:01)
-04. N.W.A - Gangsta Gangsta (5:36)(   Читать дальше...   )Производство: UMe, Priority Records, Ruthless Records – B0023597-02Жанр: Hip Hop, Funk, SoulПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED0CB509EDDCC05C1303A4632CA9EEF3F5C1D90
 ```
 
 https://mybot314.ru/tekegram_catalog/

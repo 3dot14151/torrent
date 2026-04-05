@@ -1,3 +1,30 @@
+###  Публикация: 1573767   (209087) от 02.09.2022
+
+Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 2 (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и спортсменам, художникам нужно тренироваться, чтобы поддерживать свое мастерство. Приготовьтесь оттачивать свои художественные навыки вместе с Уотер Толп ежедневно в течение 9 недель с его "Упражнениями для digital-художников"! В 63 уроках Ваутер расскажет вам об упражнених по цифровой живописи, на которых основное внимание будет уделено:
+- живопись (   Читать дальше...   )Производство: SchoolismЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 10:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EAC502D4FA877C35D02167B5DCC39633A1F131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607080   (209079) от 25.01.2023
 
 Epic Games, Kaye Vassey | Making the Most of Animation Blueprints (2018) WEB-DL [EN, RU]
@@ -6,7 +33,7 @@ Epic Games, Kaye Vassey | Making the Most of Animation Blueprints (2018) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209079.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ FlippedNormals, Tyler Smith | Creating a Realistic Ocean in UE4 (2022) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209058.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Exp-Points, Alex Beddows | Creating Fabric Materials in Substance Designer (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209046.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Levelup.Digital, Eric Wiley | Advanced Shape Creation in Substance Designer (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209045.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Udemy, Nexttut, Hamidreza Afshari | Substance 3D Painter Advance Course (2022) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209034.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Artstation Learning, Jay Cummings | Substance Painter: Pushing Your Texturing Fu
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209003.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208956.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ Udemy, Sean Campbell | .NET Microservices: CQRS & Event Sourcing with Kafka (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208887.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ sova.arty, Алина Сова | Иллюстратор 2.0 для телефо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208842.jpg" />
 </div>
 
 
@@ -251,7 +278,7 @@ Udemy, Michael Pogrebinsky | Java Multithreading, Concurrency & Performance Opti
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208821.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ Udemy, Michael Pogrebinsky | Software Architecture & Design of Modern Large Scal
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208804.jpg" />
 </div>
 
 
@@ -307,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208785.jpg" />
 </div>
 
 
@@ -335,7 +362,7 @@ Digital Tutors, Dan Cox | Rapidly Creating Stylized Game Assets in ZBrush (2015)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208775.jpg" />
 </div>
 
 
@@ -361,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208752.jpg" />
 </div>
 
 
@@ -390,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208750.jpg" />
 </div>
 
 
@@ -416,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208739.jpg" />
 </div>
 
 
@@ -444,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208718.jpg" />
 </div>
 
 
@@ -472,7 +499,7 @@ Hudozhnik Online, Анастасия Брагина | Скетчинг марк�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208713.jpg" />
 </div>
 
 
@@ -501,7 +528,7 @@ JUG Ru Group | Mobius 2023 Spring. Конференция для мобильн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208682.jpg" />
 </div>
 
 
@@ -527,7 +554,7 @@ Udemy, Michael Pogrebinsky | Distributed Systems & Cloud Computing with Java (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208660.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208654.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208628.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ Udemy, Eric Ebling | Houdini FX : Creating An Avalanche Rig (2022) WEB-DL [EN / 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208590.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ The Gnomon Workshop, Alessandro Cangelosi | Introduction to Particle FX in Houdi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208583.jpg" />
 </div>
 
 
@@ -665,7 +692,7 @@ Udemy, Eric Ebling | Houdini FX : Creating a Building Explosion (2021) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208563.jpg" />
 </div>
 
 
@@ -676,32 +703,6 @@ Udemy, Eric Ebling | Houdini FX : Creating a Building Explosion (2021) WEB-DL [E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44CD18FF1DF74C42E5EFDDD74F67E5ACE9681CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647548   (208549) от 19.07.2023
-
-Саша Мершиев | Практическая колористика (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь правильно работать с цветом и создайте проект интерьера как с обложки журнала всего за 1 месяц.Жанр: ДизайнЯзык озвучки: РусскийПродолжительность: 16:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389CFCBB701B79FF4A9519C98B16D144678D169A
 ```
 
 https://mybot314.ru/tekegram_catalog/

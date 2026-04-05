@@ -1,3 +1,55 @@
+###  Публикация: 915508   (592178) от 05.07.2015
+
+Adobe Photoshop CC 2015 (20150529.r.88) RePack by JFK2005 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5257C8C6195937AC2D43337ABAB56CFE0D73D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843439   (592168) от 05.07.2015
+
+Однажды в сказке / В Некотором Царстве / Once Upon a Time (2014) WEB-DL [H.264/720p-LQ] (Сезон 4, серии 1-23 из 23) (Невафильм)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Once Upon a Time — сериал в жанре фэнтези, действие которого происходит сразу в двух реальностях — сказочной и современной. Эмма Свон (Дженнифер Моррисон) отмечает свой 28 день рождения и загадывает желание избавиться от одиночества. В этот же момент она слышит звонок в дверь и видит 10-летнего мальчика, который заявляет, что он её сын. Более того, по словам мальчишки, (   Читать дальше...   )Производство: СШАЖанр: Драма, фэнтези, приключенияРежиссер: Ральф Хемекер, Рон Андервуд, Морган Беггс и др.Актеры: Джиннифер Гудвин, Дженнифер Моррисон, Роберт Карлайл, Лана Паррилла, Джаред Гилмор, Джошуа Даллас, Рафаэль Сбардж, Меган Ори, Джеми Дорнан, Беверли Эллиотт и др.Перевод: Дублированный - НевафильмФормат: MKVПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA7B1C37AAAFC5F8C610DC220A2B394762801D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 699435   (591937) от 11.05.2022
 
 Led Zeppelin – 10 Альбомов (1969-1982) Box Set /2007, Classic Records/ [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock>
@@ -6,7 +58,7 @@ Led Zeppelin – 10 Альбомов (1969-1982) Box Set /2007, Classic Records/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591937.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591874.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_591706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_591706.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_591506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_591506.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ The Last of Us Part II / Одни из нас. Часть II (2020) [PS4] [EUR] 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591489.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_591316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_591316.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Adobe After Effects CC 2015 13.5.0.347 RePack (& Portable) by BuZzOFF v1.1 [Ru/E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591256.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Adobe After Effects CC 2015.0 13.5.0.347 Portable by PortableWares (07.07.2015) 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591253.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Windows 7 Ultimate SP1 x32 x64 Plus PE Office 2013 StartSoft 34-35 2015 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591252.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591044.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_590841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_590841.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Alien Skin Software Photo Bundle Collection (08.07.2015) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590790.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Alien Skin Exposure 7.1.0.214 Revision 29205 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590789.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ ToCA Race Driver Антология (2003-2006) [Ru] (1.1/1.2/1.1) Repack R.G. C
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590520.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589791.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_589499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_589499.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Dropbox 3.0.0.12 [Rus] - Синхронизация файлов
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589436.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Movavi Video Converter 15.2.3 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589417.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Adobe Photoshop Lightroom 6.1.0 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589415.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ onOne Perfect Photo Suite 9.5.0.1644 Premium Edition [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589407.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Kaspersky Anti-Virus 2015 15.0.0.463 (a) Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589134.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ CleanSpace One - спутник, который будет ловить в се�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_589033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_589033.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588930.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588928.jpg" />
 </div>
 
 
@@ -623,61 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB285373104EDDE1A4A8D73B4D727C0F542FAB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917587   (588926) от 12.07.2015
-
-Манглхорн / Manglehorn  (2014) WEB-DL [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эй Джей Манглхорн, на первый взгляд, ничем не примечательный, обычный, стареющий человек, тихо живущий в маленьком городе: он нянчится со своим котом, каждую пятницу ходит в банк, всегда обедает в одном и том же заведении. Но у этого старика богатое прошлое: в молодости он был преступником, и однажды должен был сделать главный выбор в жизни - между любовью женщины (   Читать дальше...   )Производство: СШАЖанр: ДрамаРежиссер: Дэвид Гордон ГринАктеры: Аль Пачино, Холли Хантер, Крис Мессина, Хармони Корин, Натали Вайлмон, Джун Гриффин Гарсиа, Лара Шах, Сьерра Скотт, Тед Фергюсон, Скайлар Гаспер, Ребекка Франкьоне, Артур МаррокинПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые, отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B709AA0D5EE3B00A98CF470388D1AFA52AD543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551692   (588872) от 18.05.2022
-
-Очередное достижение: 1000 релизов от Russian Mafia!!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_588872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 1000 релизов от Russian Mafia!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища, участника группы "RG Releasers" с 1000-м релизом!От всей души поздравляем
-Russian Mafia
-с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации nnm-club!
- Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

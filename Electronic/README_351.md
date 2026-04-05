@@ -1,3 +1,117 @@
+###  Публикация: 957476   (327562) от 17.11.2015
+
+Guy J - The Trees, The Sea & The Sun (2015) [FLAC|Lossless|WEB-DL]<Tech House, Progressive House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trees, the Sea & the Sun (Continuous Mix 1)
+02. The Trees, the Sea & the Sun (Continuous Mix 2)
+03. Argeman
+04. Bungalow(   Читать дальше...   )Жанр: Tech House, Progressive House, TechnoПродолжительность: 05:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23B0333849A4D659BA256150A71A07E8F80C94C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581410   (327290) от 05.10.2022
+
+Abbsynth - Starlines (2009) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlines (Single)
+02. End Of Space (2009 Mix)Жанр: Electronic, Synth-popПродолжительность: 00:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71667CC55C934B02D9F4C558796119A975B501A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581347   (327287) от 05.10.2022
+
+VA - Daybreakerz (Trance & Souls) Vol.3 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Dust & DJ Eternity - World In Your Hands (Instrumental Radio Mix)
+02. Thomas Lloyd & Dave Joy - Captain Future (Extended Mix)
+03. DJ Simple - Mainstation Theme (Wavetraxx Remix)
+04. Eclipse - Future Sequence (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC5167B11EA6385441141A96280B4B4559810E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581341   (327225) от 05.10.2022
+
+VA - FSOE - October (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila x Billy Gillies - Kings (FSOE750 Anthem) (Extended Mix)
+02. Sean Tyas & Victoriya - Perfect World (Amos & Riot Night Extended Remix)
+03. Omar Sherif & Susie Ledge - Here With Me (Extended Mix)
+04. Stoneface & Terminal - Moonraver (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4CAEAA87238B38F71051F2E7D5DBD273D80F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581343   (327224) от 05.10.2022
 
 VA - New Trance 2021 (2022) [MP3|320 Kbps] <Trance>
@@ -6,7 +120,7 @@ VA - New Trance 2021 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327224.jpg" />
 </div>
 
 
@@ -35,7 +149,7 @@ Waveshaper - Forgotten Shapes (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327216.jpg" />
 </div>
 
 
@@ -64,7 +178,7 @@ VA - White Chill Out Vol 2 (2015) [MP3|320 кб/с]<Lounge, Chill Out, New Age>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326770.jpg" />
 </div>
 
 
@@ -93,7 +207,7 @@ VA - Autumn New Chillout Traxx (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326645.jpg" />
 </div>
 
 
@@ -122,7 +236,7 @@ VA - Paratov Live 2022.08.13 (Mixed and Compiled by DJ Suhov) (2022) WebDLRip [M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326410.jpg" />
 </div>
 
 
@@ -151,7 +265,7 @@ Music of sensation - Suspense (2013) [FLAC 2.0|96/24|WEB-DL|tracks] <Electronic,
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326356.jpg" />
 </div>
 
 
@@ -180,7 +294,7 @@ A-Ha - Original Album Series (1985-1993) 5 CD Box Set, Reissue, 2011, Warner Bro
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326352.jpg" />
 </div>
 
 
@@ -209,7 +323,7 @@ A-Ha - Foot Of The Mountain (2009) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326348.jpg" />
 </div>
 
 
@@ -238,7 +352,7 @@ VA - Bonzai & Friends 500 (2015) [MP3|320 кб/с]<Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325839.jpg" />
 </div>
 
 
@@ -267,7 +381,7 @@ VA - Armin Van Buuren Presents: A State Of Trance Best Of (2015) [MP3|320 кб/�
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325789.jpg" />
 </div>
 
 
@@ -296,7 +410,7 @@ Sasha - LNOE TEN (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325502.jpg" />
 </div>
 
 
@@ -325,7 +439,7 @@ Dominik Von Francois - Last Resort (2015) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324999.jpg" />
 </div>
 
 
@@ -354,7 +468,7 @@ VA - Enhanced Chill Volume Three (2015) [MP3|320 кб/с]<Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324997.jpg" />
 </div>
 
 
@@ -383,7 +497,7 @@ VA - In Search Of Sunrise 13.5 - Amsterdam (Mixed by Richard Durand with BT) (20
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324916.jpg" />
 </div>
 
 
@@ -412,7 +526,7 @@ VA - Uplifting Trance Essentials Vol. 6 (2015) [MP3|320 кб/с]<Uplifting Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324031.jpg" />
 </div>
 
 
@@ -441,7 +555,7 @@ Artificial Intelligence - Timeline (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323954.jpg" />
 </div>
 
 
@@ -470,7 +584,7 @@ VA - Sunrise Blend - 2017 (Compilation) [MP3|320 Kbps] <House, Deep House, Big R
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323837.jpg" />
 </div>
 
 
@@ -499,7 +613,7 @@ VA - Recoverworld Radio 015 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323836.jpg" />
 </div>
 
 
@@ -528,7 +642,7 @@ Julesanger - Julestemning Pa Piano (2017) [MP3|320 Kbps] <Instrumental, Piano, E
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323834.jpg" />
 </div>
 
 
@@ -557,7 +671,7 @@ VA - Markus Schulz - Global DJ Broadcast - (Amsterdam) (2017) [MP3|320 Kbps] <Tr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323825.jpg" />
 </div>
 
 
@@ -586,7 +700,7 @@ Fidel Wicked - Emotions (2016) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323736.jpg" />
 </div>
 
 
@@ -615,7 +729,7 @@ VA - Ori Uplift & Dj Ruby - Uplifting Only 247 (2017) [MP3|320 Kbps] <Trance, Up
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323733.jpg" />
 </div>
 
 
@@ -629,122 +743,6 @@ VA - Ori Uplift & Dj Ruby - Uplifting Only 247 (2017) [MP3|320 Kbps] <Trance, Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A28E395E093C8FF6123493FA9E1FDD88B65FA38B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075073   (323720) от 21.11.2016
-
-VA - Illusion Chill Out Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solanos - Estranha
-02. Michele Cecchi - A Spy in Paradise
-03. LyFe&Daze - Days of Our Lives - Week-End Mix
-04. Raumzeit - The Daydreamer(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B56355BA1FC788FD3F0725EB1073A5C36446C511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075318   (323717) от 21.11.2016
-
-VA - Armada Deep - Best Of 2016 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Low Steppa - Runnin' (Feat. Kelli-Leigh) 02:18
-02. Cropper - Straight Wylin' 03:16
-03. Embody - Remember Us (Feat. Fein) 03:21
-04. Robbie Rivera - Come Back To Me 02:58(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948A9442AE1EDA9F4672689BB0C3D4A7BCB18237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075072   (323712) от 21.11.2016
-
-VA - ICE - Winter Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La.Mia.Bocca - Ocean of Sadness - Pacha Remix
-02. Stigma - When You Come Home
-03. L.O.S.T. - Winter Crystal
-04. Aruba - Rain Dance(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E76B4B8CE14E0148674A8552C63D8E4BFBD8830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075014   (323706) от 21.11.2016
-
-VA - Deep and Tropical Selection: The Best Deep House and Tropical Selection for Your Dancefloor (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felix and Fregonese - Last Night a DJ Saved My Life - Reworked Mix
-02. Iberico - Sofie - Roby Arduini & Pagany Deep Rework
-03. Alexey Lisin - Royal Soft - Roby Arduini & Pagany Deep Rework
-04. Felix and Fregonese - Just Like You - Felix and Fregonese and Faith Reworked Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1856B928EDD236BA68DC28348B1EF4D238B3955E
 ```
 
 https://mybot314.ru/tekegram_catalog/

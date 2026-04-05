@@ -1,3 +1,60 @@
+###  Публикация: 1590356   (189128) от 13.11.2022
+
+Софья Ремез | Одиннадцатый год Гоши Куницына, ученика 5 «И» класса (2021) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помните книжку «Заметки Гоши Куницына, ученика 4 „А“ класса»? Теперь пятиклассник Гоша хочет быть писателем. Но он уже настоящий писатель! От его живых, по-доброму весёлых заметок не оторваться.
+
+Выдумщик Гоша прекрасно учится, не боится выражать своё мнение и быть не как все. Да он даже слушает Генделя, пока друзья предпочитают рэп! Но Гошу любят все, ведь с ним (   Читать дальше...   )Жанр: Детские приключения, детская прозаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD520E06B9FEF8C0101697648A06784F5A457A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590451   (189067) от 13.11.2022
+
+В.Г. Гусев | Наши питомцы. Альбом (1986) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом содержит сведения о наиболее интересных особенностях питомцев живых уголков, рекомендации по их кормлению, содержанию и разведению в домашних условиях. Автор альбома биолог В.Г. Гусев многие годы отдал изучению животных, которым посвящена эта книга.
+Рассчитан на широкий круг читателей.
+Автор текста В.Г. Гусев.
+Книга выполнена в виде альбома с иллюстрациями (   Читать дальше...   )Жанр: Домашние животныеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADD03E2BE816F10B47F1CA0B1E816BC9AD6BD71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590360   (188974) от 13.11.2022
 
 Яков Перельман | Лучшие математические игры, головоломки и фокусы. Фокусы и развлечения. Живая математика (2022) [EPUB]
@@ -6,7 +63,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188974.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188897.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188481.jpg" />
 </div>
 
 
@@ -86,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188464.jpg" />
 </div>
 
 
@@ -113,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188462.jpg" />
 </div>
 
 
@@ -141,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188392.jpg" />
 </div>
 
 
@@ -169,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188377.jpg" />
 </div>
 
 
@@ -196,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188261.jpg" />
 </div>
 
 
@@ -222,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188224.jpg" />
 </div>
 
 
@@ -248,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187903.jpg" />
 </div>
 
 
@@ -274,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187718.jpg" />
 </div>
 
 
@@ -300,7 +357,7 @@ Dorling Kindersley | Как работает наука. Наглядные фа
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187699.jpg" />
 </div>
 
 
@@ -326,7 +383,7 @@ Dorling Kindersley | Как работают технологии. Нагляд�
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187693.jpg" />
 </div>
 
 
@@ -354,7 +411,7 @@ Dorling Kindersley | Как работает тело. Наглядные фак
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187691.jpg" />
 </div>
 
 
@@ -383,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187685.jpg" />
 </div>
 
 
@@ -409,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187676.jpg" />
 </div>
 
 
@@ -435,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187560.jpg" />
 </div>
 
 
@@ -461,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187519.jpg" />
 </div>
 
 
@@ -487,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187431.jpg" />
 </div>
 
 
@@ -514,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187202.jpg" />
 </div>
 
 
@@ -540,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187098.jpg" />
 </div>
 
 
@@ -567,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187062.jpg" />
 </div>
 
 
@@ -593,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187044.jpg" />
 </div>
 
 
@@ -619,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186894.jpg" />
 </div>
 
 
@@ -632,58 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D7E899644B21FD16D7FA8C685D813429E3A8AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591684   (186853) от 19.11.2022
-
-Различные | Сборник сказок и стихов для младшего школьного возраста [14 книг] (1972-1989) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами уникальный пример самодельной советской книги, изготовленной в единственном экземпляре для личного использования. В уже далеком 1989 году несколько богато иллюстрированных известными советскими художниками детских книжек со сказками, стихами и рассказами издательства «Детская литература» были обрезаны в один размер и переплетены в книгу в твердой обложке (   Читать дальше...   )Жанр: сказки, стихи, рассказыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3408C9FA86372866BEFD6EE4E29092731B994D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591791   (186844) от 19.11.2022
-
-Вильгельм Гауф, Оскар Уайльд | Новые старые сказки [2 книги] (2021-2022) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как здорово перечитывать любимые с детства сказки снова и снова, каждый раз открывая для себя что-то новое. И нет ничего более интересного и захватывающего, чем увидеть знакомые сюжеты глазами современных художников. Свежий взгляд на классические произведения с новой неожиданной стороны – это серия редакции «Вилли Винки» «Новые старые сказки».Жанр: СказкиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7F920DE06094ECAC20F38ED5D3670765B13ADC
 ```
 
 https://mybot314.ru/tekegram_catalog/

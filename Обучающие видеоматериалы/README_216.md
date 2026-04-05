@@ -1,3 +1,31 @@
+###  Публикация: 1617388   (201633) от 06.03.2023
+
+MographPlus, Камиль Хезри | The Ultimate Introduction to Arnold 6 for Cinema 4D (2021) WEB-DL [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем привет, представляю вашему внимаю новый онлайн курс "Полное введение в Arnold для Cinema 4D". Это 12 часовой курс, состоящий из 83 видео, каждая минута видео продумана и распланирована, здесь нет ничего лишнего, вы получаете передовое качество, которое стоит ожидать от MographPlus.
+
+Если вы хотите изучить Arnold для Cinema 4d это однозначно наилучший (   Читать дальше...   )Производство: MographPlusЖанр: 3D ГрафикаЯзык озвучки: Английский, РусскийПродолжительность: 11:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:944D092D14803FEBA8A7E954179F22C0FCD4D650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617898   (201630) от 08.03.2023
 
 Художник Онлайн, Ника Сабрекова | Время волшебства (2023) WEB-DL [RU]
@@ -6,7 +34,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201630.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Rebelway, Saber Jlassi, Igor Zanic | Ocean rendering using Redshift (2020) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201620.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Rebelway, Saber Jlassi | Abstract FX in Houdini Using Karma (2021) WEB-DL [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201596.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ Nexttut Education Pvt.Ltd., Shahzad Ahmad | Houdini for Absolute Beginners (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201541.jpg" />
 </div>
 
 
@@ -119,7 +147,7 @@ Kalacheva School, Вера Соколова | Новый английский к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201508.jpg" />
 </div>
 
 
@@ -148,7 +176,7 @@ Udemy, David Morris | IELTS 7 Plus: Complete IELTS Preparation [Academic] (2022)
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201500.jpg" />
 </div>
 
 
@@ -176,7 +204,7 @@ Udemy, Jonas Schmedtmann | Crash Course: Build a Full-Stack Web App in a Weekend
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201497.jpg" />
 </div>
 
 
@@ -205,7 +233,7 @@ Udemy, Mohamed Hajji | BUILD THE BEST ECOMMERCE WEBSITE EVER with REACT JS NEXT 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201491.jpg" />
 </div>
 
 
@@ -231,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201465.jpg" />
 </div>
 
 
@@ -258,7 +286,7 @@ Archicad-Master, Алексей Зиновьев | 5 способов созда
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201445.jpg" />
 </div>
 
 
@@ -287,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201443.jpg" />
 </div>
 
 
@@ -314,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201237.jpg" />
 </div>
 
 
@@ -340,7 +368,7 @@ FXPHD, Andrew Lowell | HOU220 – Houdini FX, Particle Fundamentals and Fuzzy Lo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201143.jpg" />
 </div>
 
 
@@ -368,7 +396,7 @@ Dream&Draw, Анастасия Козлова | Марафон по акваре
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201126.jpg" />
 </div>
 
 
@@ -397,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201112.jpg" />
 </div>
 
 
@@ -425,7 +453,7 @@ ArtiGood, Николай Солодов | Акварельный курс «Зи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201071.jpg" />
 </div>
 
 
@@ -453,7 +481,7 @@ Udemy, Kyle Schaub | Lua Programming and Game Development with LÖVE (2021) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201059.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ Linkedin Learning, Eduardo Corpeño | Level Up: C++ (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201051.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ Vertex School, Keith Kamholz | Houdini FX & Redshift (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201050.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ Udemy, Gustavo Pezzi, Pikuma .com | Lua Scripting: Master complete Lua Programmi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201044.jpg" />
 </div>
 
 
@@ -563,7 +591,7 @@ Udemy, Pirate Sheep | Houdini Hacks: 3D Dynamics for Absolute Beginners (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201039.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201020.jpg" />
 </div>
 
 
@@ -621,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201019.jpg" />
 </div>
 
 
@@ -647,7 +675,7 @@ Udemy, Peter A | Password Cracking: Brute Forcing (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201014.jpg" />
 </div>
 
 
@@ -676,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200999.jpg" />
 </div>
 
 
@@ -690,32 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8952F5F12948CD8AE209FCD4E3AC08D4F1E3C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620403   (200992) от 20.03.2023
-
-Михаил Пелехатый, Павел Аглашевич | Газлайтинг. 28 тактик манипуляций для управления и эксплуатации личности (2021) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200992.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Пока вы не осознаете, насколько легко манипулировать вашим разумом, вы остаётесь марионеткой в чужой игре. Единственный способ выйти из-под влияния манипуляций — это знать, как они применяются против вас и уметь применять их в отношении других».Жанр: НЛП, психология общения, межличностные коммуникацииЯзык озвучки: русскийПродолжительность: 08:02:49Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443AA2F719EBA80D833C13B7A284E934A4B44EEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ DAOKO - Uchiage Hanabi (2017) [FLAC|Lossless|WEB-24-48|hi-res tracks] <Theme Son
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391766.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Maon Kurosaki - MAON KUROSAKI BEST ALBUM -M.A.O.N- (2017) [FLAC|Lossless|WEB-24-
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386933.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ coldrain - FATELESS (2017) [FLAC|Lossless|tracks+.cue] <OP>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384957.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ SawanoHiroyuki[nZk] - 2V-ALK (2017) [FLAC|Lossless|WEB-24-96|hi-res tracks] <OP+
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384955.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sukasuka Music Collection (2017) [FLAC|Lossless] <OST+OP+ED+Insert Song>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382842.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Aho Girl | Дурочка (2017) [MP3|320 Kbps] <OP+ED>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365022.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Majo no Tabitabi OST (2020) [MP3|320 kbps] <2CD OP+ED>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339332.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Majo no Tabitabi OST (2020) [FLAC|tracks] <2CD OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339329.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Azur Lane OST (2019-2020) [FLAC|tracks] <19CD+OST+OP+ED+Character Song+Audio Dra
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333387.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Azur Lane OST (2019-2020) [MP3|320 kbps] <19CD+OST+OP+ED+Character Song+Audio Dr
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312517.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ selector infected|spread  WIXOSS OST (2014|FLAC) <OP|ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306634.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Madan no Ou to Vanadis OST (2014|FLAC) <OP|ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306450.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Shiro Sagisu - Shiro Sagisu Music from "Evangelion 3.0" You Can (Not) Redo (2012
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298461.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Aoki Hagane no Arpeggio -Ars Nova- OST (2013-2015|FLAC) <OST|OP|ED|Character Son
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285202.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Aldnoah.Zero OST (2014-2015, FLAC) <OP+ED+OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283318.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Grisaia Series OST [2015|FLAC] <OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281947.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ C3 | Cube x Cursed x Curious | Проклятый Кубик (2011-2012) [FLAC|L
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274438.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Mushoku Tensei: Isekai Ittara Honki Dasu | Реинкарнация безраб
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249919.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Girls` Frontline | Dolls` Frontline | Девушки на линии фронт�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249883.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Girls` Frontline | Dolls` Frontline | Девушки на линии фронт�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249882.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Fantasy Bishoujo Juniku Ojisan to | В другом мире с мужчиной
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249715.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Fantasy Bishoujo Juniku Ojisan to | В другом мире с мужчиной
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249706.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Tasogare Otome x Amnesia OP Single - CHOIR JAIL [Suzuki Konomi] (2012, FLAC) <OS
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248935.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245100.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Rokka no Yuusha OST (2015, FLAC) <OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227680.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220959.jpg" />
 </div>
 
 

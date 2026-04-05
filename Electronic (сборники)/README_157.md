@@ -1,3 +1,61 @@
+###  Публикация: 1254177   (374841) от 13.10.2018
+
+VA - Hedkandi Flowers House: October Set (2018) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Goki - Baby Baba
+002. 21 Room - Search For Groove
+003. Blake Glen - Completely Blind
+004. John Marsden - Falling Apart (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 09:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFD85D8FA233205B9C46266727AF8D616CD2EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254178   (374612) от 13.10.2018
+
+VA - Pacific Trance (Vol.07 October Set 2018) (2018) [MP3|320 Kbps] <Trance, Uplifting, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374612.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 4 Joann - Green Angel Eyes
+002. Alessandra Roncone - The Truth That You Know
+003. Diago - Beausoleil (Original Mix)
+004. E-Lewsive - Go Back (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting, Progressive TranceПродолжительность: 09:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A95BFCBCE600B68ED86ECD8CD0E775779F22B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176100   (374560) от 20.10.2017
 
 VA - Cosmotronica Vol.4 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Ambient, Psybient, Future Garage>
@@ -6,7 +64,7 @@ VA - Cosmotronica Vol.4 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Ambient, Psy
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374560.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Vintage Cafe - Полная коллекция (2007-2014) [MP3|96-320 кб
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374521.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Mind Reader: Edm Party (2019) [MP3|320 Kbps] <House, EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374513.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Playlist Hits Bass Line (2019) [MP3|320 Kbps] <Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374387.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Chillin on a Winters Eve (2016) [MP3|192-320Kbps] <Downtempo, Chillout, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374151.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Datura - The Best Of Datura (Remastered Versions: Original And Remixes) (2016) [
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373980.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Clubfire Times 100 Power (2016) [MP3|240-320 Kbps] <Indie Dance, Bigroom, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373978.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Trance 100 Best Of 2016 (2016) [MP3|320 Kbps] <Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373956.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Erotic Summer Night Vol.1: Sexy Chill Out Tunes (2016) [MP3|320 Kbps] <Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373870.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Trance. Vocal Fascination 36 (2012) [MP3|320 кб/с]<Uplifting Trance, Voc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373455.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ VA - Gold Lounge - The Lounge of Luxury (2015) [MP3|320 кб/с]<Downtempo, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373103.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ VA - Halloween Party (20 Trick or Treat Dance Hits) (2015) [MP3|320 кб/с]<Dan
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373061.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ VA - Best Of Vocal Trance Classics Vol 2 (2015) [MP3|320 кб/с]<Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372912.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ VA - Extra Lounge (episode 12) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372893.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ VA - Vocal Trance Collection Vol 139 (2015) [MP3|320 кб/с]<Trance, Vocal Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372873.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ VA - Hits of My Soul Vol. 40 (2018) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372543.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Record Super Chart #508 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371939.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - Miss Caramelle: Classic Vocal House (2017) [MP3|320 Kbps] <Vocal House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371919.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371901.jpg" />
 </div>
 
 
@@ -564,7 +622,7 @@ VA - Furious Dubstep Attacks From Evolinte Vol.2 (2012) [MP3|320 кб/с]<Dubste
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371379.jpg" />
 </div>
 
 
@@ -596,7 +654,7 @@ VA - After Time: Electronics Music (2018) [MP3|320 Kbps] <Electronic, Techno, Ex
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370821.jpg" />
 </div>
 
 
@@ -625,7 +683,7 @@ VA - Nonstop Night Live Party: Progressive House (2018) [MP3|320 Kbps] <Progress
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370683.jpg" />
 </div>
 
 
@@ -654,7 +712,7 @@ VA - Chill House: Deep Lovers Mix (2018) [MP3|320 Kbps] <Deep House, Chill House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370516.jpg" />
 </div>
 
 
@@ -683,7 +741,7 @@ VA - Music For Sports Games: Hard Dance Party (2018) [MP3|320 Kbps] <Hard Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370386.jpg" />
 </div>
 
 
@@ -697,64 +755,6 @@ VA - Music For Sports Games: Hard Dance Party (2018) [MP3|320 Kbps] <Hard Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02AEC3BC7F8A1D515537D6779CA4F3ECBCE06D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950368   (370371) от 26.10.2015
-
-VA - Vocal Trance Seduction Vol 6 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Rene, Somna - Back to Life (Original Mix) (07:00)
-02. Weirdness feat. Amy Hamblin - Rain Falls On Me (Radio Edit) (03:01)
-03. Andy Storm - Autumn Nocturne (Original mix) (04:53)
-04. Kaimo K & Cathy Burton - You Deserve Life (Radio Edit) (03:52)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99EBAC321C441FB5F6693B4F1BB6CDDFF05F4D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254908   (370367) от 15.10.2018
-
-VA - Top50: Tracks Deep House Ver.4 (2018) [MP3|320 Kbps] <Deep House, Tech House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axwell feat. Steve Edwards - Watch The Sunrise (Everyonne Extended Remix) 5:59
-02. Zonatto & Di Morais - Ok! (Original Mix) 5:07
-03. DJ Dark & MD DJ & Martova - Crazy Extended Mix) 4:43
-04. MARUV - Black Water (Original Mix) 3:50(   Читать дальше...   )Жанр: Deep House, Tech House, Club HouseПродолжительность: 04:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E655774C6887CDA70559E62E69E21A620A47543F
 ```
 
 https://mybot314.ru/tekegram_catalog/

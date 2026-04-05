@@ -1,31 +1,3 @@
-###  Публикация: 1551462   (234842) от 16.05.2022
-
-Udemy, Anthony Alicea | JavaScript: Understanding the Weird Parts (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расширенный курс JavaScript для всех! Scope, closures, prototypes, 'this', построение собственного фреймворка и многое другое.
-Javascript - это язык, который современные разработчики должны знать хорошо. Поистине зная Javascript, вы получите работу и сможете создавать качественные веб-и серверные приложения.
-В этом курсе вы получите глубокое понимание Javascript, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFF610166AB4187E6F53278FF6DCFAB0C7A9347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576887   (234781) от 16.09.2022
 
 Udemy, Alexander Batashov | Ruby on Rails 6 - 2020. Создание собственного веб приложения (2020) WEB-DL [RU]
@@ -34,7 +6,7 @@ Udemy, Alexander Batashov | Ruby on Rails 6 - 2020. Создание собст�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234781.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234605.jpg" />
 </div>
 
 
@@ -87,7 +59,7 @@ Udemy, Ivan Yosifov | Unreal Engine 5 - Make AAA Game Vehicles (2022) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234191.jpg" />
 </div>
 
 
@@ -114,7 +86,7 @@ Udemy, Ivan Yosifov | Unreal Engine 5 - Create Zombie Survivor FPS Game (2022) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234184.jpg" />
 </div>
 
 
@@ -142,7 +114,7 @@ Udemy, Colt Steele | Mastering TypeScript - 2022 Edition (2022) WEB-DL [EN / EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233867.jpg" />
 </div>
 
 
@@ -168,7 +140,7 @@ Udemy, Greg Wondra | Unreal Engine: Create an Arcade Classic! (2021) PCRec [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233798.jpg" />
 </div>
 
 
@@ -195,7 +167,7 @@ EC-Council, Greg Hirsch | Certified Ethical Hacker CEH v11 (2021) PCRec [AD] [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233698.jpg" />
 </div>
 
 
@@ -221,7 +193,7 @@ Udemy, Maximilian Schwarzmüller | JavaScript Unit Testing - The Practical Guide
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233465.jpg" />
 </div>
 
 
@@ -250,7 +222,7 @@ Udemy, Anthony Alicea | Understanding HTML and CSS (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233438.jpg" />
 </div>
 
 
@@ -276,7 +248,7 @@ O’Reilly, LiveLessons, Omar Santos | The Complete Cybersecurity Bootcamp (2019
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232969.jpg" />
 </div>
 
 
@@ -302,7 +274,7 @@ Thinknetica Pro, Евгений Фатеев | Подготовка к собе�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232705.jpg" />
 </div>
 
 
@@ -329,7 +301,7 @@ Udemy, Roman Dushkin | Перцептроны (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232648.jpg" />
 </div>
 
 
@@ -355,7 +327,7 @@ Thinknetica Pro, Артем Кривоножко | Объектно-ориент
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232633.jpg" />
 </div>
 
 
@@ -384,7 +356,7 @@ Udemy, Dr. Angela Yu | The Complete 2021 Web Development Bootcamp (2021) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231972.jpg" />
 </div>
 
 
@@ -411,7 +383,7 @@ Techworld with Nana, Nana Janashia | GitLab CI/CD - From Zero To Hero (2022) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231487.jpg" />
 </div>
 
 
@@ -437,7 +409,7 @@ Udemy, Denis Astahov | Terraform с Нуля до Профессионала (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231343.jpg" />
 </div>
 
 
@@ -466,7 +438,7 @@ Udemy, Rahul Arora | Selenium WebDriver Training with Java and Many Live Project
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231335.jpg" />
 </div>
 
 
@@ -493,7 +465,7 @@ Udemy, Dzianis Matveyenka | Gradle (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231333.jpg" />
 </div>
 
 
@@ -519,7 +491,7 @@ Profit, Степанцев Альберт | Вебинар «Асинхронн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230920.jpg" />
 </div>
 
 
@@ -548,7 +520,7 @@ Udemy, Pikuma.com, Gustavo Pezzi | Learn Assembly Language by Making Games for t
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230914.jpg" />
 </div>
 
 
@@ -577,7 +549,7 @@ ituroki.info, Jamalov Elchin | IP телефония 3CX (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230836.jpg" />
 </div>
 
 
@@ -606,7 +578,7 @@ Udemy, Titanforged Entertainment | Unreal Engine 5 Blueprints: Develop Your Firs
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230390.jpg" />
 </div>
 
 
@@ -632,7 +604,7 @@ Udemy, Stephen Grider | The Complete React Native + Hooks Course (2021) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229896.jpg" />
 </div>
 
 
@@ -661,7 +633,7 @@ Udemy, Maximilian Schwarzmüller, Manuel Lorenz | SQL - The Complete Developer's
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229862.jpg" />
 </div>
 
 
@@ -689,7 +661,7 @@ Advanced Training, Иннокентий Солнцев | Курс «Cisco SPCORE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229849.jpg" />
 </div>
 
 
@@ -703,6 +675,34 @@ Advanced Training, Иннокентий Солнцев | Курс «Cisco SPCORE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41C7E860F9A0A8E8E4A3ABED9E444D157E01878F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583331   (229530) от 14.10.2022
+
+ui.dev (ex. Tyler McGinnis), Tanner Linsley | React Query (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите React Query с помощью официального курса. Не хотите читать документацию? Есть более простой способ освоить React Query. Наш линейный курс подобен умному, опытному другу, который сядет рядом с вами, расскажет вам о каждой концепции и применит то, чему вы научились. Это наш секретный соус.
+
+React Query помогает избежать технического долга. Мы поможем вам освоить (   Читать дальше...   )Производство: ui.dev (ex. Tyler McGinnis)Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 07:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DB1EFE7B70B04A56A80A785169DF434C30859C
 ```
 
 https://mybot314.ru/tekegram_catalog/

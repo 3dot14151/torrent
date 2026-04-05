@@ -1,3 +1,56 @@
+###  Публикация: 754727   (568451) от 15.08.2014
+
+Александр Прозоров и др. | Цикл "Ведун" [Книги 1-18] (2013-2014) [MP3]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он пришел из нашего мира… Его называли… ВЕДУН!
+Необдуманно произнесенное заклятие переносит главного героя в мир, для возвращения из которого ему придется изрядно потрудиться мечом и магией в борьбе с силами зла.Жанр: Фэнтези
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA9CFE87106471AFC062B2A21CB675639F35DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044125   (568255) от 18.08.2016
+
+Капитан Фантастик / Captain Fantastic (2016) WEB-DLRip [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они говорят на нескольких языках, знают квантовую физику и разбираются в философии. Они умеют охотиться и обращаться с оружием. Они живут в лесу в полной гармонии с природой. Лишь стечение обстоятельств заставляет их покинуть родной дом и отправиться в большой город. Что будет, когда они столкнутся с цивилизацией, когда на них обрушится первая любовь и мир гаджетов (   Читать дальше...   )Производство: США | Electric City Entertainment, ShivHans PicturesЖанр: Драма, Мелодрама, КомедияРежиссер: Мэтт РоссАктеры: Вигго Мортенсен, Джордж МакКэй, Саманта Ислер, Анналиса Бассо, Николас Хэмилтон, Шри Крукс, Чарли Шотуэлл, Трин Миллер, Кэтрин Хан, Стив ЗанПеревод: Многоголосый закадровый, профессиональный (Чистый звук)Продолжительность: 01:59:33Реклама: Присутствуют голосовые и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C15F784CD911404034F8F0EC4879C13F19342BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922645   (567797) от 29.07.2015
 
 Windows 10 Manager 1.0.0 Final [En]
@@ -6,7 +59,7 @@ Windows 10 Manager 1.0.0 Final [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567797.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Adobe Photoshop Lightroom 6.1.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567790.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Terraria (2011) [Ru/Multi] (1.3.0.7) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567785.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_567611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_567611.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Total Commander 9.20 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567200.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ Udemy | Взламываем соседский Wi-Fi (2017) PCRec [H.264/720p-L
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567187.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ WINDOWS SERVER 2008 R2 SP1 - "RED SENSATION" by neige [Server 2008 R2 SP1] [Ан
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566664.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566437.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566385.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ ESET NOD32 Antivirus 8.0.319.1 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565933.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ Spyshelter Firewall 10.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565925.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ Portal Stories: Mel (2015) [Ru/En] (1.02) RePack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565919.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_564761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_564761.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Movavi Video Editor Plus 22.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564613.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564596.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564553.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564552.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_564253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_564253.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564152.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ KMSAuto Net 2015 1.3.6 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564149.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_563263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_563263.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_562752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_562752.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562733.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.668.1/dlc) Repack YelloSOFT [Digital
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562621.jpg" />
 </div>
 
 
@@ -626,58 +679,6 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.668.1/dlc) Repack YelloSOFT [Digital
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95FE6AD69280693E293BC3C9C9E5103DD26CE41D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044672   (562609) от 21.08.2016
-
-Диапазон 15 / Range 15 (2016) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько отставных военных устраивают шумную вечеринку, а на следующий день просыпаются в каталажке. Побузили немножко ночью, с кем не бывает. И тут вдруг выяснятся, что по стране распространилась зомби-эпидемия. Радости наших героев нет предела, они ждали этого всю жизнь!Производство: США / Street Justice FilmsЖанр: Ужасы, КомедияРежиссер: Росс ПаттерсонАктеры: Мат Бест, Минди Робинсон, Уильям Шетнер, Дэнни Трехо, Шон Эстин, Кит Дэвид, Брайан Коллен, Рон Джереми, Джим О’Хейр, Мартин КлеббаПеревод: Многоголосый закадровый, любительскийПродолжительность: 01:29:32Реклама: Присутствуют голосовые и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD8E33F7A2220F28D81F89ED59FDBF49260F4DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932126   (562608) от 21.08.2016
-
-Dark Orbit: Reloaded 3D (2015) [Ru/En] (10.0.4463) License
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Orbit: Reloaded 3D - это огромная игровая вселенная, безграничные просторы которой бороздят корабли миллионы геймеров по всему миру. Реалистичная графика игры позволит вам почувствовать себя настоящим исследователем галактики. Здесь вы найдете и четко прорисованные, сложные по дизайну космические корабли, необычные планеты, и радующие глаз спецэффекты.Тип издания: LicenseРазработчик: BigpointЖанр: Strategy, Online, MMORPG, Action, AdventureЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A364EB04F2AA6D61341F531AD94CC394D5FD11E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

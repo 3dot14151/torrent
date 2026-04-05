@@ -1,3 +1,31 @@
+###  Публикация: 340027   (665843) от 21.05.2011
+
+Алексей Толстой | Золотой ключик, или Приключения Буратино (2007) [MP3, Ольга Аросева и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый шарманщик Папа Карло вырезал из полена забавного мальчугана и назвал его Буратино. Деревянный мальчик ожил, но для того чтобы стать настоящим человеком, ему предстоит пережить множество приключений. Доброта, смелость и помощь настоящих и бескорыстных друзей помогут ему с честью вынести все испытания.
+
+В аудиокниге звучат музыкальные инструменты XIX в.Жанр: СказкаПродолжительность: 03:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457BB4F9ADA3783F226660EEE634B6C435B35B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 340300   (664829) от 22.05.2011
 
 Олег Анофриев  |  Старинные русские сказки (1998) [MP3|192 Kbps]
@@ -6,7 +34,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664829.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663536.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663093.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ VA - Ultimate Disney [3 Альбома] (2004) [MP3|320 kbps]<Детская м�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662501.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662307.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ Raimond Lap - Muzyka bobasa 2 (2003) [MP3|320 кб/с]<Детская музык
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661558.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ Raimond Lap – Muzyka bobasa 1 (2002) [MP3|320 кб/с]<Детская музы
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661552.jpg" />
 </div>
 
 
@@ -199,7 +227,7 @@ Raimond Lap - Muzyka bobasa 3 (2003) [MP3|320 кб/с]<Детская музык
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661547.jpg" />
 </div>
 
 
@@ -228,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661417.jpg" />
 </div>
 
 
@@ -254,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661096.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659241.jpg" />
 </div>
 
 
@@ -306,7 +334,7 @@ Raimond Lap - Usypianki bobasa (2005) [MP3|320 кб/с]<Детская музы�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658054.jpg" />
 </div>
 
 
@@ -335,7 +363,7 @@ Raimond Lap - Madry bobas (2008) [MP3|320 kbps]<Детская музыка>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658048.jpg" />
 </div>
 
 
@@ -364,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657919.jpg" />
 </div>
 
 
@@ -391,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657907.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ Raimond Lap - Klasyka Bobasa (2005) [MP3|320 кб/с]<Классическая �
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657743.jpg" />
 </div>
 
 
@@ -446,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657277.jpg" />
 </div>
 
 
@@ -472,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656916.jpg" />
 </div>
 
 
@@ -499,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656445.jpg" />
 </div>
 
 
@@ -525,7 +553,7 @@ VA - Super Hit. Летняя дискотека. Часть 1 (2012) [MP3|224 к
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_656405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656405.jpg" />
 </div>
 
 
@@ -554,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656199.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_656190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656190.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655581.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ VA - Большая коллекция песен для детей (2011) [MP3|
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653406.jpg" />
 </div>
 
 
@@ -665,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653376.jpg" />
 </div>
 
 
@@ -678,32 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24D270F183EF79BB265F3E7AAA69042773826FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344788   (653213) от 01.06.2011
-
-VA - Sweet Dreams: Baby's First Mozart (2000) [MP3|320 kbps]<Классика  для детей>
-
->>Аудио для детей и родителей
->>Классика для мам и малышей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Классика  для детейПродолжительность: 02:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2CB07FC8DB8E96ED0F8CC0E3ADB6E69C7B545E
 ```
 
 https://mybot314.ru/tekegram_catalog/

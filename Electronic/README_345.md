@@ -1,3 +1,119 @@
+###  Публикация: 1419230   (342042) от 27.10.2020
+
+VA - Ensancha El Alma Vol. 2 (2020) Ensancha El Alma Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Psy-Trance, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Androcell - Earth And Sky (09:17)
+ 02. Lab's Cloud - Su Alma, Su Cuerpo Y Su Corazón (09:09)
+ 03. Gaudi - In The Middle Of Bad And Good (05:51)
+ 04. Mindsphere - Consciousness (07:11)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Psy-Trance, Progressive TranceПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4634C257C74EC27A4841F686018874ABEBD83BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179976   (341955) от 03.11.2017
+
+ScAnDroid Experiment's - Outside the Atmosphere (2017) Авторская раздача [MP3|320 Kbps] <Experimental Electronic, Ambient, Drum'n'Bass>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almost Above the Clouds
+02. Light Sphere Surrounding World
+03. Calm Outer Space
+04. A Journey Into the Unknown(   Читать дальше...   )Жанр: Experimental Electronic, Ambient, Drum'n'BassПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02D5DB0CCBE7B54CE3D31C5CB5218054FC981745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419144   (341928) от 27.10.2020
+
+VA - Smooth Vocal Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triangle Sun - Tonight (Original Mix)
+02. Lounge Groove Avenue - Take a Little Time
+03. Lazygrooves - Walk with Me (Original Mix)
+04. Marga Sol - Prayer for Love (Soul Avenue's Balearic Blues Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:20:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75585A1A7354EBE813423F2DB1335FC2FD2B2ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075039   (341647) от 27.10.2020
+
+Toytronic - Label-Pack 25 Releases (1997-2009) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Glitch, Leftfield, Electro, Ambient>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember Now (07:28)
+ 02. X Insert (06:03)
+ 03. A Computer (09:02)
+ 04. One Movie (03:47)(   Читать дальше...   )Жанр: IDM, Downtempo, Glitch, Leftfield, Electro, Abstract, Ambient •Продолжительность: 16:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7143E3BCCBA87AEB1C87E21914906FFDC79BA51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964072   (341641) от 27.10.2020
 
 Impurfekt - Discography 16 Releases (2008-2019) [FLAC|Lossless|WEB-DL|tracks]<Industrial, IDM, Electro, Downtempo, Ambient>
@@ -6,7 +122,7 @@ Impurfekt - Discography 16 Releases (2008-2019) [FLAC|Lossless|WEB-DL|tracks]<In
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341641.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Orjan Nilsen pres. Orion - Gobstice (2007) EP [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341394.jpg" />
 </div>
 
 
@@ -62,7 +178,7 @@ VA - Ori Uplift & Alternate High - Uplifting Only 298 (2018) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341350.jpg" />
 </div>
 
 
@@ -91,7 +207,7 @@ VA - Made2Dance Trance Classics (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341348.jpg" />
 </div>
 
 
@@ -120,7 +236,7 @@ VA - FG Top 10: October (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341342.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ VA - Ultimate House Party (2018) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341340.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ Solis & Sean Truby with Audrey Gallagher - Skin Deep (Solis & Sean Truby vs. Ult
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341317.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Solis & Sean Truby with Audrey Gallagher - Skin Deep (Solis & Sean Truby vs. Ult
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341312.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Orjan Nilsen pres. Orion - Gobstice (2007) EP [FLAC|Lossless|WEB-DL|tracks] <Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341301.jpg" />
 </div>
 
 
@@ -262,7 +378,7 @@ Art Of Noise - Moments In Love (2018) 2CD, Compilation [FLAC|Lossless|tracks + .
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341149.jpg" />
 </div>
 
 
@@ -291,7 +407,7 @@ Galaxy Hunter - We Came From Space (2008) [OGG Vorbis|484 Kbps] <Electronic, Ita
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341079.jpg" />
 </div>
 
 
@@ -320,7 +436,7 @@ VA - Flat ABS 80s Hits Fitness Compilation (2019) [MP3|320 Kbps] <Funky, Club Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341004.jpg" />
 </div>
 
 
@@ -349,7 +465,7 @@ Dave Steward - Rage (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341001.jpg" />
 </div>
 
 
@@ -378,7 +494,7 @@ VA - Ana Criado - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340939.jpg" />
 </div>
 
 
@@ -407,7 +523,7 @@ VA - Lazy Life Chillout Collection (2016) [MP3|320 Kbps] <Chillout, Lounge, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340909.jpg" />
 </div>
 
 
@@ -436,7 +552,7 @@ Alphaville & Deutsches Filmorchester Babelsberg - Eternally Yours (2022) [FLAC|L
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340817.jpg" />
 </div>
 
 
@@ -465,7 +581,7 @@ VA - Ibiza Seasons, Winter Edition 2017 (Best Of Deep Chilled House) (2016) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340747.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ VA - 90s Festival & Club Hits (In The Mixes Of Today) (2016) [MP3|320 Kbps] <Pro
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340732.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ ScAnDroid Experiment's - Mechanical Music Box (2018) Авторская разд
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340709.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ Kognitif - My Space World (2012) [MP3|320 кб/с]<trip-hop, abstract, nu-jazz>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340612.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ Hernan Cattaneo - Resident 348-356, 358-390 (2018) (Обновляемая) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340320.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ Tomas Barfod - Paloma (2017) [MP3|320 Kbps] <Downtempo, Electronic, House>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340284.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ Tomas Barfod - Paloma (2017) [MP3|320 Kbps] <Downtempo, Electronic, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8494963AEF93C3C300ABB53C364880628B44BA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180419   (340283) от 04.11.2017
-
-Lustre - Still Innocence (2017) [MP3|320 Kbps] <Ambient, Atmospheric Black Metal>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dreaded Still
-2. Nestle Within
-3. Let Go Like Leaves Of Fall
-4. Reverence Road(   Читать дальше...   )Жанр: Ambient, Atmospheric Black MetalПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C030C6DF74793C4C3B8376AAFABA1D37118ED82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180415   (340282) от 04.11.2017
-
-VA - Progressive Winter (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quivver - Keeps Me Awake (Ale Miguez Remix) 06:59
-02. Sounom - Luft 07:13
-03. Nicky Three Sixty - Bit 06:48
-04. Demons Are Black Holes - Volt 05:50(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831DA28B454D60AB65481C26AFFC5708E5AD283A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180740   (340267) от 04.11.2017
-
-VA - Top 10 Sales Chart - 2017 September (2017) [FLAC|Lossless|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niceshot & Armando Guerrero – Influences (Monje Remix) (08:26)
-02. Cosmonaut & Rebus Project – Exosphere (06:52)
-03. Push'n'Ball – Fibonacci (07:28)
-04. Push'n'Ball – Fibonacci (Traveltech Remix) (08:24)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9643D8BD6F4952F72291A6E4E086BF7B50B27ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074279   (340223) от 18.11.2016
-
-Moby - The Remixes (2016) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porcelain (Luca Agnelli remix) (7:52)
-02. Go (Bart Skils Remix) (9:12)
-03. Why Does My Heart Feel so Bad (Enrico Sangiuliano remix) (7:15)
-04. Porcelain (Alan Fitzpatrick's Late Night Dub) (8:02)(   Читать дальше...   )Производство: DrumcodeЖанр: TechnoПродолжительность: 01:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BD2F6551874BDF19B591C5F4FE7AEF576090A74
 ```
 
 https://mybot314.ru/tekegram_catalog/

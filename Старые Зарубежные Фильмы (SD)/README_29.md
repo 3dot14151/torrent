@@ -1,3 +1,134 @@
+###  Публикация: 1009630   (1004284) от 02.08.2021
+
+Гамлет / Hamlet (1990) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянский режиссер, непревзойденный мастер классических экранизаций пьес Уильяма Шекспира, обладатель двух номинаций на премию «Оскар» Франко Дзеффирелли представляет свою версию бессмертного «Гамлета», жестокой саги о любви, предательстве и смерти. Принцу Гамлету является призрак недавно умершего отца. Подозревая то, что отец умер насильственной смертью, принц (   Читать дальше...   )Производство: США, Великобритания, Франция, Canal+Жанр: Драма, МелодрамаРежиссер: Франко ДзеффиреллиАктеры: Мэл Гибсон, Гленн Клоуз, Алан Бэйтс, Иэн Холм, Хелена Бонем Картер, Пол Скофилд, Стивен Диллэйн, Натаниель Паркер, Шон Мюррэй, Майкл Мэлоуни, Тревор Пикок, Джон МакИнери, Ричард УорвикПеревод: Многоголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 02:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55C63D57BF8583CB83D8BB6F3111AE246B2A5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487336   (1003868) от 04.08.2021
+
+Папа хочет исчезнуть / Papa will verduften (1915) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из названия понятно. Папу видимо что-то (а может быть все) достало. И папа решил скрыться от всех. Но тут...
+А что "Но тут..."? А ничего. Фильм очень странный. Я вот ничего в нем не понял. И внятного описания не нашел. Даже если предположить, что это только фрагмент фильма, всё равно всё очень странно. А может это один из первых фильмов загадочного жанра (   Читать дальше...   )Производство: ГерманияЖанр: Короткометражный, немое киноРежиссер: Герхард ДамманАктеры: НеизвестныПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские отдельным файломПродолжительность: 00:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E077305589C18189F8567E573E0C1AFC6920F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487489   (1003616) от 05.08.2021
+
+Персидский ковер / Der Perser (1919) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003616.jpg" />
+</div>
+
+
+###  Подробнее
+
+У семейной четы годовщина свадьбы, каждый из них решает подарить своей половине подарок. Но это - Германия эпохи Веймарской республики, экономический кризис, все и вся бастуют. Как выяснилось, сделать подарок не так-то просто…Производство: Германия,  Dammann Filmgesellschaft mbHЖанр: Комедия, короткометражный, немое киноРежиссер: Герхард ДамманнАктеры: Герхард Дамман, Hansi DegeПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские отдельным файломПродолжительность: 00:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC6AF9313DB1945D50CDBDF571A5B6E97520ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350190   (1003419) от 05.01.2020
+
+Ирис в крови / Perche quelle strane gocce di sangue sul corpo di Jennifer? (1972) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка по вызову зарезана в лифте престижного дома. Женщина-танцовщица, обнаружившая ее тело, также жестоко убита. Молодая английская модель, работающая в Италии, въезжает в освободившиеся апартаменты и вскоре понимает, что стала новой целью маньяка. Кто же убийца? Возможно, это подруга, с которой она вместе работает? Или ее новый бой-френд? Или ревнивый и обиженный (   Читать дальше...   )Производство: Италия / Galassia Cinematografica, Lea FilmЖанр: Триллер, ДетективРежиссер: Джулиано КарнимеоАктеры: Эдвиж Фенек, Джордж Хилтон, Аннабелла Инконтрера, Паола Кваттрини, Джампьеро Альбертини, Франко Агостини, Оресте Лионнелло, Бен Карра, Карла Брайт, Джанни Пулоне, Карла МанчиниПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1572BA18E7D7D9EB23AFC8B81A67E47DDED3F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478050   (1003074) от 07.08.2021
+
+Мэйбл Норманд. Фонтан нефти / The Gusher (1913) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэйбл отвергает ухаживания влдельца нефтяных вышек ради другого. Расстроившись, нефтепромышленник желает отомстить, и продаёт её избраннику пустой участок земли под видом нефтяного месторождения. Но, ко всеобщему удивлению, на этом участке на самом деле обнаруживается нефть. Ещё больше расстроившись, злодей её поджигает...Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Форд Стерлинг, Мэйбл Норманд, Чарльз Инсли, Берт Ханн, Хэнк Манн, Мак Суэйн, Чарльз Эйвери, Дот Фарли, Уильям Хаубер, Джордж ДжескеПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CCB8793AEB69BD2502A68D32915C164098B08C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487808   (1003062) от 07.08.2021
 
 Современная Золушка / A Modern Cinderella (1910) WEBRip [H.264]
@@ -6,7 +137,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003062.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002899.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002888.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002876.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002830.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002744.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002733.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002723.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002714.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002578.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002525.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002377.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002304.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002285.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002157.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001570.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001412.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001183.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000371.jpg" />
 </div>
 
 
@@ -503,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999943.jpg" />
 </div>
 
 
@@ -530,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999664.jpg" />
 </div>
 
 
@@ -542,139 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:756D41C1366788C75AE6E653139AB502B297A3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599113   (999352) от 06.01.2013
-
-Железный конь / The Iron Horse (1924) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о строительстве трансконтинентальной железной дороги. Дэви Брэндон, после того как индейцы во главе с белым предателем убили его отца, стремится реализовать мечту отца, который грезил, что в один прекрасный день весь североамериканский континент будет связан железными дорогами. Он встречается с подругой детства, в которую он был тайно влюблен и (   Читать дальше...   )Производство: СШАЖанр: Мелодрама, вестерн, историяРежиссер: Джон ФордАктеры: Джордж О`Брайэн, Мэдж Беллами, Чарльз Эдвард Булл, Сирил Чадвик, Френсис Пауэрс, Дж. Фаррелл МакДональд, Джим Уэлш, Джордж Ваггнер, Фред КохлерЯзык озвучки: Русский, перевод интертитровСубтитры: Английские интертитрыПродолжительность: 02:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E575126F61B3C812BF32AD9A674D71B8B782F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599185   (999346) от 06.01.2013
-
-Марш деревянных солдатиков / Babes in Toyland (1934) BDRip [Цветная версия]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в сказочную Страну Игрушек, где помимо трех поросят и ученого кота проживают Стэнни Дам и
-Олли Ди — помощники Мастера игрушек. Наши бестолковые герои всеми способами пытаются помешать несправедливой
-свадьбе городского плохиша Барнаби с малюткой Бо-Пип.Жанр: мюзикл, фэнтези, комедия, семейныйРежиссер: Гас Майнс, Чарли РоджерсАктеры: Стэн Лорел, Оливер Харди, Шарлотта Генри, Феликс Найт, Генри Брэндон, Флоренс Робертс,
-Вирджиния Карнс, Мари Уилсон, Джонни Даунс, Эрни АлександрПеревод: Многоголосый закадровыйПродолжительность: 01:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7FA6775DBBBBF20272773927DEAB78329DF868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599153   (999267) от 06.01.2013
-
-Одна на другой / Una sull'altra (1969) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жена известного доктора Джорджа по имени Сюзан находится в больнице с астматическими осложнениями. Ничего не предвещает беды. Но вскоре Джордж получает известие от своего брата Генри, что Сюзан умерла. Возвратившись домой после похорон, Джордж узнает, что в качестве страховки ему осталось два миллиона долларов. Это в самом деле неожиданно, так как Джордж считал, (   Читать дальше...   )Производство: ИталияЖанр: Эротика, триллер, детектив, gialloРежиссер: Лучио ФульчиАктеры: Жан Сорель, Мариза Мелл, Эльза Мартинелли, Альберто де Мендоса, Джон Айрленд, Риккардо Куччолла, Билл Вэндерс, Франко Бальдуччи, Джузеппе Аддоббати, Феликс ФафосПеревод: Одноголосый закадровыйПродолжительность: 01:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FABD372F9C90F2749F0A2853354E3DB649CBA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599503   (999134) от 07.01.2013
-
-Узник Зенды / The Prisoner of Zenda (1979) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трон погибшего короля Руритании должен занять принц Рудольф, живущий в Лондоне. Чтобы обезопасить наследника престола по дороге на родину, для принца находят двойника — извозчика Сида.Жанр: Комедия, ПриключенияРежиссер: Ричард КвинАктеры: Питер Селлерс, Линн Фредерик, Лайонел Джеффрис, Эльке Зоммер, Грегори Сьерра, Джереми Кемп, Кэтрин Шелл, Саймон Уильямс, Стюарт УилсонПеревод: Двуголосый закадровыйПродолжительность: 1:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BFF2866FBB955526C395AB4AB8E68B58621A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599426   (999048) от 07.01.2013
-
-Королевская охота за солнцем / The royal hunt of the sun (1969) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999048.jpg" />
-</div>
-
-
-###  Подробнее
-
-1528 год. По приказу испанского короля, Франсиско Пизарро во главе отряда бесстрашных, жаждущих наживы наемников, отправляется в Новый Свет на поиски страны с бесконечными запасами золота, которые должны помочь Испании стать самой могущественной державой, а Франсиско добиться общественного положения, которое недоступно ему из-за происхождения, хотя и один из лучших (   Читать дальше...   )Жанр: Приключения, Драма, ИсторическийРежиссер: Ирвинг ЛернерАктеры: Роберт Шоу, Кристофер Пламмер, Найджел Дэвенпорт, Леонард Уайтинг, Майкл Крэйг, Эндрю Кир, Уильям Марлоу, Джеймс Дональд, Александр Давион, Сэм КрауссПеревод: Одноголосый закадровыйПродолжительность: 01:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CED909E1C14105ACB17D971A3ED8C41F3B9928
 ```
 
 https://mybot314.ru/tekegram_catalog/

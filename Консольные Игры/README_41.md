@@ -6,7 +6,7 @@ Disney-Pixar Up (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429241.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pure [PS3] [EUR] [En] [2.41] [Cobra ODE / E3 ODE PRO ISO] (2008)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428097.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mirror’s Edge [PS3] [EUR] [Ru] [2.42] [Cobra ODE / E3 ODE PRO ISO] (2008)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427828.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Need For Speed: Hot Pursuit (Limited Edition) [PS3] [EUR] [En] [3.50] [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427826.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Saw: dilogy (2009 - 2010) [Xbox360] [RegionFree] 8507 - 8955 [FreeBoot] [Unoffic
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427496.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Smart as... / Умник?!  (2012) [PSVita] [EUR] 3.60 [HENkaku] [License] [Ru/E
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425541.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Saint Seiya: Soldiers' Soul (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424564.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ WWE All Stars [PS3] [EUR] [En] [3.56] [Cobra ODE / E3 ODE PRO ISO] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423498.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ UFC Undisputed 3 [PS3] [EUR] [En] [4.01] [Cobra ODE / E3 ODE PRO ISO] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423318.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Assassin's Creed II Game Of The Year Edition [PS3] [RUS] [PAL] [3.55 Kmeaw] (200
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423209.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Call of Duty: Black Ops III (2015) [PS4] [EUR] 5.05 [HEN] [License / 1.27 / DLC]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422302.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ WRC 5 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En/Multi]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422125.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Street Fighter X Tekken [PS3] [EUR] [Ru/En] [3.73] [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421002.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Ratchet & Clank: All 4 One [PS3] [RUS] [PAL] [3.55 Kmeaw] [Rip] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420770.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ The Evil Within + DLC + TU (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [R
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419785.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Mafia II / Мафия 2 + DLC (2010) [Xbox360] [RegionFree] [FreeBoot] [License]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419630.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ FIFA 2020 (2019) [PS4] [EUR] 7.55 [HEN] [License / 1.25] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418334.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Castle of Illusion Starring Mickey Mouse HD (2013) [Xbox360] [RegionFree] [FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417671.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Homefront: Ultimate Edition (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417669.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Alien Rage (2013) [PS3] [EUR] 4.40 [PSN] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416053.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Mass Effect: Andromeda (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.10] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415374.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Cadence of Hyrule (2019) [Switch] [USA] 10.1.0 [NSP] [Unofficial / 1.4.0 / DLC] 
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415299.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Pro Evolution Soccer 2018 (2017) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414130.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Pro Evolution Soccer 2018 (2017) [PS3] [EUR] 4.80 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414115.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Prototype 2 [PS3] [EUR] [Ru] [4.11] [Cobra ODE / E3 ODE PRO ISO] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414112.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Metal Gear Solid VR Missions [PS1] [En] (1999)
 >>PS1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413381.jpg" />
 </div>
 
 

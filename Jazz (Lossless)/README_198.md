@@ -6,7 +6,7 @@ Linda Lavin - Love Notes (2020) Club 44 [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385705.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ James Carter - J.C. on the Set (1994) Columbia [WavPack|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385575.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Eddie Heywood - 1946-1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385574.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ John Pizzarelli  (featuring Daniel Jobim) - Sinatra & Jobim @ 50 (2017) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385570.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Boney James - Honestly (2017) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385568.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Louie Bellson - Don't Stop Now! (1984) 1994, Capri Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385555.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rebekka Bakken - Things You Leave Behind (2018) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385548.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Walt Weiskopf - A World Away (1993) 1995, Criss Cross Jazz[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385229.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Gunnar Svensson - Head, Fingers & Heart (1995) Phono Suecia [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385225.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mose Allison - Lessons In Living (1982) 1994, Discovery Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385221.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Nat King Cole - This Is Nat King Cole (1951-1966) 2CD, 1995, EMI[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385053.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Al Jarreau - 3 CD (1978-1986) [WavPack|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384974.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tommy Flanagan - Sea Changes (1997) Evidence Music[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384772.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Jazz In Paris (2000 - 2001) 76 CD /Universal Music Paris/ [APE|FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384730.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dexter Gordon - Cute: The Lionel Hampton Sessions (1977) 2003, Universe[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384622.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sam Lazar Trio - Playback (1961) 1998, Universal [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383726.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Walt Dickerson - 1976 (2010) Whynot [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383725.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Peter Bernstein - Let Loose (2016) Smoke Sessions Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383724.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Allen Farnham - Live at Maybeck Recital Hall, Vol. 41 (1994) 1996, Concord Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383722.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Kenny Burrell Quartet - The Tender Gender (1966) 2012, Passion Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383721.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Kenny Burrell Trio - A Night At The Vanguard (1959) 1990, MCA Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383635.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Joe Locke & 4 Walls of Freedom - Dear Life (2004) Sirocco Jazz Limited [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383592.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Four Freshmen - 22 Legendary Hits: Portrait of the Artists (1950-e - 1960-e)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383570.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Peter Ecklund - Eclund At Elkhart The Classic Jazz All-Stars (1995) Jazzology Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383405.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Bobby Troup - The Feeling Of Jazz (1994) Star Line [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383403.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Herbie Mann - Live At The Whisky (1969) 2CD, 2016, Real Gone Music [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383382.jpg" />
 </div>
 
 

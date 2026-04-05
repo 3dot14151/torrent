@@ -1,3 +1,57 @@
+###  Публикация: 1454079   (1026583) от 13.03.2021
+
+Sweet Home 3D 6.4.7 [Multi/Ru]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sweet Home 3D это приложение для дизайна интерьера, которое поможет вам нарисовать планировку дома, расставить мебель и посмотреть результат в 3D. Приложение Sweet Home 3D предназначено для тех, кто хочет быстро спроектировать новый дом или сделать редизайн старого.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: Emmanuel PuybaretПоддерживаемая ОС: macOS 10.8.3 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA2746461E50C520CAA725B24F27260A7BE447D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453981   (1026501) от 13.03.2021
+
+Davinci Resolve Studio 17.1 [Multi/Rus]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
+В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
+Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2021Разработчик: Blackmagic DesignПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский ии др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1843A049E87532B6E28ADC8F160AC35527170F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454966   (1026026) от 17.03.2021
 
 Cardhop 1.3.8 [Multi]
@@ -6,7 +60,7 @@ Cardhop 1.3.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026026.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ KCNcrew Pack 03-15-21 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026018.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Duplicate Music Cleaner 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026008.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Kit for Affinity-Templates 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025997.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ TotalFinder 1.13.10 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025951.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ Acorn 6 v6.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025857.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ WidsMob ImageConvert - JPG/PNG 2.17 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025840.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ Easy Translation 1.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025817.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ WidsMob Portrait Pro 2.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025803.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ Allegorithmic Substance Designer 2021.1.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025797.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ Paragon Firewall - Network Monitor for Mac 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025789.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ BetterZip 5 v5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025754.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ Wondershare PDFelement Pro 7.6.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025751.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ Mountain Duck 4.5.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025594.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ Adobe Prelude 2021 v10.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025442.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ BatChmod for Mac 17b5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025432.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ Windows Grid 1.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025307.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ Native Instruments Kontakt 6 v6.5.2 STANDALONE, VSTi, AU [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025235.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ Screencast 1.9.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025136.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ NoteBurner Netflix Video Downloader 1.2.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024922.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ Planner 5D 4.4.2 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024882.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ Topaz Products Unlock Kit 2 for Mac [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024822.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ Rsync Server Basic Edition 2018.08.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024633.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ TurboCAD Pro 12.0.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024586.jpg" />
 </div>
 
 
@@ -623,58 +677,6 @@ TurboCAD Professional - мощное универсальное средство
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3C6154C47AF00D623478D96B1F92D9D6830AE75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457121   (1024575) от 25.03.2021
-
-Allegorithmic Substance Painter 2021.1.1  [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Substance Painter - совершенно новое решение для 3D-рисования с невиданными возможностями и оптимизированным рабочим процессом, позволяющее создавать текстуры проще, чем когда-либо. Substance Painter признали как самое инновационное приложение для 3D рисования.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: AdobeПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FADF6E52B55E85747347B9351EEF5428256A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457204   (1024552) от 25.03.2021
-
-NoteBurner Spotify Music Converter 2.1.3 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024552.jpg" />
-</div>
-
-
-###  Подробнее
-
-NoteBurner Spotify Music Converter - это хорошо продуманный аудио конвертер для Spotify. Он может удалять DRM из музыки Spotify и позволяет сохранять музыку Spotify на локальном компьютере или воспроизводить ее на музыкальном проигрывателе. Кроме того, вы можете использовать NoteBurner Spotify Music Converter для конвертации музыки Spotify в mp3, aac, flac или wav (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2021Разработчик: NoteBurner Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B764E1FD4FB69465E133FE8B649139977D18269
 ```
 
 https://mybot314.ru/tekegram_catalog/

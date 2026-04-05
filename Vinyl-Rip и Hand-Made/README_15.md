@@ -1,3 +1,32 @@
+###  Публикация: 1210826   (778426) от 04.03.2018
+
+Pink Floyd - The Dark Side Of The Moon (1973) Repress, 1974, Harvest [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak To Me (1:08)
+02. Breathe (In The Air) (2:49)
+03. On The Run (3:44)
+04. Time (6:56)(   Читать дальше...   )Производство: EMI Records / Harvest - EMS-80324Жанр: Psychedelic RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210840   (778047) от 05.03.2018
 
 Алла Пугачёва - Виниловая коллекция (1977-1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
@@ -6,7 +35,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778047.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Queen - 8 альбомов + 6 синглов + 1 сборник (1976 - 1995)  
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775442.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Dead Can Dance - In Concert (2013) [FLAC 2.0 16/44.1|Tracks (Web-DL)]<Rock / Dar
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775423.jpg" />
 </div>
 
 
@@ -96,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774876.jpg" />
 </div>
 
 
@@ -125,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774042.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ The Beatles - Let It Be (1970) [FLAC 2.0|192/24|tracks|Vinyl-Rip]<Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773924.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772790.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772491.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Vaya Con Dios - Night Owls (1990) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop, Pop-J
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771959.jpg" />
 </div>
 
 
@@ -263,7 +292,7 @@ Abba - 7 Альбомов (1975-1981) /Polar-Disco mate, Japan/ [FLAC 2.0 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770500.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ Rod Stewart - Tonight I'm Yours (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768678.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ Slade - Легенды Зарубежного Рока (2000) [FLAC 2.0|48/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767490.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ Depeche Mode - 11 альбомов (1981-2005) (Vinil-rip 24 Bit/96 kHz) [FLAC|L
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765514.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ Gary Moore - White Knuckles (1985) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763680.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ Boney M. - Hooray! Hooray! It's A Holi-Holiday (1979) [FLAC 2.0|192/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763679.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763133.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ Deodato (Деодато) - Best Of Deodato (Лучшие произведени�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763023.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ Fonograf - FG-4 (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Roc>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762289.jpg" />
 </div>
 
 
@@ -521,7 +550,7 @@ Rush - 2112 (2012) 1976 [FLAC 5.1|96/24|tracks|Lossless|DVD-Audio] <Hard Rock, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760422.jpg" />
 </div>
 
 
@@ -550,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758525.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ Mireille Mathieu - Sentimentalement Votre (1977) [FLAC 2.0|192/24|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758235.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Coldplay - 4 альбома (Vinil-rip 24 Bit/96 kHz) (2000-2008) [FLAC|Lossless
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757696.jpg" />
 </div>
 
 
@@ -634,7 +663,7 @@ Mando Diao - Aelita (2014) [LPCM 2.0 96/24|DTS 5.1 96/24|Audio-DVD5|BD-Audio] <E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757465.jpg" />
 </div>
 
 
@@ -663,7 +692,7 @@ Queen Of The Damned OST (2002) hand made [restored, declipped][FLAC 2.0|Lossless
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756639.jpg" />
 </div>
 
 
@@ -690,7 +719,7 @@ Metallica - Master Of Puppets (1986) [WavPack 2.0|192/32|image + .cue|Vinil-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756572.jpg" />
 </div>
 
 
@@ -704,35 +733,6 @@ Metallica - Master Of Puppets (1986) [WavPack 2.0|192/32|image + .cue|Vinil-Rip]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D29BC2D7BE47F2CAF87841F007B6A668FA38004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395360   (755577) от 10.07.2020
-
-Fish - Something In The Air (1992) 45 RPM, Single [FLAC|Lossless|tracks] <Prog Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755577.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Something In The Air (Teddy Bear Mix)
-(John Keene)
-B1 Something In The Air (Album Mix)
-(John Keene)(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F438428D44C3DCE881E4A56F966E3AA90ABFDB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

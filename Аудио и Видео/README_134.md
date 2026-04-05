@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655780.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655730.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655651.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Calm Down (Chill Out & Lounge Moods), Vol. 1 (2016) [AAC|~323 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655047.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ The Electric Swing Circus - The Electric Swing Circus (2013) [AAC|~328 Kbps] <El
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655046.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - Calm Down (Chill Out & Lounge Moods), Vol. 2 (2017) [AAC|~327 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655045.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Lounge Music Essentials 2022 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655039.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Audioholic (Groovy Deep-House Tunes), Vol. 4 (2022) [AAC|~324 Kbps] <House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655035.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Miss Kittin, The Hacker - Third Album (2022) [AAC|~317 Kbps] <Techno, Electro, E
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655033.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Chill Out Lovers, Vol. 3 (2022) [AAC|~329 Kbps] <Lounge, Chill Out, Lo Fi>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655031.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - The Lounge Bar Atmosphere - 100% Hits - 100% Instrumental (2016) [AAC|~311 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655006.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Boney M. - The Magic Of Boney M. (Special Remix Edition) (2022) [AAC|~371 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654905.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654699.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654675.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Rammstein - Paris (2017) Live [AAC|~256 кб/с]<Industrial Metal, NDH>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654664.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654561.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654193.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654114.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654110.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654106.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654105.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654089.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - 100% Hotel Deluxe Music, Vol. 4 (2014) [AAC|~310 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654079.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VA - 100% Hotel Deluxe Music, Vol. 7 (2016) [AAC|~317 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654077.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - 100% Hotel Deluxe Music, Vol. 5 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654076.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ VA - DJ Fede presents: Ibiza Sleepless Selection (2022) [AAC|~330 Kbps] <House, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654071.jpg" />
 </div>
 
 

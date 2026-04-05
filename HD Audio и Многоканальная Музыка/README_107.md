@@ -1,32 +1,3 @@
-###  Публикация: 1707111   (113367) от 16.03.2024
-
-VA - С Новым Годом! (1985) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Вальс из к/ф «Анна Павлова» (Е. Дога) — Ленинградский концертный оркестр л у А. Бадхена
-02. Расскажите, птицы (муз. и сл. И. Николаева) — Алла Пугачева
-03. Созвездье Гончих Псов (И. Якушенко – И. Шаферан) — группа «Диалог»(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55384416176FCC706B87AA4CCD13D15875F7DD56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707347   (113364) от 16.03.2024
 
 Justin Timberlake - Everything I Thought It Was (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, R&B>
@@ -35,7 +6,7 @@ Justin Timberlake - Everything I Thought It Was (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113364.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Kid Kapichi - There Goes The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113363.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Маскарад (1986) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113362.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113360.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ VA - С Новым Годом! (1983) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113359.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113357.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113351.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113345.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Smooth Jazz Music Club, Chilled Jazz Masters - Erotic Jazz Bar: Sexy Evening wit
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113344.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113342.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113339.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Вас поздравляют звёзды! (1990) [FLAC 24/192|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113337.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Elan - School Party (1986) [FLAC 16/192|Lossless|tracks] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113328.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Alice Cooper - Dada (1983) [FLAC 24/96|Lossless|tracks] <Hard-Rock, Classic Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113327.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Irene Dresel - Rose Fluo (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <House, Tech
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113326.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113318.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Для вас, женщины! Женский портрет (1987) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113316.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Zhu - Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Bas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113293.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Savage Oath - Divine Battle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113273.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113256.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ M.O.D - Surfin' M.O.D (1988) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113255.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Charles Lloyd - The Sky Will Still Be There Tomorrow (2024) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113249.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Coventhrall - Legacy of Morfuidra (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113248.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ The Rebel Saints - The Rebel Saints (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113245.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Coil - Moon's Milk (In Four Phases) (2002) 5CD Boxset, 2024, Dais Records[FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113230.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ DISC 03(   Читать дальше...   )Жанр: Experimental, Industrial, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:193A2D8F3029CDD2BC8589E2E830388FDEB792A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707646   (113209) от 19.03.2024
+
+VA - Мелодии в танцевальных ритмах (1972) [FLAC 24/192|Lossless|tracks] <Instrumental, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Облади облада (Дж. Леннон — П. Маккартни)
+02. Начинай сначала (К. Портер)
+03. Любовь нельзя купить (Дж. Леннон — П. Маккартни)(   Читать дальше...   )Жанр: Instrumental, RetroПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B39B57FA8CCA2C0FF097955D5144BD84C4A91B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

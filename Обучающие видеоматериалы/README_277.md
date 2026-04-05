@@ -1,3 +1,32 @@
+###  Публикация: 1683879   (128180) от 13.12.2023
+
+Fit-Standard, Владимир Лапин | Техника выполнения упражнений в тренажерном зале (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс по технике выполнения упражнений
+Вы научитесь подбирать вид тренировки для своего клиента, с точки зрения эффективности и безопасности. Разберетесь в составлении плана тренировок и комплексов тренировочных программ.
+На курсе вы изучите
+Базовые правила выполнения упражнений и полный разбор каталога базовых упражнений в тренажерах и со свободными весами.(   Читать дальше...   )Производство: Fit-StandardЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 16:39:45Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A473D806DB4CEBE6B11AEF632E17871B476329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683993   (128175) от 13.12.2023
 
 Alexunder Hess | Figma Pro Secrets (2023) WEB-DL [EN]
@@ -6,7 +35,7 @@ Alexunder Hess | Figma Pro Secrets (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128175.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ react.gg, ui.dev (ex. Tyler McGinnis) | The interactive way to master modern Rea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128170.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Kalacheva School, Вероника Калачева | Композиция си�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128167.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128152.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Udemy, Ohans Emmanuel | AstroJS 101: Build Blazing Fast Frontends! (2023) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128138.jpg" />
 </div>
 
 
@@ -147,7 +176,7 @@ Hudozhnik Online, Дарья Куцаева | Акварельный портр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128136.jpg" />
 </div>
 
 
@@ -175,7 +204,7 @@ Udemy, AI Sciences | AWS Essentials: Master Cloud Computing from Scratch - AWS (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128133.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ Udemy, Nikita I. | Java Stream API полный курс с нуля для но
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128072.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ Adrian Cantrill | AWS Certified Developer - Associate (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128071.jpg" />
 </div>
 
 
@@ -256,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128042.jpg" />
 </div>
 
 
@@ -282,7 +311,7 @@ Hudozhnik Online, Роман Круглов | Графические зарис�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128038.jpg" />
 </div>
 
 
@@ -311,7 +340,7 @@ Medforyou - школа медицины, Михаил Рыбалов | Курс 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128028.jpg" />
 </div>
 
 
@@ -338,7 +367,7 @@ Motion Science, Cameron Pierron | Typography 101 (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128017.jpg" />
 </div>
 
 
@@ -366,7 +395,7 @@ Udemy, Meta Brains | Blender Mastery for Beginners: 3D Design & Rendering (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127935.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127857.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ Motion Science, Cameron Pierron | Master Main Titles (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127850.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127841.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ Andreas Ezelius | Designing, Modeling, and Texturing an Aircraft (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127759.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ Udemy, Auripher Aetas Aurea | Journey to After Effects Mastery: Unleash Your Cre
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127720.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127703.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127698.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Motion Science, Cameron Pierron | Beyond The Parallax Effect (2020) WEB-DL [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127676.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Udemy, Christ Raharja | The Future of Copywriting: Creating Ad Copy & Video with
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127672.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Motion Science, Cameron Pierron | Rock & Roll Parallax (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127641.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127630.jpg" />
 </div>
 
 
@@ -681,35 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F49D441BCCA0454D32B46E54496FAF9E83CB1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684944   (127517) от 17.12.2023
-
-Udemy, Lucas Bazilio | The Complete Lua Programming Course: From Zero to Expert! (2023) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы только что наткнулись на самый полный и углубленный онлайн-курс по программированию на Lua.
-Хотите ли вы:
-- приобретите навыки, необходимые для получения первой работы по программированию на Lua
-- перейти на более старшую должность разработчика программного обеспечения(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 13:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B794290C4643E63E25A59490FF7E23BBAF1B88D
 ```
 
 https://mybot314.ru/tekegram_catalog/

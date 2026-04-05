@@ -1,3 +1,55 @@
+###  Публикация: 1652846   (216200) от 13.08.2023
+
+Rectangle Pro 3.0.6 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rectangle - это приложение для управления окнами на основе Spectacle, написанное на Swift. Перемещайте и изменяйте размер окон в macOS с помощью сочетаний клавиш или областей привязки.Тип издания: macOS SoftwareРелиз состоялся: 09.08.2023Разработчик: © 2023 Ryan HansonПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777716D6B1EB8DFBA7278FADA05852046E272E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269935   (216039) от 17.12.2018
+
+Temp Monitor 1.2.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая утилита для контроля температурного режима вашего Mac, скорости вращения вентиляторов, а так же напряжения питания отдельных компонентов и потребляемой мощности.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2018Разработчик: VIMI StudiosПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBD97D0E5E630E1E438A1B01EC0C899B8F5AA51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270007   (215920) от 17.12.2018
 
 TunesKit Video Cutter 1.0.3 [Multi]
@@ -6,7 +58,7 @@ TunesKit Video Cutter 1.0.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215920.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Arturia Pigments v1.0.0.473 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215673.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ CloudTV 3.9.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215665.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Cocktail Ventura Edition 16.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215371.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ iSwift 4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215161.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Pixave 2.3.13 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215040.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ EdgeView 2 2.840 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214982.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ OmniPlan Pro 4 v.4.5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214664.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ PDF Expert 2.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214464.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ iReal Pro 2023.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214331.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ VideoDuke 2.14 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214321.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ Ninox Database 2.3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213858.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ Baby Audio-Crystalline for Mac 1.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213681.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ future.dj pro - mix everything 1.8.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213674.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ Weather Widget Live Full for Mac 4.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213643.jpg" />
 </div>
 
 
@@ -410,7 +462,7 @@ Enigma Recovery Professional 3.0.162 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213638.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ Topaz Sharpen AI 3.2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213240.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ Topaz DeNoise AI 3.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213118.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ DaisyDisk 4.23.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212962.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ Adobe Dreamweaver 2021 v21.3 U2B [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212927.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ ON1 NoNoise A 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211913.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ Luminar AI 1.5.3 U2B [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211904.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ ON1 HDR 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211902.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ ON1 Effects 2023.5 v.17.5.1.14028 [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211881.jpg" />
 </div>
 
 
@@ -631,59 +683,6 @@ ON1 Effects 2023.5 v.17.5.1.14028 [Multi/Rus]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C5260D0C70F388E5FD5C11B246072A199641873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566124   (211856) от 27.07.2022
-
-Movist Pro 2.8.4 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
-Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.07.2022Разработчик: © 2019 MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEC45F320A72582716256FD127C25A252F2A521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566050   (211845) от 27.07.2022
-
-Native Instruments Traktor Pro 3 v3.5.3.302 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Traktor Pro 3 — программное обеспечение для профессионального диджеинга от известного немецкого разработчика Native Instruments. Позволяет воспроизводить несколько файлов одновременно (формата MP3, WAV, AIFF, Аудио CD), создавая миксы. Есть два дисплея с двухцветным показом формы волны (высокие/низкие частоты), функция определения темпа (с автоматической синхронизацией), (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2021Разработчик: © 2021 Native InstrumentsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B799C6D7B72AB1F36BC9E5B71E9419FE203747C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

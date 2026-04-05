@@ -1,3 +1,55 @@
+###  Публикация: 1671506   (171175) от 25.10.2023
+
+ConceptDraw Office for Mac 10.0.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171175.jpg" />
+</div>
+
+
+###  Подробнее
+
+ConceptDraw Office – пакет приложений для бизнес-продуктивности, разработанный компанией CS Odessa . Пакет ConceptDraw Office включает в себя инструменты для создания и обработки интеллект-карт (mind map), программное обеспечение для управления проектами, и графический редактор для создания бизнес–графики. Приложения в составе ConceptDraw Office поддерживают авторскую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: © 1993 — 2021 CS Odessa Corp.Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A70D832B579BFAEB577F3E61AC9CC0CBC1E139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671545   (171164) от 25.10.2023
+
+The Unarchiver 4.3.6 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unarchiver — небольшая и простая в использовании утилита, которая может разархивировать множество различных типов архивных файлов. Приложение будет открывать распространенные форматы, такие как Zip, RAR (включая v5), 7-zip, Tar, Gzip и Bzip2, также откроет многие старые форматы, такие как StuffIt, DiskDoubler, LZH, ARJ и ARC. Unarchiver даже откроет другие типы файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: © 2023 MacPaw Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FDBE51AB5743635B5888BB553677E0EB3D6AB61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671781   (171069) от 26.10.2023
 
 Retrobatch Pro 1.5 [En]
@@ -6,7 +58,7 @@ Retrobatch Pro 1.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171069.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Lasso 1.5.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171068.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Screenium 3 v.3.3.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171066.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ WinX HD Video Converter for Mac 6.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171042.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Balsamiq Mockups For Desktop 4.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171033.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Native Instruments FM8 1.4.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171032.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Pastebot 2.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171031.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Native Instruments Reaktor 6 v.6.5.0 Rev2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171028.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ OmniPlayer Pro - Media Player 2.1.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171016.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Video Copilot - Optical Flares 1.3.8 [En] + Presets
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170788.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Twitterrific 5 v5.4.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170666.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ SyncBird Pro 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170636.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ iMac Cleaner 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170616.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ Hasher 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170611.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ InPixio Photo Studio Pro 10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170590.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ Murasaki 2.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170491.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ SnapNDrag Pro Screensho‪t‬  4.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170487.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ Download Shuttle Pro for Mac 1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170424.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ Disk Doctor Pro 1.0.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170393.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ Picture Collage Maker 3 v3.7.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170389.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ Window Focus 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170377.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ Downie 4 v.4.6.32 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170357.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ Cisdem DVD Burner 6.3.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170327.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ Luminar Neo 1.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170218.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ Luminar Neo 1.15.0 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C90D98A7F212D84CD28B291BE28DF062967815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672292   (170207) от 27.10.2023
-
-WidsMob AI Retoucher for Mac 3.17 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170207.jpg" />
-</div>
-
-
-###  Подробнее
-
-WidsMob AI Retoucher — это универсальный фоторедактор с искусственным интеллектом. Он позволяет легко и эффективно улучшать фотографии, редактировать изображения и применять фильтры AI. Он включает в себя ряд передовых технологий искусственного интеллекта, в том числе ретушь искусственного интеллекта, портрет искусственного интеллекта, мозаику искусственного интеллекта, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2023Разработчик: © 2023 WidsMobПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287569C08BC232C9FB0196D8FF704245666A5D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672282   (169950) от 27.10.2023
-
-Audiobook Builder 2 v.2.2.7 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для аудиокниг в Mac OS X существует специальный формат M4B, который является стандартом для iTunes Store. В связи с этим, чтобы иметь возможность залить к себе на iPod или iPhone аудиокнигу, не купленную в iTunes Store, нужно иметь инструменты для создания файлов m4b своими руками.
-Ничего особенно выдающегося в M4B нет – он абсолютно идентичен формату AAC. Но всё (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2023Разработчик: © 2006-2022 Splasm Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A74F1F0202377B699D0A8D46125972397EB5FBDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

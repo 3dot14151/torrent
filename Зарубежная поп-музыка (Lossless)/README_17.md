@@ -6,7 +6,7 @@ VA - Italian Best Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888828.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Summer Break 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887739.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Richard Sanderson - Anytime At All (1990) [APE|Lossless|image + .cue] <Europop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886519.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Pure... 80s Dance Party (2011) [FLАС|Lоssless]<Pop, Electronic, Rock, Fu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886051.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Pure... 70s Dance Party (2011) [FLАС|Lоssless]<Pop, Rock, Funk / Soul, E
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886047.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Pure... 80s Remixes (2014) [FLАС|Lоssless]<Pop, Electronic, Dancepop, Hi
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885996.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kinnie Lane - V (2017) [FLAC|Lossless|tracks] <Pop, Female Vocal>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885808.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Tops - I Feel Alive (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885618.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Anna Burch - If You're Dreaming (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885456.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ P!nk (Pink) - I'm Not Dead (2006) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885401.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Stephanie - Stephanie (1991) [FLAC|Lossless|tracks] <Pop, Synth-pop, Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884611.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Belinda Carlisle - California (1997) [FLAC|Lossless] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884443.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Mandy - Mandy (1988) [FLAC|Lossless|image + .cue] <Europop, Synth-Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884399.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Stephanie - Stephanie (1986) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884243.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Pure... 90s Dance Party (2010) Box Set, 4CD [FLAC|Lossless]<Dance, Pop, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884193.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Francisca Valenzuela - La Fortaleza (2020) [FLAC|Lossless|WEB-DL|tracks] <Latin,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883618.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Purity Ring - WOMB (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Indie Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883610.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Hermes House Band - No.1 Gold Selection (Greatest Hits) (2006) [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883514.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Got Hits! Perfect Pop Album (2003) [FLAC|Lossless|tracks + .cue] <RnB, Swin
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882844.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Pure... Crooners (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Vocal Pop, AM Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882698.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Tanita Tikaram - Closer To The People (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882582.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Lady Gaga - Dawn Of Chromatica (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Remixes,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882299.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881216.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Spagna - Dedicated To The Moon (1987) 1988, Epic International (Tokyo Japan) [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881080.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sam Bailey - The Power Of Love (2014) Величайшие хиты XX века 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880344.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Billie Eilish - When We All Fall Asleep, Where Do We Go? (2020) Target Exclusive
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880102.jpg" />
 </div>
 
 

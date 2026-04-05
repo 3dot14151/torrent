@@ -1,3 +1,29 @@
+###  Публикация: 1221834   (688829) от 27.04.2018
+
+Adobe After Effects CC 2018 15.1.1.12 RePack by KpoJIuK  [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688829.jpg" />
+</div>
+
+
+###  Подробнее
+
+After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B937F1A207597E6E23BFD64F6A66BEE27EAF738A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222052   (688827) от 27.04.2018
 
 Webformyself | Фреймворк Vue.js. Полное руководство для современной веб-разработки (2018) [unpacked]
@@ -6,7 +32,7 @@ Webformyself | Фреймворк Vue.js. Полное руководство д
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688827.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ MediaChance Dynamic Auto Painter PRO 5.0.4 Portable by gvozdik (x86/x64) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688661.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688653.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688650.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688643.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_688244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_688244.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [H.264/1080p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688059.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_687963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_687963.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Deadlight: Director's Cut (2016) [Ru/Multi] (1.0) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687949.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.0/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_687882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_687882.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687880.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Mozilla Firefox 38.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687209.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Etherlords 2: The Second Age / Демиурги 2 [Ru] (RePack) 2003 | Focus
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687141.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686518.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Rufus 2.15 (Build 1117) Final Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686511.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Symantec Endpoint Protection 14.3 RU4 (14.3.7388.4000 / 14.3.3580.1100) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685867.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_685834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_685834.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ CorelDRAW Graphics Suite 2019 21.0.0.593 (x64) [Multi/Ru] + Content
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685560.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685552.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685548.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685124.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685117.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Microsoft Security Essentials 4.8.204.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684829.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684776.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_684773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_684773.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222415   (684433) от 29.04.2018
-
-Красный воробей / Red Sparrow (2018) WEBRip [H.264/1080p-LQ] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684433.jpg" />
-</div>
-
-
-###  Подробнее
-
-После вынужденного окончания карьеры из-за профессиональной травмы Доминика Егорова и ее мать сталкиваются с мрачным и неопределенным будущим. Героиня соглашается стать рекрутом в Школе Воробьев, секретной службе, которая обучает уникальных молодых людей использовать свое тело и ум в качестве опаснейшего оружия. После долгого садистского обучения девушка превращается (   Читать дальше...   )Производство: США / Chernin Entertainment, Film Rites, Soundtrack New YorkЖанр: Триллер, драма, детективРежиссер: Фрэнсис ЛоуренсАктеры: Дженнифер Лоуренс, Джоэл Эдгертон, Маттиас Шонартс, Шарлотта Рэмплинг, Мэри-Луиз Паркер, Киаран Хайндс, Джоэли Ричардсон, Билл Кэмп, Джереми Айронс, Текла РютенПеревод: Многоголосый закадровый (HDrezka Studio)Субтитры: Корейские (хардсаб)Продолжительность: 02:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3444ECCD1B8405D7BFBD2DD6EADE104FB49ABDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

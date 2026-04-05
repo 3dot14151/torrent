@@ -1,3 +1,133 @@
+###  Публикация: 1580996   (328808) от 03.10.2022
+
+Суперпитомцы / DC League of Super-Pets (2022) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пес Крипто — лучший друг Супермена, обладающий такими же внеземными способностями, как и его хозяин. Вместе они отважно борются с преступностью в Метрополисе. Но когда Супермена и других членов Лиги справедливости похищают неизвестные злодеи, Крипто приходится подготовить новых помощников, а именно разношерстную компанию животных из приюта, которые неожиданно обрели (   Читать дальше...   )Производство: США, Warner Animation Group, DC Entertainment, Seven Bucks ProductionsЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, криминал, приключения, семейныйРежиссер: Джаред Штерн, Сэм ЛивайнАктеры: Дуэйн Джонсон, Кевин Харт, Кейт МакКиннон, Джон Красински, Ванесса Байер, Наташа Лионн, Диего Луна, Марк Мэрон, Киану Ривз, Томас МиддлдитчПеревод: Дублированный (Лицензия, Red Head Sound), Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6E53E4D4BE1024F1ED853B15CB104AFC240021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773242   (328797) от 03.10.2022
+
+Лиса (1986) SATRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увидела лиса, как на ветку прилетела ворона, у которой в клюве был кусок сыра и решила лиса хитростью заполучить себе этот сыр...Производство: СССР, ТаллинфильмЖанр: детский, кукольныйРежиссер: Райво ЯрвиАктеры: Евгений ЛеоновСубтитры: ОтсутствуютПродолжительность: 00:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F85E947C3DDE69681B14603055074DDC01568D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772599   (328728) от 03.10.2022
+
+Туман из Лондона (1992) SATRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328728.jpg" />
+</div>
+
+
+###  Подробнее
+
+О бескорыстном лисенке, который помог Туману из Лондона.Производство: Россия, СоюзтелефильмЖанр: детский, рисованная анимацияРежиссер: Борис ТузановичАктеры: Игорь Верник, Александр Лущик, Людмила ИльинаСубтитры: ОтсутствуютПродолжительность: 00:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9ABC88D6953C469520B8193C4D107FCAE838E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772600   (328727) от 03.10.2022
+
+Эй, на том берегу! (1992) SATRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328727.jpg" />
+</div>
+
+
+###  Подробнее
+
+О том, что каждый человек должен кого-то любить, о ком-то заботиться, иначе жизнь становится бесцельной.Производство: Россия, СоюзтелефильмЖанр: детский, рисованная анимацияРежиссер: Борис ТузановичАктеры: Людмила Гнилова, Рогволд Суховерко, Евгений ГерчаковСубтитры: ОтсутствуютПродолжительность: 00:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23984A3D70CB06E1C9E1630F6D8184098D9E4D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581001   (328725) от 03.10.2022
+
+Суперпитомцы / DC League of Super-Pets (2022) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пес Крипто — лучший друг Супермена, обладающий такими же внеземными способностями, как и его хозяин. Вместе они отважно борются с преступностью в Метрополисе. Но когда Супермена и других членов Лиги справедливости похищают неизвестные злодеи, Крипто приходится подготовить новых помощников, а именно разношерстную компанию животных из приюта, которые неожиданно обрели (   Читать дальше...   )Производство: США / Warner Animation Group, DC Entertainment, Seven Bucks ProductionsЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, криминал, приключения, семейныйРежиссер: Джаред Штерн, Сэм ЛивайнПеревод: дублированный (Bravo Records Georgia)Субтитры: русские (forced), английские (forced, full, SDH)Продолжительность: 01:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0E2974387D122F35551A418FBE43CA0B0640A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580993   (328724) от 03.10.2022
 
 Суперпитомцы / DC League of Super-Pets (2022) HDRip [H.264]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328724.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328718.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328218.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328126.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328083.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328077.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328040.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327985.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327785.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327751.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_327540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327540.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327270.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327126.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327081.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326526.jpg" />
 </div>
 
 
@@ -401,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326374.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326368.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326342.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326296.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326141.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326038.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7911CAB5C297D626EA5FAA84521D2A10632E07A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 17725   (326034) от 06.10.2022
-
-Золушка / Cinderella (1950) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золушка - бедная сиротка, которую злая мачеха и ее вздорные дочки заставляют тяжко работать с утра до ночи. Она так хочет попасть на королевский бал. На помощь бедняжке приходит Добрая фея! Силой волшебства она наделяет Золушку роскошной каретой, чудесным платьем и необыкновенными хрустальными башмачками.Производство: США, Walt Disney PicturesЖанр: детский, комедия, сказкаРежиссер: Клайд Джероними, Уилфред Джексон, Хэмильтон ЛаскиАктеры: Илен Вудс, Элеонор Одли, Верна Фелтон, Клер Дю Брии др.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E575757AEE6A7C16C499556C5B7CD09E4A97CE91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 15161   (326033) от 06.10.2022
-
-Как я провел свои каникулы / Tiny Toon Adventures: How I Spent My Vacation (1992) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поросячья семейка Хэмтонов отправляется на своем автомобиле в Happy World Land, чтобы провести несколько дней в одном из лучших парков мира. Утенок Плаки уговоривает их взять его с собой.Производство: США, Warner Bros.Жанр: детский, комедия, приключенияРежиссер: Рич Эронс, Кен Бойер, Кент Баттерворф и др.Актеры: Чарльз Адлер, Тресс МакНилл, Джо Аляски, Дон Мессик и др.Перевод: Одноголосый профессиональный (Алексей Михалев)Субтитры: ОтсутствуютПродолжительность: 01:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A76A07731648AA5C2D1A2F3F01B30432373E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582023   (325367) от 07.10.2022
-
-Волк и семеро козлят (1957) BDRip [H.264/1080p-LQ] [handmade remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды голодный Волк услыхал, как Коза спела своим козлятам песенку и они открыли ей дверь. После ухода мамы Козы Волк подобрался к домику и запел ту же песенку. Но козлята, услыхав грубый голос Волка, не пустили его в дом. Тогда Волк пошёл к Медведю-кузнецу. Искусный мастер выковал серому разбойнику тоненький голосок. На этот раз хитрость удалась: Волк проник в (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Петр НосовСубтитры: ОтсутствуютПродолжительность: 00:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69A439063B60D18E73405061BDA2B9C7A555511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582002   (325355) от 07.10.2022
-
-Бобик в гостях у Барбоса (1977) BDRip [H.264/1080p-LQ] [handmade remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рано утром дедушка выгуливает своего домашнего любимца — пса Барбоса. Потом оставляет его одного дома, а сам уходит до вечера, оставив Барбоса «за хозяина». Псу скучно одному, и он приглашает в гости дворнягу Бобика. Перед гостем Барбос начинает строить из себя настоящего хозяина квартиры...Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражка, комедияРежиссер: Владимир ПоповАктеры: Юрий Никулин, Олег ТабаковСубтитры: ОтсутствуютПродолжительность: 00:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2260B7380287D84C0F5F8557C116F91529947656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843099   (325267) от 21.11.2014
-
-Самолеты: Огонь и вода / Planes: Fire and Rescue (2014) BDRemux(BDRip) 3D [1080p] [3D/2D] [hand made 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самолетик Дасти, который стал уже легендой воздушных гонок, вскоре узнает, что его двигатель сильно повреждён, и он никогда не может больше участвовать в скоростных воздушных гонках. Дасти ищет себе новое занятие и знакомится с мужественной пожарно-спасательной командой, которой руководит ветеран авиации вертолёт по имени Ренждер. Узнав, насколько тяжела и опасна (   Читать дальше...   )Жанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Роберт ГаннавейПерсонажи: Дейн Кук, Эд Харрис, Джули Боуэн, Кертис Армстронг, Джон Майкл Хиггинс, Хэл Холбрук, Уэс Стьюди, Брэд Гэррет, Тери Хэтчер, Стейси КичПеревод: Дублированный (Лицензия)Язык субтитров: Русский (forced 3dПродолжительность: 01:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287D54D5E0B6B4F115ECDD872EC3CB1AF1E1E2B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

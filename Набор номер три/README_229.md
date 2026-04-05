@@ -1,3 +1,161 @@
+###  Публикация: 1396643   (745170) от 16.07.2020
+
+Хакеры взломали твиттер Илона Маска, Билла Гейтса, Барака Обамы и других знаменитостей
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_745170.jpg" />
+</div>
+
+
+###  Подробнее
+
+На взломанных страницах появились твиты с предложением перевести биткоины, чтобы получить назад вдвое большую суммуХакеры разместили мошеннические записи в аккаунтах в твиттере ряда американских знаменитостей. Среди пострадавших - предприниматели Илон Маск, Билл Гейтс, Джефф Безос, Уоррен Баффетт, политики Барак Обама, Джо Байден, Майкл Блумберг, компании Uber и (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461527   (744957) от 04.05.2014
+
+Авто-мото фото
+
+>>3
+>>18
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авто-мото фотоАвтомоби́ль – от греч. αὐτο — сам и лат. mobilis — движущийся.
+Мотоцикл – от лат. motor — приводящий в движение и греч. kýklos — круг, колесо.
+СКУТЕР – англ. scooter - от scoot – мчаться.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783395   (744955) от 04.05.2014
+
+The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы королей (2011) [Ru/Multi] (3.4.4.1/dlc) License PROPHET [Enhanced Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит попробовать себя в роли ведьмака Геральта из Ривии, профессионального убийцы монстров. Очутившись в эпицентре политического хаоса, Геральту удается остановить Великого магистра Ордена Пылающей Розы. Вскоре после этого на короля Фольтеста покушается таинственный убийца, очень похожий на ведьмака. Геральту удается спасти короля и он становится его телохранителем. (   Читать дальше...   )Тип издания: LicenseРазработчик: CD Projekt REDЖанр: RPG / 3D / 3rd PersonЯзык озвучки: Русский, Польский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Польский, Английский, Немецкий, Французский, Испанский, Итальянский, Японский, Чешский, Китайский, Венгерский, ТурецкийЯзык интерфейса: Русский, Польский, Английский, Немецкий, Французский, Испанский, Итальянский, Японский, Чешский, Китайский, Венгерский, Турецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A296CFE08F17F97D5B1C7704C99CD5C2B6AD89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 171633   (744645) от 15.01.2022
+
+Охотники на драконов / Chasseurs de dragons (2004-2008) 10xDVD-5
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много-много столетий спустя от нашей Земли остались только острова, которые свободно плавали в мировом океане и соединялись между собой древними висячими мостами. Обедневшие лорды и нищие крестьяне - жители островов - знали лишь один закон: ешь других и не будь съеденным сам. Грозой этого мира были драконы, ужасные монстры-мутанты. И только самые смелые и отважные (   Читать дальше...   )Производство: Франция, Бельгия, Германия, Люксембург / Canal J, CarrimagesЖанр: Рисованная анимация, Детский, ПриключенияРежиссер: Норман ЛеБланк, Жан-Шарль ФинкПеревод: Полный дубляж, вкл. песниЯзык озвучки: РусскийПродолжительность: 1265 мин ~ 21 час
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81B5C7A5731570883B197450E01D08C5C3000D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521988   (744640) от 15.01.2022
+
+Сергий против нечисти (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший священник Сергий, отстраненный от служения в церкви, стал охотником за нечистью. В процессе охоты он сталкивается со следователем Екатериной, которой только предстоит познакомиться с миром сверхъестественного. Сергий и Катя становятся командой и вместе начинают борьбу с фольклорными злодеями — Кощеем, Баюном и прочими.Производство: Россия / МТС Медиа, Паник продакшнЖанр: комедия, ужасы, фэнтези, боевикРежиссер: Кирилл КузинАктеры: Роман Маякин, Лукерья Ильяшенко, Ирина Розанова, Дмитрий Куличков, Николай Шрайбер, Ольга Веникова, Михаил Осипов, Ирина Вилкова, Екатерина Фисун, Наталья ТетеноваПродолжительность: ~00:15:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9567BA14BEE12DCB694E85C03F324C3E774B5927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524184   (744639) от 15.01.2022
+
+God of War (2022) [Ru/Multi] (1.0) License FAIRLIGHT
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744639.jpg" />
+</div>
+
+
+###  Подробнее
+
+God of War – новый взгляд на популярную серию, где бессмертный полубог принимает решение измениться. Для Кратоса это значит нарушить цикл насилия, недоверия и предательства, которое было с незапамятных времен в его семействе. Именно этот цикл привел его к самым ужасным решениям – сделке с Аресом, убийству семьи, сумасшествию и мести, что в итоге стало причиной уничтожения (   Читать дальше...   )Тип издания: LicenseРазработчик: PlayStation PC LLCЖанр: Action, Adventure, RPGЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C7A18B3C137CCF6FE7DA757F8D88CF57CC0913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282286   (744598) от 12.02.2019
 
 Microsoft открыто призвала пользователей отказаться от Internet Explorer
@@ -6,7 +164,7 @@ Microsoft открыто призвала пользователей отказ�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744598.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Dead Space Anthology (2008-2013) [Ru/En] Repack/Rip R.G. Revenants
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744576.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.03/upd5/dlc) Repack R.G. Мех�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744574.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744420.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Time Machine VR (2016) [En] (1.0.0.18931) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744417.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744414.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744411.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744410.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744354.jpg" />
 </div>
 
 
@@ -240,7 +398,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.04.01 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744350.jpg" />
 </div>
 
 
@@ -266,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744344.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>24
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744241.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744025.jpg" />
 </div>
 
 
@@ -349,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_743792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_743792.jpg" />
 </div>
 
 
@@ -376,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_743788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_743788.jpg" />
 </div>
 
 
@@ -402,7 +560,7 @@ Tetris Effect (2019) [Multi] (1.0.6) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743650.jpg" />
 </div>
 
 
@@ -428,7 +586,7 @@ Adobe Photoshop 2020 21.2.1.265 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743649.jpg" />
 </div>
 
 
@@ -454,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743291.jpg" />
 </div>
 
 
@@ -481,7 +639,7 @@ GoodbyeDPI 0.2.1. Launcher 5.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743192.jpg" />
 </div>
 
 
@@ -510,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743185.jpg" />
 </div>
 
 
@@ -524,162 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F579BD027FB86852FFD6F703B8B2B696E6DDC2B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524515   (743180) от 16.01.2022
-
-Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 01.2022 by OVGorskiy 1DVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743180.jpg" />
-</div>
-
-
-###  Подробнее
-
-обновленные русские образы ОС Windows 7 от Microsoft разных редакций и разрядностей максимально возможно приближенные к оригиналу. Образ содержит в себе 9 редакций ОС на 1 DVD (x86 и x64). Включает в себя "чистые", минимально модифицированные образы ОС Windows 7 Starter x86, Home Basic x86/x64, Home Premium x86/x64, Professional x86/x64, Ultimate x86/x64, (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8453DD19388D38F231FE30A9388D2A323FF89F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524510   (743177) от 16.01.2022
-
-Navitel / Навител Навигатор v9.13.73 Full для карт релиза Q4-2021 v9 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навител Навигатор - точная офлайн GPS навигация, геосоциальные сервисы и подробные карты 65 стран мира.  Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего (   Читать дальше...   )Тип издания: Пиратка (ключ встроен)Релиз состоялся: 16.01.2022Разработчик: NAVITELПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBAA78CC69AE9198D985B550E176DC2D10FC025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282301   (743157) от 13.02.2019
-
-В тюрьму за прокси: намечается дело «нового Богатова»? Пермский программист арестован за то, что через созданное им мобильное приложение действовал педофил
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_743157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из разработчиков популярного Android-приложения Kate Mobile Федор В. уже более трех месяцев пребывает в столичном СИЗО. Житель Перми обвиняется в преступлении сексуального характера по отношению к несовершеннолетнему, которого он, по его словам, не совершал. Что вывело правоохранителей на след Федора В., разбирались журналисты «ФедералПресс».Приложение Kate (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282019   (743156) от 13.02.2019
-
-AMD всё успешнее отвоёвывает позиции на процессорном рынке
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_743156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время недавнего квартального отчёта генеральный директор AMD Лиза Су (Lisa Su) подчеркнула тот факт, что вверенная ей компания за последний год смогла заметно нарастить объёмы поставок процессоров и, соответственно, свою рыночную долю. Однако никаких конкретных показателей при этом названо не было. Зато сегодня стали известны данные из отчёта независимой аналитической (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282677   (743155) от 13.02.2019
-
-Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.11231.20174 (2019.02) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, SharePoint (   Читать дальше...   )Язык интерфейса: русский, английский, украинский + языковые пакеты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9EE90F955D0326DF3BD6A8AD43205ED5709C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282446   (743153) от 13.02.2019
-
-Оверлорд / Overlord (2018) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Накануне высадки союзников в Нормандии два американских десантника проникают в оккупированный немцами посёлок, чтобы разрушить их радиомачту. Лазутчикам предстоит столкнуться не только с фашистскими военными, но и с паранормальными последствиями нацистских экспериментов.Производство: США / Bad Robot, Paramount PicturesЖанр: Ужасы, фантастика, боевик, детектив, приключения, военныйРежиссер: Джулиус ЭйвериАктеры: Джован Адепо, Уайатт Расселл, Матильда Олливье, Йохан Филип Асбек, Джон Магаро, Иэн де Кестекер, Джейкоб Андерсон, Доминик Эпплуайт, Джанни Тофер, Джозеф КуиннПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские, английскиеПродолжительность: 01:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4D4341C36503325C30C60817F14ED3C6359882
 ```
 
 https://mybot314.ru/tekegram_catalog/

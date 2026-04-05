@@ -1,3 +1,29 @@
+###  Публикация: 1734803   (51035) от 05.07.2024
+
+Forge Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта игра не является типичным симулятором ремесленника. Здесь спасение зависит от оружия, которое вы выковали, - оружия, достаточно сильного, чтобы разрушить узы. Лабиринт - жестокий учитель. Ресурсы скудны и спрятаны, как секреты, в извилистых коридорах. Лучше всего использовать зоркие глаза - в каждом закоулке может скрываться ключ к свободе.Тип издания: RepackРазработчик: GreenOnionGamesЖанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46FA9B9A7F4C174E2E8AD508529B48BBBB22F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734786   (51006) от 05.07.2024
 
 Baggage Inspector (2024) [Multi] (1.0) Repack FitGirl [VR]
@@ -6,7 +32,7 @@ Baggage Inspector (2024) [Multi] (1.0) Repack FitGirl [VR]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51006.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ My Horse: Bonded Spirits (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51001.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Young Hearts (2024) [Ru/En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50824.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ City Bus Manager (2024) [Ru/Multi] (2.0.16/dlc) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50607.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Chained Together (2024) [En] (1.7.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50582.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.2/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50193.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49686.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Butanooo! Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49668.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Spirit of the Island (2022) [Ru/Multi] (3.0.5.2/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49452.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Secrets of the Heartbeat (2024) [Multi] (20240712) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49429.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Oxygen Not Included (2019) [Ru/Multi] (20240718/dlc) Scene TinyIso
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49406.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.051) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49380.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Superscout (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49352.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Pacific Drive (2024) [Ru/Multi] (1.6.2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49319.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ In Search Of You (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49131.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Fortress Challenge: Fort Boyard (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49105.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Gym Simulator 24 (2023) [Ru/Multi] (1.0) Scene TinyIso
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48688.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Linkito (2024) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48673.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ House Party (2017) [Ru/Multi] (1.3.3.12714/dlc) License GOG [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48628.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Let's School (2023) [Ru/Multi] (1.3.4.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48503.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Director Simulator (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48337.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Mini Airways (2024) [Ru/Multi] (0.8.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47987.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Into The Flames (2023) [Ru/Multi] (2020/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47969.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Chicken Game (2024) [Multi] (1.0.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47891.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Rising Star 2 (2020) [Multi] (1.0) Scene TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47857.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Rising Star 2 - ролевая игра в сочетании с симулят�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:609C67D773650329442650ADF9934B333C7C656D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740998   (47853) от 04.08.2024
-
-Super Life (RPG) (2019) [En] (2.2) Scene TiNYiSO
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super Life (RPG) – казуальный симулятор прогресса. Геймеру предстоит выбрать своего персонажа из предложенных вариантов (имеется и женский, и мужской пол), и развивать его различные показатели, будь то интеллект или силу тела. Инди-разработчики позаботились о том, чтобы разнообразить прохождение, поэтому добавили выбор перка: "удачливый", больший шанс на (   Читать дальше...   )Тип издания: SceneРазработчик: Klick Ink L.P.Жанр: Казуальные игры, Ролевые игры, СимуляторыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E6A6057F9B1963BE656F1570B56B3630B1EC426
 ```
 
 https://mybot314.ru/tekegram_catalog/

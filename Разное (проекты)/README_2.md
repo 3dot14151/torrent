@@ -1,3 +1,29 @@
+###  Публикация: 1078885   (297565) от 02.12.2016
+
+Проекты - VideoHive - Glitch Opener - 18741537 [AEP]
+
+>>Проекты
+>>Разное (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glitch Opener - динамичный проект с эффектами цифровых глюков.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD88516E82C60AE39A17D69D49361C15DADE524F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078896   (297555) от 02.12.2016
 
 Проекты - VideoHive - Inside the Night Package - 18522949 [AEP]
@@ -6,7 +32,7 @@
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297555.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291402.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289799.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287580.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287383.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ VideoHive - Stop Motion Movie - 6378922 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283616.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ VideoHive - Neon Wave Audio Visualizer - 23173515 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281905.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280018.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Video3D - After Effects Projects BONUS 2012 D1+D2
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257075.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255676.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253076.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251267.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221913.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Pond5 - Snowball Alpha Pack - 45188260 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218832.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206532.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205240.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202114.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193336.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173412.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167692.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120038.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69465.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65075.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31606.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30635.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ Concrete Phone Mockups v1 — это шаблон After Effects, предста�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B51A67178A3DB734839FDA76001E8025C025E31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773744   (30634) от 17.01.2025
-
-Проекты - VideoHive - Concrete Phone Mockups v2 - 56015749 [AEP]
-
->>Проекты
->>Разное (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concrete Phone Mockups v2 — это шаблон After Effects, представляющий собой реалистичный макет телефона с камнями и бетоном. Вы можете легко настроить цвета фона в соответствии со своими потребностями.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B8244445EE998177037FD8D5B6A2DBCA8DCC16
 ```
 
 https://mybot314.ru/tekegram_catalog/

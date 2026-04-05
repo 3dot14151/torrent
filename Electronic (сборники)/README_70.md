@@ -1,3 +1,61 @@
+###  Публикация: 1215512   (758216) от 26.03.2018
+
+VA - Existence (2018) [MP3|320 Kbps] <Psy-Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mental Flow - Time Paradox (Original Mix)
+02. Erotic Dream - Tico Tico (Original Mix)
+03. Infuso - You Know It (Original Mix)
+04. Spectro Senses - Inverted Dimension (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 03:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28676292D6129715628936FAC0233B454A99E12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215548   (758087) от 26.03.2018
+
+VA - Luxury Bossa Lounge (2018) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758087.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. York, Wadadli Acoustics - Nothing is over
+002. DJ Maretimo - I Love The Night
+003. Trio Eletrico - Somewhere Behind - Original Mix
+004. Anthya - Sea and Moon(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 11:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89C5B967F255C4378DB4BF280FFB77754FC6EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 321233   (757825) от 09.04.2011
 
 VA - Музыка для Авто from Najim Hassas 3 (2011) [MP3|320 kbps]<Electro-House, House, Trance, Dubstep, Dance, Drum'n'Bass>
@@ -6,7 +64,7 @@ VA - Музыка для Авто from Najim Hassas 3 (2011) [MP3|320 kbps]<Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757825.jpg" />
 </div>
 
 
@@ -41,7 +99,7 @@ VA - Summer Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757731.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ VA - Wine Lounge, Vol. 3 (25 Bar Lounge Tunes) (2016) [MP3|320 кб/с] <Downtem
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756032.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ VA - Pictures Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756031.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ VA - The Magic Dream Of Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756021.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ VA - Dirty Beats Funky Dancefloor (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756016.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ VA - Beach Cafe Deluxe: Ultimate Lounge and Buddha Relaxation Music (2016) [MP3|
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755933.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ VA - Club Dance Switch Miracles (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755932.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ VA - Interference -  Hardstyle Techno Mix (2016) [MP3|320 кб/с] <Hardstyle, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755929.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ VA - Звездный летний клубный драйв (2016) [MP3|253-320
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755922.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - Ibiza Summer (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755916.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ VA - Cosmic Machine - The Sequel (2016) [MP3|320 кб/с] <Electronic, Experimen
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755822.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ VA - Beatport Disco House: Electro Sound Pack #125 (2020) [MP3|320 Kbps] <Disco,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755580.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ VA - Silent Prayer (2020) [MP3|320 Kbps] <Ambient, New Age>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755576.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ VA - E-Dance Tech House: Club Trendy Session (2022) [MP3|320 Kbps] <Tech House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754939.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ VA - The Seven Sense (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754853.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Dreaming Techno: Electronic Mi (2022) [MP3|320 Kbps] <Techno, Minimal, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754516.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - Beatport Techno Electronic: Sound Pack #393 (2022) [MP3|320 Kbps] <Techno, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754515.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - Trance Maniacs Party - Melody Of Heartbeat #164 (2016) [MP3|320 кб/с] <T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754098.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Extra Trance: Bonus [06] (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754012.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Dance Size Forever Moonlight (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754007.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ VA - Discoteka 2016 Dance Club Vol.152 (2016) [MP3|320 кб/с] <House, Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753893.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VA - No Stress Relaxing Beats (2018) [MP3|320 Kbps] <Lounge, Chillout, Downtempo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753062.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ VA - Deep House Collection Vol.161 (2018) [MP3|287-320 Kbps] <Deep House, Club H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753058.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ VA - Deep House Collection Vol.161 (2018) [MP3|287-320 Kbps] <Deep House, Club H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BCBA2E810E5F83E6CEA44CAE9E16B50E0D188D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216075   (753056) от 29.03.2018
-
-VA - Deep House - Slow Motion (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KSHMR Pres.The MVI - Save Me
-02. Jenia Stan - Dimension (Original Mix)
-03. Mike Drozdov & VetLove ft. Natune - I Love You (Original Mix)
-04. Ilkan Gunuc feat. JJ - I Don't Wanna Know (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B802E22AB8A6B9C1AD8BC4FACC0C5D8FA0C4012E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216143   (752847) от 29.03.2018
-
-VA - Empire Records - Mystification (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jake Nicholls - World of Yesterday (Radio Mix)
-02. Snowface - Connected (Radio Mix)
-03. Tencode - You Never Know (Original Mix)
-04. Skeler, Ytho - Final Call(   Читать дальше...   )Жанр: TranceПродолжительность: 02:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FAFB8988FE5108E9034C829FF3FDD9018E7A14D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,135 +1,3 @@
-###  Публикация: 974733   (975871) от 12.01.2016
-
-И. П. Трайнин | Механизм немецко-фашистской диктатуры (1942) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный труд является попыткой хотя бы вкратце вскрыть пружины механизма гитлеровской диктатуры. Мы поэтому не будем подробно останавливаться на „теориях“ гитлеризма. Мы также специально не исследуем экономику и культуру гитлеровской Германии, а фиксируем основное внимание на вопросах, связанных с государственным механизмом, посредством которого гитлеризм угнетает (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1872E9E7716DA56AF8C269A361B5C72078523B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616234   (975825) от 09.02.2013
-
-Т.И. Трофимова | Физика. 400 основных законов и формул [1993] [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975825.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном справочном издании в сжатой форме представлены основные законы и формулы по всему курсу физики, знание которых необходимо для решения задач и осмысления физической сущности явлений. Используются современная терминология и обозначения.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58EF1E82FA06E035792F3C77A6CA7B6E8B64F041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974726   (975801) от 12.01.2016
-
-Г. Леви | Германские монополии (1936) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Германа Леви, вышедшая в Англии в 1935 г. под названием "Industrial Germany", посвящена истории развития и характеристике монополистических объединений (картелей, синдикатов, концернов и трестов) в германской промышленности.
-
-Автор вскрывает особенности промышленных монополий в Германии, показывает общий уровень их развития в целом и в отдельных важнейших (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB81C9626C9329A1C6F351AFC3D5CD248EAD284C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974721   (975794) от 12.01.2016
-
-И. Стоун | Закулисная история войны в Корее (1953) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корейская война, бесспорно, является одним из важнейших событий нашего времени. Из всех современных событий она получила, пожалуй, наиболее широкую гласность. Но огромный поток широко рекламируемых сообщений, поступающий по всем каналам самых совершенных современных средств связи, дает американскому народу лишь одностороннее освещение событий, преподносит ему только (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144C645FCB439B8BF6206EF5B369026D726CF1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974745   (975792) от 12.01.2016
-
-М. Горев | Голод (1922) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брошюра об ужасах голода, разразившегося в 1921 году на Поволжье и в др. местах России.Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B363559392D2D5FDB529418CE7A0DCECAEA5BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974196   (975733) от 12.01.2016
 
 А. А. Потебня | Теоретическая поэтика (1990) [DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975733.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975639.jpg" />
 </div>
 
 
@@ -193,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975631.jpg" />
 </div>
 
 
@@ -219,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975625.jpg" />
 </div>
 
 
@@ -247,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975536.jpg" />
 </div>
 
 
@@ -274,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975468.jpg" />
 </div>
 
 
@@ -301,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975462.jpg" />
 </div>
 
 
@@ -327,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975380.jpg" />
 </div>
 
 
@@ -355,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975371.jpg" />
 </div>
 
 
@@ -382,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975179.jpg" />
 </div>
 
 
@@ -408,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974939.jpg" />
 </div>
 
 
@@ -435,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974794.jpg" />
 </div>
 
 
@@ -461,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974620.jpg" />
 </div>
 
 
@@ -487,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974598.jpg" />
 </div>
 
 
@@ -513,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974589.jpg" />
 </div>
 
 
@@ -539,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974582.jpg" />
 </div>
 
 
@@ -565,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974581.jpg" />
 </div>
 
 
@@ -591,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974559.jpg" />
 </div>
 
 
@@ -619,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974531.jpg" />
 </div>
 
 
@@ -645,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974525.jpg" />
 </div>
 
 
@@ -671,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974478.jpg" />
 </div>
 
 
@@ -682,6 +550,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77CAD0B709A571897C58E6392A119110AF37E779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974469   (974462) от 13.01.2016
+
+Валерий Шаров | Приглашение в космос (2003) [FB2, EPUB, PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — попытка осознания нового, космического этапа развития человечества, который начался в апреле 1961 года. Автор, испытавший все прелести и сложности подготовки к космическому полёту, рассказывает об этом так, что каждый может примерить её на себя.
+Кроме того, в ней приоткрывается завеса над наиболее экстремальными происшествиями во время советских космических (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: FB2, EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C2D5851308813B7623AC5CAEB050FC7DF4D601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974615   (974413) от 13.01.2016
+
+Юрий Мизун | Биопатогенные зоны и здоровье (1998) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги - директор Института медико-экологических проблем Севера Российской Академии медицинских наук - более 30 лет занимается вопросами влияния космоса на биосферу и здоровье людей. В данной книге приводится своего рода самоучитель, по которому вы сможете не только определить биопатогенные зоны, но и научитесь контролировать их положение. Таким образом вы получите (   Читать дальше...   )Жанр: Нетрадиционная медицина, БиоэнергетикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:668ADFE332EF6743E6BF97C514CE815B27051909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974604   (974411) от 13.01.2016
+
+Баир Иринчеев | Танки в Зимней войне (2013) [PDF, DJVU, FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много споров до сих пор бурлит вокруг советско-финской войны, известной также как "Зимняя". Много мифов связано с ней. Один из них - о советских танках, совершенно бездарно и беспомощно потерянных в бескрайних снегах Карельского перешейка и в огромном количестве доставшихся Финляндии в качестве трофеев. Каким образом всё обстояло на самом деле, и как действовала (   Читать дальше...   )Жанр: Военная историяФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EAD8583EFABC1071E9831FBBF1BC4F0A11375E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974684   (974408) от 13.01.2016
+
+Б.С. Гегечкори, А.А. Кладь, Т.Н. Дорошенко | Практикум по плодоводству (лабораторно-практические занятия) (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практикум рассчитан на активное освоение основ дисциплины, приобретение навыков самостоятельного выполнения основных видов работ на коллекционном участке, в саду, в учебной аудитории, а также с помощью специальной литературы. Задания практикума построены с учетом принципа наглядности для того, чтобы студенты после кратких объяснений преподавателя и под его руководством (   Читать дальше...   )Жанр: Сельское хозяйствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394CF3586BA9699E5A36FCAB7413A83927975EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974613   (974398) от 13.01.2016
+
+Б. Блейк Левитт | Защита от электромагнитных полей (2007) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку нашу повседневную жизнь невозможно представить без электричества, то ее невозможно представить и без электромагнитных полей. Однако последние исследования подтверждают то, о чем уже давно говорят защитники окружающей среды – эти вездесущие поля могут создавать проблемы для нашего здоровья, систем жизнеобеспечения и развития городских сообществ. Эта удивительная (   Читать дальше...   )Жанр: ЗдравоохранениеПеревод: Ю. СусловФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EF2D629C556B1503E4FE70B71C8914EF39FCE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

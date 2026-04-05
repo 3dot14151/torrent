@@ -1,29 +1,3 @@
-###  Публикация: 1506423   (799387) от 01.11.2021
-
-Пушки Акимбо / Guns Akimbo (2019) BDRip [H.264] [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майлз небезосновательно считает себя неудачником: девушка бросила, а сам он работает в заштатной конторе разработчиком мобильных игр. Единственная отдушина в жизни парня — интернет-троллинг. Каждый вечер он провоцирует кого-нибудь в сети и, хорошенько поругавшись, спокойно засыпает. Однажды Майлз хамит очередному незнакомцу на сайте, где транслируются жестокие игры (   Читать дальше...   )Производство: Великобритания, Германия, Новая Зеландия / Altitude Film Entertainment, Electric Shadow Company,Жанр: Боевик, КомедияРежиссер: Джейсон Ли ХауденАктеры: Дэниэл Рэдклифф, Самара Уивинг, Риз Дэрби, Нед Деннехи, Наташа Лю Бордиццо, Марк Роули, Грант Боулер, Ханако Футман, Джош Роберт Томпсон, Сет СьострандПеревод: Авторский (Евгений Солодухин (Solod))Субтитры: отсутствуютПродолжительность: 01:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE3F4EECEB125AF917122FEBED3052E1B4517FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506783   (799384) от 01.11.2021
 
 Воспоминания / Reminiscence (2021) HDRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799384.jpg" />
 </div>
 
 
@@ -50,33 +24,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506778   (799380) от 01.11.2021
-
-Спаситель / Savior (1998) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_799380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жена и ребенок офицера американской армии погибают в парижском кафе от взрыва бомбы, подложенной исламистскими террористами. Он убивает несколько человек в мечети, а потом вместе со своим другом уходит в наемники.
-Через несколько лет, уже в 1993 году, он умело и безжалостно воюет на стороне сербов в бывшей Югославии, где спасает из огня безумия межнационального конфликта (   Читать дальше...   )Производство: США, Initial Entertainment Group (IEG), Janet Yang ProductionsЖанр: драма, военныйРежиссер: Предраг АнтониевичАктеры: Деннис Куэйд, Наташа Нинкович, Стеллан Скарсгард, Настасья Кински, Паскаль Роллен, Кэтлин Фостер, Джон МакЛарен, Ирфан Менсур, Сергей Трифунович, Коста АндреевичПеревод: Многоголосый профессиональный, АвторскийСубтитры: русские (full)Продолжительность: 01:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5EC4E72582AEB5BAA0765114F771EB96373172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273763   (799357) от 03.01.2019
 
 Утро славы / Morning Glory (1993) DVDRip [H.264]
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799357.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799342.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799337.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799300.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799298.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799297.jpg" />
 </div>
 
 
@@ -242,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799292.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799273.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799272.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799270.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799269.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799203.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799146.jpg" />
 </div>
 
 
@@ -425,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799121.jpg" />
 </div>
 
 
@@ -452,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799075.jpg" />
 </div>
 
 
@@ -478,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799026.jpg" />
 </div>
 
 
@@ -504,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798997.jpg" />
 </div>
 
 
@@ -530,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798986.jpg" />
 </div>
 
 
@@ -556,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798985.jpg" />
 </div>
 
 
@@ -582,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798921.jpg" />
 </div>
 
 
@@ -608,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798916.jpg" />
 </div>
 
 
@@ -634,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798915.jpg" />
 </div>
 
 
@@ -660,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798908.jpg" />
 </div>
 
 
@@ -671,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:643ADE50E32CEC54CA78CF9E4A9884FF3DEDE947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506932   (798907) от 02.11.2021
+
+Исчезнувший / My Son (2021) WEB-DLRip [Локализованный видеоряд]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время очередной командировки Эдмонд узнает, что в детском лагере пропал его семилетний сын. Версий у следствия много, но зацепок нет совсем. Когда детектива, который связывает исчезновение ребенка с профессиональной деятельностью Эдмонда, отстраняют от дела, отец сам пускается на поиски.Производство: Великобритания, Франция / Великобритания, Франция / Canal+Жанр: Триллер, драма, криминал, детективРежиссер: Кристиан КарионАктеры: Джеймс МакЭвой, Клэр Фой, Том Каллен, Гари Льюис, Майкл Морлэнд, Роберт Джек, Оуэн Уайтлоу, Пол Рэттрэй, Тони Фрутин, Розалинд СидниПеревод: Дублированный (Марафон)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6494F7345A0891798270DC9BF1C6407D43DA693A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122468   (798832) от 05.04.2017
+
+Спящий голос / La voz dormida (2011) HDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798832.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух сестер в смутный период сразу же после завершения гражданской войны в Испании. Младшая из них Пепита, простоватая девушка из окрестностей Кордовы, отправляется в Мадрид, чтобы быть рядом со своей сестрой Гортензией, которая находится в тюрьме и ждет ребенка.Производство: ИспанияЖанр: Драма, военныйРежиссер: Бенито СамбраноАктеры: Мария Леон, Инма Куэста, Хавьер Годино, Фэни Де Кастро, Ана Вагенер, Марк Клотет, Сьюзи Санчез, Дэнни Холгин, Хавьер Мора, Берта ОхеаПеревод: Любительский одноголосый (Serg Tex)Субтитры: ОтсутствуютПродолжительность: 02:033:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF71A20F7D20143892C4F8165D798EFA84FCAAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

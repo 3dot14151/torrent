@@ -1,61 +1,3 @@
-###  Публикация: 1286394   (712747) от 02.03.2019
-
-Би-2 - Нечётный воин 4. Часть 2 (Retro Edition) (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сон про снег (feat. Настя Полева)
-02. Песня для героя (памяти Пипа) (feat. Варя Демидова)
-03. Унисон
-04. Для тех, кто в танке(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB59474F1B59183CF04A7F7ED362008FA5901B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 670253   (711145) от 21.06.2013
-
-...И Друг Мой Грузовик - Еще Маленький (2005) [FLAC|Lossless]<Rock, Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Внутренний Гринпис [07:00]
- 02. Хороший [05:37]
- 03. Del Piero [04:01]
- 04. Пневматика [04:01](   Читать дальше...   )Жанр: Rock, Alternative Rock, Indie RockПродолжительность: 00:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BB642B986DD9BC1054BBFF36F0E0BE00BD0FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 209401   (709522) от 12.06.2010
 
 Андрей Макаревич - Лучшее (2009) [FLAC|Lossless]<Rock>
@@ -64,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_709522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_709522.jpg" />
 </div>
 
 
@@ -99,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707318.jpg" />
 </div>
 
 
@@ -128,7 +70,7 @@ Emerald Night - Король эльфов (2011) [FLAC|Lossless|image + .cue] <S
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707215.jpg" />
 </div>
 
 
@@ -157,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705787.jpg" />
 </div>
 
 
@@ -186,7 +128,7 @@ Ignis - Sic Transit Gloria Mundi (2018) Remastered [FLAC|Lossless|tracks + .cue]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705369.jpg" />
 </div>
 
 
@@ -215,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705352.jpg" />
 </div>
 
 
@@ -244,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704640.jpg" />
 </div>
 
 
@@ -270,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703085.jpg" />
 </div>
 
 
@@ -299,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701286.jpg" />
 </div>
 
 
@@ -328,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700060.jpg" />
 </div>
 
 
@@ -357,7 +299,7 @@ Megakill Paranoise - Total Fucking Shame (2019) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699936.jpg" />
 </div>
 
 
@@ -386,7 +328,7 @@ Coated With Filth - Like Sacrificial Lambs (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699928.jpg" />
 </div>
 
 
@@ -415,7 +357,7 @@ Drops of Heart - Stargazers (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699828.jpg" />
 </div>
 
 
@@ -444,7 +386,7 @@ Unholy Night - Succubus (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Rock'
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699827.jpg" />
 </div>
 
 
@@ -473,7 +415,7 @@ Neutrino, Нейтрон - 7 релизов (2012-2017) [FLAC|tracks+.cue]<Melod
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698681.jpg" />
 </div>
 
 
@@ -501,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698495.jpg" />
 </div>
 
 
@@ -530,7 +472,7 @@ Segregate - 2 Album/2 Singles (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698032.jpg" />
 </div>
 
 
@@ -556,7 +498,7 @@ Maestro Nosferatu - Maestro Nosferatu (2020) [FLAC|Lossless|WEB-DL|tracks] <Goth
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698023.jpg" />
 </div>
 
 
@@ -585,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697503.jpg" />
 </div>
 
 
@@ -614,7 +556,7 @@ Branikald - Тингов Наслаждаясь Распрей (2013) [FLAC|Loss
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695928.jpg" />
 </div>
 
 
@@ -643,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692340.jpg" />
 </div>
 
 
@@ -672,7 +614,7 @@ Nokturnal Mortum - Істина (2017) [FLAC|Lossless|image + .cue] <Folk,Pagan,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689085.jpg" />
 </div>
 
 
@@ -701,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688175.jpg" />
 </div>
 
 
@@ -730,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687223.jpg" />
 </div>
 
 
@@ -744,6 +686,64 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB8A32EEECB5DB668B3AC16C643C9FA72180F5FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028631   (686112) от 24.06.2016
+
+Би-2 - Spirit (2012) 2CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Main CD
+01.Девушки 	03:45
+02.Оптимист 	05:22
+03.Заноза 	04:03(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:47+00:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE636A18CFD5515FBC4999CCCBD68543E47E289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404189   (684016) от 23.08.2020
+
+КняZz - Домашний альбом (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684016.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сексуальный Гитарист
+2. Безбородыч
+3. Пиво-Пиво-Пиво
+4. Шепчущий(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830E0B0C1E7BA168F8015BF4F410D4E7793C0DB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

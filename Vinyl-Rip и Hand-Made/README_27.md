@@ -1,3 +1,32 @@
+###  Публикация: 1046074   (556831) от 25.08.2016
+
+Оризонт - Мой Светлый Мир (1982) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой Светлый Мир
+02. Сани С Бубенцами
+03. Колыбельная
+04. Парус На Волне(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9619F222C9A03A8D61F87A188DE83CAFCFD6B977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045939   (556778) от 25.08.2016
 
 Илья Словесник - Мы так любили Beatles (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
@@ -6,7 +35,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556778.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556681.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Rob Halford (Judas Priest, Fight, Two) - Studio Albums (12 releases) (1993 - 201
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556392.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Duran Duran - Liberty (1991) Unofficial Release, 1992, Not On Label [FLAC 2.0|19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556249.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Johnny Cash - The Johnny Cash Collection 1955 - 1971 (1971) [FLAC 2.0|96/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554635.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Stars On 45 - Звёзды Дискотек - 2 (1982) [WavPack 2.0|192/32|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551667.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Stars on 45 - Звёзды дискотек (1981) [WAW Pack 2.0|192/32|tracks|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551652.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Chicago - Chicago 18 (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz Rock, Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549161.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Панорама '86. Фестиваль Молодежной Популя�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549071.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548151.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Tin Machine - Tin Machine II (1991) [FLAC 2.0 24/192|image|Vinyl-Rip] <Alternati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547897.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546298.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Def Leppard - Pyromania (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545605.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Alan Parsons - A Valid Path (2006) [FLAC 2.0|48/24|image+.cue|Audio-DVD] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544718.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Pussycat - Blue Lights (1981) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Disco, Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544636.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Harry Secombe - At Your Request (1958) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543687.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542648.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542556.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Pink Floyd - The Division Bell (1994) 2LP, 20th Anniversary /2014, Parlophone Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541029.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Electric Light Orchestra - Zoom (2001) 2LP /2013, Big Trilby Records/ [FLAC 2.0 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539388.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Genesis - SACD Anthology (1970-1998) [FLAC 2.0|96/24|tracks+.cue|SACD] <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537639.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536363.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Electric Light Orchestra - Balance Of Power (1986)  [FLAC 2.0 24/96|image (Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535792.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Triptykon - Studio Albums (2010 - 2020) hand made [restored, declipped] [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535704.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535070.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79C01853CC281A25A3C9ED997496471121FF6A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154851   (534969) от 02.08.2017
-
-Мираж - Dance remix (1997) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я Больше Не Прошу
-02. Электричество
-03. Новый Герой
-04. Музыка Нас Связала(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5E88F44B721FD9427BD7FE79AB935D723FBEA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

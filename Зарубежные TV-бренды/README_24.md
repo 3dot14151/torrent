@@ -6,7 +6,7 @@ NG: Запреты / Taboo (2002-2009) SATRip [30 серий]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_799432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799432.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Техногеника. Стратегические Бомбарди
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799181.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Самые милые животные / Super Cute Animals (2014) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799159.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799152.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC. Великий рифт: Дикое сердце Африки / Great Rift:
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799119.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC Horizon: Хаббл. Открытие тайн космоса / Hubble: The 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798968.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ History Channel. Соединенные штуки Америки / United Stuff
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798689.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ History Channel. Соединенные штуки Америки / United Stuff
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798663.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798385.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NGW: Холодное королевство снежного барса / The F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798375.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798370.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NG: Самый опасный наркотик / The World`s Most Dangerous Drug
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798359.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG. Дикая природа Тайваня: остров джунглей / Wi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797759.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797540.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NG. Кунг-Фу – Мастерство убийства / Kung Fu Killers (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797473.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797353.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ History Channel. Нацистский "Титаник" / The Nazi Titanic (2012)
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797345.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ BBC: Секреты космических войн / Space War Secrets (2020) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797340.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797338.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NGW: Наследие леопарда / The Leopard Legacy (2021) WEBRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797332.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ NG: Дикая природа Филиппин / Untamed Philippines (2018) WEBR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797138.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797132.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Discovery. Северная Америка / North America (2013) HDTV [H.264/10
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797130.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ BBC. Тайны вселенной: Великие ученые своими с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797118.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797109.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796686.jpg" />
 </div>
 
 

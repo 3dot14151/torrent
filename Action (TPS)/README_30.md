@@ -6,7 +6,7 @@ Resident Evil 3 Seamless HD Project (2000) [En] (1.0) Repack/Mod Andriel
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362646.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alan Wake's American Nightmare (2012) [Ru/En] (1.03.17.1893) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362436.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Alan Wake (2012) [Ru/En] (1.06.18.1326) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362302.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ American McGee's Alice Dilogy (2000-2011) [Ru/En] Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360533.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bionic Commando [Ru/En/Multi] (RePack) 1988 - 2009 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359587.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358169.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Resident Evil 6 (2013) [Ru/En] (1.0.6.165/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355253.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355128.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ DreadOut (2014) [Ru/Multi] (2.2.11/dlc) SteamRip Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352747.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Toukiden: Kiwami (2015) [En/Multi] (1.1.0/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350548.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (1.5.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349492.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Volume (2015) [Ru/Multi] (1.1.04) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346885.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Legacy of Kain: Soul Reaver 2 (2001) [Multi] (1.02) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346139.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Mortal Shell (2020) [Ru/Multi] (1.09676/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345994.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Sniper Elite V2 Remastered (2019) [Ru] (1.0.2797) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345112.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ State of Mind (2018) [Ru/Multi] (1.2.24280) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342479.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Resident Evil 6 (2013) [Ru/En] (1.1.0/dlc) Repack Mizantrop1337
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342466.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Shadwen (2016) [Ru/Multi] (1.0.0 build 1356/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341978.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Clandestine (2014) [En] (1.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341256.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.05/upd4/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340181.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Admin (2016) [En] (1.02) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339686.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Evolva / Evolva. Риск заражения (2000) [En] (1.2.944) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339277.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc) License SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337600.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Darksiders II: Deathinitive Edition (2015) [Ru/Multi] (1.0/18.11.2016/dlc) Licen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337329.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Rogue Trooper Redux (2017) [Ru/En] (R5592) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334765.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Remnant: From the Ashes (2019) [Ru/Multi] (216 652/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332995.jpg" />
 </div>
 
 

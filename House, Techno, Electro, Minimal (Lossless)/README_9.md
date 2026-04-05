@@ -1,3 +1,32 @@
+###  Публикация: 1358319   (969703) от 07.02.2020
+
+The Avener - Heaven (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Electro, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Avener - Heaven (02:19)
+02. The Avener - Fly (Feat. SPELLES) (03:43)
+03. The Avener - Beautiful (Feat. Bipolar Sunshine) (03:09)
+04. The Avener - Mute Your Mind (Feat. M.I.L.K.) (03:54)(   Читать дальше...   )Жанр: EDM, Deep House, Electro, Nu DiscoПродолжительность: 01:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817D7E0F7A28B11B7D8AB0CD13C046F22CB6CA15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222943   (968696) от 08.02.2020
 
 Tell - Discography 6 Releases (2014-2018) [FLAC|Lossless|tracks] <Deep House, House, Downtempo, Tech House>
@@ -6,7 +35,7 @@ Tell - Discography 6 Releases (2014-2018) [FLAC|Lossless|tracks] <Deep House, Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968696.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ P. Laoss | P.Laoss - Discography 7 Releases (2009-2014) Hizou, Somnia, Pronounce
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967417.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Textural Being - Discography 14 Releases (2010-2016) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967174.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Alampa - Paranoia (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967138.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Ministry Of Sound: The Annual 2008 (2007) 3CD [FLAC|Lossless|tracks + .cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965547.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ VA - Dance Max 2003/1 (2003) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963580.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Dubfire - HYBRID: A Decade Of Dubfire (2017) Compilation [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961928.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Blacktree - The Beginning Of Summer - The Beginning Of The Party (2016) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959333.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ VA - Deepalma 2017 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955100.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ VA - Playa Del Carmen 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Min
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953877.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ VA - Bedrock 18 - Signals (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953774.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Zimmer - Zimmer (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Nu Disco,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949612.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ VA - Anjunadeep 11 (Mixed by Jody Wisternoff & James Grant) (2020) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949547.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Mano Le Tough - Changing Days (2013) [FLAC|Lossless]<Tech House, Deep House, Min
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949379.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ VA - Krake #002 (2014) [FLAC|Lossless|WEB-DL]<Techno, Ambient, IDM, Abstract, Dr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947327.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ Goran Geto - Diving To Deep (Dub Techno Edition) (2013) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947081.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Scooter - Ace (2016) /Scene/ [FLAC|Lossless|tracks] <Deep House, Tech House, Tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943610.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ VA - Cirque du Son: 5th Anniversary Compilation (2017) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942995.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Tim Dash - Afterlight 001 (2020) [FLAC|Lossless|image + .cue] <Deep Techno, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942601.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Omar S - You Want (2020) [FLAC|Lossless|tracks + .cue] <House, Deep House, Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942597.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ cv313 (c v 3 1 3, CV313) - Discography 44 Releases (2007-2020) echospace [detroi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941991.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ VA - Best Remixes, Vol. 2 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941890.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ VA - Best Remixes, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Tran
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941888.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ VA - Best Remixes, Vol. 3 (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941886.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Panda Eyes - Continue (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dubstep,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940849.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ Panda Eyes - Continue (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dubstep,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:555FA55CFDCF513454168D9571D389B3E3095629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984126   (940333) от 08.02.2016
-
-VA - Anthems II 1991-2009 (2008) 3CD Mixed [FLAC|Lossless|tracks + .cue] <House, Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust - Music Sounds Better With You (3:24)
-02. Daft Punk - Around the World (2:29)
-03. Azzido da Bass - Dooms Night (Timo Maas remix) (2:45)
-04. The Prodigy - Firestarter (2:27)(   Читать дальше...   )Жанр: House, Techno, TranceПродолжительность: 01:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F2129D470664D663554C3456C4A70DC00CD030
 ```
 
 https://mybot314.ru/tekegram_catalog/

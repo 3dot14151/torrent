@@ -1,3 +1,134 @@
+###  Публикация: 511178   (128074) от 14.12.2023
+
+Последний единорог / The Last Unicorn (1982) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128074.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далекой волшебной стране в сиреневой роще жил юный прекрасный единорог, знающий секреты магии. Однажды он узнал, что все его сородичи исчезли с лица земли, и он может стать последним единорогом на свете.
+И тогда единорог покинул свою рощу и отправился в долгое и опасное путешествие, чтобы разыскать и спасти своих сородичей. Много приключении пришлось ему пережить (   Читать дальше...   )Производство: Великобритания, США, ЯпонияЖанр: детский, приключения, фэнтезиРежиссер: Джулз Басс, Артур Ранкин мл.Актеры: Алан Аркин, Джефф Бриджес, Миа Фэрроу, Тэмми Граймз, Роберт Клейн, Анджела Лэнсбери, Кристофер Ли, Кинен Уинн, Пол Фрис, Рене Обержонуа и др.Перевод: Многоголосый профессиональныйСубтитры: Русские, АнглийскиеПродолжительность: 01:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC46B2D07C8B8685E35B0D14FFEE81928B506DAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684105   (128057) от 14.12.2023
+
+Страшилка и тайна города света / Scarygirl (2023) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная Арки — самый необычный подросток на планете. Она дружит с фантастическими существами и постоянно изобретает удивительные устройства. Когда её отца похищает опасный учёный, девочке приходится преодолеть свои страхи и отправиться на его поиски в загадочный город света.Производство: АвстралияЖанр: фэнтези, приключения, компьютерная анимацияРежиссер: Рикард Куссо, Таня ВенсанАктеры: Джиллиан Нгуен, Реми Хай, Сэм Нил, Роб Коллинз, Тим Минчин, Анна Торв, Лив Хьюсон, Марк Коулз Смит, Дебора Мэйлман, Кейт МерфиПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5374A7D2ABA5AB0C9C3F11633543061DF4DAE1FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684270   (127890) от 15.12.2023
+
+Чарли и фантастическая четверка / Heroes of the Golden Mask (2023) WEB-DL [H.264/1080p] [UKR, EN / EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарли, бездомный сирота и мелкий воришка, невероятным образом переносится в другой мир, где команде четырех супергероев нужна его помощь. Они должны сразиться с темным магом, который задумал уничтожить древо жизни. И одна из 5 волшебных масок, которые наделяют супергероев силой, по неясной причине выбрала именно Чарли. Ему предстоит пройти через множество приключений (   Читать дальше...   )Производство: Китай / Arcana Studio, CG Bros Entertainment., Fox VFX Labs, Heroes of the Golden Mask Films, Trigger MusicЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Шон Патрик О’РейлиАктеры: Кифер О’Рейли, Рон Перлман, Пэттон Освальт, Кристофер Пламмер, Наташа Лю Бордиццо, Осрик Чау, Байрон Манн, Джейн Иствуд, Шон Патрик О’Рейли, Алекс МендосаПеревод: Дублированный (Cinemaker)Язык озвучки: украинский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40B87F1EC4263D317A888B390D1FB314FC431CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684275   (127887) от 15.12.2023
+
+Весёлый малыш Бэтмен / Merry Little Batman (2023) WEB-DL [H.264/1080p] [UKR, EN / UKR, EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сын Бэтмена Дэмиан Уэйн остается один в поместье Уэйнов в канун Рождества. В это праздничное время суперзлодеи атакуют Готэм-сити, чтобы испортить людям Рождество и причинить как можно больше проблем городу. Но Дэмиан превращается в маленького Бэтмена и отправляется на защиту Готэма.Производство: США / Amazon MGM Studios, DC Studios, Warner Bros. Animation, Warner Bros. TelevisionЖанр: мультфильм, комедия, семейныйРежиссер: Майк РотАктеры: Люк Уилсон, Йонас Кибриб, Джеймс Кромуэлл, Дэвид Хорнсби, Dolph Adomian, Майкл Филдинг, Брайан Джордж, Тереза МакЛафлин, Синтия Кэй МакУильямс, Натали ПаламидесПеревод: Дублированный (Postmodern)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A0DA1D533C7AFE97C7B978FC737192D1B5789B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684276   (127864) от 15.12.2023
+
+Весёлый малыш Бэтмен / Merry Little Batman (2023) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [UKR, EN / UKR, EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сын Бэтмена Дэмиан Уэйн остается один в поместье Уэйнов в канун Рождества. В это праздничное время суперзлодеи атакуют Готэм-сити, чтобы испортить людям Рождество и причинить как можно больше проблем городу. Но Дэмиан превращается в маленького Бэтмена и отправляется на защиту Готэма.Производство: США / Amazon MGM Studios, DC Studios, Warner Bros. Animation, Warner Bros. TelevisionЖанр: мультфильм, комедия, семейныйРежиссер: Майк РотАктеры: Люк Уилсон, Йонас Кибриб, Джеймс Кромуэлл, Дэвид Хорнсби, Dolph Adomian, Майкл Филдинг, Брайан Джордж, Тереза МакЛафлин, Синтия Кэй МакУильямс, Натали ПаламидесПеревод: Дублированный (Postmodern)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 01:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0B2C9F0935F9059F05F84B095A7A1309B5344C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516858   (127756) от 16.12.2023
 
 Тёмный кристалл / The Dark Crystal (1982) BDRip [H.264/720p]
@@ -6,7 +137,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127756.jpg" />
 </div>
 
 
@@ -34,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127725.jpg" />
 </div>
 
 
@@ -60,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127714.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127702.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127695.jpg" />
 </div>
 
 
@@ -139,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127684.jpg" />
 </div>
 
 
@@ -165,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127682.jpg" />
 </div>
 
 
@@ -193,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127518.jpg" />
 </div>
 
 
@@ -219,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127510.jpg" />
 </div>
 
 
@@ -245,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127292.jpg" />
 </div>
 
 
@@ -271,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127156.jpg" />
 </div>
 
 
@@ -297,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127140.jpg" />
 </div>
 
 
@@ -323,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127123.jpg" />
 </div>
 
 
@@ -349,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127120.jpg" />
 </div>
 
 
@@ -375,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127105.jpg" />
 </div>
 
 
@@ -401,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126980.jpg" />
 </div>
 
 
@@ -427,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126942.jpg" />
 </div>
 
 
@@ -453,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126936.jpg" />
 </div>
 
 
@@ -479,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126717.jpg" />
 </div>
 
 
@@ -506,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126712.jpg" />
 </div>
 
 
@@ -533,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126548.jpg" />
 </div>
 
 
@@ -544,136 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3846EB930FE8EA93E64B1C37054D10958716F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686461   (126532) от 23.12.2023
-
-Страшилка и тайна города света / Scarygirl (2023) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Арки — самый необычный подросток на планете. Она дружит с фантастическими существами и постоянно изобретает удивительные устройства. Но когда её отца похищает опасный учёный, ей приходится преодолеть свои страхи и отправиться на его поиски в загадочный Город Света. Всё больше раскрывая тайны этого места, Арки понимает, что ей предстоит спасти не только своего (   Читать дальше...   )Производство: Австралия / Highly Spirited, Passion Pictures Australia, Particular CrowdЖанр: мультфильм, фантастика, фэнтези, детектив, приключенияРежиссер: Рикард Куссо, Таня ВенсанПеревод: дублированный (Мосфильм-Мастер)Субтитры: отсутствуютПродолжительность: 01:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F6D29A40BB30623377140E36F9CB8CB9872723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686565   (126484) от 23.12.2023
-
-Алеша Попович и Тугарин Змей (2004) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда подступила к Ростову вражеская орда во главе с Тугариным Змеем, Алеша Попович не сумел уберечь жителей от выплаты дани. Теперь богатырь должен восстановить доброе имя, вернуть золото и прогнать неприятеля с земли русской. Он отправляется в путешествие, а помогут ему в этом дядька Тихон, девушка Любава, ее бабушка и говорящий конь Юлий.Производство: Россия / СТВ, студия МельницаЖанр: мультфильм, комедия, приключения, мюзикл, фэнтези, мелодрама, семейныйРежиссер: Константин БронзитАктеры: Олег Куликович, Лия Медведева, Дмитрий Высоцкий, Анатолий Петров, Наталья Данилова, Сергей Маковецкий, Иван Краско, Татьяна Иванова и др.Субтитры: отсутствуютПродолжительность: 01:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A87C2D369CB90771F93AAB7D295CCAC2EA493DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686774   (126316) от 24.12.2023
-
-Бука. Мое любимое чудище (2021) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скандал в царском семействе: своенравная принцесса Варвара сбежала из дворца и отправилась через лес на поиски прекрасного принца. Однако вместо заветной встречи с возлюбленным её берет в плен Бука, самый опасный разбойник королевства. Но очень быстро становится понятно, что бойкая принцесса готова превратить жизнь Буки в кошмар, лишь бы дойти до своей цели. Так (   Читать дальше...   )Производство: Россия / Анимационная студия «Сказка», Кинокомпания CTBЖанр: мультфильм, приключения, фэнтезиРежиссер: Виктор Глухушин, Максим ВолковАктеры: Любовь Аксёнова, Алексей Чумаков, Алёна Долецкая, Тимур Родригез, Виолетта Вольская, Прохор Чеховской, Владислав Копп, Пётр Иващенко, Максим Волков, Диомид ВиноградовЯзык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 01:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:200D7143F7FF0C4C1F7C42CA2B25571AE92C2007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686794   (126294) от 24.12.2023
-
-Моя фея-проказница / Meine Chaosfee & ich / My Fairy Troublemaker (2022) HDTVRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крошечная фея Виолетта, провалив экзамен по волшебству, не сможет доставлять подарки в мир людей. Обманным путем маленькой волшебнице удается проникнуть на Землю и подружиться с девочкой Макси, которая живет с мамой в большом городе, скучая по своему старому загородному дому. Виолетта обещает своей новой подружке исполнить сокровенное желание, если Макси поможет (   Читать дальше...   )Производство: Люксембург, Германия / Ella Film, Fabrique d'Images, Red Post Studio, SERUЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Каролин ОригерАктеры: Йелла Хаазе, Люси Кэролан, Алекс Авенелл, Юлиан Мау, Джон Чедвик, Лукиан Русари, Таммо Каулбарш, Стефан Бенсон, Тим Гробе, Марион Фон ШтенгельПеревод: Дублированный (СиПиАй Филмз / CPI Films)Субтитры: отсутствуютПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F0CF360006391DE54729D6499A5242A77BE353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547446   (126063) от 13.10.2025
-
-Сказка о царе Салтане (1943) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм - экранизация одноименной сказки А.С.Пушкина о царе Салтане, сыне его - славном и могучем богатыре князе Гвидоне и прекрасной царевне Лебедь – Фильмофонд Киностудии «Союзмультфильм». Три девицы под окном пряли поздно вечерком... А потом много чего было: и любовь, и клевета, и предательство, и чудеса, и множество волшебных приключений, и тридцать (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, детский, сказкаРежиссер: Татьяна Басманова, Валентина Брумберг, Зинаида БрумбергАктеры: Михаил Жаров, Мария Бабанова, Леонид Пирогов, Дмитрий Орлов, Фаина Раневская, Клавдия Коренева, Фаина ШевченкоСубтитры: ОтсутствуютПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5C7D10B3C050B386D655C27AA57B6DA0D721EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

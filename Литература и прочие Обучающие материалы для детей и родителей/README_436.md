@@ -1,3 +1,60 @@
+###  Публикация: 1300742   (46295) от 19.08.2024
+
+Элен Кэй и др. | Секрет забастовки. Рассказы и стихи про американских ребят (1935) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти рассказы, стихи и песни были напечатаны в журнале американских пионеров „Нью Пайонир" ("Новый пионер") и в газете коммунистической партии Америки "Дэйли Уоркер".
+
+Многие из песен, напечатанных в этой книге, не имеют автора; их сложили американские ребята, сражаясь с полицией в забастовочных пикетах.
+(   Читать дальше...   )Жанр: Детские рассказыИздательство: Огиз-ДетгизФормат: PDFКачество: Необработанный скан + OCR без ошибок
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F096DBE3DD0AC1E20A8C15113D70318D3B614218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038951   (46005) от 22.08.2024
+
+Рафаэлло Джованьоли | Спартак (1937) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический роман известного итальянского писателя рассказывает о крупнейшем в античном истории восстании рабов. В центре произведения — образ бесстрашного борца, который все силы и страсть души отдает борьбе против угнетения. Спартак гибнет, но идея свободы остается в душах подневольных людей.
+
+Роман воссоздает одну из самых интересных, насыщенных драматическими (   Читать дальше...   )Жанр: Детская проза, историяПеревод: Лев ФренкельИздательство: ДетиздатФормат: DJVUКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C2BD5F7DBA630B4CB5EC862B5C2F396C62E4F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745951   (45352) от 28.08.2024
 
 В.Гакина (ред.) | Русские народные сказки (1948) [PDF]
@@ -6,7 +63,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45352.jpg" />
 </div>
 
 
@@ -33,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45251.jpg" />
 </div>
 
 
@@ -60,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44307.jpg" />
 </div>
 
 
@@ -86,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44133.jpg" />
 </div>
 
 
@@ -112,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43676.jpg" />
 </div>
 
 
@@ -140,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43293.jpg" />
 </div>
 
 
@@ -166,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43269.jpg" />
 </div>
 
 
@@ -193,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43173.jpg" />
 </div>
 
 
@@ -219,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42922.jpg" />
 </div>
 
 
@@ -245,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42918.jpg" />
 </div>
 
 
@@ -271,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42708.jpg" />
 </div>
 
 
@@ -298,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42706.jpg" />
 </div>
 
 
@@ -325,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42474.jpg" />
 </div>
 
 
@@ -353,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42330.jpg" />
 </div>
 
 
@@ -379,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42325.jpg" />
 </div>
 
 
@@ -405,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42315.jpg" />
 </div>
 
 
@@ -431,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42296.jpg" />
 </div>
 
 
@@ -457,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42229.jpg" />
 </div>
 
 
@@ -485,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42228.jpg" />
 </div>
 
 
@@ -511,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42187.jpg" />
 </div>
 
 
@@ -539,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41988.jpg" />
 </div>
 
 
@@ -567,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41921.jpg" />
 </div>
 
 
@@ -593,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41904.jpg" />
 </div>
 
 
@@ -620,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41903.jpg" />
 </div>
 
 
@@ -631,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81E1460BBBB18A7E8A5DD1E8CA27BAAA8ACA11A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752456   (41901) от 30.09.2024
-
-Л.Э. Генденштейн, А.А. Булатова и др. | Физика. Учебник для 8 класса (в 2 частях, Часть 1) (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Линия учебных изданий для основной школы. Материал разбит на два уровня сложности и представлен как канва сценариев уроков, реализующих деятельностный подход к обучению: тщательно подобранные задания погружены непосредственно в теорию. Имеется набор заданий трех уровней сложности. Есть рубрики «Домашняя лаборатория», «Олимпиадные задачи», приведены задания для проектной (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: БИНОМ. Лаборатория знанийФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3399BDBE24A107AE09D686C693A80C2833D2A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752477   (41872) от 30.09.2024
-
-Журнал | Юный эрудит №8 (264) (август 2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41872.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Юный эрудит» - Журнал для самых любознательных. В занимательной форме журнал расскажет любознательным читателям об истории и сегодняшнем дне науки и техники, выдающихся ученых и первооткрывателях. Ребята узнают, как устроены машины и механизмы, от чего возникают смерчи и циклоны, что вызывает землетрясения и извержения вулканов. Специальные рубрики посвящены современным (   Читать дальше...   )Жанр: Детский научно-популярный журналИздательство: Издательский дом «Лев»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D89DD1657A1AA4890F0E7C1CCE82123867496D
 ```
 
 https://mybot314.ru/tekegram_catalog/

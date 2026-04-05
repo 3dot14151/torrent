@@ -6,7 +6,7 @@
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350659.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349889.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Мумии, застывшие во времени / Mummies. Frozen in Time
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349750.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Инопланетяне. Мозговой штурм / Aliens: The Big Thi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349706.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Зачем нам Луна? / Do We Really Need the Moon? (2011) WEB-DL [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349700.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348538.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347430.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347212.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery. Юпитер: близкий контакт / Jupiter: Close Encounte
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347154.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC: Тайны атомной эры / Secret of Our Nuclrear Age (Britains Nuc
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346588.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG: Затерянный храм империи инков / Lost Temple of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346446.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NG: Затерянный храм империи инков / Lost Temple of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346438.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG. Франциск-бунтарь / Rebel Pope (2016) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345657.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345283.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Discovery: Мятежники ледяного озера / Ice Lake Rebels (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344058.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DL [H.264/1080p] 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343944.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ NG: Дикая природа Чили / Wild Chile (2017) WEB-DLRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343942.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ BBC: Волшебные числа: таинственный мир матема
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343842.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ BBC: Питомцы - дикие в душе / Pets: Wild at Heart (2016) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343119.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342982.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342936.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NG: Чудеса инженерии / Big Bigger Biggest (2008-2009) HDTVRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342925.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ BBC: Гении современного мира / Genius Of The Modern World (
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342922.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342921.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342782.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ NGW. Дикий Нил / Wild Nile (2014) HDTVRip [H.264/720p-LQ] (1-3 сери�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342116.jpg" />
 </div>
 
 

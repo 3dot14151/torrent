@@ -1,32 +1,3 @@
-###  Публикация: 1603437   (1045736) от 09.01.2023
-
-VA - Bravo Hits Zima 2023 (2022) [MP3|320 Kbps] <Synthpop, Dance, Disco, Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanah - Nic dwa razy (W. Szymborska)
-02. twocolors - Heavy Metal Love
-03. Rosa Linn - SNAP
-04. bryska - kraksa(   Читать дальше...   )Жанр: Synthpop, Dance, Disco, ElectropopПродолжительность: 01:54:51 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA385A15686ACCDE3CFED9F828556EDB5D5FFC2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603507   (1045716) от 09.01.2023
 
 Shania Twain - Not Just A Girl (The Highlights) (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <Pop>
@@ -35,7 +6,7 @@ Shania Twain - Not Just A Girl (The Highlights) (2022) [FLAC|96/24|Lossless|WEB-
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045716.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Billy Joel - Streetlife Serenade (1974) Reissue, Remastered, 2015, Audio Fidelit
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045682.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ DJ Bobo - Instrumentals (2020) [MP3|320 Kbps] <Eurodance, Pop>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045635.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Winter Club Hits 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045552.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045485.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Peter Gabriel - Up (2002) [OGG Vorbis|430 Kbps] <Electronic, Rock, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045417.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Discofox Vol. 4 - Die ultimative Schlagernacht (2023) [MP3|320 Kbps] <Germa
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045325.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ The Magic Disco Machine - 2 Albums (1975, 1976) LP [MP3|320 Kbps] <Funk, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045314.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Best Of Nu Monkey Records 2022 Part 2 (2023) CD, Compilation [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045313.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Gilla - 5 Albums (1975 - 2000) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045275.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Best Of Nu Monkey Records 2022 Part 1 (2022) CD, Compilation [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045220.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Hits Nu Disco Views 002 (2023) [MP3|320 Kbps] <Indie Dance, Nu Disco, Deep 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045218.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045138.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Elton John - Elton John (1970) Reissue, 2011, Mercury [OGG Vorbis|430 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044882.jpg" />
 </div>
 
 
@@ -430,64 +401,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605410   (1044851) от 18.01.2023
-
-Rüdiger Meng (Roger Meno) - Rhythm And Energy (1991) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm And Energy (3:04)
-02. Blanch A Voil (3:20)
-03. Aspects Of Sport (3:23)
-04. Speed Up (3:42)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B654D47A2EAE7BFB3A79F71F2DF7640F8B5CC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605408   (1044846) от 18.01.2023
-
-Rüdiger Meng (Roger Meno) - Disco Groovin' (1988) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synchronity (3:22)
-02. Turbolights (2:10)
-03. Its Just Illusion (4:04)
-04. Disco Groovin' (3:10)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6716BBA7A86A9B79DD5C78CEC28789D87AE0470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605675   (1044837) от 18.01.2023
 
 Gilbert O'Sullivan - The Best Of (2022) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] <Pop>
@@ -496,7 +409,7 @@ Gilbert O'Sullivan - The Best Of (2022) 3xCD, Compilation [FLAC|Lossless|tracks 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044837.jpg" />
 </div>
 
 
@@ -525,7 +438,7 @@ VA - 70s Forever (2019) 3 CD [OGG Vorbis|450 Kbps] <Rock, Soft Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044823.jpg" />
 </div>
 
 
@@ -554,7 +467,7 @@ Bad Boys Blue - House Of Silence (1991) [OGG Vorbis|900 Kbps] <Electronic, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044819.jpg" />
 </div>
 
 
@@ -583,7 +496,7 @@ Kovacs - Child Of Sin (2023) [FLAC|Lossless|tracks] <Pop, Vocal Jazz, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044814.jpg" />
 </div>
 
 
@@ -612,7 +525,7 @@ Londonbeat - Legends (2004) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Europop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044761.jpg" />
 </div>
 
 
@@ -641,7 +554,7 @@ CC Catch - Best Of (1998) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop, Euro Hou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044734.jpg" />
 </div>
 
 
@@ -670,7 +583,7 @@ Celine Dion - Ultimate Box (2008) 2 CD [OGG Vorbis|480 Kbps] <Rock, Blues, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044721.jpg" />
 </div>
 
 
@@ -699,7 +612,7 @@ Mylene Farmer - En Concert (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, C
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044622.jpg" />
 </div>
 
 
@@ -728,7 +641,7 @@ Re-Tide - Adventures With The Right Groove (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044541.jpg" />
 </div>
 
 
@@ -742,6 +655,93 @@ Re-Tide - Adventures With The Right Groove (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32BB43F82D5C238468BA9E247A0D671E82F86CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606297   (1044461) от 21.01.2023
+
+VA — Танцуют все! / Оригинальные записи 1962-1988 / (2005) [MP3|320 Kbps] <Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ай-лю-ли - Людмила Лядова
+02. Я люблю танцевать - Анна Герман
+03. Шутка - Эдуард Хиль, Людмила Сенчина
+04. Веселая кадриль - Лев Барашков(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1734272C6D9464397D1B007F476C60C3F65222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606774   (1044316) от 23.01.2023
+
+Shania Twain - Up! (2002) [OGG Vorbis|480 Kbps] <Rock, Country Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up!
+02. I'm Gonna Getcha Good!
+03. She's Not Just A Pretty Face
+04. Juanita(   Читать дальше...   )Жанр: Rock, Country Rock, Pop RockПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157D5B4056AEA9653F64E086865F7F510107F5D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606340   (1044238) от 24.01.2023
+
+Seal - Seal (1991) 4CD, Deluxe Edition, Remastered, 2022, Rhino - Warner Records [MP3|320 Kbps] <RnB, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Water (7:56)
+02. The Beginning (5:38)
+03. Future Love Paradise (5:08)
+04. Violet (4:56)(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 04:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB0BA4FC5F9A68490C7A0F53FA3162A2CB87374
 ```
 
 https://mybot314.ru/tekegram_catalog/

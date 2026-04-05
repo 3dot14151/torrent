@@ -6,7 +6,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587910.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NG: Секретные материалы древности: Меч в камн
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580813.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NG: Секретные материалы древности: На заре ци
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579748.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG: Секретные материалы древности. Содом и Го
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579710.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575623.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NG: Секретные материалы древности: Тайна Жан�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572684.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571822.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG: Секреты Шамбалы. В поисках священных пеще
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566372.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NG: Разгадка египетских тайн. Подлинный Рамз�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556225.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NG: Разгадка египетских тайн. Настоящая Клео�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556203.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ NG: Последние тайны Третьего рейха  / Nazi Underworld
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548024.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529893.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522866.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Discovery: Расследование заговоров. Проверка фа�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521124.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ History Channel: Детективы морских глубин-5. Алекса�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510452.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477002.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476664.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ NG. Загадки истории: Королева-девственница / H
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474196.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470147.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466408.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460891.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425960.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424701.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423465.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ NG: Секретные материалы древности. Святой гр�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367604.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ NG: Секретные материалы древности. Кровь Хри�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365186.jpg" />
 </div>
 
 

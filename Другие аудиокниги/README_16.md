@@ -1,3 +1,55 @@
+###  Публикация: 1026923   (700326) от 17.06.2016
+
+Ольга Муравьёва | Как воспитывали русского дворянина (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700326.jpg" />
+</div>
+
+
+###  Подробнее
+
+В современном обществе все больше растет интерес к дворянской культуре, дворянскому воспитанию. Дворянское воспитание приносило удивительные плоды. Русский аристократ - это совершенно особый тип личности, человек необыкновенной честности, благородства и тонкости чувств. Автор книги пытается разобраться, как воспитывались дети аристократов - чему их обучали и как (   Читать дальше...   )Жанр: Культура, историяПродолжительность: 05:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9C007A651B402035B08572E657B738BCCAE00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132723   (698688) от 10.05.2017
+
+Ольга Носова | В объятиях удава. Воспоминания узницы ГУЛага (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка из Сибири пошла в армию во время Великой Отечественной войны. Поступила в военное училище, стала офицером. Служила на Дальнем Востоке. А через два года после войны была арестована с грудным ребенком на руках. Обвинили ее чуть не в шпионаже...Жанр: МемуарыПродолжительность: 06:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30577A3368E615AD85E6948FCF37F5CF333DC458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221112   (698613) от 22.04.2018
 
 Джесси Бёртон | Миниатюрист (2018) [MP3]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698613.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694252.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692962.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691409.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690860.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687347.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687342.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686655.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686654.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686572.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684848.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682870.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682488.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682486.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682484.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682458.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682351.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680243.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679134.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678598.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678331.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678322.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676986.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676571.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35D8D99BAAC1720524AEA5918C38D99A3A5D26A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030224   (676537) от 29.06.2016
-
-Александр Боровский | История искусства для собак (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676537.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Ах, вот где собака зарыта!" - воскликнула кошка Мона и не отдавала мне рукопись, пока не прочитала и не просидела ее досконально. А отдавая, вздохнула: "Ну почему этот ваш Боровский пишет только для собак и людей и никогда - для кошек…" Михаил Трофименков, "Ъ"В этой книжке Боровский предстает не только как критик, но и как писатель, (   Читать дальше...   )Жанр: Научно-популярное изданиеПродолжительность: 05:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441794F4AFC073F399D7BD7FB1A78B35EA6E08D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289804   (676462) от 21.03.2019
-
-Мишель Кондер | Мастер-класс от плейбоя (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Себастьяно Кастильоне – успешный бизнесмен. В его жизни есть все – деньги, власть, женщины. Единственное, чего ему не хватает, – должности генерального директора семейной фирмы. Его дед строго убежден, что Себастьяно еще не готов занять эту должность. Ведь у него до сих пор нет семьи. Себастьяно решается на отчаянную авантюру и предлагает Поппи, с которой познакомился (   Читать дальше...   )Жанр: Зарубежные любовные романыПродолжительность: 03:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C5C9036EA40F9E780384068343B7A2341301B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

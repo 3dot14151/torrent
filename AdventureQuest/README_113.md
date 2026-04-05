@@ -1,3 +1,81 @@
+###  Публикация: 1811743   (8507) от 11.08.2025
+
+Death Relives (2025) [Ru/Multi] (0.14.68.408) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8507.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Death Relives" - это игра в жанре выживания от первого лица, разработанная командой, которая любит мифологию и ужасы. Беги, прячься и выживай. Это все, что вы можете сделать, но это не будет легко, когда за вами охотится ацтекский бог, подобный Ксипе Тотеку. Станьте юношей по имени Эдриан и постарайтесь спасти его мать, которую хочет принести в жертву (   Читать дальше...   )Тип издания: RepackРазработчик: Nyctophile StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, ТурецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601B59384B11AAD225AFAE635781171008CF3850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811983   (8322) от 12.08.2025
+
+Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Let'sРlay [Enhanced]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение знаменитой игры Hellblade: Senua’s Sacrifice. Возвращение воительницы Senua в истории сурового выживания в Исландии времен викингов, полной мифов и жестокости. Стремясь спасти тех, кто стал жертвой тирании, Senua вынуждена вступить в битву, в которой ей предстоит победить тьму внутри и снаружи.Тип издания: RepackРазработчик: Ninja TheoryЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D5A81410FFEA07B9E245560A7ED6156428F96A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811989   (8307) от 12.08.2025
+
+The Roottrees are Dead (2025) [Multi] (20250717) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8307.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Roottrees are Dead предлагает геймерам погрузиться в хитросплетения семейной истории, окутанной загадкой трагедии. На фоне авиакатастрофы, произошедшей в декабре 1998 года и унесшей жизни семьи Рооттри, тайтл ставит перед юзерами задачу раскрыть тайны, окружающие известную семью, производящую конфеты. Путем исследований и дедукции участники отправляются на поиски, (   Читать дальше...   )Тип издания: SceneРазработчик: Evil Trout Inc.Жанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Испанский, НемецкийЯзык интерфейса: Английский, Французский, Испанский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79848BB09A4598126156093F50301111A6ABC1A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725116   (8187) от 13.08.2025
 
 Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Decepticon [Enhanced]
@@ -6,7 +84,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8187.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.48) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8160.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Cabernet (2025) [Multi] (1.1.19) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7961.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7956.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7940.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ BROK the InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack Let'sРlay [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7931.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wan
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7754.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7565.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7558.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Night Loops (2023) [Ru/Multi] (1.4.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7552.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Wante
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7524.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Disaster Report 4: Summer Memories (2020) [Multi] (1.05(a)/dlc) License GOG [Dig
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7395.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Boxville 2 (2025) [Ru/Multi] (2.17.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7388.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Darkest Files (2025) [Multi] (1.0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7377.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7347.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Somerville (2022) [Ru/Multi] (Patch 4 Build 11993672) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7317.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7146.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7138.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6990.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Dread Flats (2025) [Ru/Multi] (2.10.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6974.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Estranged: Act I / Estranged: The Departure (2014, 2020) [Ru/Multi] (Build 16907
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6964.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ PEAK (2025) [Ru/Multi] (1.24a) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6861.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6815.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ The End of the Sun - это мистическая приключенческа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B12B74FA8127A69C9B5481CE166C48BC9EDC4457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813952   (6541) от 22.08.2025
-
-The Beast Inside (2019) [Ru/Multi] (1.05) Repack Yaroslav98
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6541.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Beast Inside – психологический хоррор с современной графикой и новыми впечатлениями для любителей ужастиков. Помимо обычного прохождения страшных локаций, в этой игре присутствует отличный сюжет, в котором вы поиграете за двух персонажей, попавших в мрачную историю. Действия разворачиваются в 1979 и повествуют об Адаме, работнике ЦРУ, который переехал в загородный (   Читать дальше...   )Тип издания: RepackРазработчик: Illusion Ray StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A493A1C3A2C90D0B4174300DDB0251DEBED7776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767444   (6506) от 22.08.2025
-
-Monospaced Lovers (2024) [Ru/Multi] (1.0.5.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monospaced Lovers сочетает в себе несколько жанров. Это и платформер, и адвенчура, и визуальная новелла, и пулевой ад. Здесь надо прыгать по платформам, исследовать локации, выполнять квесты, болтать с неписями, искать секреты и подсказки, решать джамп-пазлы, разбираться с головоломками и даже сражаться с боссами. Поединки с главарями напоминают боссфайты из скролл-шутеров, (   Читать дальше...   )Тип издания: LicenseРазработчик: Scarlet String StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Испанский, Японский и другиеЯзык интерфейса: Русский, Английский, Испанский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF09464914CF98667F5E04F3A4B1AF859C84D10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813944   (6486) от 22.08.2025
-
-Herdling (2025) [Ru/Multi] (1.1.2) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Herdling - это новое приключение от Okomotive, создавших атмосферные и полюбившиеся критикам игры серии FAR, а также от Panic, издателей Firewatch. Отправляйтесь в грандиозную горную экспедицию со стадом очаровательных животных. Вам предстоит пробираться узкими тропами, сталкиваться с жуткими опасностями и неожиданными препятствиями и раскрыть тайну на вершине.Тип издания: RepackРазработчик: OkomotiveЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBCF11DE8FE4CB3E8879E83ED8E2F888D7CB861
 ```
 
 https://mybot314.ru/tekegram_catalog/

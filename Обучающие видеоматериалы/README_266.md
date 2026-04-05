@@ -1,3 +1,32 @@
+###  Публикация: 1519772   (146076) от 25.12.2021
+
+YO DO, Кирилл Семаев | Курс Linux v 2.0. От 0 до Linux Админа WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чему научим:Установка программного обеспечения
+    Управление безопасностью и правами на файлы
+    Управление файловой системой
+    Управление пакетами(   Читать дальше...   )Производство: YO DOЖанр: АдминистрированиеПродолжительность: 14:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524AAB92776D9775814F88957CB6139629ABCC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435376   (146073) от 27.12.2020
 
 Ryan Ribot | Stylized Creature Texturing Volume 2 (2015) PCRec [En, Ru]
@@ -6,7 +35,7 @@ Ryan Ribot | Stylized Creature Texturing Volume 2 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146073.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Eran Dinur | PNT205 3D Plants and Digital Environments (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145955.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Ryan Ribot | Stylized Creature Texturing Volume 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145831.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ Udemy, Clyde Matthew | *NEW* JavaScript Complete Grandmaster 2020. Ongoing Updat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145824.jpg" />
 </div>
 
 
@@ -111,7 +140,7 @@ Ryan Ribot | Stylized Creature Texturing (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145800.jpg" />
 </div>
 
 
@@ -137,7 +166,7 @@ Mark Lauren | You Are Your Own Gym (2013) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145797.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ Udemy, Clyde Matthew | *NEW* DOM 2020 Build Dynamic Websites with JavaScript Par
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145566.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145560.jpg" />
 </div>
 
 
@@ -218,7 +247,7 @@ Udemy, Holczer Balazs | Параллелизм, многопоточность �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145400.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Gumroad, Jad Saber | Дизайн стилизованный окружающе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145349.jpg" />
 </div>
 
 
@@ -271,7 +300,7 @@ Hudozhnik Online, Ольга Кабаева | Природа акварелью 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145327.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Kalacheva School, Анастасия Ермакова | Между светом 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145291.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145286.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Eran Dinur | SPT201 SpeedTree Techniques for VFX (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145200.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Gumroad, Jad Saber | 3D рабочий процесс для концепт-ар
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145126.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ SmartData | Конференция по инженерии данных (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145094.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Helloluxx.com | MILG11. Hard Surface Modelling Tactics for Cinema 4D (2016) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144950.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Bulavina School, Дарья Булавина | Основы позировани
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144882.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ Udemy, Hussein Nasser | Fundamentals of Database Engineering (2021) WEB-DL [En /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144786.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ Keda Z | Онлайн-класс по постобработке свадьбы 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144669.jpg" />
 </div>
 
 
@@ -544,7 +573,7 @@ Udemy, Roman Trukhtanov | CSS – Как анимировать интерфей
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144664.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ Udemy, Anthony Kelleher | English Grammar Launch Advanced: Upgrade your speaking
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144653.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Udemy | IELTS Daily - Speaking Starter Course (2021) WEB-DL [En / En Sub]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144634.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Liveclasses, Антон Мартынов | Практика генерации �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144590.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144533.jpg" />
 </div>
 
 
@@ -668,35 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E04F54DFAFA05281E91E6FB3546A6CBDAC83792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520057   (144490) от 26.12.2021
-
-WhitePhotoSchool, Сергей Гунин | Основы фотографии Online (2021) PCRec
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144490.jpg" />
-</div>
-
-
-###  Подробнее
-
-О курсе:
-Большой и полноценный онлайн курс по основам фотографии, от одного из самых вдохновляющих спикеров в России!
-И когда мы говорим "большой", то это значит более 9 часов обучающего видео!
-Курс составлен с учётом многолетнего опыта преподавания и всего опыта фотошколы Вайт за последние 8 лет.(   Читать дальше...   )Производство: WhitePhotoSchoolЖанр: фотографияПродолжительность: 09:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E23EF30F84F777F24BAB761D37A7F04B1522EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

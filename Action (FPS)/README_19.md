@@ -1,3 +1,55 @@
+###  Публикация: 1037211   (614874) от 23.07.2016
+
+World Of Undead (2016) [En] (1.0 Hotfix) Repack Other s
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614874.jpg" />
+</div>
+
+
+###  Подробнее
+
+World Of Undead является новым захватывающим шутером от первого лица с элементами развития персонажа и режимом Tower Defense.Тип издания: RepackРазработчик: ZK-TechЖанр: Action (Survival horror, Shooter, Tower Defense), 3D, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDEE2311D9F403FBF8EBF198EF22B4FE441B91A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128954   (614126) от 29.06.2017
+
+Outlast 2 (2017) [Ru/En] (1.0.17517) Repack R.G. Механики
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outlast 2 – это продолжение Outlast, популярной игры в жанре «хоррор». Ее события разворачиваются в той же вселенной, но уже с другими действующими лицами и в совершенно другом месте. Outlast 2 предоставляет уникальную возможность погрузиться в бездну человеческого разума, скрывающего по-настоящему страшные тайны. Ни одно противостояние нельзя разделить на «белых» (   Читать дальше...   )Тип издания: RepackРазработчик: Red BarrelsЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FFACCDF2184C5100D532F1A03E43B4F1605190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230593   (613540) от 13.06.2018
 
 Prey - Mooncrash (2018) [Ru] (1.0.1.0) Repack xatab
@@ -6,7 +58,7 @@ Prey - Mooncrash (2018) [Ru] (1.0.1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613540.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0/upd1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611930.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Sniper: Ghost Warrior (2010) [Ru] (1.3) Repack =nemos= [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611377.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Occupation (2019) [Ru/Multi] (1.3) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611368.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Call of Duty 4: Modern Warfare (2007) [Ru] (1.7) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609781.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Unreal (2000) [En] (226/dlc) License GOG [Gold]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609065.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Lust for Darkness (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608309.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Nosferatu: Wrath of Malachi (2003) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606650.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Hard Reset: Extended Edition [Ru/En] (Repack/1.51) 2011 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605140.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Hard Reset: Extended Edition [Ru/En] (Repack/1.51) 2011 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_605137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_605137.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604461.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Duke Nukem Forever (2011) [Ru/Multi] (1.0.244/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603250.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Inner Voices (2017) [Ru/Multi] (20170704) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602347.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Half-Life 2 Anthology (2004-2007) [Ru/En] (1.0) Repack xatab [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602058.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Labyrinth Escape (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600830.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ ArmA: Armed Assault (2007) [En] (1.18/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597717.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Crysis 2 Maximum Edition [Ru/En/Multi9] (Steam-Rip/1.9) 2011 | R.G. Киноза
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596704.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Whispers (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595546.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Crysis 3 (2013) [Ru] (1.3/dlc) Rip Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594669.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Sublevel Zero Redux (2015) [Ru/Multi] (1.2.9875/13429) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593723.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584913.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584148.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ The Solus Project (2016) [Ru/Multi] (1.021) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581219.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (1.009/2.070/dlc) Repack/Mo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581176.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Serious Sam 2 - это полноценное продолжение истор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9FDDC4B6551DB83E3D00C3E0B63374D48D7B79F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920380   (579697) от 22.07.2015
-
-Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041) Repack R.G. Catalyst
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идет 1964 год, и европейская бойня продолжается уже 50 лет. Америка и жалкие остатки ее союзников отбивают атаки полчищ современного Чингисхана, утопившего в крови сперва большевистскую революцию, а потом и всю Европу. Его цель - создать Русско-монгольскую империю, которая раскинется от Атлантики до Владивостока. Враги отгородились друг от друга километрами колючей (   Читать дальше...   )Тип издания: RepackРазработчик: 4X StudioЖанр: Action (Shooter) / 3D / 1st Person / 3rd PersonЯзык озвучки: Русский , АнглийскийЯзык субтитров: Русский , Английский, Французский, Немецкий, Итальянский, Испанский, ПортугальскийЯзык интерфейса: Русский , Английский, Французский, Немецкий, Итальянский, Испанский, Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9786C0B63BA1A5C4BA49C55A539AB01ABAC736A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022877   (579043) от 12.08.2016
-
-Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579043.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Безоаре, единственном уцелевшем городе людей, майор Флетчер, ветеран боевых действий и солдат CLN, втянут в конфликт двух величайших врагов человечества. Ему предстоит выяснить, что все далеко не так, как кажется. Популярный шутер от первого лица возвращается основательно улучшенным и восхитительно сложным.Тип издания: LicenseРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84CF20996789469982C8F6E4A48C1EDB1AE2AFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

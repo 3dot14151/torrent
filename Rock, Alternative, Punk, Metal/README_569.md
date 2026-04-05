@@ -1,3 +1,61 @@
+###  Публикация: 932616   (507327) от 31.08.2015
+
+Elnordia - Insight (2007) [FLAC|image +.cue]<Symphonic Doom Metal / Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Velvet of Night
+02. Dark Phoenix Rise
+03. Ghost of the Sunset
+04. Phantom Queen(   Читать дальше...   )Жанр: Symphonic Doom Metal / Death MetalПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EBC9DD16C50D272061EAF8BCD837142AB7FD9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562929   (507326) от 11.07.2022
+
+Scaphis - Dissected & Fermented (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gathering
+02. Broken By The Wheel
+03. The Hunt
+04. Let Me Out(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517A5AFC849C6C31AB12D23E0864834BE6A304D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562709   (507325) от 11.07.2022
 
 Obiat - Indian Ocean (2022) [MP3|320 Kbps] <Doom, Sludge, Stoner, Psych, Prog Rock>
@@ -6,7 +64,7 @@ Obiat - Indian Ocean (2022) [MP3|320 Kbps] <Doom, Sludge, Stoner, Psych, Prog Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507325.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Duster 69 - With Best Regards (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507324.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Wilt - Ruin (2018) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black metal, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507323.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ A Fitting Revenge - Omnipresence (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507322.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Duster 69 - With Best Regards (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507321.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Epidemic - The Truth Of What Will Be (1989) [APE|image +.cue]<Death Metal / Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507259.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Atrophia Red Sun - Twisted Logic (2003) [FLAC|image +.cue]<Technical Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507249.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Wilt - Moving Monoliths (2015) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507239.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Formation Ritual - The Shifting Dust (2022) [MP3|320 Kbps] <Heavy Psych, Stoner,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507238.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Samán (Saman) - II. Montaña roja (2022) [MP3|320 Kbps] <Heavy Psych, Stoner Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507237.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Obiat - Indian Ocean (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge, Stoner,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507236.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Afterimage - II: Beyond Horizons Infinite (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507235.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Am Himmel - As Eternal As The Starless Kingdom Of Sorrow (2022) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507234.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ John Elefante ( Ex-Kansas, Mastedon ) and Mastedon - Revolution Of Mind (2010) [
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507233.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Fantasia - Aikamatkaajan unikuva (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507231.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Kiss The Vyper - Hope You Like It (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507230.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Hailmary - Disturbing The Peace (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507228.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Unicorn Hole - Something Fierce (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Nintendoc
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507223.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507222.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Edguy - Mandrake (2001) AFM Records, 2022, Anniversary Edition, Remastered [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507134.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ CAKE - Fashion Nugget (1996) Deluxe Edition, 2022 [FLAC 2.0|44/24|WEB-DL|tracks]
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507132.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Nick Cave - Seven Psalms (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507129.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Black Sabbath - The Rules Of Hell (2008) 5xCD [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507123.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ The 69 Eyes - Call Me Snake (2022) EP [FLAC 2.0|44/24|WEB-DL|tracks] <Gothic Roc
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507122.jpg" />
 </div>
 
 
@@ -682,70 +740,6 @@ The 69 Eyes - Call Me Snake (2022) EP [FLAC 2.0|44/24|WEB-DL|tracks] <Gothic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C55FB4DC35F5BB18C5F3A2E195AB304527F4A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232779   (507101) от 02.09.2010
-
-The Alan Parsons Project (Alan Parsons, Eric Woolfson) - 17 Albums + 11 Compilation (1976-2007) [MP3|320 kbps] <Art / Progressive / Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The King Of Swords (01:09)
-02. Excalibur (03:16)
-03. Magic (04:20)
-04. A Long, Long Time Ago (04:08)
-05. Back Again (03:48)
-06. Stop (04:09)
-07. On The Run (04:10)
-08. Dreams Can Come True (04:19)
-09. Goodbye (03:53)
-10. People Shall Be Free (03:57)(   Читать дальше...   )Жанр: Art / Progressive / Soft Rock |Продолжительность: 00:49:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562612   (507046) от 11.07.2022
-
-Halo Of Catastrophe - Symphony From Ruin (2022) [MP3|320 Kbps] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Barbaric Conquest [00:04:46]
-02 - Madam Eight [00:04:02]
-03 - Blood Road [00:03:49]
-04 - Evil Like Me [00:04:52](   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C3731FB4429B8BA2FFDEED5810FF108D891A6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

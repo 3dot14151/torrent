@@ -1,3 +1,111 @@
+###  Публикация: 1797077   (18326) от 14.05.2025
+
+TestMaker / Создатель запоминания v10.5.1 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение позволяет пользователям создавать свою собственную коллекцию вопросов. Есть два типа вопросов: вопросы с описанием и вопросы с выбором из нескольких вариантов. Пользователи могут решать эти вопросы в виде викторины. Пользователи также могут настраивать свои вопросы, добавляя изображения к утверждению и автоматически создавая варианты ответов для вопросов (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.05.2025Разработчик: QuizMarketПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1519D83B8C34FAFF8936A15EA054D940059CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797023   (18325) от 14.05.2025
+
+Электробезопасность тесты 2025 v1.0.16 Mod by vedserega [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18325.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приложении представлены тесты с вопросами и ответами по следующим темам:
+- Эксплуатация электроустановок потребителей
+- Электросетевые организации (обслуживающие)
+- Эксплуатация электроустановок потребителей выше 6000В.(   Читать дальше...   )Тип издания: FullРелиз состоялся: 13.05.2025Разработчик: Данила ДаниленкоПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD91C27BB1D15D3CD7EA53D21B164309F153643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797075   (18321) от 14.05.2025
+
+Motivation - Каждый день v4.79.2 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переживаете трудные времена? Вам нужен дополнительный толчок, чтобы выполнить трудную задачу? Любите делиться вдохновляющими цитатами в социальных сетях? Тогда Motivation идеально вам подойдет.
+Позитивные напоминания — один из самых простых и мощных инструментов для психического роста. Секрет в том, чтобы каждый день с самого утра держать правильные мысли в голове. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.05.2025Разработчик: Monkey Taps LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D22D022A3930BD7360B7D4AB8A1CA38B32A5E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797627   (18005) от 17.05.2025
+
+Fitness Online / Фитнес онлайн v2.20.5 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fitness Online - фитнес приложение, с помощью которого вы сможете похудеть, накачать пресс, накачать ягодицы, набрать мышечную массу, найти множество 3D упражнений и использовать готовые тренировки с диетой от чемпионов. Также сможете вести личный дневник тренировок или найти себе лучшего персонального тренера из любого города для онлайн занятий фитнесом и бодибилдингом. (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 17.05.2025Разработчик: Fitness Online LLCПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6881C43D4583C2BF1166E262B4E2198E33E01B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797661   (18001) от 17.05.2025
 
 Adguard Pro 4.10.35 Mod by FreeApkexe [Ru/Multi]
@@ -6,7 +114,7 @@ Adguard Pro 4.10.35 Mod by FreeApkexe [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18001.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Face Swap - AI Photo Editor v1.4.1 Mod by MixRoot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17573.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ File Manager Plus / Файловый менеджер + v3.5.9 Mod by Balatan [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17477.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ Email Aqua Mail - Fast, Secure v1.55.1 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17374.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ AR Plan 3D: Линейка, Рулетка v4.10.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16997.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16968.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16963.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ Rock Identifier - Stone ID v2.3.55 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16710.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ English Galaxy v2.2.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16289.jpg" />
 </div>
 
 
@@ -246,7 +354,7 @@ Pencil Photo Sketch : Drawing v2.2.35 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16215.jpg" />
 </div>
 
 
@@ -272,7 +380,7 @@ MP3 Cutter and Ringtone Maker / Обрезка музыки, редактор м
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16210.jpg" />
 </div>
 
 
@@ -298,7 +406,7 @@ Daff Moon Phase (Фазы Луны) v3.48 Mod by shv7net [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16172.jpg" />
 </div>
 
 
@@ -325,7 +433,7 @@ CalcKit: All-In-One Calculator / Всё-в-одном Калькулятор v7.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15990.jpg" />
 </div>
 
 
@@ -351,7 +459,7 @@ ProShot v8.31.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15960.jpg" />
 </div>
 
 
@@ -377,7 +485,7 @@ ToonApp v3.1.6 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15939.jpg" />
 </div>
 
 
@@ -403,7 +511,7 @@ Translate AI - Camera & Voice v2.0.6 Mod by papasha55 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15765.jpg" />
 </div>
 
 
@@ -432,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15753.jpg" />
 </div>
 
 
@@ -458,7 +566,7 @@ Smart AudioBook Player Pro v11.4.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15750.jpg" />
 </div>
 
 
@@ -484,7 +592,7 @@ AR Ruler App: Линейка Рулетка v3.0.9 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15745.jpg" />
 </div>
 
 
@@ -510,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15680.jpg" />
 </div>
 
 
@@ -537,7 +645,7 @@ Proton VPN 5.11.39 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15433.jpg" />
 </div>
 
 
@@ -563,7 +671,7 @@ WireGuard 1.0.20250531 [En] (Обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15298.jpg" />
 </div>
 
 
@@ -574,113 +682,6 @@ WireGuard – современный и не требовательный к р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76F3B137F0B8FB77949F8D4C9DC4EB35B6E67599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801098   (15234) от 08.06.2025
-
-Food.ru: пошаговые рецепты v02.04.01 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Food.ru — это пошаговые рецепты и мобильное приложение про все, что связано с едой. Любите готовить и хотите получать новые рецепты бесплатно? Или учитесь готовить еду и хотите делать правильно все, от готовки до сервировки? Тогда вам поможет наша база знаний:
-- кулинарные обзоры;
-- советы от шеф-поваров;
-- подборки и лайфхаки;(   Читать дальше...   )Тип издания: ModРелиз состоялся: 07.06.2025Разработчик: X5MediaПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296301B55E5F01DC58D480B6AE46C8AA8DB24B57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801371   (15120) от 10.06.2025
-
-AmneziaWG 1.1.2 [Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная версия популярного VPN-протокола WireGuard. AmneziaWG - это форк WireGuard-Go. Он защищен от обнаружения системами DPI, при этом сохранил в себе упрощенную архитектуру и высокую производительность оригинала.Тип издания: ModПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C070C7D7C24FDF320E6CA6C6554D3ADF830D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801541   (14923) от 11.06.2025
-
-Photomath v8.44.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь решать математические задачи, проверять домашние задания и готовиться к предстоящим экзаменам и экзаменам ACT / SAT с помощью самого популярного в мире учебного ресурса по математике. Более 100 миллионов загрузок и миллиарды решенных задач каждый месяц!Тип издания: FullРелиз состоялся: 10.06.2024Разработчик: Photomath, Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91141A8AAF04D78E03C9052A9D07369B46A35547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801730   (14845) от 12.06.2025
-
-Гы-Гы приколы v1.136 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14845.jpg" />
-</div>
-
-
-###  Подробнее
-
-ГыГы приколы - это обновляемая несколько раз в день, подборка смешных видео и фото. Внутри приложения вы найдете социальную сеть людей, которые ценят качественный юмор. Практически все публикации в приложении созданы пользователями. Наша особенность, мы позволяем делиться приколами с друзьями. Вы сможете отправить само видео, картинку или гиф. Не ссылку на публикацию, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.06.2025Разработчик: OlVicПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ABDB8A5E354E95B7CF0DD08F8997A8B433F6C0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

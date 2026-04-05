@@ -1,3 +1,55 @@
+###  Публикация: 1758780   (38301) от 04.11.2024
+
+VA - In Search of Sunrise 20 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 07:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429F3ED633C0EE4345F3C9E9916E550F22E81277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759480   (37857) от 08.11.2024
+
+VA - Trance Top 1000 - Ibiza Anthems Mini Mix (2018-2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 12:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3541ACDDD5B872285535821A58A84188A3C630CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760327   (37371) от 13.11.2024
 
 VA - Top 10 September 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +58,7 @@ VA - Top 10 September 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37371.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ VA - Black Hole Trance Music 11-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37170.jpg" />
 </div>
 
 
@@ -64,7 +116,7 @@ VA - Autumn Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36678.jpg" />
 </div>
 
 
@@ -93,7 +145,7 @@ Ferry Corsten - Connect (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36449.jpg" />
 </div>
 
 
@@ -122,7 +174,7 @@ VA - The Best Of Suanda Base 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36152.jpg" />
 </div>
 
 
@@ -151,7 +203,7 @@ VA - Deep Trance Showcase IV (2024) [MP3|320 Kbps] <Trance, Progressive, Electro
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35629.jpg" />
 </div>
 
 
@@ -180,7 +232,7 @@ VA - Nocturnal Knights Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35415.jpg" />
 </div>
 
 
@@ -209,7 +261,7 @@ VA - Gert Records 1000 - Celebration Dj Mix (Mixed By Vito Von Gert) (2024) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35412.jpg" />
 </div>
 
 
@@ -238,7 +290,7 @@ VA - Progressive Trance Awakening, Vol. 01 (2024) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35402.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ VA - Future Sound of Egypt Best of 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35209.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ VA - The Best Of Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35208.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ VA - Elliptical Sun Recordings 2024 (2024) [MP3|320 Kbps] <Trance, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34589.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ VA - Best Vocal Trance 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34499.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ VA - Anjunabeats presents Vocal Trance 02 (2024) [MP3|320 Kbps] <Trance, Vocal T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34381.jpg" />
 </div>
 
 
@@ -412,7 +464,7 @@ VA - A State Of Trance Year Mix 2024 (DJ Mix) (Mixed By Armin Van Buuren) (2024)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34292.jpg" />
 </div>
 
 
@@ -441,7 +493,7 @@ VA - Best of Argento 2024 - Extended Mixes (2024) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33763.jpg" />
 </div>
 
 
@@ -470,7 +522,7 @@ VA - Black Hole Recordings - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33755.jpg" />
 </div>
 
 
@@ -499,7 +551,7 @@ VA - The Best Releases 2024 of Enigma Emotions (By Abstract Moon) (2024) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33263.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ VA - A State Of Trance Year Mix 2024 (Mixed By Armin Van Buuren) (2024) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33259.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ VA - The Best Releases 2024 of Your Melodies (2024) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33236.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ VA - The Best Releases 2024 of High Emotions (2024) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33231.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ VA - Christmas Trance (Best for the Year 2025) (Happy New Year 2025) (2025) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32300.jpg" />
 </div>
 
 
@@ -644,7 +696,7 @@ VA - Trance Selected, Vol 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32072.jpg" />
 </div>
 
 
@@ -673,7 +725,7 @@ VA - Silent Shore Trance - Highlights 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31986.jpg" />
 </div>
 
 
@@ -687,64 +739,6 @@ VA - Silent Shore Trance - Highlights 2024 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:395A4B939945B2BC1730318123EE459945A78441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771005   (31985) от 04.01.2025
-
-VA - Levitated Trance - Highlights 2024 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ISTAR Project - Greytail (Extended Mix) [5:52]
-02. Extravagance SL - Mwanga (Extended Mix) [5:24]
-03. Manuel Rocca - Pristine (Extended Mix) [7:21]
-04. Taurus G - Rebirth (Extended Mix) [7:06](   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F11D69B060A7126DC8B6388BE1775580BDFF48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770901   (31980) от 04.01.2025
-
-Armin van Buuren - A State of Trance Episode 1206 (2025) [MP3|320 Kbps] <Trance, Progressive Trance, House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren - A State of Trance (ASOT 1206) (Intro) [0:42]
-02. Armin Van Buuren - A State of Trance (ASOT 1206) (Happy New Year!) [0:46]
-03. Arty;Stadiumx;Jason Walker - Thousand Lives (ASOT 1206) (Scorz Remix) [1:17]
-04. Paul Oakenfold;Hernan Cattaneo - London To Buenos Aires (ASOT 1206) [2:31](   Читать дальше...   )Жанр: Trance, Progressive Trance, HouseПродолжительность: 01:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B321009A73DC11278AC4FBBE95B40A03A1506C3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

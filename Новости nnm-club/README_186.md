@@ -1,3 +1,55 @@
+###  Публикация: 1067125   (386120) от 29.10.2016
+
+Pro Evolution Soccer 2017 (2016) [Ru/En] (1.01.00) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pro Evolution Soccer 2017 – это возвращение легендарной серии на ваши экраны, игры, которая становится всё лучше и лучше буквально с каждым годом. В основе этого проекта лежит «контроль над реальностью». Здесь заключён смысл новой игры, краеугольный камень – это достижение максимального реализма и в управлении, и в визуальном исполнении.Тип издания: RepackРазработчик: Konami Digital EntertainmentЖанр: Sport (Soccer), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:223A1BBD84D818722762A8DAF7F74506A53EF74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067756   (386112) от 29.10.2016
+
+Symantec Endpoint Protection 14.0.1904.0000 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symantec Endpoint Protection, использующий технологию Insight, обеспечивает эффективную и надежную защиту конечных систем. Он предлагает усиленную защиту от всех типов атак для физических и виртуальных систем.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDF06DB469D64CB1DB8F40E67FE03E4CA2EBCE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 172828   (386094) от 29.10.2016
 
 История: наука или вымысел? [12 серий из 12] (2009) 12xDVD5
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_386094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386094.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ VA / Клипы (2011) HDTVRip [H.264/720p-LQ/1080p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385654.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_385245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_385245.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385056.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Ori and the Blind Forest (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механик
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385048.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385043.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_384901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_384901.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ ACDSee Photo Studio Ultimate 2021 14.0.2.2431 Lite RePack by MKN [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384725.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384723.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384722.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ BELOFF 2020.10 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384721.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384718.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Wi-Fi Alliance официально объявил о запуске станд�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_384642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_384642.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384498.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384403.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384391.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384373.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Windows XP Twilight Angel Edition 2012.10 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_384370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_384370.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.1.47.0.8) SteamRip R.G. Origins
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384043.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384038.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Windows 7 Ultimate SP1 The Beatles Edition v 7.10.11 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_383774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_383774.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383697.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383144.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_382803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_382803.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174829   (382358) от 16.10.2017
-
-Зеро 3 / Zero 3 (2017) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда прокурор, замешанная в скандале с наркотиками, объявляет аукцион материала, доказывающего коррупцию властей, лидер оппозиции решает сделать всё, чтобы заплатить самую высокую цену, даже если придётся взять рискованный кредит. Всё переворачивает с ног на голову последний не сбежавший из Литвы беженец, впутавшийся в отлаженный механизм взяточничества.Производство: Литва / Kinokultas, Never EverЖанр: ТриллерРежиссер: Эмилис ВеливисАктеры: Андрюс Бялобжескис, Рамунас Рудокас, Инга Янкаускайте, Риманте Валюкайте, Гедрюс Савицкас ...Перевод: Профессиональный многоголосый (Лицензия)Субтитры: Английские (хардсаб)Продолжительность: 01:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E5285BC00DE04ECFB6B898880DCD6BA7D22210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174922   (382357) от 16.10.2017
-
-Revo Uninstaller Pro 3.2.0 RePack (& portable) by KpoJIuK  [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FF45ACA80F3C494BD5F034B4ED3A4E2FC74BB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

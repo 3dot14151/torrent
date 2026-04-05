@@ -1,3 +1,55 @@
+###  Публикация: 928134   (522992) от 15.08.2015
+
+Lords Of The Fallen (2014) [Ru/Multi] (1.6/dlc) Repack R.G. Механики
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522992.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эпоху древних миром правил злобный бог, и всё человечество жило у него под пятой. Но страх, сковывавший сердца людей, уступил место ярости, и наступило утро Великого восстания, когда началась борьба за свободу. После славной победы над низвергнутым богом, люди установили новый порядок…Тип издания: RepackРазработчик: City Interactive и Deck13 InteractiveЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5919C513AD7F09D5505EABD9C53C33AC507AB66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928443   (522283) от 16.08.2015
+
+The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) SteamRip Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гражданская война в Борговии закончилась, но будущее все еще мрачное. Город мистических наук лежит в руинах, остатки различных фракций грызут друг другу глотки за оставшиеся клочки власти. Волна жутких событий сотрясает землю, бывший союзник превратился в страшного злодея, древнее зло грозит миру темного восточно-европейского фэнтези. Ван Хельсингу, главному герою (   Читать дальше...   )Тип издания: SteamRipРазработчик: NeocoreGamesЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий, Испанский, Венгерский, Польский, ПортугальскийЯзык интерфейса: Английский, Французский, Итальянский, Немецкий, Испанский, Венгерский, Польский, Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC65CBA84647FD8C018C070379BCADB5FED9DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 708873   (522208) от 16.08.2015
 
 The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.4.2b/dlc) SteamRip Let'sРlay
@@ -6,7 +58,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.4.2b/dlc) SteamRip
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522208.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Fallen A2P Protocol (2015) [Multi] (1.0.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521256.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) Repack R.
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520200.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Might and Magic / Меч и Магия (1998-2002) [Ru/En] Repack nelex [Classic
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520188.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Final Fantasy Type-0 HD (2015) [En/Multi] (1.0/upd1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515790.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Risen 3 Titan Lords (2014) [Ru/Multi] (1.?0/dlc) SteamRip Let'sPlay [Enhanced Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515787.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Overlord: Fellowship of Evil (2015) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515758.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Torchlight II (2012) [Ru/Multi] (1.25.9.5b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514728.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Rebel Galaxy (2015) [Ru/Multi] (1.08a HotFix 2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514723.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Iron Danger (2020) [Ru/Multi] (1.03.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513305.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ The Broken Land / Заброшенные земли [Ru] (RePack) 2000 | RG game
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513226.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Gothic 3 (2006) [Ru/Multi] (1.75.14L) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512233.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Dungeon Siege 3 Limited Edition + 5 DLC [Ru] (Repack/Upd2) 2011 | R.G. Packers
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512002.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ COPS 2170: The Power of Law / Власть Закона: Золотая колл
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511548.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Disgaea 6: Defiance of Destiny (2022) [Multi] (8848380/dlc) License SKIDROW [Com
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511387.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Kyn (2015) [En/De] (1.0/upd4) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510610.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Pesterquest (2019) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508872.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Gothic 3: Forsaken Gods / Gothic 3: Отвергнутые боги (2011) [Mult
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508765.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ I Shall Remain (2015) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507739.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Immortal: Unchained (2018) [Ru/Multi] (1.18/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506709.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Risen: Дилогия / Risen: Dilogy [Ru] (Repack) 2009 - 2012 | {AVG}
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502982.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ Dragon Forge (2022) [En] (1.0.8224) License FLT
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502213.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Shadowrun: Dragonfall - Director's Cut (2014) [Ru/Multi] (2.09) Repack R.G. Ме
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501920.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Frozen State (2016) [Ru/Multi] (1.00.271) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495671.jpg" />
 </div>
 
 
@@ -618,59 +670,6 @@ Frozen State (2016) [Ru/Multi] (1.00.271) SteamRip Let'sPlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA01354A884C5D6054DA86BAAF9689A3E32D5524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538987   (494750) от 05.09.2012
-
-Dark Souls: Prepare To Die Edition [En/Ru/Multi9] (Repack/1.0.0.1+FIX 0.8) 2012 | R.G. Catalyst
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в мрачный и суровый мир, наполненный отчаяньем. Ваша судьба будет зависеть от умения правильно оценивать ситуацию и выстраивать стратегию поведения, быстро обучаться и быть непредсказуемым. Dark Souls потребует от вас абсолютной концентрации и будет сурово наказывать за ошибки. Однако умирая вы будете становиться сильнее!
-Каждое испытание представляет собой головоломку с бесконечным количеством решений. Вам пригодится, в первую очередь, умение стратегически мыслить, чтобы победить многочисленных противников и завершить свой путь..(   Читать дальше...   )Тип издания: RepackЖанр: Action / RPG / FantasyЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский, Немецкий, Французский, Испанский, Итальянский, Китайский, Корейский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B5C697D8A7652CAA43280072ED3B11BF71D339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315853   (494612) от 24.08.2020
-
-Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/En] (3.6.69.4648/dlc) Repack xatab [Definitive Edition] (обновляемая)
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданное продолжение знаменитой ролевой игры, в котором вы сможете собрать свой отряд храбрецов, изучить проработанную тактическую систему боя и даже объединить силы еще с тремя друзьями. Но помните: лишь один из вас станет Богом. Бог мертв. Пустота надвигается. Великая сила, сокрытая внутри вас, готова к пробуждению. Битва за право стать Создателем началась. (   Читать дальше...   )Тип издания: RepackРазработчик: Larian StudiosЖанр: RPG, 3D, IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B39B233D77EA06190E52B3F9E7015CA53DD911D
 ```
 
 https://mybot314.ru/tekegram_catalog/

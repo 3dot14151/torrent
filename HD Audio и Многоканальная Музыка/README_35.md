@@ -1,32 +1,3 @@
-###  Публикация: 1059501   (461549) от 04.10.2016
-
-Car-Man (Кар-Мэн) - Кармания (Carmania) (1992) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hip-House, Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Russians
-02. В Багдаде всё спокойно
-03. Бомбей буги
-04. Coribian Girl(   Читать дальше...   )Жанр: Hip-House, EuropopПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE146ED843CC42F0767552426FD7ACAE57B11BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059526   (461534) от 04.10.2016
 
 Savage - Tonight (1984) Ultimate Edition, Remastered, 2014, Мирумир [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Italo-Disco>
@@ -35,7 +6,7 @@ Savage - Tonight (1984) Ultimate Edition, Remastered, 2014, Мирумир [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461534.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Barclay James Harvest - XII (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Prog
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461335.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458746.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Shinedown - Studio Albums (7 releases) (2004 - 2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455565.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Gamma Ray (Helloween, Iron Savior, Unisonic) - Studio Albums (1990 - 2014) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455559.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Richard Clayderman - 7 Albums (1978-1984) [FLAC 2.0|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454809.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Rockets - Plasteroid (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454573.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Harumi Nomoto Trio - Another Ordinary Day (2020) [DSD64 2.0|1bit/2822,4kHz |SACD
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453352.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Nazareth - Malice in Wonderland (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452770.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Robert Miles - Dreamland (1996/2019) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452297.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Sixx: A.M. (58, Brides Of Destruction) - Дискография (2007 - 2021) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451350.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448348.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Enigma Club - Амазония (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Worl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448338.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448105.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC 2.0 24/96|traсks(
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446906.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ David Crosby - If I Could Only Remember My Name (1971) Reissue, 2022, Mobile Fid
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444820.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444513.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Rainbow - Long Live Rock ‘n’ Roll (1977) SHM-SACD /2010/ [DSD 2.0 1bit/2822,
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443303.jpg" />
 </div>
 
 
@@ -561,7 +532,7 @@ David Gilmour - Rattle That Lock (2015) [LPCM 2.0 96kHz 24bit, DTS 5.1 96/24 | A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442358.jpg" />
 </div>
 
 
@@ -593,7 +564,7 @@ VA - Антология советского киношлягера - Любим
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441849.jpg" />
 </div>
 
 
@@ -622,7 +593,7 @@ Pink Floyd - Wish You Were Here (2016) 1975 [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441150.jpg" />
 </div>
 
 
@@ -651,7 +622,7 @@ Children of Bodom - Studio Albums (12 releases) (1997 - 2019) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440363.jpg" />
 </div>
 
 
@@ -680,7 +651,7 @@ Audrey Hepburn, Rex Harrison - My Fair Lady (The Original Sound Track Recording)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437700.jpg" />
 </div>
 
 
@@ -709,7 +680,7 @@ Rainbow - Difficult to Cure (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436936.jpg" />
 </div>
 
 
@@ -738,7 +709,7 @@ Porcupine Tree - The Delerium Years 1994-1997 (2016) Box Set [FLAC 2.0|192/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436773.jpg" />
 </div>
 
 
@@ -752,6 +723,35 @@ Additional Material (EP) (2016)Жанр: Art RockПродолжительнос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2E64ACFFC0C28BED4A082D7AE7F507D8C2E85A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164825   (436453) от 11.09.2017
+
+London Orion Orchestra, Alice Cooper, Dave Fowler, Stephen McElroy, Rick Wakeman - Pink Floyd's Wish You Were Here Symphonic (2016) [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Rip] <Rock, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Wish You Were Here (Vocal) (5:05)
+02.Shine On You Crazy Diamond (Part I-V) (13:17)
+03.Welcome To The Machine (7:11)
+04.Have A Cigar (5:17)(   Читать дальше...   )Жанр: Rock; ClassicalПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C36F5027E60A7D92C1496463386A75395E7B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

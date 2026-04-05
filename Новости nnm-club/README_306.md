@@ -1,3 +1,56 @@
+###  Публикация: 1790009   (1549) от 22.09.2025
+
+Witch Watch | Ведьмнадзор [2025, TV, 24 из 25 эп.] WEBRip 720 raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нико Вакацуки закончила свое шестилетнее обучение ведьм и возвращается в город одна. Как новая ведьма, она должна выбрать себе спутника. Однако, в отличие от других ведьм, она хочет выбрать неживотного спутника. Нет лучшего спутника, чем Морихито «Мои» Отоги — ее друг детства, который оказался огром. Морихито категорически против того, чтобы быть ее слугой, но он (   Читать дальше...   )Производство: студия Bibury Animation Studios / バイブリーアニメーションスタジオЖанр: комедияРежиссер: Икэхата ХиросиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819687   (1256) от 24.09.2025
+
+Хакеры  SKIDROW сделали сенсационное заявление о взломе антипиратской защиты Denuvo
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа SKIDROW сообщила о том, что им удалось взломать Tourist Bus Simulator, которая была защищена Denuvo.В отличии от стандартных взломов Denuvo, которые не удаляют саму защиту из игры, а лишь обходят её, SKIDROW утверждают, что выполнили полное удаление защиты из EXE-файла игры, что "было чертовски сложной задачей".
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777227   (1246) от 24.09.2025
 
 Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.1/dlc) Repack SE7EN [Gold Edition]
@@ -6,7 +59,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.1/dlc) Repack SE7EN [Gol
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1246.jpg" />
 </div>
 
 
@@ -24,32 +77,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819663   (1185) от 24.09.2025
-
-Первое достижение: 1000 релизов от mikos74
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1185.jpg" />
-</div>
-
-
-###  Подробнее
-
- Первое достижение: 1000 релизов от mikos74 Дорогие друзья и гости клуба...Закончились летние каникулы и отпуска, релизёры возвращаются к суровым трудовым будням. А что может скрасить тяжёлую рабочую неделю - так это создание пары-тройки классных релиза.Ну а сегодня, наш виновник торжества, впервые попадает в эту рубрику. Прошу любить и жаловать: специалист по классическому (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819565   (1109) от 25.09.2025
 
 Фантастическая четвёрка: Первые шаги / The Fantastic Four: First Steps (2025) WEB-DL [H.264/1080p]
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1109.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0c/dlc) Repack Let'sРl
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1107.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250923_1314-326654/dlc) Repack Let'sР
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_931.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Internet Download Manager 6.42 Build 47 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_866.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ Windows 10 Pro 22H2 19045.6332 x64 by SanLex [Lightweight] [Ru-En] (2025.09.25)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_736.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_726.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) License GOG [The Mercenaries Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_722.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_697.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ Vintage Culture - Culture Shock 001-146 (2021-2025) [MP3|320 Kbps] <House, Tech 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_447.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ MultiBoot 2k10 7.40 Unofficial [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_441.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ Hitman: Blood Money / Hitman: Кровавые деньги (2006) [Ru] (1.2) Re
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_440.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ Palworld (2024) [Ru/Multi] (0.6.7.79736) Repack R.G. Alkad [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_195.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_194.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ Palworld (2024) [Ru/Multi] (0.6.7.79736) Repack SE7EN [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_193.jpg" />
 </div>
 
 

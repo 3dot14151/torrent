@@ -1,3 +1,81 @@
+###  Публикация: 1385473   (794383) от 29.05.2020
+
+Сергей Наугольных | Встречи с доисторическими мирами (2017) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена далёким страницам истории органического мира Земли. Автор, учёный-палеонтолог, рассказывает о различных эпизодах эволюции жизни на Земле. Изложение основано на точных научных фактах и совмещено с краткими историческими очерками, написанными в увлекательной и доступной форме. В книге приведены реконструкции наиболее типичных представителей фауны и (   Читать дальше...   )Жанр: ПалеонтологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21EE4DBAA16CC33F0D9F57BEE4FE4397F93A65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386866   (793342) от 30.05.2020
+
+Владимир Сурдин | Вселенная в вопросах и ответах (2017) [EPUB]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793342.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны 181 задача, 50 вопросов и 319 тестов с ответами и решениями. Материал в основном новый, но включает наиболее удачные задания из предыдущих изданий. В целом это не очень сложные, но «креативные» задачи, раскрывающие разные стороны современной астрономии и космонавтики и требующие творческого мышления и понимания предмета. Основой для некоторых вопросов (   Читать дальше...   )Жанр: Физико-математические науки, АстрономияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0B841560823FA92FDAEC9A40189F4D2CEE8481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386856   (793292) от 30.05.2020
+
+Владимир Сурдин | Вселенная в вопросах и ответах (2020) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793292.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны 181 задача, 50 вопросов и 319 тестов с ответами и решениями. Материал в основном новый, но включает наиболее удачные задания из предыдущих изданий. В целом это не очень сложные, но «креативные» задачи, раскрывающие разные стороны современной астрономии и космонавтики и требующие творческого мышления и понимания предмета. Основой для некоторых вопросов (   Читать дальше...   )Жанр: АстрономияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B52EBCE3996CF94AC44EEBA9CD3A5FB8093A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201435   (790971) от 27.01.2018
 
 А. К. Тимирязев и др. | Диалектика в природе. Сборник по марксистской методологии естествознания (1928) [DJVU, PDF]
@@ -6,7 +84,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790971.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789894.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789892.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789401.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787598.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783598.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783212.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783210.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783143.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783016.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782938.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780548.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780405.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780393.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780274.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777923.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777520.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777515.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777514.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776840.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776824.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776400.jpg" />
 </div>
 
 
@@ -593,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776072.jpg" />
 </div>
 
 
@@ -607,87 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8150E7FC469B8B8AFD1389C4FECA0A2AA31D6FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014819   (775675) от 09.05.2016
-
-В. Н. Трифонова, Т. А. Пляцедевская (ред.) | Куба. Справочная карта (1982) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775675.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Кубы с административным делением (масштаб 1:1 500 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB8D1CEF5BAF107E4085DBFDFD4FA7210D4DFF96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212215   (774464) от 14.03.2018
-
-И. Е. Амлинский | Жоффруа Сент-Илер и его борьба против Кювье (1955) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774464.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей монографии освещены наиболее значительные исследования Жоффруа, которые способствовали утверждению в науке одного из наиболее плодотворных общетеоретических обобщений биологии — учения о единстве строения, животных. Это учение, материалистически истолкованное, вошло составной частью в современное учение о единстве происхождения и развития органического (   Читать дальше...   )Жанр: История, науковедение, естествознание, биология, анатомияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3431B3C39C220EE171C79433ABAB04BAFACF27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212370   (774405) от 14.03.2018
-
-Архимед | Исчисление песчинок [Псаммит] (1932) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Арифметический трактат Архимеда, впервые изданный в переводе профессора Г. Н. Попова. "Псаммит" - работа древнегреческого ученого Архимеда, в которой он пытается определить верхнюю грань числа песчинок, которые занимает в своем объеме Вселенная. С этой целью он пробует вычислить размер Вселенной, основываясь на астрономических представлениях того времени, (   Читать дальше...   )Жанр: История, науковедение, математика, алгебра, геометрия, арифметикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92A626F1513BFD1E39312E8D32CF4A05988D39C
 ```
 
 https://mybot314.ru/tekegram_catalog/

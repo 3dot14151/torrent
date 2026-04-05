@@ -1,3 +1,57 @@
+###  Публикация: 963127   (290750) от 06.12.2015
+
+Коллектив | Юный техник №7 (2015) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290750.jpg" />
+</div>
+
+
+###  Подробнее
+
+В МГТУ имени Н. Э. Баумана прошел очередной, 24-й по счету смотр работ участников Всероссийского форума «Шаг в будущее». На выставке вместе с другими посетителями побывал и наш специальный корреспондент Станислав Зигуненко. И вот что там увидел.
+«Настоятельно просим вас покинуть мост!» — снова и снова раздается по радиотрансляции жестяной голос диктора. И как-то (   Читать дальше...   )Жанр: Научно-познавательный журналФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71F7FB77E7AB192FB62622E72310050B1FD7422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 732579   (290689) от 10.12.2013
+
+Подшивка журналов | Мамино солнышко [5 номеров] (2010...2013) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красочный журнал для малышей от 2 до 5! Рубрики по развитию внимания, логики, игры с родителями, мелкая моторика, изучение букв, раскраски с заданием, сказкотерапия, аппликации... представлены в игровой форме и разработаны по научным методикам.
+Журнал "Мамино Солнышко" награжден дипломом VII Национального конкурса печатных средств массовой информации "Золотая Литера" в номинации "Лучшее детско-юношеское издание".Формат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2CDF9D5539A2CCC68B373BEADF5C6CF9B97A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 732861   (290683) от 10.12.2013
 
 Т.В. Шклярова | Памятки. 1-5 класс [2012] [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290683.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290616.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290613.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290409.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290319.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290041.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290025.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290023.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290016.jpg" />
 </div>
 
 
@@ -241,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290015.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290011.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289951.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289945.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289923.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289293.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288295.jpg" />
 </div>
 
 
@@ -429,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288290.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288173.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288118.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288033.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288031.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288028.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288008.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287894.jpg" />
 </div>
 
 
@@ -629,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9093A9BE4B8E7F51F2A7BC7A788AF53C2BA2BC08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422622   (287885) от 14.12.2011
-
-М.Н. Жуков | Подвижные игры (2000) [ DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Подвижные Игры
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287885.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике в соответствии с программой изложена методика преподавания подвижных игр в школе с I по XI класс. Рассмотрены игры с предметами и без предметов, развивающие основные физические и психические качества детей разных возрастных групп. Дан материал по используемым на уроках подвижным играм, подводящим к видам спорта.
-Книга может быть интересна также преподавателям (   Читать дальше...   )Жанр: Методика преподавания подвижных игрФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D4BE9E23D37F91BC372D00070F42F5385AE80E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422661   (287870) от 14.12.2011
-
-Н. Луконина, Л. Чадова | Физкультурные праздники в детском саду (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Подвижные Игры
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сценариев физкультурной направленности для детей 2-7 лет. Спортивные праздники, приуроченные к 23 Февраля, 9 Мая и Дню защиты детей, зимние и летние развлечения, которые могут проводиться в зале и на улице. Составной частью сценариев являются эстафеты, состязания, подвижные игры, а также стихи и песни. Книга адресована педагогам, работающим с дошкольниками (   Читать дальше...   )Жанр: Пособие для педагоговФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024ADB221A8FA59DE6B0407564C1E2BD40D315D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

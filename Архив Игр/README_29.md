@@ -1,3 +1,60 @@
+###  Публикация: 515906   (650734) от 29.06.2012
+
+Salvation Prophecy [En] (L) 2012 | SKIDROW
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Salvation Prophecy — это футуристический научно-фантастический симулятор, где нам предстоит поучаствовать в космических баталиях и межпланетных вторжениях; заняться созданием новых космических станций и дополнительных войск; исследовать новые планеты, находящихся на самых отдаленных задворках галактики.
+Пророчество гласит, что придет древнее зло, которое будет пожирать все человечество и их потомков. Вместе с ним пробудятся древние существа — хранители магических рун. Возможно на этих чужеродных планетах хранится секрет нашего спасения.
+Salvation Prophecy — это очень амбициозный и стоящий проект, создаваемый всего одним человеком на протяжении уже четырех лет. В игре существует четыре фракции: Wyr (сумасшедшие ученые-андроиды), Drone Unity (боевые роботы), Free Nations (остатки человеческой цивилизации) и Salvation (раса мутировавших людей, верящих в пророчество).Тип издания: ЛицензияЖанр: Action / Simulator / ShooterЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970A34AE50955D108B836A5135109E25DBBA4FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514357   (650714) от 29.06.2012
+
+Tom Clancy's Ghost Recon: Future Soldier (LossLess RePack/1.2/DLC) [Ru/En/Multi12] 2012 l R.G. Revenants
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghost Recon: Future Soldier обещает выйти за рамки серии военных игр Ghost Recon и представить нам совсем новый игровой процесс. В игре вас ждут передовые технологии, прототипы высокотехнологического оружия, современный однопользовательский и многопользовательские режимы.
+
+«Призраки», элитные бойцы в составе сил специального назначения, готовы выполнить поставленную задачу в любой точке земного шара. Их работа – борьба с терроризмом, нейтрализация вражеских агентов и уничтожение превосходящих сил противника. Со временем этот легендарный отряд перестал быть просто одним из подразделений спецназа и превратился в идеальный инструмент, способный изменить судьбу человечества.
+Оснащенные по последнему слову техники, снабженные лучшими разработками военных технологий, эти специалисты составят вам компанию в целом ряде особых боевых операций. Вас ждут раскаленные пески Африки и антарктические льды, миссии по скрытному проникновению и битвы на выживание. В роли одного из бойцов вам предстоит сражаться бок о бок с лучшими оперативниками отряда. Пришло время продемонстрировать, на что способны настоящие профессионалы!(   Читать дальше...   )Тип издания: RePackРазработчик: Ubisoft ParisЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Бразильский, Датский, Голландский, Французский, Немецкий, Итальянский, Норвежский, Польский, Испанский, Шведский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE1D4403129F8DDD6FA5BC76F3220BA16E6AECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032019   (649347) от 05.07.2016
 
 Lost Sea (2016) [Ru/Multi] (1.0.1) License PLAZA
@@ -6,7 +63,7 @@ Lost Sea (2016) [Ru/Multi] (1.0.1) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649347.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ Lost Sea (2016) [Ru/Multi] (1.0.1) SteamRip ALiAS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649098.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ Hoodwink [Multi8\+] (Rip) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648989.jpg" />
 </div>
 
 
@@ -90,7 +147,7 @@ London 2012: The Official Video Game of the Olympic Games (RePack) [Multi5\-] 20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648796.jpg" />
 </div>
 
 
@@ -120,7 +177,7 @@ Lost Sea (2016) [Ru/Multi] (1.0.1) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647177.jpg" />
 </div>
 
 
@@ -146,7 +203,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.0.0.129r1 (Update 1)) Repack R.G. Steamgame
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646786.jpg" />
 </div>
 
 
@@ -172,7 +229,7 @@ Dungeons 3 / Dungeons III (2017) [En] (1.5.7/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646331.jpg" />
 </div>
 
 
@@ -198,7 +255,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.99.2995) License Reloaded
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645750.jpg" />
 </div>
 
 
@@ -226,7 +283,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 l Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645275.jpg" />
 </div>
 
 
@@ -256,7 +313,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645176.jpg" />
 </div>
 
 
@@ -285,7 +342,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 l R.G. Recoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645069.jpg" />
 </div>
 
 
@@ -315,7 +372,7 @@ Vessel [Ru/En] (RePack/1.13) 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645063.jpg" />
 </div>
 
 
@@ -344,7 +401,7 @@ Spec Ops: The Line (RePack/1.0.6890.0) [Ru/En] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645061.jpg" />
 </div>
 
 
@@ -372,7 +429,7 @@ Spec Ops: The Line (Steam-Rip/1.0) [Ru/En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645056.jpg" />
 </div>
 
 
@@ -402,7 +459,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2) [Ru] 2012 l a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644823.jpg" />
 </div>
 
 
@@ -431,7 +488,7 @@ Day One: Garry's Incident (2013) [En] (1.0.9953.0/dlc) SteamRip Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644793.jpg" />
 </div>
 
 
@@ -457,7 +514,7 @@ Spec Ops: The Line [Ru/En] (LossLess RePack/1.0.6890.0) 2012 l R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644685.jpg" />
 </div>
 
 
@@ -485,7 +542,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2/DLC) [Ru] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644680.jpg" />
 </div>
 
 
@@ -514,7 +571,7 @@ Spec Ops: The Line (RePack/1.0.6890.0/DLC) [Ru] 2012 l UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644676.jpg" />
 </div>
 
 
@@ -542,7 +599,7 @@ Spec Ops: The Line [Ru/En] (Lossless RePack/1.0.6890.0)  2012 l R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644668.jpg" />
 </div>
 
 
@@ -570,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644564.jpg" />
 </div>
 
 
@@ -596,7 +653,7 @@ Spec Ops: The Line (Steam-Rip/1.0.6890.0) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644552.jpg" />
 </div>
 
 
@@ -624,7 +681,7 @@ Policenauts [PS1] [En, Ja] (1996)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644035.jpg" />
 </div>
 
 
@@ -652,7 +709,7 @@ BLACKHOLE (2015) [Multi] (1.0.4e/dlc) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642946.jpg" />
 </div>
 
 
@@ -663,59 +720,6 @@ BLACKHOLE – анимированный 2D научно-фантастичес�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65F8D4EB0F791C76AEE726F9B75DFA0CE541A827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854927   (642940) от 09.06.2015
-
-The Wolf Among Us (2013) [Ru/En] (1.0) SteamRip Let'sPlay
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642940.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Wolf Among Us позволяет погрузиться в мир комиксов DC серии Fables. Главным героем выступает Волк Бигби, работающий шерифом среди сказаний – существ из сказок, которым пришлось перебраться в реальный мир после апокалипсиса в их родном месте обитания. Сюжет повествует о событиях, которые начинают привлекать внимание обычных людей – если градус достигнет критической (   Читать дальше...   )Тип издания: SteamRipРазработчик: Telltale GamesЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFBD7E812E1C61C8377AA9F988A092EC41762CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873289   (642939) от 09.06.2015
-
-Dragon Ball Xenoverse (2015) [Ru/Multi] (1.0.7.00/dlc) SteamRip Let'sPlay
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642939.jpg" />
-</div>
-
-
-###  Подробнее
-
-ВПЕРВЫЕ ВСЕЛЕННАЯ DRAGON BALL ПРИХОДИТ В STEAM!
-Благодаря настраиваемому аватару, сражающемуся плечом к плечу с Транксом и множеством других персонажей, DRAGON BALL XENOVERSE позволит вам заново посетить знаменитые битвы серии. Будет ли этого союза достаточно для того, чтобы вмешиваться в драки и восстановить известную нам историю Dragon Ball? Новые особенности включают (   Читать дальше...   )Тип издания: SteamRipРазработчик: DIMPSЖанр: Arcade (Fighting) / 3DЯзык озвучки: Английский, японскийЯзык субтитров: Русский, английский, французский, итальянский, немецкий, испанский, японский, польскийЯзык интерфейса: Русский, английский, французский, итальянский, немецкий, испанский, японский, польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30F8CD8E8B52F75E356B0A5641FEC46B1F07FE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

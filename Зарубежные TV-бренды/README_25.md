@@ -6,7 +6,7 @@ NG. Мегазаводы: Wargaming / Ultimate Factories: Wargaming (2013) HDTVR
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796597.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Дикая природа Новой Зеландии: затерянный 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796549.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Земля под рентгеном / X-Ray Earth (2020) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796541.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Удивительный мир данных / The Joy of Data (2016) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796508.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC. Взломщики кодов. Забытые герои Блетчли-П�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796056.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG. Храм фашизма / Nazi Temple of DOOM (2012) HDTVRip [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795250.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794923.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ History Channel. Пропавший римский легион / Rome's Lost Le
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794852.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC. Искусство стран Бенилюкса / The High Art of the Low 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794625.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery: Бушкрафт: лесная лига / Bushcraft Build-Off (2017) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794592.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC. Искусство Германии / Art of Germany (2010) HDTVRip (сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794581.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC. Искусство Испании / The Art of Spain (2008) SATRip (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794569.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC. Искусство России / The Art of Russia (2009) HDTVRip (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794495.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ PBS: Истории из королевской спальни / Tales from the 
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794239.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC: Бог любит Уганду / God Loves Uganda (2013) WEBRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793857.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793855.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG: Карта ада / Map of Hell (2016) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793690.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG: В Поисках гигантского осьминога / Search for the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793370.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ BBC: Серенгети / Serengeti (2019) BDRip [H.264/720p] (сезон 1, с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793340.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ DV. Чудеса механики / Wonders of the Clockwork World / Mechanical 
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793229.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ PBS. Жизнь колибри. Волшебство в воздухе / Humming
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793159.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793099.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NGW: Сесил: Наследие короля / Cecil: The Legacy of a King (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792749.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792713.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NG: Мегазаводы / Megafactories (2011-2012) HDTVRip [H.264/720p] (5 с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792700.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792677.jpg" />
 </div>
 
 

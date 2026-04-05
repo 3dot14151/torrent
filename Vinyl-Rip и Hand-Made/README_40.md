@@ -1,3 +1,32 @@
+###  Публикация: 1836664   (254151) от 12.11.2025
+
+Rod McKuen - Love's Been Good To Me (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254151.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Love's Been Good To Me
+A2 I Don't Know Who I Belong To
+A3 Good For Nothin' Bill
+A4 You Pass Me By(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA481CE8F7D3831F5151D0205B5304DDB9F2F8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836661   (254150) от 12.11.2025
 
 Orquesta Balkanton - Orquesta Balkanton (1967) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Swing, Rock & Roll>
@@ -6,7 +35,7 @@ Orquesta Balkanton - Orquesta Balkanton (1967) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254150.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Roberto Delgado & His Orchestra - South America In Super Stereo (1970) Series: P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254149.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Herb Alpert - Rise (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul-Jazz>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253082.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Pretty Reckless - Studio Albums (6 releases) (2011-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253061.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ Godark - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252509.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Metallica - Дискография (20 releases) (1983-2023) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252145.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251202.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Various - We Love Bobby O (2019) [WavPack|Lossless|tracks + .cue] <Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250468.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Insomnium - Studio Albums (10 releases) (2002-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250260.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250117.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250027.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Masterplan - Studio Albums (6 releases) (2003-2017) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249886.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Mutiny Within - Studio Albums (3 releases) (2010-2017) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249796.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249436.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245973.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245766.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245564.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Suzi Quatro - If You Knew Suzi (1978/1982) Bulgaria [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245485.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245188.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Roma Vayspapir - Traumerei (Reverie) (1988) [FLAC 2.0|48/24|image +.cue|MC-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245169.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ VA («Червоны гитары», М. Родович, Д. Фардон, Са�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245044.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244997.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ LondonBeat - Speak (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244978.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244756.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ ORM, Kamelie - Tropic (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244688.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ A4 Colorado(   Читать дальше...   )Жанр: Electronic, PopПрод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E63FA16F823187A7A3E7DACF7095CE054BA6042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622959   (244082) от 30.03.2023
-
-Dreamtale - Studio Albums (8 releases) (2002-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamtale — финская группа, играющая пауэр-метал, образованная в 1999 году.2002 - Beyond Reality
-2003 - Ocean's Heart
-2005 - Difference
-2008 - PhoenixЖанр: Melodic Power MetalПродолжительность: 08:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8870D5E32E79A2FB57376BF8A99690B6CB86DB83
 ```
 
 https://mybot314.ru/tekegram_catalog/

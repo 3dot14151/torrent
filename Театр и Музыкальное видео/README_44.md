@@ -6,7 +6,7 @@ Yamato The Drummers of Japan (1995) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780673.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780639.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780556.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Roxette - Видеоколлекция от ALEXnROCK (2018) WEBRip [H.264/720p-
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780169.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Nana Mizuki - Live Zipangu x Izumo Taisha Dedicated Performance (2017) [H.264/10
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779924.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Whitesnake - The Purple Tour Live (2018) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779491.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Whitesnake - The Purple Tour Live (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779483.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779479.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Whitesnake - The Purple Tour Live (2018) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779455.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778837.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778683.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778680.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778491.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778460.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778422.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777221.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777219.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Everest of Rock - 1 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777212.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777170.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777147.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Wax Audio - Mashopolos (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777139.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777128.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777078.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776783.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Весенний марафон № 227: С 8 Марта (2017-2018) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776740.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Весенний марафон № 228: (Дискотека с разма�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776704.jpg" />
 </div>
 
 

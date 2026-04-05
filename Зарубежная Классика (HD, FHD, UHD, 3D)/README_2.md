@@ -1,3 +1,83 @@
+###  Публикация: 360869   (1037609) от 21.01.2021
+
+Взвод / Platoon (1986) [720p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм посвящён событиям войны во Вьетнаме и носит автобиографический характер (в образе главного героя Криса Тейлора Оливер Стоун показал самого себя). Действие происходит в 1967—1968 в Южном Вьетнаме на границе с Камбоджей. Показана история одного взвода из состава 25-й пехотной дивизии США, даны краткие характеристики всем служащим в нём солдатам и показаны взаимоотношения (   Читать дальше...   )Жанр: Драма, ВоенныйРежиссер: Оливер СтоунАктеры: Чарли Шин, Том Беренджер, Уиллем Дэфо, Тони Тодд, Форест Уитакер, Джонни Депп, Джон МакгинлиПеревод: ДублированныйЯзык субтитров: Русские (4 варианта), украинские, английские (2 варианта)Продолжительность: 01:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D90999716209A53084DED913D0DD648AEB14AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615635   (1037535) от 26.02.2023
+
+Можешь не стучать / Don't Bother to Knock (1952) BDRip [H.265/1080p] [10-bit] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йоркский отель. Родители приглашают молодую особу Нэлл Форбс (Мэрилин Монро) посидеть с их дочерью, пока они будут на банкете. Им невдомек, что у миловидной девушки серьезные проблемы с психикой. Встретив в этом же отеле летчика Джеда Тауэрса, напомнившего ей погибшего жениха, Нелл приглашает его в номер. Ребенок начинает ей мешать…Производство: США, Twentieth Century FoxЖанр: фильм-нуар, триллер, драма, детективРежиссер: Рой Уорд БейкерАктеры: Мэрилин Монро, Ричард Уидмарк, Энн Бэнкрофт, Донна Коркоран, Джинн Кэгни, Лёрин Таттл, Илайша Кук мл., Джим Бакус, Верна Фелтон, Уиллис БучиПеревод: Многоголосый (SomeWax)Язык озвучки: русский, английскийСубтитры: русские (PGS), английские (PGS)Продолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02FBEE8D985E8B29D6C5317029462C2365CBF8C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558836   (1037388) от 22.01.2021
+
+Жилец / The Lodger (1926) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037388.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Лондоне неуловимый убийца нападает ночью на молодых блондинок и оставляет на их трупах кусочки бумаги с подписью «Мститель». В одном доме появляется новый жилец, нервный человек с маленьким кожаным саквояжем. Комнату ему сдает мать Дейзи, молодой женщины. У Дейзи есть возлюбленный, полицейский, расследующий эти убийства.
+
+Странное поведение нового жильца настораживает: (   Читать дальше...   )Производство: Великобритания, Carlyle Blackwell Productions, Gainsborough PicturesЖанр: триллер, драма, криминал, детективРежиссер: Альфред ХичкокАктеры: Мари Олт, Артур Чесни, Джун, Малкольм Кин, Айвор Новелло, Реджинальд Гардинер, Ив Грэй, Альфред ХичкокПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские вшитые отключаемыеПродолжительность: 01:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1EAC3A427D92D0663711EC8629493852285D4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435361   (1037384) от 22.01.2021
 
 Скупой / L'avare (1980) BDRip [H.264/1080p]
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037384.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037373.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037149.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036847.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036704.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036119.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035914.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035338.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034257.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032666.jpg" />
 </div>
 
 
@@ -266,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032377.jpg" />
 </div>
 
 
@@ -293,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032193.jpg" />
 </div>
 
 
@@ -319,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030806.jpg" />
 </div>
 
 
@@ -345,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030614.jpg" />
 </div>
 
 
@@ -371,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030130.jpg" />
 </div>
 
 
@@ -397,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030101.jpg" />
 </div>
 
 
@@ -424,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029883.jpg" />
 </div>
 
 
@@ -450,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029874.jpg" />
 </div>
 
 
@@ -476,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028857.jpg" />
 </div>
 
 
@@ -505,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028002.jpg" />
 </div>
 
 
@@ -531,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027882.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027655.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027288.jpg" />
 </div>
 
 
@@ -595,86 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:068254AE4ED296CF89CC4C21046C208F5FA5689E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446101   (1026861) от 11.03.2021
-
-Лулу / Loulou (1980) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026861.jpg" />
-</div>
-
-
-###  Подробнее
-
-История бурного романа девицы из буржуазной среды, и лубара — уличного бездельника. Она изнывала от скуки и ревнивого мужа, он — от скуки и унылой подружки. Они встретились, потанцевали, переспали… и уже не могут друг без друга.
-Лейтмотив этой натуралистичной картины — плотская близость, как средство от всех невзгод. В постели заживают любые раны, как душевные, так (   Читать дальше...   )Производство: Франция / Gaumont, Action FilmsЖанр: драма, мелодрамаРежиссер: Морис Пиала (Морис Пьялà)Актеры: Изабель Юппер, Жерар Депардье, Ги Маршан, Юмбер Бальсан, Бернар Тронжак, Кристиан Буше, Фредерик Сербонне, Жаклин ДюфраннПеревод: Двухголосый профессиональныйЯзык озвучки: Русский, ФранцузскийСубтитры: ФранцузскиеПродолжительность: 01:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:359CBD97E392BAF5958C9B6501A986DECC101343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447176   (1026067) от 16.03.2021
-
-Валентино / Valentino (1977) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рудольф Валентино — актер немого кино, «звездная» карьера которого длилась всего шесть лет. Он приехал в Америку в 1913 году и начинал садовником, работал посудомойщиком, официантом, жиголо и был мелким преступником до того, как начал танцевать на балах за деньги. Знакомство с Аллой Назимовой стало первым шагом на пути Валентино к желаемой славе...Производство: Великобритания, США / Chartoff-Winkler ProductionsЖанр: Драма, биографияРежиссер: Кен РасселАктеры: Рудольф Нуреев, Лесли Карон, Мишель Филлипс, Кэрол Кейн, Фелисити Кендал, Сеймур Кэссел, Питер Вон, Ханц Холл, Давид де Кейзер, Альфред МарксПеревод: Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, английскийСубтитры: Английские (Full)Продолжительность: 02:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CC729D31A4203255533B4AC8F44F5CD34B9CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454780   (1025932) от 17.03.2021
-
-Комната с видом / A Room with a View (1985) BDRemux [H.264/1080p] [Criterion Collection]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025932.jpg" />
-</div>
-
-
-###  Подробнее
-
-1907 год. Люси, юная благовоспитанная английская леди, путешествует по Италии в сопровождении тети Шарлотты, чье воспитание просто безупречно.
-Но после того, как Люси удостоилась поцелуя от недостаточно «светского» поклонника, ее не спасет от страданий любви ни поспешный отъезд в безмятежную Англию, ни помолвка с «подходящим» джентльменом своего круга…Производство: Великобритания / Goldcrest Films International, Merchant Ivory ProductionsЖанр: Драма, мелодрамаРежиссер: Джеймс АйвориАктеры: Хелена Бонем Картер, Джулиан Сэндс, Дэниэл Дэй-Льюис, Джуди Денч, Саймон Кэллоу, Мэгги Смит, Денхолм Эллиот, Патрик Годфри, Фабия Дрейк, Джоан ХенлиПеревод: Профессиональный (многоголосый, закадровый)Субтитры: Русские, английские (full, SDH)Продолжительность: 01:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBBF4F696DCD8C38D8A3D80511AF4AE1BECDF20
 ```
 
 https://mybot314.ru/tekegram_catalog/

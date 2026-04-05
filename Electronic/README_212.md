@@ -1,3 +1,119 @@
+###  Публикация: 1137788   (665427) от 28.05.2017
+
+VA - Erotic Massage Lounge - Sexy Chillout Obsession Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Guru - Addicted To Tantric Sex (Sensual Love Mix) 04:56
+02. From A To A - Perfect Pillow (New Age Mix) 05:00
+03. Once Upon A Time - Like You 04:10
+04. Melounge - Maldives Beach Sunset 05:02(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9CE3A83A7D047E2A1EC11775AD07778F949A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137623   (665418) от 28.05.2017
+
+Maitreya - Avatar Kalki (2017) [MP3|320 Kbps] <Ethnic, Psychillout, Psybient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Namo
+02. Bhaifajyaguru
+03. Kalachakra
+04. MahaMrityunjaya(   Читать дальше...   )Жанр: Ethnic, Psychillout, Psybient, Relax, MeditationПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5295B9ED8DDDDC358EC39E6B40DF8AF2C4C182F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137706   (665417) от 28.05.2017
+
+VA - Future Trance Vol. 80 (2017) [MP3|320 Kbps] <House, Trance, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zedd & Alessia Cara - Stay 3:31
+02.  Axwell Ingrosso feat. Kid Ink - I Love You 3:11
+03.  The Chainsmokers & Coldplay - Something Just Like This 4:07
+04.  Martin Garrix & Dua Lipa - Scared To Be Lonely (Brooks Remix) 3:21(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 03:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F759DF4AB82A0E8CC540E3256A6909356CC4DFAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537846   (665383) от 18.03.2022
+
+Becky Hill - Only Honest On The Weekend (2022) Deluxe Edition [FLAC 2.0|44.1/24|WEB-DL|tracks] <Dance-pop, House, Electro House>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (Becky Hill, Galantis) (3:10)
+02. I Got You (3:10)
+03. Last Time (3:34)
+04. Make It Hard To Love You (3:19)(   Читать дальше...   )Жанр: Dance-pop, House, Electro HouseПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4001B08FF57B64122013BE1274A8431AC108C34D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537882   (665335) от 18.03.2022
 
 Dawn Of Ashes - Blood of the Titans (2021) Remixes [FLAC 2.0|44.1/24|WEB-DL|tracks] <Dark Electro, Industrial>
@@ -6,7 +122,7 @@ Dawn Of Ashes - Blood of the Titans (2021) Remixes [FLAC 2.0|44.1/24|WEB-DL|trac
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665335.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Robert Miles - Remember Robert Miles (2017) [MP3|320 Kbps] <Trance, Dream House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665314.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Robert Miles - Remember Robert Miles (2017) Compilation [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665249.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Signs Of Chilling Liberty (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664566.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Sensual Beach Lounge Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664563.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Progressive Hits: May (2017) [MP3|320 Kbps] <Progressive House,House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664499.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Deep-House Aloha Vol.1: 20 Summer Smoothies (2017) [MP3|320 Kbps] <Funky, C
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664497.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Bassic - Biochrome (2017) [MP3|320 Kbps] <Ambient, Chillout, Nu Disco>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664493.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Poolside Miami 2017 (Mixed by Tobtok) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664491.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Chill Luxury Del Mar - Beach Spa Resort Boutique Lounge Relaxation (2017) [
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664489.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Lounge Traveller Vol.1: High Class Chill Out (2017) [MP3|320 Kbps] <Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664483.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Deorbiting - Space House (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664407.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ VA - Sexy & Chill Feelings (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664388.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ VA - Best Of Progressive House Vol.04 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664387.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ VA - Hardstyle Force 2022 (Join The Rebellion) [MP3|320 Kbps] <Hard Dance, Techn
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664337.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ VA - Roadster 05 - The License For Fine Music Of Perfect Coolness  (Mixed by Ale
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664330.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ VA - All Gender Bodybuilding Music Spring (2017) [MP3|320 Kbps] <House, Progress
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664328.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Rammstein - Remixes (2020) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664277.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ VA - Techno Club Vol. 52 (Mixed by Talla 2XLC & ReOrder) (2017) [FLAC|Lossless|C
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664151.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Ovnimoon - Voyage (2017) [FLAC|Lossless|WEB|tracks] <Psy-Trance, Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664137.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ VA - Ambient Nectar (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663246.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ VA - Masters Of Dance 8 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663242.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ VA - Masters Of Dance 8 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C57AEDECACB909A3B673C81ADB16B1F69E11E085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138581   (663240) от 30.05.2017
-
-VA - Blue Lounge 3: Bossa Lounge and Chillout Moods Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jean-Michel Vallet - Moody Lounge 2:57
-02.  Christophe Goze - I Like It (Main) 3:32
-03.  Simon Di - Push Tempo (Main) 2:19
-04.  Luigi Seviroli - Lifesource (Full Mix) 2:16(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2887A535036F0AABD50AAD712703ABA7EEAD610D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138521   (663239) от 30.05.2017
-
-VA - Summer Chill. Smooth Beach Lounge Grooves for Easy Listening (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon de Lounge - La Mer Se Calme - Extended Beach Mix
-02. Melounge - Maldives Beach Sunset
-03. Bouche - Wind Pillow
-04. Chantilas - Chapter Three(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249A7FC954EA5B918B89B95888FC619873C01C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138593   (663160) от 30.05.2017
-
-VA - Deep House Music (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Elle - T-Bass
-02. Jazz Juice - Fever - ChrisB Remix
-03. Chartclimbers - Lead Man Holler
-04. Dariush - The Elves(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD3253E6B3B4C9F46D1772DD362C3069231E3AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138286   (663158) от 30.05.2017
-
-Spacekraft - То падая, то взлетая (Сон) (2016) [FLAC|Lossless|WEB-DL|image] <Chillout, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepy Town Manufacture - Posledniy Son Starogo Robota
-02. Robert Babicz - Duba (Guy J Remix)
-03. Synkro - Recognition
-04. Thrupence - Voyages(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAEC1D738FDF9AB05F8FB0C9DA2E8851161B6E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

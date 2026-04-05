@@ -1,3 +1,61 @@
+###  Публикация: 1116946   (820809) от 21.03.2017
+
+VA - Serial Chillers (2017) [MP3|320 Kbps] <PsyChill, Ambient, Downtempo, Psychedelic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asura - Eternal Sunshine (ambient version) (6:54)
+ 02. Kliment - Jaia Flower (7:38)
+ 03. Suduaya - Nomad (7:36)
+ 04. E-Mantra - Daydream (6:27)(   Читать дальше...   )Жанр: PsyChill, Ambient, Downtempo, PsychedelicПродолжительность: 07:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B325B262D56383AF3F4ACE8A2F9DF57C5853E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116935   (820665) от 21.03.2017
+
+Deadmau5 - Stuff I Used To Do (2017) [FLAC|Lossless|WEB|tracks] <Electro House, Glitch, IDM>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Messages from nowhere (5:00)
+02. Digitol (3:55)
+03. Screen door (4:38)
+04. Squid (1:03)(   Читать дальше...   )Жанр: Electro House, Glitch, IDMПродолжительность: 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59F4F487AE1DB8DA8BBEA13A22CB3EEF36787D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126483   (820499) от 10.05.2020
 
 Pjusk - Discography 10 Releases (2007-2019) 12k [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Minimal, Techno, Ambient>
@@ -6,7 +64,7 @@ Pjusk - Discography 10 Releases (2007-2019) 12k [FLAC|Lossless|tracks+.cue, trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820499.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ Infected Mushroom - Return to the Sauce (2017) [FLAC|Lossless|CD|tracks+.cue] <P
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820425.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ VA - Progressive House Components (2016) [MP3|320 кб/с] <House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819902.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Giash - Brightness Is All (2016) [FLAC|Lossless|WEB-DL|tracks] <Minimal>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819901.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - Venera Music Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819900.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Urban Dance Battle Nation (2016) [MP3|320 кб/с] <House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819899.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - The Best Progressive Hits Vol.5 (2016) [MP3|320 кб/с] <House, Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819898.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Black Hole House Music 04 - 16 (2016) [MP3|320 кб/с] <House, Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819895.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Timboletti - Hintersee (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819747.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Blackout: Best of 2015 (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819555.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Jonas Blue - Fast Car (feat. Dakota) (2016) [FLAC|Lossless|WEB-DL|tracks] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819552.jpg" />
 </div>
 
 
@@ -320,7 +378,7 @@ VA - Urban Dance, Vol. 16 (2016) Scene [FLAC|Lossless|WEB-DL|tracks] <Dance, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819453.jpg" />
 </div>
 
 
@@ -349,7 +407,7 @@ VA - In Between Worlds Vol.2 (2017) [MP3|320 Kbps] <House, Progressive House, El
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819378.jpg" />
 </div>
 
 
@@ -378,7 +436,7 @@ VA - Chill Vibes On Air (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819376.jpg" />
 </div>
 
 
@@ -407,7 +465,7 @@ VA - Blue Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819374.jpg" />
 </div>
 
 
@@ -436,7 +494,7 @@ VA - Forever Chillout Set Collection (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819373.jpg" />
 </div>
 
 
@@ -465,7 +523,7 @@ VA - Tropical & Future House Workout (2020) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819282.jpg" />
 </div>
 
 
@@ -494,7 +552,7 @@ VA - Ibiza-Unique Pres. Fairy Tails Vol.1 (Mixed By Nightmosphere) (2017) [MP3|3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819269.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ VA - Ihu Records: Best Of (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819214.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ VA - Big Top Winter (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819207.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ Alpha Delta Division - Outer Rim (2017) Sloboda [FLAC|Lossless|tracks|Vinyl] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819205.jpg" />
 </div>
 
 
@@ -608,7 +666,7 @@ VA - Suanda Winter Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819200.jpg" />
 </div>
 
 
@@ -637,7 +695,7 @@ Christos Fourkis - Personal Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819199.jpg" />
 </div>
 
 
@@ -666,7 +724,7 @@ VA - Markus Schulz - Global DJ Broadcast - Classics Showcase 2018 (2017) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819198.jpg" />
 </div>
 
 
@@ -680,64 +738,6 @@ VA - Markus Schulz - Global DJ Broadcast - Classics Showcase 2018 (2017) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DFF9A7A7EE58692AEB79F04F973287AFF64E41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197053   (819195) от 05.01.2018
-
-VA - Abora Recordings: Best Of 2017 (Mixed by Ori Uplift) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illitheas - Levity (Intro mix)
-02. Afternova & Andrea Becker - For You (Trance mix)
-03. Manuel Rocca & Illitheas - Enchanted (Original Mix)
-04. Syntouch & Angel Falls - Alone (Plutian remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C5E9A97E991DA0011B26115250E5A7DB9F8665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196852   (819193) от 05.01.2018
-
-VA - Aly & Fila - Future Sound of Egypt 529 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Bohmer & Wood — Velvet Rebellion (Original Mix)
-02. The Journey — The Toad (Original Mix)
-03. Paul Thomas & K3V — Aquamarina (Extended Mix)
-04. Concierj — Reality Pending (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064ABDA5AD3F90A34DCEDE21711EB9AE945149AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

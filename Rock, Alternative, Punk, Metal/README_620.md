@@ -1,3 +1,32 @@
+###  Публикация: 1569291   (449567) от 14.08.2022
+
+Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Настало время героев
+02. Хранитель
+03. Сумрачный лес
+04. Армия тьмы(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5A47CA3C8BC51DDAC8FB9BDA90E307F0CA08CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409020   (449453) от 15.09.2020
 
 Hounds - The Dead Town Nothing Tapes (2020) [MP3|~245 Kbps (V0)] <Hardcore>
@@ -6,7 +35,7 @@ Hounds - The Dead Town Nothing Tapes (2020) [MP3|~245 Kbps (V0)] <Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449453.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449449.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Winery Dogs - Hot Streak (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449431.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ Conan & Deadsmoke - DOOM SESSIONS VOL​.​1 (2020) Split Album [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449338.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Downer Inc. (Kellin Quinn ft. Sleeping With Sirens) - Whatever This Is (2020) EP
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449337.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Natural Spirit - Під серпом часу (2020) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449336.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Angerseed - The Proclamation (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449292.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ ZZ Top - Fandango! (1975) SHM-CD, 2013, Warner Music [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449228.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ ZZ Top - Rio Grande Mud (1972) SHM-CD, 2013, Warner Music [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449213.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449032.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ ZED - Desperation Blues (2013) [MP3|320 Kbps] <Hard & Heavy, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449003.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ ZED - The Invitation (2010) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448863.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448860.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ VA - Greenpeace Rocks (1993) [FLAC|lossless|image + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448857.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Diapasаo - Opus 1 (2006) [MP3|320 кб/с]<Progressive rock, Jazz-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448764.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ Carlos Santana - Caravanserai (1972) Released 2003 [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448698.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ Lacrimosa - Hoffnung (2015) Deluxe Edition [FLAC|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448598.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ The Bobby Fuller Four - I Fought the Law / KRLA King of the Wheels (1965) Remast
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448545.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ Snakeskin - Tunes For My Santimea (2016) [MP3|320 Kbps] <Gothic Metal, EBM, Indu
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448508.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448494.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448492.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ Demon Hunter - War (2019) [FLAC|Lossless|tracks + .cue] <Metalcore, Modern Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448401.jpg" />
 </div>
 
 
@@ -655,7 +684,7 @@ Epica - The Score - An Epic Journey (2005) [FLAC|Lossless|image + .cue] <Neo-Cla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448392.jpg" />
 </div>
 
 
@@ -684,7 +713,7 @@ Steven Wilson - To the Bone (2017) [FLAC|Lossless|image + .cue] <Crossover Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448280.jpg" />
 </div>
 
 
@@ -713,7 +742,7 @@ Heart Of A Coward - Hope And Hindrance (2012) [MP3|320 кб/с]<Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448155.jpg" />
 </div>
 
 
@@ -733,35 +762,6 @@ Heart Of A Coward - Hope And Hindrance (2012) [MP3|320 кб/с]<Progressive Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6D93347368CB102ECE73B9342FC4EAB7E5E3E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163510   (448147) от 06.09.2017
-
-Бранимир - Жизнь и смерть Скруджа Макдака (2017) [MP3|256 Kbps] <Acoustic, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Банга (5:16)
-02. Щенки (7:28)
-03. Нули (7:07)
-04. Малиновый Король (4:36)(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42997E1A9DD908BA590D268903B9ECDC05882777
 ```
 
 https://mybot314.ru/tekegram_catalog/

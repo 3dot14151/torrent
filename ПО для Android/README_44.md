@@ -1,3 +1,111 @@
+###  Публикация: 1393988   (765106) от 03.07.2020
+
+Google Play Market (Плей Маркет) v20.5.19-all [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Play Market (Плей Маркет) – это приложение является объединением всех магазинов Google в один под девизом: "Чистое развлечение, где бы вы этого не захотели." Магазин Google play объединил в единое целое Андроид Маркет, Музыкальный магазин, Видеомагазин и Магазин книг. Google дает отличную возможность получить доступ к своим покупкам в любое время (   Читать дальше...   )Тип издания: ОригиналРелиз состоялся: 22.06.2020Разработчик: Google LLCПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FF1614046E6CEE4F1DAB627A35035430A09232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521365   (765084) от 02.01.2022
+
+Цветовой код резистора - калькулятор v1.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение представляет собой простой в использовании калькулятор цветового кода для расчета сопротивления резистора. Приложение поддерживает цветовые коды для 4, 5 и 6-полосных резисторов.Тип издания: Пиратка (открыт Pro)Релиз состоялся: 18.08.2020Разработчик: Tom HogenkampПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6F96C96062D817FB2A611BD7F6BF2FFFF1C97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521502   (765070) от 02.01.2022
+
+Мастерок: строительный калькулятор v7.02 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Строительный калькулятор "Мастерок":
+Расчет количества кирпича
+Расчет гипсокартона
+Расчет при покраске(   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 12 сентября 2020 г.Разработчик: Dastory StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1856C943209ED760867999CB1A343C4017F59D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581600   (765030) от 18.04.2017
+
+Root Cleaner 7.1.0 [Ru] - Чистилка
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очистка памяти, кэш-файлов и т.д., и вы можете сделать это без перезагрузки (при быстрой очистке). Полная очистка требует перезагрузки. Приложение также является менеджером приложений, вы можете удалить, очистить данные и заморозить или разморозить системные и пользовательские приложения.
+Поддерживает работу на планшетах.Тип издания: ПираткаРелиз состоялся: 18.04.17Разработчик: Adam JůvaПоддерживаемая ОС: Android 3.0 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C98FB5DEBDACB70FE2FBB21B09FBE2AB0C887A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455459   (765029) от 18.04.2017
 
 BusyBox Pro 55 & BusyBox Free 50 [En-Ru]
@@ -6,7 +114,7 @@ BusyBox Pro 55 & BusyBox Free 50 [En-Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765029.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764943.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764786.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764219.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764172.jpg" />
 </div>
 
 
@@ -139,7 +247,7 @@ Metro 24 Pro v3.2.3 [Ru/Multi] - удобный навигатор по метр
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764080.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ Learn English 6000 Words / Учим Английский 6000 Слов v5.40 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763887.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763719.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763675.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763504.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763445.jpg" />
 </div>
 
 
@@ -297,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763443.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ EZ Folder Player v1.3.16 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763435.jpg" />
 </div>
 
 
@@ -353,7 +461,7 @@ Ultimate Guitar Tuner v2.14.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763342.jpg" />
 </div>
 
 
@@ -379,7 +487,7 @@ SD Card Test Pro v1.9.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763341.jpg" />
 </div>
 
 
@@ -406,7 +514,7 @@ File Manager - Local and Cloud File Explorer v5.0.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763327.jpg" />
 </div>
 
 
@@ -432,7 +540,7 @@ Headway: Краткие содержания из книг v1.6.2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761773.jpg" />
 </div>
 
 
@@ -460,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761650.jpg" />
 </div>
 
 
@@ -486,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761521.jpg" />
 </div>
 
 
@@ -514,7 +622,7 @@ Weather Live Wallpapers v1.74 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760060.jpg" />
 </div>
 
 
@@ -541,7 +649,7 @@ Network Signal Info Pro 5.55.14 (Paid) [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759964.jpg" />
 </div>
 
 
@@ -567,7 +675,7 @@ Geeky Hacks Pro : Anti Hacking Protection v1.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759921.jpg" />
 </div>
 
 
@@ -578,111 +686,6 @@ Geeky Hacks Pro : Anti Hacking Protection v1.0.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AFC4F09FFD732EC1C63D7305C90EA581C387E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480087   (759639) от 06.01.2022
-
-Malwarebytes Anti-Malware v3.9.1.68 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malwarebytes защищает от самых сложных вредоносных программ, в том числе от Trojan Loapi!
-Самая популярная технология противодействия вирусам теперь на мобильных устройствах! Malwarebytes for Android в реальном времени защищает телефон и планшет от вредоносного ПО, программ-вымогателей, рекламного ПО и средств неавторизованного наблюдения.Тип издания: Пиратка (Premium)Релиз состоялся: 29 ноября 2021 г.Разработчик: MalwarebytesПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DEB6B820916B751BE0604A5D97EDAF5B946C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209264   (759462) от 25.03.2018
-
-Money Pro v1.6.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Money Pro - это единая программа для ведения бюджета, учета расходов по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для учета расходов семьи, а также для финансового планирования малого бизнеса. С 2010 года приложение существует для iOS/Mac (более 2,5 млн скачиваний по всему миру), а теперь доступно и на Android.Тип издания: Пиратка (разблокированан Pro)Релиз состоялся: 13.03.2018Разработчик: iBear LLCПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43179A173FA56BBDCB7BBA82B103CF7BB84B30BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055466   (759370) от 25.03.2018
-
-TrackChecker Mobile v2.22.20 [Ru/Multi]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759370.jpg" />
-</div>
-
-
-###  Подробнее
-
-TrackChecker Mobile - это приложение, которое поможет Вам отслеживать перемещение и статус почтовых отправлений, грузов, заказов в интернет-магазинах по их идентификатору (треку, трек-номеру). TrackChecker Mobile - это развитие первой версии программы, которое теперь поддерживается автором настольной версии TrackChecker. Программа поддерживает более трехсот различных (   Читать дальше...   )Тип издания: Пиратка (отключена реклама и неограниченное кол-во переводов в 2.22.14)Релиз состоялся: 20.03.2018Разработчик: MetalSoftПоддерживаемая ОС: Android (зависит от устройства)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4515C4D69C297A321B33BD9D674254D20E4CACC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979833   (758707) от 18.05.2016
-
-BrainBurn Тренировка Памяти v0.8 [Multi/Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный тренажёр представляет собой набор упражнений для тренировки Вашей памяти и мозга. Тренажёр в первую очередь предназначен для улучшения способностей Вашей кратковременной памяти запоминать буквенную, цифровую, символьную, а так же визуальную информацию.Тип издания: ОригиналРелиз состоялся: 25 января 2016Разработчик: BrainBurnSoftПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA197CB0D3391127F2D8742F13E2294A5C94C25
 ```
 
 https://mybot314.ru/tekegram_catalog/

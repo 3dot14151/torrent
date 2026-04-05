@@ -1,22 +1,25 @@
-###  Публикация: 917355   (589591) от 11.07.2015
+###  Публикация: 1551176   (590249) от 15.05.2022
 
-The Hicksville Bombers - Voodoo Doll (2015) [MP3|320 кб/с]<Rockabilly, Rock'n'roll, Rockin'blues>
+St. October - Whatever Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Melodic Groove Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Real Rockin’ PartyЖанр: Rockabilly, Rock'n'roll, Rockin'bluesПродолжительность: 00:40:40
+01 - Rise.Fall.Ignite. (00:01:05)
+02 - With Open Eyes (00:05:00)
+03 - Ghosts (00:05:58)
+04 - White Goddess (00:03:44)(   Читать дальше...   )Жанр: Gothic, Melodic Groove MetalПродолжительность: 00:54:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98311ED22979C2C1D508E2B3A1405586BB04928C
+magnet:?xt=urn:btih:D3DB3F2F743102FA15537F3299466BC542A3C51B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917220   (589590) от 11.07.2015
+###  Публикация: 1551297   (590248) от 15.05.2022
 
-Mozilla Thunderbird 38.1.0 Portable by PortableAppZ [Ru]
+Mudweiser - The Call (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Fuzz Rock>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01 - Invitation (00:04:23)
+02 - High Again (00:04:13)
+03 - Blasted Forever (00:03:12)
+04 - Sister Mary (00:05:07)(   Читать дальше...   )Жанр: Stoner, Fuzz RockПродолжительность: 00:35:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4EF0ACA2826AF94E6F1EAC7ADEB7050AAD47AAA
+magnet:?xt=urn:btih:54BBACF36C77BFA2FBAD943ACC39A5662DE30392
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917398   (589589) от 11.07.2015
+###  Публикация: 1551334   (590247) от 15.05.2022
 
-Aghiatrias - Ethos (2006) [FLAC|Lossless]<Dark Ambient, Industrial>
+The Soft Eggs - Tantric Eels (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cognitive Trap (07:03)
-02. Situs Inversus (05:47)
-03. Les Coeurs Du Mal (05:27)
-04. Autodivine (06:59)(   Читать дальше...   )Жанр: Dark Ambient, IndustrialПродолжительность: 00:54:19
+01 - Whirl (00:06:04)
+02 - Blizzard of dolphins (00:04:24)
+03 - Lake of Indecision (00:03:44)
+04 - Dying Peepshow (00:03:24)(   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 00:39:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A83B001F7E5755C633A80539CB436BF835634FB1
+magnet:?xt=urn:btih:E098C54820DEE6346CD7F779F268ECCD9457687F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,112 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917297   (589588) от 11.07.2015
+###  Публикация: 1551264   (590246) от 15.05.2022
 
-VA - Summer Rhythm Ibiza Club Life (2015) [MP3|320 кб/с]<House, Progressive House, Dutch House, Bounce>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Napt - Hold Tight
-02. Duke Dumont - Nicht Vor Mitternacht (Original Mix)
-03. Frankho - Brain Drop (Original Mix)
-04. Fabio D'elia & Kawkastyle - Respawn (Original Mix)(   Читать дальше...   )Жанр: House, Progressive House, Dutch House, BounceПродолжительность: 10:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F022E3E87A1541F6F7D1B83408D1575490227D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916701   (589587) от 11.07.2015
-
-Dj Feel - TOP 30 OF June (2015) [MP3|320 kbps]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LTN feat. Christina Novelli - Hold On To Your Heart (LTNs Sunrise Mix)
-02. A-Mase - Awakening (Original Mix)
-03. John Macraven ft. Robin Vane - Into the light (JOOP and Sherano Remix)
-04. Aelyn - New Day (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA42ACABC49DF31F0247024E422014243C6E3DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917315   (589586) от 11.07.2015
-
-Обои - Романтика городских мостов [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Город. Романтика городских мостовФормат: JPGРазрешение файлов: 1920х1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A09A9B80F798AB0F93340A40AFF1C2FAEE4F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917357   (589585) от 11.07.2015
-
-John Lee Hooker - Jazz & Blues collection (1995) [MP3|320 кб/с]<Blues Rock>
+Fausto Ferraiuolo Trio - Il Dono (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Dimples (2:14)
-02.  Mambo chillun (2:47)
-03.  I'm so excited (2:52)
-04.  Time is marchin' (3:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:47
+01. Fire Island [4:52]
+02. Three [4:19]
+03. Rue de la Vega [5:26]
+04. O Impro Mio [4:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:59:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E617BAADA76EE893BBF3C8478BE3D51F2FDCBD4
+magnet:?xt=urn:btih:0DD29476D132214685030599BA0E30FB9CC7FD01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,21 +114,137 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917284   (589584) от 11.07.2015
+###  Публикация: 1551267   (590245) от 15.05.2022
 
-Канадская команда становится победителем гонки самых экономичных автомобилей
+Luigi Martinale French Trio - Mercj (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
 
->>Поговорим
->>DailyTechInfo
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_589584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Студенты из университета Лаваля (Universite Laval), Квебек, Канада стали победителями 36-го международного соревнования SAE Supermileage, в котором принимают участие самые экономичные автомобили в мире. Вторую подряд победу на этом соревновании канадским студентам принес их автомобиль, продемонстрировавший топливную эффективность 2098 миль на галлон (0.11 литра на (   Читать дальше...   )
+01. Pop Imagination [5:28]
+02. It Ain't Necessarily So [5:04]
+03. Puccini [3:09]
+04. Sundial Time [6:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84FC23B6582944C91B4B4DA32162FB5206644CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551185   (590244) от 15.05.2022
+
+SevenSins - My Triumph (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Aeon (00:02:42)
+02 - Anathema (00:04:52)
+03 - Hypocrisy (00:04:38)
+04 - Slipknot (00:04:42)(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4915D8552E8E3ED5D6E325A0C4B6D35471FB927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551198   (590243) от 15.05.2022
+
+Orkan - Livsgaranti (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Urskog (00:04:48)
+02 - Leva for att do (00:03:17)
+03 - Livsgaranti (00:04:37)
+04 - Vagrar vara tyst - forsta delen (00:05:29)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1ACE43E2CC969F8F11438811D8A9394B6C2380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551399   (590242) от 15.05.2022
+
+Владимир Одоевский, Дмитрий Мамин-Сибиряк | Городок в табакерке. Серая Шейка (1996) [MP3, Николай Литвинов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка о том, как устроена музыкальная шкатулка (табакерка). Рассказ о том, как важна дружба (Серая Шейка).Жанр: Радиоспектакль, СказкаПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFCDE73E1E89FFA4DD51C3FA409869656D3CEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551199   (590241) от 15.05.2022
+
+Carmen Lundy - Good Morning Kiss (1985) 2002, Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_590241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Is Love [2:43]
+02. Dindi [5:55]
+03. The Lamp Is Low [8:05]
+04. Perfect Stranger [3:28](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:32
 
 ## Скачать торент
 ```bash
@@ -218,25 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917302   (589583) от 11.07.2015
+###  Публикация: 1551319   (590240) от 15.05.2022
 
-Обои - Розовые принцессы [JPG]
+Jeff Scott Soto - Complicated (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цветы. Розовые принцессы.Формат: JPGРазрешение файлов: 1920х1080
+01. Last to Know (4:25)
+02. Disbelieving (3:38)
+03. Home Again (3:33)
+04. Love is the Revolution (4:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:350719A3F499DD8768E7048081EAC2B006B0BCCF
+magnet:?xt=urn:btih:87BF876FE9A0D40780655C95DBA986934A726EE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -244,410 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917237   (589582) от 11.07.2015
+###  Публикация: 1551324   (590239) от 15.05.2022
 
-BurnAware Professional 8.3 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589582.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B18F58DAB4EDE37AE8CB9B623051B3FC8A9817F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917223   (589581) от 11.07.2015
-
-CocCoc 43.0.2357.136 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589581.jpg" />
-</div>
-
-
-###  Подробнее
-
-CocCoc Browser  - браузер от вьетнамской компании Cốc Cốc. Основан на открытом исходном коде проекта Chromium, и визуально очень похож на Google Chrome. Браузер имеет упрощенный дизайн, что позволяет пользователю полностью сосредоточить все внимание на содержимом страницы. Большинство задач браузера выполняются в единственном окне.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198969D773976BB2A7DF36D8E0FDB254A595EC03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916507   (589580) от 11.07.2015
-
-Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка NATIVE AMERICANS  на выступлении в The Red Road Ensemble с группой североамериканских аборигенов. Первоначально разработанный в качестве фона на документальном TBS, Робертсон вернулся  к своим корням, смешивая традиционные ритмы коренных со звуком фолк и кантри. Звукозаписывающие компании думали, что это слишком "нетрадиционные" для основного радио (   Читать дальше...   )01 -  Ghost Dance (W/ Red Road Ensemble)
-02 -  Mahk Jchi (W/ Ulali)
-03 -  Golden Feather (W/ Red Road Ensemble)
-04 -  Eagle Dance (American Indian Dance Theater)Производство: США, The Red Road EnsembleЖанр: Native American, FolkРежиссер: The Red Road EnsembleАктеры: Robbie Robertson, Pura Fe Crescioni, Soni Moreno, Jennifer E Kreisberg, Laura Satterfield, Priscilla Coolidge, Rita Coolidge....Продолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14AA2CECFA94FB8725DC0737A497C60B241F094D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917086   (589579) от 11.07.2015
-
-Т. Папендик, Б. Столповский | Пчельник на лесной поляне (1926) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как организовать приусадебную пасеку, существенно повысить, медосбор, предотвратить роение и болезни пчел, правильно подготовить пчелиные семьи к зимовке, перерабатывать и хранить продукты пчеловодства рассказывает эта книга.Жанр: Пчеловодство, обучающая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F3BA1E1728CEC5B42B54735D6CB168692DFEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917221   (589578) от 11.07.2015
-
-Алексей Олейников | Захвачены в бою. Трофеи русской армии в Первой мировой (2015) [PDF, DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга А.В.Олейникова подробно рассказывает о трофеях русской армии, захваченных в годы Первой мировой войны: о знаменах, броневиках и орудиях, добытых русскими солдатами на полях сражений. Особое внимание уделяется военнослужащим германской, австро-венгерской и турецкой армий, оказавшимся в русском плену. Сопоставляя различные документы, автор анализирует урон, (   Читать дальше...   )Жанр: История войнФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1870A49FEC8D29FCA70EE63607C4A854DEB2819D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917389   (589577) от 11.07.2015
-
-VA - A State Of Trance Radio Top 20 - July (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marlo - Atlantis (Radio Edit) (02:56)
-02. Above & Beyond Feat. Zoe Johnston - Peace Of Mind (Myon & Shane 54 Summer Of Love Radio Mix) (03:13)
-03. Andrew Rayel Feat. Jonny Rose - Daylight (Radio Edit) (02:44)
-04. Cosmic Gate With Sarah Lynn - Sparks After The Sunset (Rafaеl Frost Radio Edit) (03:54)(   Читать дальше...   )Производство: Armada Music B.V.Жанр: TranceПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0250E6E8FC1CB9DA49D634F2D4C0E18F512A0B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917168   (589576) от 11.07.2015
-
-Dara Sedaka - I'm Your Girl Friend (1982)/2005/ [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Huggin' (04:10)
-02. Just Say I Love You (03:47)
-03. The Real Me (03:59)
-04. Keep Me In Love With You (04:14)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BABE4B41DDBF5B94526B479577D0099D30135DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917218   (589575) от 11.07.2015
-
-Mozilla Thunderbird 38.1.0 Final [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AAB7BC36DB2AA0B34991EA80A27195DB1ADCD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917228   (589574) от 11.07.2015
-
-VA - The Dark Room Lounge (Sexy and Smooth Easy Listening Deluxe Moments) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Lotus - Bondage Love - Sexy Jazz Beat City Remix
-02. Perrymann - Free Hugs - Deep Ocean Beat Chill Remix
-03. Jamie White Dean - Lost in a Daydream - Downbeat Relax Cafe Version
-04. Alchemists and other Liar - Fantasy Lounge - Classic Buddha Chillout Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B180AF6D8C03A4D0C286FB6997D12385039B8DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917461   (589573) от 11.07.2015
-
-VA - Burlesque (48 Best Of Tease & Drama) (2015) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Freitas - Marlowe's Blues (02:58)
-02. Tim Brown - Retro Funk Groove (02:50)
-03. Max DiCarlo - Pink Panther Meets Jessica Rabbit (01:45)
-04. Richard Freitas - Piano Man's Heat (02:21)(   Читать дальше...   )Производство: Whisky LullabyЖанр: JazzПродолжительность: 02:21:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A258DBCD869E8759CBF698CA0BC8D6049A9370C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917472   (589572) от 11.07.2015
-
-Об улитках и людях / Despre oameni si melci (2012) DVDRip [H.264] [RO / EN Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589572.jpg" />
-</div>
-
-
-###  Подробнее
-
-1992 год. Государственный автомобильный завод в небольшом румынском городке обанкротился и через неделю будет приватизирован. Покупатели — французские бизнесмены, планируют переоборудовать его в фабрику по производству улиточных консервов. Будущие владельцы собираются уволить рабочих и избавиться от имущества завода. В ответ лидер местного профсоюза убеждает рабочих (   Читать дальше...   )Производство: РумынияЖанр: КомедияРежиссер: Тудор ЖюржиюАктеры: Анди Васлуяну, Моника Дин, Дорел Визан, Жан-Франсуа Стевенен, Робинсон Стевенен, Алина БерзунцянуПеревод: ОтсутствуетЯзык озвучки: РумынскийЯзык субтитров: АнглийскийПродолжительность: 01:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02DA5DDA875D2103AE1010975EEF64B4D1FB025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917359   (589571) от 11.07.2015
-
-Internet Download Manager 6.23 Build 15 Final RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB3FB23304920347412B6889D9C60F063A234B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917239   (589570) от 11.07.2015
-
-VA - The Early Years: George Szell - The Royal Concertgebouw Recordings (2CDs) (1995) [FLAC|image+.cue]<Classical, Romantic Period, Symphony, Classical Period>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mozart - Symphony No.34 in C major - III. Finale. Allegro vivace (05:25)
-Beethoven - Symphony No.5 in C minor
-02. Allegro con brio (07:34)
-03. Andante con moto (10:13)(   Читать дальше...   )Жанр: Classical, Romantic Period, Orchestral, Symphony, Classical PeriodПродолжительность: 02:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26E36AA51813B5BFD22B5C7C876D81C03E43FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917385   (589569) от 11.07.2015
-
-Нарушители покоя / The Peace Killers (1971) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Байкеры-хулиганы терроризируют коммуну хиппи, чтобы вернуть в банду бывшую девушку своего лидера…Производство: США / Damocles Productions, Transvue Pictures Corp.Жанр: Боевик, Драма, КриминалРежиссер: Дуглас ШварцАктеры: Клинт Ричи, Джесс Уолтон, Пол Прокоп, Майкл Онткин, Лэвэлл Роби, Нино Кандидо, Джон Хилл, Гэри Морган, Джон Рэймонд Тейлор, Роберт КорнтуэйтПеревод: Двуголосый закадровый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E52F3CC03CEC02D4A351A4A4F85CA75F3B028C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917296   (589568) от 11.07.2015
-
-Charenee Wade - Offering: The Music of Gil Scott-Heron & Brian Jackson (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+Kammerflimmer Kollektief - Teufelskamin (2011) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Dark Jazz, Experimental Rock>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Offering (Feat. Stefon Harris) (04:31)
-02. Song of the Wind (Feat. Stefon Harris) (07:42)
-03. A Toast to the People (06:37)
-04. Home Is Where the Hatred Is (Feat. Stefon Harris) (04:32)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:09
+01. Coricidin Boogie (4:31)
+02. Never Collapse, Always Dazzle ! (3:56)
+03. Teufelskamin Jam #1 (10:22)
+04. Shangrila (1:43)(   Читать дальше...   )Производство: Staubgold – staubgold digital 16Жанр: Nu Jazz, Dark Jazz, Experimental RockПродолжительность: 00:45:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4E9AC9271022442DE08C2B6536B07ADF0E92AE6
+magnet:?xt=urn:btih:DBF0633CDB0A46D970360CC73A5E451912B4E66C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,25 +314,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917334   (589567) от 11.07.2015
+###  Публикация: 1551304   (590238) от 15.05.2022
 
-Обои - Автомобили [JPG]
+Constancia - Brave New World (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal, Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>
+>>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_590238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои на тему Автомобили.Формат: JPGРазрешение файлов: 1920х1080
+01. Brave New World (4:59)
+02. Forget Me Not (3:29)
+03. Blame It On Love (3:39)
+04. Synchronistic (3:57)(   Читать дальше...   )Жанр: Progressive Metal, Hard RockПродолжительность: 00:50:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2CD4E993C6AC2B1722559EB38114A1D9934E2925
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,25 +343,386 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917473   (589566) от 11.07.2015
+###  Публикация: 1551271   (590237) от 15.05.2022
 
-pdfFactory Pro 5.30 RePack by KpoJIuK [Multi/Ru]
+Jason Scheff - Here I Am (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will You Still Love Me (5:39)
+02. Here I Am (4:32)
+03. Look Away (4:18)
+04. Wonderful Day (4:08)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C7F18B37D6B6FF0B053083B4D1C0D2802CA258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551389   (590236) от 15.05.2022
+
+Своя игра (15.05.2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: РусскиеПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325084FE39D40943C124685057903491FC93EB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551367   (590235) от 15.05.2022
+
+Suicide Queen - Nymphomaniac (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Industrial Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_590235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Angel (00:03:32)
+02 - Scarecrow (00:04:49)
+03 - Swan (00:04:44)
+04 - Witch (00:03:30)(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551311   (590234) от 15.05.2022
+
+Сто к одному (15.05.2022) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60304930F966115DEF58C87AE342F10A26CFE31B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551409   (590233) от 15.05.2022
+
+Георгий Скребицкий | Звери разных стран (1971) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590233.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказывается о самых разных животных нашей планеты, об их удивительных повадках. Бонусом идут красочные иллюстрации каждого.
+Для детей старшего дошкольного и младшего школьного возраста. Иллюстрации Д.Горлова.Жанр: РассказФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D32408FA9B8F71F804B1E94F5DB2DFEAF612EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551415   (590232) от 15.05.2022
+
+Александр Комаров | Звери (1946) [PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_590232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга с красочными иллюстрациями животных и птиц, живущих на просторах нашей необъятной родины.
+Иллюстрации авторские.Жанр: ЭнциклопедияФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551377   (590231) от 15.05.2022
+
+Junkyard Drive - 3 Albums (2017-2022) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Burn [00:03:39]
+02. Electric Love [00:04:16]
+03. Mr. Rock N' Roll [00:03:34]
+04. Home [00:04:13](   Читать дальше...   )Жанр: Hard RockПродолжительность: 3 CD, 02:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3274C7CC4923CCF96BCD0BA4B73F18033622D164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551274   (590230) от 15.05.2022
+
+Edge Of The Blade - Distant Shores (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Me (2:58)
+02. Feel The Fire (3:25)
+03. Angels Fear To Tread (3:50)
+04. Lonely To (3:03)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BFAFABDFFDCA6B9DE4EB30D2245DB3B59BB9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551272   (590229) от 15.05.2022
+
+The Brave - Evie’s Little Garden (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evie’s Little Garden (4:34)
+02. Run To You (4:37)
+03. I’ve Always Wondered (4:17)
+04. We’re Not In Kansas Anymore (5:08)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFFE0629C751D101E925143138EFE80C65AE4D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551352   (590228) от 15.05.2022
+
+Morok - Вне света & На круги своя (1997) 2CD, Remastered & Reissued, 2022, Der Schwarze Tod/COD Music [FLAC|Lossless|image + .cue] <Russian Pagan Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Полночь
+2. Предтеча
+3. Сгоревшая река
+4. Дыхание осени(   Читать дальше...   )Жанр: Pagan Metal, Black MetalПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2016FC08C55D91A9AAD8A49B7787613BAF69FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551323   (590227) от 15.05.2022
+
+Kammerflimmer Kollektief - Désarroi (Desarroi) (2015) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Dark Jazz, Experimental Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Désarroi #1: Mayhem! (3:52)
+02. Désarroi #2: grundstürzend (5:33)
+03. Free Form Freak-Out (6:06)
+04. Evol Jam (Edit) (4:55)(   Читать дальше...   )Производство: Staubgold – staubgold 136Жанр: Nu Jazz, Dark Jazz, Experimental RockПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723975DA8F7D1A66FF56D5DC27C68534FB92F4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551400   (590226) от 15.05.2022
+
+Случай на рыбалке / A Fishy Affair (1913) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляясь на рыбалку, Перкинс как-то и не думал о том, что в реке водится не только рыба... А пока он, захватив свои рыбацкие принадлежности, шёл к водоёму, у его жены бродяга крадёт спрятанный под матрасом чулок, в котором запасливая супруга хранила свои сбережения. Её подозрения падают на мужа. А вор-бродяга тем временем, убегая от полицейского, бросает украденный (   Читать дальше...   )Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Форд Стерлинг, Лаура Окли, Ник Когли, Дот Фарли, Берт Ханн, Уильям Хаубер, Руб МиллерПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A472BE1ED969784553AD0D7B4FE776B379EBAC81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551425   (590225) от 15.05.2022
+
+Sandboxie 5.55.22 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-pdfFactory Pro - удобное приложение, представляющее из себя драйвер виртуального принтера, создающий документы в формате PDF. Поддерживает создание PDF-проектов из нескольких документов или файлов, имеет режим предварительного просмотра. Возможна установка запрета на редактирование документа, его шифрование и установка пароля на открытие. В профессиональной версии, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A0E574A0CAC6D4111387192C28706D162E4A92F
+magnet:?xt=urn:btih:F5A6073E62ABF9B4C132C4DD059C6EBD793B39AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551362   (590224) от 15.05.2022
+
+Светлана Фалий | В плену реальностей (2021) [MP3, Алексей Черных, Юлия Дегтяренко и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год явно не задался. Однако проблемы не бывают вечными. Ограничения, связанные с небезызвестными событиями, сняты, и люди устремились по своим делам, прочь из города. Однако дальнейших событий никто не мог предвидеть. Роковым стечением обстоятельств пятеро людей, живущих каждый в своей реальности и потому вряд ли встретившихся бы в обычной жизни, оказываются в маленьком (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 03:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C9C8CB8BE8C3067E8164CCBA366A721CD4DDF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

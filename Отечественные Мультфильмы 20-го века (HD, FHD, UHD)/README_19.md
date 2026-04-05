@@ -1,3 +1,81 @@
+###  Публикация: 1766110   (33961) от 16.12.2024
+
+Путаница (1982) [H.264/1080p] [35mm Film Scan]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм снят по мотивам стихотворения Корнея Чуковского «Путаница» (1926).Производство: СССР / КиевнаучфильмЖанр: мультфильм, короткометражкаРежиссер: Ирина ГурвичАктеры: Корней ЧуковскийСубтитры: отсутствуютПродолжительность: 00:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A631DDE28196C6526AD2C224E8DFE7F0973845E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766182   (33851) от 17.12.2024
+
+Аврора (1973) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познавательный фильм об истории крейсера «Аврора».Производство: СССР / СоюзмультфильмЖанр: кукольный, мультфильм, короткометражкаРежиссер: Роман КачановАктеры: Вячеслав Тихонов, Клара Румянова, Мария Виноградова, Алексей Консовский, Виктор ФилипповСубтитры: отсутствуютПродолжительность: 00:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25AADC4FF819C97F3B2DCD0F6DF8235BF16591D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770855   (32111) от 03.01.2025
+
+Двенадцать месяцев (1956) BDRemux [H.264/1080i]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды зимним вечером злая мачеха отправила свою падчерицу в лес, чтобы та набрала корзину подснежников. Бедной девочке ничего не оставалось делать, как исполнить прихоть мачехи.Производство: СССР / СоюзмультфильмЖанр: мультфильм, фэнтези, детский, семейный, сказкаРежиссер: Иван Иванов-Вано, Михаил БотовАктеры: Эраст Гарин, Татьяна Барышева, Юлия Юльская, Людмила Касаткина, Галина Новожилова, Григорий Шпигель, Георгий Вицин, Алексей Грибов, Владимир Володин, Геннадий Малышев и др.Субтитры: отсутствуютПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF24D03E8190DF8D5C6405755F0485D4F503898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771211   (31882) от 05.01.2025
 
 Зимняя сказка (1945) WEB-DL [H.264/1080p] [PR]
@@ -6,7 +84,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31882.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31790.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29688.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28564.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28481.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28480.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28452.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28451.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28450.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28448.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28268.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28227.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28189.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28168.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28162.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28144.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28132.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28129.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28088.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28058.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28049.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27867.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27864.jpg" />
 </div>
 
 
@@ -598,86 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE08CB4AD7D6F5432AB405FD8FB0C6C57525CAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779152   (27862) от 12.02.2025
-
-Лабиринт. Подвиги Тесея (1971) HDRip [H.265/1080p] [hand made remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27862.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам древнегреческих мифов о Тесее и Минотавре.Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, короткометражный, приключения, ФэнтезиРежиссер: Александра Снежко-БлоцкаяАктеры: Алексей Консовский, Александр Граве, Виктор Кольцов, Яков Беленький, Анатолий Папанов, Юрий Андреев, Наталья Кустинская, Софья Зайкова, Лев ФричинскийСубтитры: отсутствуютПродолжительность: 00:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212C1B8CFFD68F7FC7C6F936801694D419CD7CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779304   (27860) от 12.02.2025
-
-Прометей (1974) WEB-DLRip [H.265/1080p] [hand made remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27860.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам древнегреческих мифов.
-История о титане Прометее, который похитил с Олимпа огонь для людей и был за это сурово наказан Зевсом.Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, короткометражный, приключения, ФэнтезиРежиссер: Александра Снежко-БлоцкаяАктеры: Алексей Консовский, Михаил Погоржельский, Евгений Герасимов, Всеволод Ларионов, Анна КаменковаСубтитры: отсутствуютПродолжительность: 00:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56ABF8FAB8A0351D0DDBB0E4CC0BB5BF413F5C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779294   (27859) от 12.02.2025
-
-Персей (1973) WEBRip [H.265/1080p] [hand made remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация древнегреческого мифа.
-Коварный царь Полидект отправляет юного героя Персея за головой Медузы Горгоны, взгляд на которую обращает людей в камень…Производство: СССР, СоюзмультфильмЖанр: рисованная анимация, короткометражный, приключения, ФэнтезиРежиссер: Александра Снежко-БлоцкаяАктеры: Анна Каменкова, Евгений Герасимов, Софья Зайкова, Всеволод Ларионов, Люсьена ОвчинниковаСубтитры: отсутствуютПродолжительность: 00:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9E679C154423BD0CC9847F65C49D31935952FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1696748   (38416) от 03.11.2024
-
-The Cure - Studio Albums (5 releases) (1996-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <New Wave, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38416.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Cure — британская рок-группа, образованная в Кроули, Сассекс, Англия в 1978 году.1996 - Wild Mood Swings
-2000 - Bloodflowers
-2004 - The Cure
-2008 - 4:13 DreamЖанр: New Wave, Post-PunkПродолжительность: 04:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F5954CD38F22D17317573FE856CD649EAF0F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705943   (38383) от 03.11.2024
 
 Brothers Of Metal - Studio Albums (3 releases) (2017-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
@@ -35,7 +6,7 @@ Brothers Of Metal - Studio Albums (3 releases) (2017-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38383.jpg" />
 </div>
 
 
@@ -62,7 +33,7 @@ Stahlmann (& Sundenklang) - Studio Albums (11 releases) (2010-2024) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38381.jpg" />
 </div>
 
 
@@ -91,7 +62,7 @@ Ensiferum - Studio Albums (11 releases) (2001-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38364.jpg" />
 </div>
 
 
@@ -120,7 +91,7 @@ Vision Divine - Studio Albums (9 releases) (1999-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38296.jpg" />
 </div>
 
 
@@ -149,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38278.jpg" />
 </div>
 
 
@@ -178,7 +149,7 @@ NonExist - Studio Albums (4 releases) (2002-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38277.jpg" />
 </div>
 
 
@@ -207,7 +178,7 @@ VA - Can’t Steal My Fire The Songs of David Olney (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38276.jpg" />
 </div>
 
 
@@ -236,7 +207,7 @@ Southern Hospitality - Yard Sale (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38275.jpg" />
 </div>
 
 
@@ -265,7 +236,7 @@ Simon Oslender, Steve Gadd & Will Lee - All That Matters (2024) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38274.jpg" />
 </div>
 
 
@@ -294,7 +265,7 @@ The Brooks - Soon As I Can (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38273.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ Svaneborg Kardyb - Superkilen (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38270.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ Motley Crue - Studio Albums (10 releases) (1981-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38256.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Withering Surface - Studio Albums (7 releases) (1997-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38210.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Nordic Twilight - Nordic Twilight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38198.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Circle Of Mud - Inside The Circle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38196.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38195.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Koko-Jean & The Tonics - Love Child (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38194.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Little River Band - Window To The World (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38193.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Visions of Atlantis - Studio Albums (10 releases) (2002-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38192.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Nightmare (France) - Studio Albums (10 releases) (2001-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38187.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Chuck Ragan - Love & Lore (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38178.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Tribulation - Sub Rosa In AEternum (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38176.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Billy Jeter - Delta Traces (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38175.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Electric High - Colorful White Lies (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38173.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Chris Dover - Last Prairie Dance (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38172.jpg" />
 </div>
 
 
@@ -745,6 +716,36 @@ Chris Dover - Last Prairie Dance (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF9EF2A6A8F7F44356C2F700AACDB5A4DDD9F224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648817   (38123) от 06.11.2024
+
+Sonata Arctica - Studio Albums (16 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonata Arctica — пауэр-метал-группа из Кеми, Финляндия, действующая с 1999 года.
+Первоначально основанная в 1996 году как хард-рок-группа Tricky Beans (позже Tricky Means), группа остановилась на названии Sonata Arctica в 1999 году, поскольку их музыкальный стиль изменился на пауэр-метал, вдохновленный Stratovarius.1999 - Ecliptica
+2001 - Silence
+2003 - Winterheart's Guild
+2004 - Reckoning NightЖанр: Power MetalПродолжительность: 16:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255B3A5253A42123A7784089EF934C2F28358006
 ```
 
 https://mybot314.ru/tekegram_catalog/

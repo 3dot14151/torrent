@@ -1,3 +1,145 @@
+###  Публикация: 181729   (906690) от 09.03.2010
+
+VA -  Gothic Rock (Cleopatra Rec) (2001) [MP3|320 kb/s]<Gothic Rock / Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Gothic Rock / Post PunkПродолжительность: 06:31:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098910   (906634) от 31.01.2017
+
+Сурганова & Оркестр - Песни военных лет (2017) [FLAC|lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нам нужна одна победа (03:07)
+02. Журавли (04:01)
+03. Песня о далёкой Родине (02:55)
+04. Самолёты (03:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF93AD9D8F040AF30674999AE03A9CD34A620E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989773   (906429) от 28.02.2016
+
+Balfor - Barbaric blood (2010) [MP3|320 кб/с] <Progressive Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Ashes (...The Beginning)
+02. Behold My Hate!
+03. Shadow Of My Raven Wings
+04. In A Thunder Of Ancient Glory(   Читать дальше...   )Жанр: Progressive Death Metal, Black MetalПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70686FAB4DB0712F4A332DD56DDB74AC7D055AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991290   (906389) от 28.02.2016
+
+Ivory - A Moment, a Place and a Reason (2016) [FLAC|Lossless|tracks] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad News (3:30)
+02. The Hawk (3:06)
+03. Feeling Alive (3:39)
+04. Who Am I (3:13)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA6E92EB8F30A34EF78A421550D7AD161A1C14E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866916   (906320) от 06.02.2015
+
+U.D.O. - Decadent [Japanese Edition] (2015) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speeder
+02. Decadent
+03. House Of Fake
+04. Mystery(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE51DB7C426EA725DF79EA549887C7EBD5EE86F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 292280   (906268) от 07.02.2011
 
 Воскресение - Лучшее (2CD) (2010) [MP3|320 kbps]<Rock>
@@ -6,7 +148,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906268.jpg" />
 </div>
 
 
@@ -34,7 +176,7 @@ Redemption - The Art Of Loss (2016) Limited Edition [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906185.jpg" />
 </div>
 
 
@@ -63,7 +205,7 @@ The New Roses - 2 Альбома (2013 - 2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906181.jpg" />
 </div>
 
 
@@ -92,7 +234,7 @@ Placebo - Sleeping With Ghosts: B-Sides (2016) [MP3|320 кб/с] <Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905913.jpg" />
 </div>
 
 
@@ -121,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905840.jpg" />
 </div>
 
 
@@ -150,7 +292,7 @@ Deep Purple - In Rock (1970) [FLAC 2.0|96/24|tracks|WEB-DL] <Hard Rock>
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905748.jpg" />
 </div>
 
 
@@ -179,7 +321,7 @@ i am no hero - Nights of Wonder (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905704.jpg" />
 </div>
 
 
@@ -208,7 +350,7 @@ Pink Floyd - A Saucerful Of Secrets (1968) Remastered, 1987, EMI [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905674.jpg" />
 </div>
 
 
@@ -237,7 +379,7 @@ Burning Witches - Dance with the Devil (2020) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905636.jpg" />
 </div>
 
 
@@ -266,7 +408,7 @@ VA - Live Sounds Of Rock (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905545.jpg" />
 </div>
 
 
@@ -295,7 +437,7 @@ Timo Tolkki’s Avalon - The Enigma Birth (2021) [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905470.jpg" />
 </div>
 
 
@@ -325,7 +467,7 @@ Alcatrazz - The Best of Alcatrazz & Live In the USA (2021) [MP3|320 Kbps] <Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905467.jpg" />
 </div>
 
 
@@ -354,7 +496,7 @@ VA - Best Rock Ever (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905445.jpg" />
 </div>
 
 
@@ -383,7 +525,7 @@ Ramchat - Atrana (2016) [FLAC|Lossless|image + .cue] <Black, Pagan Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905443.jpg" />
 </div>
 
 
@@ -412,7 +554,7 @@ VA - Glam Party Supermix the Glam Rock Allstars (2014) [MP3|320 Kbps] <Glam Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905370.jpg" />
 </div>
 
 
@@ -441,7 +583,7 @@ Theo - Heart Of Soul (2016) [FLAC|Lossless|image + .cue] <Classick Rock, Blues R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905321.jpg" />
 </div>
 
 
@@ -470,7 +612,7 @@ Maerzfeld - Fremdkorper (2014) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905308.jpg" />
 </div>
 
 
@@ -499,7 +641,7 @@ Jimmy Barnes - Flesh And Blood (2021) [FLAC|Lossless|image + .cue] <Rock, Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905199.jpg" />
 </div>
 
 
@@ -528,7 +670,7 @@ Legs Diamond - A Diamond Is A Hard Rock (1977) Reissue, 2007, Diamond Records [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905134.jpg" />
 </div>
 
 
@@ -557,7 +699,7 @@ Into Orbit - Caverns (2014) [MP3|320 кб/с]<Atmospheric Post Metal, Post Rock,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905090.jpg" />
 </div>
 
 
@@ -586,7 +728,7 @@ Dead End Finland - Slaves To The Greed (2016) [MP3|320 Kbps] <Modern MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905066.jpg" />
 </div>
 
 
@@ -600,157 +742,6 @@ Dead End Finland - Slaves To The Greed (2016) [MP3|320 Kbps] <Modern MDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50569625AD287F32852A311CC050B0758706ED9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368960   (905058) от 22.03.2020
-
-COVID-19 - We all Die (2020) [MP3|V0] <Doom, Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Coronavirus [00:02:02]
-02 - Blood China [00:01:40]
-03 - With a dead radiance life is desolating [00:04:14]
-04 - Pandemia [00:01:04](   Читать дальше...   )Жанр: Doom, Death, Black MetalПродолжительность: 00:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B1501626BE304E65229F51768CA99F656C15E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099446   (905023) от 01.02.2017
-
-No Resolve - Unity (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Up
-02. Love Me to Death
-03. Prelude
-04. What You Wanted(   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1A9D9A3005BD92E32A2185BCF223CF1D990065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099209   (905017) от 01.02.2017
-
-Doro - True At Heart (1991) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool Love (3:46)
-02. You Gonna Break My Heart (3:43)
-03. Even Angels Cry (4:48)
-04. The Fortuneteller (5:15)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Soft RockПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C82745A24751032815FDB5E267D10A3C9CC88110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181257   (904957) от 10.03.2010
-
-Восьмая Марта - С Праздником! (2001) [MP3|256 kbps]<Панк, Гранж, Рок-н-ролл>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Билли-Винки [03:11]
-02. Пароход [03:00]
-03. Нева [03:32]
-04. Ускользай [02:06]
-05. Б.Г. [02:46]
-06. Девичья Честь [02:15]
-07. Лужи [02:47]
-08. Голая [02:39]
-09. Рэп [03:22]
-10. Лётчик [03:09](   Читать дальше...   )Жанр: Панк, Гранж, Рок-н-роллПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099463   (904953) от 01.02.2017
-
-Firewind - Immortals (2017) Japanese Edition [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hands Of Time
-02. We Defy
-03. Ode To Leonidas
-04. Back On The Throne(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162B392E1E48049756ED021D85B35E15C3B1504A
 ```
 
 https://mybot314.ru/tekegram_catalog/

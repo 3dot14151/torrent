@@ -6,7 +6,7 @@ Bud Shank, Clare Fischer, Joe Pass - Brasamba! (1962) Remaster, 2013, Universal[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550257.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The Very Best Jazz Instrumentals (3 CD Box Set) (2015) [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550096.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Peggy Lee - Pass Me By & Big Spender (1964, 1966) 2001, EMI [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549677.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Quantic - Atlantic Oscillations (2019) [FLAC|Lossless|tracks + .cue] <Nu Jazz, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549536.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Diana Krall - Doing All Right: In Concert (2011) [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549517.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Laurent Cugny Big Band Lumiere - Santander (1991) EmArcy[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549403.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Shelly Manne - 2 3 4 (1962) Remaster, 2012, Universal[FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549401.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Masahiko Togashi - Song For Myself (1974) Remaster, 2015, Universal[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549396.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Eddie Marshall - Dance Of The Sun (1977) Remaster, 2015, Solid Records[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549392.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Les McCann - On The Soul Side (1995) Jazz Heritage[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549388.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Scott Bradlee's Postmodern Jukebox - Jazz Age Thirst Trap (2019) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549360.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Fats Waller - Ain't Misbehavin' (1990) [WavPack|Lossless|image + .cue] <Jazz, St
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549258.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Charles Gayle Quartet - Blue Shadows (1993) 2008, Silkheart[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548504.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Johnny "Hammond" Smith - Talk That Talk (1960) Remaster, 2013, Universal[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548500.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Woody Herman - The Thundering Herds 1945-1947 (1988) [WavPack|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548353.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Doris Day - The Best Of Doris Day (1944-1957) 2CD, 2008, Not Now Music[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548340.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ May Okita - Art Of Life (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547859.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Bill Evans - The Brilliant (1980) 1996, Timeless Records[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547426.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Ray Russell - Ready Or Not (1977) 2004 Remaster, Bonus Tracks [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547424.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ ZAZ - Effet Miroir (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Nu Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546887.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Bill Charlap - Discography (1993-2009) [FLAC|Lossless]<Jazz, Piano, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546697.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Joe Castro - Groove Funk Soul (1959) Remaster, 2013, Warner[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546594.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Louis Van Dyke - When a Man Loves a Woman (1968) Remaster, 2014, Sony Music[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546593.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Art Blakey & Freddie Hubbard - Feel The Wind (1988) Remaster, 2015, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546589.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Sonny Rollins - Alfie (1965) 1997, MCA Records[FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546588.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Johnny "Hammond" Smith - Opus De Funk (1961) 2004, Prestige[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546585.jpg" />
 </div>
 
 

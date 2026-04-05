@@ -1,3 +1,29 @@
+###  Публикация: 1370451   (896618) от 27.03.2020
+
+Фрауке Шойнеманн | Приключения кота-детектива [6 книг] (2019) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрауке Шойнеманн – немецкая писательница, ее серия детективов о приключениях кота Уинстона продается миллионными тиражами. Эти книги переведены на 10 языков, дважды входили в TOP-3 лучших детских книг по версии авторитетного немецкого портала «Lovely Books». Главные герои серии – кот Уинстон и девочка Кира – расследуют преступления, помогают друг другу, а однажды (   Читать дальше...   )Жанр: Детская остросюжетная литература, детский детективФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F765093D49E7F93259E55E3A3C42F007832FA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370488   (896444) от 27.03.2020
 
 Александр Волков | Волшебник Изумрудного города [сборник] (2013) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896444.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896416.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896414.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896406.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896179.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896002.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895966.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895955.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895925.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895832.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895553.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895342.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895307.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895100.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894901.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894775.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894764.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894717.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894701.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894565.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894539.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894095.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894081.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894015.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893930.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D4D370EC8C9ACE6D061A7A6B547B9C4C6E92A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493704   (893702) от 04.09.2021
-
-Туве Марика Янссон | Сборник произведений [221 книга] (1948-2018) [PDF, FB2, DJVU, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Янссон Туве Марика (Jansson Tove Marika) - финская писательница, художница, иллюстратор. Обрела всемирную известность благодаря своим книгам о муми-троллях. Писала на шведском языке. Будучи художницей, она рисовала комиксы, иллюстрировала книги Толкина и Льюиса Кэрролла, но прославилась как создательница самых очаровательных сказочных существ XX века – муми-троллей. (   Читать дальше...   )Жанр: Сказки, детские приключения, фэнтазиФормат: PDF, FB2, DJVU, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87C647B806DCCDE3492207D7AFEEA849B8C9440
 ```
 
 https://mybot314.ru/tekegram_catalog/

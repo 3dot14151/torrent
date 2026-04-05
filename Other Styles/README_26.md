@@ -1,3 +1,61 @@
+###  Публикация: 867235   (896269) от 12.02.2015
+
+Wikluh Sky - Сербский фильм / A Serbian Film (2010) [MP3|320 kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balcan Sex God
+02. Cheaporn
+03. Decollection
+04. Fancy Porn(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2C15A44D45AA3BAC3141986F4BC6D60EE7CCD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992682   (895246) от 05.03.2016
+
+VA - Straight Outta Compton (Music From The Motion Picture) (2016) [FLAC|Lossless|tracks + .cue] <Hip Hop, Funk, Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.W.A - Straight Outta Compton (4:17)
+02. Parliament - Flash Light (Single Version) (4:29)
+03. Eazy-E - We Want Eazy (5:01)
+04. N.W.A - Gangsta Gangsta (5:36)(   Читать дальше...   )Производство: UMe, Priority Records, Ruthless Records – B0023597-02Жанр: Hip Hop, Funk, SoulПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED0CB509EDDCC05C1303A4632CA9EEF3F5C1D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993172   (895189) от 05.03.2016
 
 Trio Mandili - With Love (2015) [MP3|320 кб/с] <Ethnic / Georgian Folk>
@@ -6,7 +64,7 @@ Trio Mandili - With Love (2015) [MP3|320 кб/с] <Ethnic / Georgian Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895189.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Pryapisme - Diabolicus Felinae Pandemonium (2017) [MP3|320 Kbps] <Instrumental A
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894629.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Blade / Блэйд (1998) Unofficial [MP3|127-320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894440.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Marco Beltrami - Gods Of Egypt (Music From The Motion Picture) (2016) [FLAC|Loss
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893979.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Stephen Rhodes - Indian Meditation (2016) [MP3|320 кб/с] <New age, Meditation
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893973.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Война (2002) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893557.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack (2017) [MP3|320 Kbps]
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893495.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Richard Clayderman & James Last - Together At Last (1991) [FLAC|Lossless|tracks 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893415.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Ethnic Music The Indians' Collection (2013) [MP3|320 Kbps] <Native American
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893406.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Super Instrumental Vol.1 (2001) Величайшие хиты XX века [
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893353.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Greg Maroney - Quiet Piano Improvisations, Vol. 2 (2017) [MP3|320 Kbps] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892929.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Chronotope Project - Passages (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892922.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892528.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Alexander Ryabtsev (Александр Рябцев) - Europe: Space Theme Vol. 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892019.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Ennio Morricone - Collected (2014) 3CD Box Set [MP3|320 кб/с]<Soundtrack, Ins
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892010.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Keiichi Okabe - NieR Orchestral Arrangement Album - Addendum (2020) Soundtrack /
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891872.jpg" />
 </div>
 
 
@@ -475,7 +533,7 @@ Golana - Feather On The Wind (2000) [FLAC|Lossless|image + .cue] <New Age, Inter
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891618.jpg" />
 </div>
 
 
@@ -504,7 +562,7 @@ Richard Laurence - A Busy Couple of Years (2016) [MP3|320 кб/с] <Classical, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891606.jpg" />
 </div>
 
 
@@ -533,7 +591,7 @@ Gomer Edwin Evans - Mystical Eastern Beauty (2016) [MP3|320 кб/с] <New Age, I
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891577.jpg" />
 </div>
 
 
@@ -562,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891529.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ OLIGARKH - Анатолий (2016) [MP3|320 кб/с] <Folk, Hip-Hop, Electronic,
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891498.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ Paul Mauriat - Tout Pour la Musique & Roma Dalla Finestra (1982) Compilation, Re
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890612.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ VA - Ruhelounge Entspannungsraum (2016) [MP3|320 кб/с] <Chillout, Lounge, New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889827.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ VA - The Full Moon Archive Music Collection (2010) [MP3|~181 кб/с (V2)]<Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889650.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ VA - The Full Moon Archive Music Collection (2010) [MP3|~181 кб/с (V2)]<Sound
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D6C864A4F643FB92551373EE8738D2AB7DF7CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493616   (889098) от 07.09.2021
-
-Pravin (Правин, Павел Новиков) - Swarg Ashram (2008) [FLAC|Lossless|tracks + .cue] <Indian, Mantras, Bansuri>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baro Anurage Daki Toma Pita
-02. Nimne Dharanir Gati Durbar
-03. Ar Sab Jai Jak
-04. Jharna Jharna(   Читать дальше...   )Жанр: Indian, Mantras, BansuriПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D391C1117C620DEFA1D1121A202B1171D3F29E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494372   (889009) от 07.09.2021
-
-Tina Guo - Dies Irae (2021) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tina Guo (28.10.1985) – американская виолончелистка китайского происхождения. Ее международная карьера музыканта и композитора характеризуется не только тщательно продуманным видеорядом с театральными декорациями и оригинальными костюмами, но и множеством музыкальных жанров (classical, classical crossover, new-age, heavy metal, industrial metal), в которых работает (   Читать дальше...   )01. Moonlight Sonata (4:30)
-02. Moonheart (4:31)
-03. Double Cello Concerto MVT.1 (4:08)
-04. Rivers Flows In Youy (3:55)(   Читать дальше...   )Жанр: New Age, Instrumental, ClassicalПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369B839FAA2B99FF840CB313750A924DD746D134
 ```
 
 https://mybot314.ru/tekegram_catalog/

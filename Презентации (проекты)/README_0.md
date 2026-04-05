@@ -1,3 +1,111 @@
+###  Публикация: 1851691   (1055272) от 03.02.2026
+
+Проекты - VideoHive - World News Opener - 61566404 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая профессиональная анимация для вступления/демонстрации/трейлера/заголовка, отличающаяся превосходным качеством и улучшенными характеристиками, чтобы ваше сообщение и ваш посыл выделялись. Высококачественный шаблон, разработанный с вниманием к деталям.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93109DFDFF9DF8A0E48027586A9CCAB7E716987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849974   (1055094) от 25.01.2026
+
+Проекты - VideoHive - Event Promo - 61398946 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Event Promo — это динамичный, современный и заряженный энергией шаблон для After Effects, созданный для того, чтобы превратить анонс вашего мероприятия в настоящее событие. Сочетание ритмичного монтажа, крупной типографики и стильной анимации позволяет не только сообщить дату и место, но и создать мощный "хайп" вокруг ивента.
+
+Этот проект — идеальный инструмент (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B26471F21F37FA2E7D225DFB9BF87C557907D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850934   (1054926) от 30.01.2026
+
+Проекты - VideoHive - Action Intro Opener - 61545686 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Action Intro Opener — это мощный, энергичный и технически совершенный шаблон для After Effects, созданный для проектов, требующих максимального драйва. Сочетание быстрых переходов, динамичных эффектов и смелой типографики превращает обычный видеоряд в захватывающее зрелище, которое удерживает внимание зрителя с первой секунды.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99862E3B009AC1E5F13729B2FA6821673ABBADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850962   (1054913) от 30.01.2026
+
+Проекты - VideoHive - Friendly 3D Character Promo - 61549800 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улучшите свой маркетинг с помощью этого дружелюбного 3D-персонажа для промо! Этот позитивный шаблон After Effects представляет собой очаровательного 3D-анимированного бизнесмена , который с радостью представляет ваш контент.
+
+Персонаж взаимодействует с динамичной каруселью вращающихся слайдов, идеально подходящей для демонстрации вашего текста, изображений или видео. (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C655AC21D9CBE7B92F1BD5C6981D2CB7155A85CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851118   (1054793) от 31.01.2026
 
 Проекты - VideoHive - Vertical Promo Opener - 61554528 [AEP]
@@ -6,7 +114,7 @@
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054793.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054702.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054454.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054410.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053874.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053679.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053522.jpg" />
 </div>
 
 
@@ -195,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052810.jpg" />
 </div>
 
 
@@ -223,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052620.jpg" />
 </div>
 
 
@@ -251,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052611.jpg" />
 </div>
 
 
@@ -279,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052232.jpg" />
 </div>
 
 
@@ -305,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052032.jpg" />
 </div>
 
 
@@ -331,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051439.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051067.jpg" />
 </div>
 
 
@@ -383,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051046.jpg" />
 </div>
 
 
@@ -409,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050996.jpg" />
 </div>
 
 
@@ -435,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050255.jpg" />
 </div>
 
 
@@ -461,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049711.jpg" />
 </div>
 
 
@@ -487,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049222.jpg" />
 </div>
 
 
@@ -513,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048899.jpg" />
 </div>
 
 
@@ -539,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048525.jpg" />
 </div>
 
 
@@ -565,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048416.jpg" />
 </div>
 
 
@@ -576,110 +684,6 @@ Slider Animation — это стильный и универсальный ша�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61E5CA982DAB408534A9ADBECD6F5AF0BA7FB586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841592   (1048129) от 12.12.2025
-
-Проекты - VideoHive - Investigation Newspaper Mockup Titles - 60880034 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот шаблон представляет собой динамичный макет вырезанных фрагментов газет. Вы можете редактировать текст, добавлять свои медиафайлы, менять цвета и использовать его для отображения новостей или в качестве заставки к фильму.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43FA63C8CFABDFD326693164A13C2D022A88DE7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841479   (1048003) от 11.12.2025
-
-Проекты - VideoHive - Cosmetics collection - 61022693 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для презентации косметики и других продуктов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC5E2F42E67652DCA16AE31ABB5FE1A9B8AA406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839379   (1046488) от 28.11.2025
-
-Проекты - VideoHive - Awards Ceremony - Main Titles - 60589084 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Awards Ceremony Main Titles — это роскошный и величественный шаблон для After Effects, созданный для того, чтобы придать вашему мероприятию голливудский размах. Блеск золота, мерцающие частицы, элегантные световые блики и благородная типографика создают атмосферу настоящего триумфа и престижа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB54B2CB469FC30558A2040C4CB2CA46868907DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444472   (1034524) от 01.02.2021
-
-Проекты - VideoHive - Cobalt Golden Luxury Awards 4K - 29533719 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо организованный и простой в настройке шаблон для церемонии награждения. Он также может быть использован для любых других тем, таких как мода, и рекламные акции, номинации. Этот пакет содержит наиболее распространенные элементы вещания, (вступление, финальные титры, вступительные/финальные заставки,нижние трети, переходы) которые могут быть использованы для (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4CAB537D2E930413077E9A5C421644DB42DF20
 ```
 
 https://mybot314.ru/tekegram_catalog/

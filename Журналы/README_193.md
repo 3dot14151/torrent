@@ -1,3 +1,110 @@
+###  Публикация: 1285114   (724599) от 24.02.2019
+
+Журнал | Школа гастронома. Коллекция рецептов №8 (240) (2018) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто любит готовить. В каждом номере - множество полезной и интересной информации: советы и тонкости приготовления блюд от известных шеф-поваров, кондитеров, кулинарных блогеров; практическая информация о продуктах, которые используются в рецептах, а также о приправах, гарнирах и напитках, которые с ними идеально сочетаются. Мастер-классы сопровождаются (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8A3808A84053C5583BA44B90CDA82DFE8585CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285123   (724598) от 24.02.2019
+
+Журнал | Школа гастронома. Коллекция рецептов №7 (239) (2018)  [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, кто любит готовить. В каждом номере - множество полезной и интересной информации: советы и тонкости приготовления блюд от известных шеф-поваров, кондитеров, кулинарных блогеров; практическая информация о продуктах, которые используются в рецептах, а также о приправах, гарнирах и напитках, которые с ними идеально сочетаются. Мастер-классы сопровождаются (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D5949810982BD54B13DCCA246CFCCA3746ED2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023332   (724551) от 05.06.2016
+
+Журнал | Библиотека журнала Похудей №7 Кабачковая диета (2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летом практически на каждом огороде поспевают кабачки или цукини. Ну а если огорода не, можно отправиться в ближайший магазин и купить там этот непритязательный - а главное, недорогой - овощ и устроить себе праздник живота, причем без всякого вреда для фигуры!Жанр: Кулинария, диетическое питаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542349F9D815338783E9375C2535D16152FE5BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023320   (724544) от 05.06.2016
+
+Журнал | Библиотека журнала Похудей №9 Яблочная диета (2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых популярных вариантов разгрузочных дней - яблочный. Почему?
+Во-первых, этот фрукт доступен всем, да и цена его не так "кусается"...
+Во-вторых, яблоки привычны нам с детства, у него чудесная сочная мякоть и множество оттенков вкуса...
+В-третьих, в этих плодах содержится множество необходимых для организма витаминов и микроэлементов...Жанр: Кулинария, диетическое питаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6F7C4FAF0E46B2C3AFD8F8B05E735517C1CE3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023348   (724539) от 05.06.2016
 
 Журнал | Библиотека журнала Похудей №8 Диета "Семь цветов" (2016) [PDF]
@@ -6,7 +113,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724539.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724486.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724475.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724434.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724428.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724417.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724412.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724410.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724359.jpg" />
 </div>
 
 
@@ -240,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724254.jpg" />
 </div>
 
 
@@ -266,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724243.jpg" />
 </div>
 
 
@@ -292,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724231.jpg" />
 </div>
 
 
@@ -318,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724204.jpg" />
 </div>
 
 
@@ -344,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724106.jpg" />
 </div>
 
 
@@ -370,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724103.jpg" />
 </div>
 
 
@@ -396,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723965.jpg" />
 </div>
 
 
@@ -422,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723957.jpg" />
 </div>
 
 
@@ -449,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723944.jpg" />
 </div>
 
 
@@ -475,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723484.jpg" />
 </div>
 
 
@@ -501,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723426.jpg" />
 </div>
 
 
@@ -527,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723058.jpg" />
 </div>
 
 
@@ -553,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723057.jpg" />
 </div>
 
 
@@ -564,110 +671,6 @@ Elle — французский еженедельный женский журн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A7B949AFD7D79EE8C03D957EECFE706298DA8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399993   (723054) от 03.08.2020
-
-Журнал | Elle Denmark [DK] №8 (август 2020) [PDF] [Dk]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elle — французский еженедельный женский журнал о моде, красоте, досуге и здоровье, издающийся с 1945 года. В середине 1980-х годах, при выходе на международный рынок, стал выпускаться ежемесячно, сохранив еженедельный формат для Франции.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445551592A77DE20E89B172E7CF9FE953A2E6B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399988   (723052) от 03.08.2020
-
-Журнал | Cosmopolitan [USA] №3 (март 2020) [PDF] [En]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cosmopolitan — международный женский журнал. Содержание включает в себя статьи о взаимоотношениях и сексе, здоровье, карьере, самосовершенствовании, знаменитостях, а также моде и красоте.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC215FE6C64BE6E6C857E771BA8A2EDFA30B1556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399995   (722955) от 03.08.2020
-
-Журнал | Grazia [NL] №30 (июль 2020) [PDF] [Nl]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grazia — итальянское женское издание, выпускаемое еженедельно компанией Arnoldo Mondadori Editor с 1938 года.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1B7F521BE97821176ABD222912C1CBB71EA1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399999   (722953) от 03.08.2020
-
-Журнал | Flair №2 (февраль 2020) [PDF] [De]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Flair выходит свежим и бодрым в практичном карманном формате. Удобный трендсеттер приносит более 600 предложений причесок, в основном от ведущих стилистов. Все последние, модное и удобное. HAIRIDEAS представляет читателям модные фасоны, цвета и эффекты, практические советы и пошаговые инструкции, которые дают читателям возможность открыть для себя и создать (   Читать дальше...   )Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4F8029EB40F90993DC50F6D28C8F52C1698034
 ```
 
 https://mybot314.ru/tekegram_catalog/

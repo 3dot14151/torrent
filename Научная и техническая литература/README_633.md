@@ -1,135 +1,3 @@
-###  Публикация: 1770300   (32387) от 31.12.2024
-
-Кристоф Нидон | Растения и животные. Руководство для натуралиста (1991) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могократно переиздававшийся в Германии зоолого-ботанический атлас-определитель, содержащий описание и рисунки наиболее характерных для Центральной Европы (в том числе европейской части СССР) видов растений и животных. Для школьников, студентов-биологов, учителей средней школы и всех любителей трироды.Жанр: ПриродоведениеИздательство: МирФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DAF26A6C7F6F4A6C390AA9AF9C6AF6A01ED9E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770629   (32208) от 02.01.2025
-
-Н.С. Дрентельн | Механика для всех (1927) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Законы и формулы механики выводятся автором на основании предварительных наблюдений механических явлений в практике повседневной нашей жизни.Жанр: ФизикаИздательство: Брокгауз и ЕфронФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F0F3C1FD5846FA9FF2B9CB68605B251C177FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770680   (32190) от 02.01.2025
-
-Вячеслав Калинин | Живопись, графика (2008) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каталог персональной выставки. Издание подготовлено к выставке "Вячеслав Калинин. Живопись. Графика", Государственная Третьяковская галерея.
-
-Художник и издатели хотели собрать в этой книге все, созданное Вячеславом Калининым в течение его творческой жизни. Это оказалось непростой задачей: покинув мастерскую, работы начинают жить своей собственной жизнью (   Читать дальше...   )Жанр: живопись, графикаИздательство: Виртуальная галереяФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3012221FD7A57F3A7E1B40397ABCCBE0622E330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770651   (32183) от 02.01.2025
-
-В.И. Ершов | Чарующий мир раковин (2005) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32183.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге московского коллекционера в популярной форме рассказывается о прекрасном мире моллюсков. Показана неповторимая красота и богатство форм раковин. Многочисленные оригинальные цветные фотографии редких раковин, сведения по их распространению и экологии, а также малоизвестные занимательные факты из истории коллекционирования делают повествование увлекательным (   Читать дальше...   )Жанр: энциклопедическийИздательство: ДельтаФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248BB8179D2239F7DD5BA2BDDB3B21A833063E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770630   (32179) от 02.01.2025
-
-И.А. Шанцер | Растения средней полосы Европейской России. Полевой атлас. Третье издание (2009) [PDF, DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга предназначена для определения растений, произрастающих в центральной части европейской России. "Атлас..." охватывает территории нечерноземной (Тверская, Ярославская, Ивановская, Нижегородская, Рязанская, Владимирская, Московская, Калужская, Смоленская область) и севера черноземной полосы (Брянская, Орловская, Тульская, Липецкая, Воронежская, (   Читать дальше...   )Жанр: природоведение, ботаника, растенияИздательство: Товарищество научных изданий КМКФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50F07B541734A6B9633B4470B68F830D0F4F069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770682   (32178) от 02.01.2025
 
 В.П. Минорский | Сборник задач по высшей математике (1987) [DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32178.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32177.jpg" />
 </div>
 
 
@@ -191,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32117.jpg" />
 </div>
 
 
@@ -220,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32110.jpg" />
 </div>
 
 
@@ -246,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32013.jpg" />
 </div>
 
 
@@ -272,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31949.jpg" />
 </div>
 
 
@@ -298,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31930.jpg" />
 </div>
 
 
@@ -326,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31815.jpg" />
 </div>
 
 
@@ -352,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31811.jpg" />
 </div>
 
 
@@ -378,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31783.jpg" />
 </div>
 
 
@@ -404,7 +272,7 @@ Bluetana | In Love We Dive (2025) [PDF] [EN]
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31777.jpg" />
 </div>
 
 
@@ -430,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31696.jpg" />
 </div>
 
 
@@ -457,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31626.jpg" />
 </div>
 
 
@@ -483,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31609.jpg" />
 </div>
 
 
@@ -509,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31597.jpg" />
 </div>
 
 
@@ -537,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31536.jpg" />
 </div>
 
 
@@ -563,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31534.jpg" />
 </div>
 
 
@@ -589,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31533.jpg" />
 </div>
 
 
@@ -615,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31505.jpg" />
 </div>
 
 
@@ -641,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31401.jpg" />
 </div>
 
 
@@ -667,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31197.jpg" />
 </div>
 
 
@@ -680,6 +548,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F2BEF75FF1CE95B91C454B892EED04D0EF7A53C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772718   (31177) от 12.01.2025
+
+Валерий Кузенков, Юрий Максимов, Ираида Кузенкова | Охота. Большая энциклопедия. 17 диких зверей (2022) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга дает охотнику четкое понимание роли охоты в управлении и охране природы, сопровождая его по всем важным составляющим этого вида деятельности. Актуальные рекомендации профессионалов учитывают широкий спектр этико-правовых особенностей охотничьей деятельности, а также правил безопасности и способов охоты без ущерба для природных ресурсов. Кулинарный раздел книги (   Читать дальше...   )Жанр: Хобби и досугИздательство: АСТ, КладезьФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69DEB41EF4F5A3B68C1E10A920402CE6215386A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772955   (31159) от 12.01.2025
+
+А. Барнард | Теоретические основы неорганической химии (1968) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой современный курс неорганической химии повышенного типа. В отличие от существующих учебников по общей и неорганической химии, посвященных в основном изложению фактического материала, в книге Барнарда излагаются теоретические концепции современной неорганической химии, основанные на законах квантовой химии, кристаллохимии и физической химии. (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332AF1BB57BFFE510B50571F497B463A20ED415A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772973   (31156) от 12.01.2025
+
+И.Я. Карханіна | Технологія напівпровідникових матеріалів (1961) [PDF] [UKR]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освещены физические основы технологии полупроводников, приведены примеры, схемы, практические советы, рецепты, помещены сведения о важнейших элементарных полупроводниках и соединениях. Для студентов специализации физики полупроводников и полупроводниковой электроники, а также может быть полезна для лиц, интересующихся теоретическими и практическими вопросами изготовления (   Читать дальше...   )Жанр: ЭлектроникаЯзык: УкраинскийИздательство: Державне видавництво технічної літературиФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D91488F33F4EA9988344FB422C311E946A39D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773131   (31105) от 13.01.2025
+
+А.М. Дунаев и др. | Электротехника и электроника (2024) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31105.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемом пособии излагаются теоретические основы работы линейных и нелинейных электрических цепей постоянного и переменного (синусоидального и несинусоидального) тока, а также свойства переходных процессов в этих цепях. Пособие соответствует ФГОС 3++ и представляет собой руководство по выполнению лабораторно-практических работ по дисциплине «Электротехника (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЛаньФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F745B38BB249A56BBB51725D84A9FF4FDCB0A097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773113   (31096) от 13.01.2025
+
+Д.И. Кочнева, М.А. Журавская, А.В. Сметанина | Основы логистики [2 книги] (2024) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс лекций разработан на основе требований Федерального государственного образовательного стандарта высшего образования и рабочей программы дисциплины. В конспекте представлены материалы по отдельным формам аудиторной работы студентов, вопросы для контроля знаний по всем темам дисциплины, литература, рекомендованная для изучения в ходе самостоятельной подготовки. (   Читать дальше...   )Жанр: учебное пособие, курс лекций, методические указанияИздательство: УрГУПСФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2C05A09103AABED5C8A73943E552CE49C08015
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,135 +1,3 @@
-###  Публикация: 1572148   (239232) от 25.08.2022
-
-Джузеппе Алончи | Дело в химии. Как все устроено? (2022) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239232.jpg" />
-</div>
-
-
-###  Подробнее
-
-В повседневной жизни мы часто имеем дело с химией, но не всегда это осознаем. Чтобы исправить ситуацию, учитель химии Джузеппе Алончи создал свой YouTube-канал, из материалов которого и родилась эта книга. В семи простых уроках автор «на пальцах» объясняет, как работают привычные нам явления, от кулинарии до альтернативных источников энергии, от декоративной косметики (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BFBC5A6ED37EA82878EACCB54826BD2511F8FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577159   (239116) от 17.09.2022
-
-А.А. Афоненко и др. | Перспективные технологии в нано- и оптоэлектронике (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239116.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии анализируются достижения в областях разработки и использования новых материалов и квантоворазмерных структур, а также перспективы развития нано- и оптоэлектронных технологий.
-Предназначено для студентов учреждений высшего образования, обучающихся по специальностям 1-31 04 02 «Радиофизика», 1-31 04 03 «Физическая электроника».Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202E5B79EF178948EE4600463F597E3D002D1D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577132   (239074) от 17.09.2022
-
-М.М. Алиев и др. | Нефтегазовая геомеханика (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены методы и задачи геомеханики, решение которых требуется при бурении скважин и разработке нефтяных и газовых месторождений. Приведены геомеханические модели породных массивов. Даны критерии прочности и разрушения горных пород. Раскрыты вопросы геомеханики многослойных пород. Для студентов нефтегазовых направлений подготовки, а также работников инженерно-технических (   Читать дальше...   )Жанр: ГеомеханикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330791C6A8A55BF305A2A36013732E52E03B2BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628689   (238854) от 23.04.2023
-
-Е.Н. Акимова, В.Е. Мисилов | Параллельные вычисления на суперкомпьютерах с помощью технологии OpenMP (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для изучения параллельных вычислений с помощью технологии OpenMP — основного средства программирования для вычислительных систем с общей памятью. Учебное пособие включает в себя описание основных директив, функций и переменных окружения стандарта OpenMP. Приводятся примеры их применения в программах на языках C/C++.
-Пособие предназначено (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB273D36D6E83AE33C856716C897C49A03E33DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628339   (238837) от 22.04.2023
-
-Фридрих Ницше | Падение кумиров [Сборник] (2023) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фридрих Ницше – гениальный немецкий мыслитель, под влиянием которого находилось большинство выдающихся европейских философов и писателей первой половины XX века, взбунтовавшийся против Бога и буквально всех моральных устоев, провозвестник появления сверхчеловека. Со свойственной ему парадоксальностью мысли, глубиной психологического анализа, яркой, увлекательной, (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Книги по философии, Социальная философияПеревод: Виктор Топоров, Марина Коренева, Сергей СтепановФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2633D4F86799CC399E8A53687B5729F7ECC63086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628162   (238739) от 22.04.2023
 
 В.Азерников и др. | Маленькие рассказы о большом Космосе [Изд.3-е] (1968) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238739.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238710.jpg" />
 </div>
 
 
@@ -191,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238687.jpg" />
 </div>
 
 
@@ -217,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238624.jpg" />
 </div>
 
 
@@ -244,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238567.jpg" />
 </div>
 
 
@@ -270,7 +138,7 @@ Marcos Mateu-Mestre | Framed Drawing Techniques: Mastering Ballpoint Pen, Graphi
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238345.jpg" />
 </div>
 
 
@@ -297,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238222.jpg" />
 </div>
 
 
@@ -323,7 +191,7 @@ Redman Stuart | English Vocabulary in Use. Pre-intermediate and Intermediate (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237991.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Intermediate (2015) [PDF] [Student's
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237985.jpg" />
 </div>
 
 
@@ -376,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237882.jpg" />
 </div>
 
 
@@ -402,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237825.jpg" />
 </div>
 
 
@@ -429,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237672.jpg" />
 </div>
 
 
@@ -455,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237526.jpg" />
 </div>
 
 
@@ -481,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237513.jpg" />
 </div>
 
 
@@ -507,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237474.jpg" />
 </div>
 
 
@@ -533,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237468.jpg" />
 </div>
 
 
@@ -559,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237380.jpg" />
 </div>
 
 
@@ -585,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237316.jpg" />
 </div>
 
 
@@ -611,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237235.jpg" />
 </div>
 
 
@@ -638,7 +506,7 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Upper-Intermediat
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237161.jpg" />
 </div>
 
 
@@ -665,7 +533,7 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Elementary (2017)
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237084.jpg" />
 </div>
 
 
@@ -677,6 +545,141 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Elementary (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2BDDCAF6FA1B1BC2BE57168721413EE9F366A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641050   (236819) от 20.06.2023
+
+Ю.И. Дытнерский | Мембранные процессы разделения жидких смесей (1975) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излагаются основы теории обратного осмоса, ультрафильтрации и испарения через мембрану.
+Рассматривается практическое применение этих методов в химической, нефтеперерабатывающей и нефтехимической, пищевой, медицинской, микробиологической и других отраслях промышленности для разделения и концентрирования растворов, очистки промышленных стоков, опреснения морских и (   Читать дальше...   )Жанр: ХимияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7BB2EE68A4BC5AE81AF0CEB3E4C7BC24494908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549736   (236740) от 08.05.2022
+
+Antonia Clare, J. J. Wilson | Speak Out 2nd Pre-intermediate (2015) [PDF] [Student's book | Workbook | Teacher's book | Extra| Including MP4, MP3, DOCX] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speakout - Шестиуровневый курс английского языка для взрослых, созданный на базе аутентичных материалов BBC, эффективно развивающий все четыре речевых навыка. 6 уровней: A1-C1 (Starter-Advanced). Отбор лексико-грамматического материала ориентирован на потребности реального повседневного общения.
+Данная подборка уровня Pre-intermediate (A2), включает следующие книги (   Читать дальше...   )Жанр: Образование, Аглийский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335A3B1FF7806524D11676B6B86927E68CE08CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549740   (236721) от 08.05.2022
+
+Antonia Clare, J. J. Wilson | Speak Out 2nd Advanced Plus (2019) [PDF] [Student's book | Workbook | Teacher's book | Extra| Including MP4, MP3, DOCX] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speakout - Шестиуровневый курс английского языка для взрослых, созданный на базе аутентичных материалов BBC, эффективно развивающий все четыре речевых навыка. 6 уровней: A1-C1 (Starter-Advanced). Отбор лексико-грамматического материала ориентирован на потребности реального повседневного общения.
+Данная подборка уровня Advanced Plus (C1), включает следующие книги (   Читать дальше...   )Жанр: Образование, Аглийский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAF675EE6676E3A0031BDB028358D86E85640D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549734   (236703) от 08.05.2022
+
+Antonia Clare, J. J. Wilson | Speak Out 2nd Starter (2015) [PDF] [Student's book | Workbook | Teacher's book | Extra| Including MP4, MP3, DOCX] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speakout - Шестиуровневый курс английского языка для взрослых, созданный на базе аутентичных материалов BBC, эффективно развивающий все четыре речевых навыка. 6 уровней: A1-C1 (Starter-Advanced). Отбор лексико-грамматического материала ориентирован на потребности реального повседневного общения.
+Данная подборка уровня Starter (A1), включает следующие книги и материалы (   Читать дальше...   )Жанр: Образование, Аглийский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD3BAB402125453202F926485A5985CB22C987F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549735   (236686) от 08.05.2022
+
+Antonia Clare, J. J. Wilson | Speak Out 2nd Elementary (2015) [PDF] [Student's book | Workbook | Teacher's book | Extra| Including MP4, MP3, DOCX] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Speakout - Шестиуровневый курс английского языка для взрослых, созданный на базе аутентичных материалов BBC, эффективно развивающий все четыре речевых навыка. 6 уровней: A1-C1 (Starter-Advanced). Отбор лексико-грамматического материала ориентирован на потребности реального повседневного общения.
+Данная подборка уровня Elementary (A1), включает следующие книги и материалы (   Читать дальше...   )Жанр: Образование, Аглийский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BD7F5DC04F4259592D4419EC0B8D57B42EAD35
 ```
 
 https://mybot314.ru/tekegram_catalog/

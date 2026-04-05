@@ -1,139 +1,3 @@
-###  Публикация: 1195721   (824136) от 02.01.2018
-
-А. К. Топорков | Элементы диалектической логики [2-е изд.] (1928) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная мысль, которая проходит через все главы настоящей работы, та, что диалектический метод теснейшим образом связан с системой. Нет нейтральной диалектики. Есть диалектика идеалистическая, и есть диалектика материалистическая. Поэтому теоремы логики Гегеля нельзя механически перенести в логику материалистическую; основные положения Гегеля необходимо самостоятельно (   Читать дальше...   )Жанр: История, философия, логика, науковедениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916AE019774154F8D324C30D09F1A54DCC9DAA14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196363   (824134) от 02.01.2018
-
-Х. Ф. Сабиров | Государство и личность в развитом социалистическом обществе (1980) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824134.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре показывается, что Конституция СССР является основным законодательно-правовым документом, регулирующим взаимоотношения между государством и личностью в условиях развитого социализма.
-
-Автор раскрывает такие черты нового типа взаимоотношений между общенародным социалистическим государством и личностью, как социалистическое народовластие, социальное равенство (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6314AF214452E257D2FDE371FF37C6A443C66410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195708   (824122) от 02.01.2018
-
-В. П. Уваров (общ. ред.) | Как научиться понимать и переводить иностранный текст (1968) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824122.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом методическом пособии авторы делают попытку дать читателю основы понимания и перевода иностранной литературы, показать и обосновать процесс работы над текстом, вооружить читателя практическими навыками самостоятельной работы прежде всего на самом трудном ее этапе.
-
-Книга построена на материале английского и немецкого языков, причем для удобства читателей (   Читать дальше...   )Жанр: История, искусство, лингвистика, филология, языкознаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B1F3DFBC39FE1DA06B32FF8D7A55173976AA6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196358   (824011) от 02.01.2018
-
-Н. Ленин и др. | Памяти Карла Маркса [К сорокалетию со дня его смерти. 14 марта 1883 - 14 марта 1923] (1923) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник составлен из статей, появлявшихся в печати раньше в разное время. В основе его лежит сборник „Памяти Карла Маркса", выпущенный в 1918 г. под редакцией Г. Зиновьева. Из статей того сборника не напечатана здесь лишь глава из книги Меринга „Карл Маркс — история его жизни", в виду того, что в настоящее время эта книга целиком появилась в русском (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66AC7402527BDB568E1764A2189D66B20F2E7E4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196049   (823879) от 02.01.2018
-
-Г. Н. Берман | Приёмы счёта [5-е изд.] (1953) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Г. Н. Бермана фактически состоит из дополнительных глав арифметики и может служить повышению арифметической культуры широкою круга читателей. Наряду с правилами для умножения дробей в ней излагаются правила для вычисления корней и приближенного умножения, которые могут оказаться интересными и для квалифицированного читателя.
-
-В третьем издании книги, осуществленном (   Читать дальше...   )Жанр: История, науковедение, арифметика, математикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBF32BA61BE6056FA6651A990F3E123F8D4DC49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007086   (823561) от 14.04.2016
 
 Г. И. Исаев (отв. ред.) | Проблемы личности (1969) [DJVU]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823561.jpg" />
 </div>
 
 
@@ -171,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823558.jpg" />
 </div>
 
 
@@ -199,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_823485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_823485.jpg" />
 </div>
 
 
@@ -225,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823480.jpg" />
 </div>
 
 
@@ -252,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823473.jpg" />
 </div>
 
 
@@ -278,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823397.jpg" />
 </div>
 
 
@@ -305,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823391.jpg" />
 </div>
 
 
@@ -331,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823386.jpg" />
 </div>
 
 
@@ -357,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823306.jpg" />
 </div>
 
 
@@ -383,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823304.jpg" />
 </div>
 
 
@@ -409,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823235.jpg" />
 </div>
 
 
@@ -437,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823229.jpg" />
 </div>
 
 
@@ -463,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823226.jpg" />
 </div>
 
 
@@ -489,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823224.jpg" />
 </div>
 
 
@@ -515,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823222.jpg" />
 </div>
 
 
@@ -541,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823216.jpg" />
 </div>
 
 
@@ -567,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822516.jpg" />
 </div>
 
 
@@ -594,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822512.jpg" />
 </div>
 
 
@@ -620,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822510.jpg" />
 </div>
 
 
@@ -648,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822473.jpg" />
 </div>
 
 
@@ -674,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822376.jpg" />
 </div>
 
 
@@ -686,6 +550,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2169B177AAFC3E52BF6E6658C1B89B353F7A83AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382155   (822369) от 09.05.2020
+
+Сергей Переслегин | Первая Мировая. Война между Реальностями (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая книга популярного проекта посвящена детальному анализу всех альтернативных возможностей и скрытой логики длившегося 1056 дней Позиционного этапа войны. Хронологическими рамками этого увлекательного исторического расследования стали окончание Генерального сражения, завершившегося боем у Доггер-банки 24 января 1915 года, и заключение перемирия на Восточном фронте (   Читать дальше...   )Жанр: Военная историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF33717E99F39D97E6E28B9D29610A608C5B35C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196395   (822311) от 03.01.2018
+
+Ф. Рудио | О квадратуре круга [3-е изд.] (1936) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит очерк проф. Ф. Рудио, излагающий в ясной и увлекательной форме основные этапы в постановке вопроса о точной и приблизительной квадратуре круга, вопроса, который, послужив одним из поводов к развитию методов алгебры и анализа бесконечно малых, получил благодаря этим методам полное и окончательное разрешение около 50 лет тому назад.
+
+На этом очень ярком (   Читать дальше...   )Жанр: История, науковедение, естествознание, математика, алгебра, геометрияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2979E8A45D0E04BF04BD3A0E8F8E4FD4EC691DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196578   (822200) от 03.01.2018
+
+Александр Громов | Удивительная Солнечная система (2012) [PDF, FB2, RTF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнечная система – наш галактический дом. Она останется им до тех пор, пока человечество не выйдет к звездам. Но знаем ли мы свой дом? Его размеры, адрес, происхождение, перспективы на будущее и «где что лежит»?
+
+Похоже, что мы знаем наш дом недостаточно. Иначе не будоражили бы умы открытия, сделанные в последние годы, открытия подчас удивительные и притом намекающие (   Читать дальше...   )Жанр: Астрономия, Прочая образовательная литератураФормат: PDF, FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949160FE02FE46D3C6FD9BE6107E966301DF20F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 775747   (821884) от 10.04.2014
+
+Г.Н. Яковлев | Дифференциальное исчисление функций одной переменной. Задачи и упражнения (2002) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее пособие является продолжением учебно-методического пособия «Введение в математический анализ». Оно содержит упражнения и задачи на производные и на исследование функций с помощью производных. В начале каждого раздела приводятся определения основных понятий и формулировки основных утверждений, относящихся к дифференциальному исчислению функций одной переменной. Более подробные разъяснения и доказательства можно найтив учебном пособии Г.Н. Яковлева «Лекции по математическому анализу», часть 1. Следует отметить, что в пособии почти нет тренировочных задач, и поэтому оно не может быть рекомендовано в качестве единственного сборника задач и упражнений.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EBC87274E01780AAD1A80205F98649E59617FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007697   (821699) от 15.04.2016
+
+В. И. Буганов | Отечественная историография русского летописания (1975) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821699.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге делается первая попытка дать монографический обзор советской историографии русского летописания X-XVII вв., отмечены достижения советских историков в изучении русских летописей, выявлены малоисследованные проблемы русского летописания (переводная и русская хронография, позднее русское летописание и др.).Жанр: МонографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34220E858B55CD9688B7E39BDB817787BC22BD11
 ```
 
 https://mybot314.ru/tekegram_catalog/

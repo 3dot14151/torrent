@@ -6,7 +6,7 @@ Jessie Allen Cooper - Classics II (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106274.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Toshiyuki Miyama & The New Herd - The Essence (1964 - 1971) 2CD, 2023, Nippon Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106248.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Pat Metheny - MoonDial (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz Fusion, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106218.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Paul Bley - The Complete Remastered Recordings on Black Saint & Soul Note (1984 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106204.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Adventurous Moments Serenity and Charm Vacation Playlist (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106180.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bill Evans - New Conversations (1978) 2014, Warner [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106175.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Exotic Idylic Perfection Cozy Getaway Chilly Instrumentals for an Enjoyable
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106150.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Idylic Exotic Perfection Cozy Getaway Tunes for an Enjoyable Vacation Envir
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106148.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Chris Connor - A Portrait Of Chris (1960) 2012, Atlantic [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105992.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Ultimate Jazz Piano Collection, Vol.1 (1950 - 1960) 10CD, 2014, Fermata [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105982.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Elvin Jones - Elvin! (1961, 1962) 1995, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105967.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.1 (1953)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105928.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Frank Sinatra - Ol' Blue Eyes (1990) Starlite [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105816.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Frank Sinatra - I Get A Kick Out Of You (1990) Entertainers [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105772.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Frank Sinatra - The Romantic Side (2006) Music Sessions [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105746.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Utopianisti - Reason In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105722.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Shakatak - The Very Best of Shakatak 1988-2024 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105710.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Frank Sinatra - Ring-A-Ding Ding! (1961) 1998, Reprise Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105709.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Funky Jazz House Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105642.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Ultimate Unforgettable Smooth Lounge Vacation Playlist to Relax and Recharg
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105638.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Unforgettable Ultimate Smooth Jazzy Vacation Playlist to Relax and Recharge
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105636.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Phineas Newborn, Jr. - The Great Jazz Piano Of Phineas Newborn, Jr. (1961, 1962)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105627.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Claus Ogerman Orchestra - Gate Of Dreams (1977) 1988, Warner [APE|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105612.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Phineas Newborn, Jr. - Look Out - Phineas Is Back (1976) 1995, Original Jazz Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105544.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Rahsaan Roland Kirk - The Case Of The 3 Sided Dream In Audio Color (1975) 2004, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105496.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Nat King Cole - More Historical Recordings (1990) Conquistador [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105399.jpg" />
 </div>
 
 

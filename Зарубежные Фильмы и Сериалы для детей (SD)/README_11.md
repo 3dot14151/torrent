@@ -1,3 +1,55 @@
+###  Публикация: 1058270   (468431) от 01.10.2016
+
+В поисках потерпевших кораблекрушение / Дети капитана Гранта / In Search of the Castaways (1962) DVDRip [H.264] [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Землетрясение, наводнение, вулкан, аллигаторы, ягуар и кровожадные людоеды-маори. Все это могло стать непреодолимым препятствием для кого угодно, но только не для профессора Паганеля, который вместе с двумя детьми капитана Гранта, лордом Гленарваном и его сыном рыщет по всему Южному полушарию в поисках пропавшего без вести капитана Гранта и его судна…Производство: США / Walt Disney ProductionsЖанр: Приключения, Семейный, ФэнтезиРежиссер: Роберт СтивенсонАктеры: Морис Шевалье, Хейли Миллз, Джордж Сэндерс, Уилфрид Хайд-Уайт, Майкл Андерсон мл., Антонио Чифарелло, Кит Хэмшир, Уилфрид Брэмбелл, Джек Гвиллим, Рональд ФрайзерПеревод: Любительский одноголосый (dimadima)Субтитры: ОтсутствуютПродолжительность: 01:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C02C89B37889EB507C17CE9B7C2ED3B52EA483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568508   (462092) от 08.08.2022
+
+Решение с арахисовым маслом / The Peanut Butter Solution (1985) BDRip [H.264] [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462092.jpg" />
+</div>
+
+
+###  Подробнее
+
+11-летний Майкл отправляется в переполненный призраками дом, а там от страха теряет сознание. И у него выпадают все волосы! Привидения рассказывают ему о чудодейственном рецепте для восстановления волос, но когда он смешивает все ингредиенты, происходит то, чего Майкл совсем не ожидал...Производство: Канада, Les Productions La Fête Inc., Téléfilm Canada, Société Générale du Cinéma du QuébecЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Майкл РуббоВ ролях: Мэтью Маккэй, Силак Сейсенеси, Элисон Дарси, Майкл Хоган, Хелен Хьюз, Гриффит Брюэр, Гарри Хилл, Эдгар Фруатье, Пэт ТомпсонПеревод: любительский одноголосый (Семён Ващенко)Субтитры: русские (Северный), английскиеПродолжительность: 01:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2140A1ABD4D55042A8EC957C171A429BDF084DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321237   (461069) от 23.08.2019
 
 Скуби-Ду 2: Монстры на свободе / Scooby Doo 2: Monsters Unleashed (2004) HDRip [H.264] [Hand Made Extended Cut]
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461069.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459765.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459043.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450899.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450365.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449410.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_448748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_448748.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_448533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_448533.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446312.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443444.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438221.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432857.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431489.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430352.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429593.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427180.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426931.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426680.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424849.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424197.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422473.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422184.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421926.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419404.jpg" />
 </div>
 
 
@@ -621,60 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:093DCE25C12365053FB34485E59C4D1D90F25BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557553   (418521) от 08.10.2012
-
-Маленькая принцесса / A Little Princess (1995) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сара живет как принцесса в экзотической Индии со своим любящим отцом, но его призывают на военную службу, а Сару отправляют в суровый интернат. Для директрисы жизнерадостная Сара — это возмутительница спокойствия. Но девочку поддерживает мысль о том, что для своего отца она всегда останется любимой маленькой принцессой.
-
-Мужество, доброта и воображение позволяют (   Читать дальше...   )Жанр: Фэнтези, Драма, СемейныйРежиссер: Альфонсо КуаронАктеры: Лизель Мэтьюз, Элинор Брон, Лиам Каннингэм, Расти Швиммер, Артур Мэлет, Ванесса Ли Честер, Эррол Ситахал, Хизер ДеЛоач, Тейлор Фрай, Дарси Брэдфорд...Перевод: ДублированныйПродолжительность: 01:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9642411B0681810BEF6CE0EF1A4A8C217FE207F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265915   (418300) от 12.09.2019
-
-Мелоди / Melody (1971) BDRip [MVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детство — ужасная пора. Запрещено всё. Нельзя опаздывать в школу, нельзя поздно приходить домой, нельзя хамить учителям, нельзя знакомиться с дядьками на кладбище, нельзя собирать и испытывать бомбы, нельзя невпопад приглашать гостей, нельзя поджигать папину газету, нельзя рисовать голых тёток, нельзя сбегать с уроков на пляж, и — о ужас! — нельзя жениться. Даже (   Читать дальше...   )Производство: Великобритания / Hemdale, Sagittarius Productions, Goodtimes EnterprisesЖанр: Комедия, Драма, МелодрамаРежиссер: Уорис ХуссейнАктеры: Марк Лестер, Трэйси Хайд, Джек Вайлд, Колин Барри, Билли Фрэнкс, Эшли Найт, Крэйг Марриотт, Уильям Вандерпюе, Питер Уолтон, Камилль ДэвисПеревод: Многоголосый закадровый, любительский (СВ Студия)Продолжительность: 01:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A2D17D7F9B6DD48B7CAA950C14F333E546C72A
 ```
 
 https://mybot314.ru/tekegram_catalog/

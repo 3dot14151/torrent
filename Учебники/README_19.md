@@ -1,3 +1,55 @@
+###  Публикация: 1371422   (891785) от 30.03.2020
+
+А.Д. Молдакулова и др. | Проведение регулировки и наладки оборудования, машин, аппаратов, насосов и компрессоров (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891785.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассмотрены конструктивные особенности ремонтируемого оборудования, машин, аппаратов, насосов и компрессоров, методы испытания и регулировки, установки оборудования, машин, аппаратов, насосов и компрессоров. Рассмотрены работы по внешнему осмотру оборудования после ремонта, регулировки зазоров и натяги в охватываемых и охватывающих размерах, устранение (   Читать дальше...   )Жанр: Техническая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7764E1E69D6BAD0641593CB6A2B8C143BBDC2CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993793   (891560) от 07.03.2016
+
+В.С. Мелентьев и др. | Проектирование конструкции «виртуального двигателя» (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлено описание основных этапов моделирования конструкции «виртуального двигателя», включающих объемное моделирование, кинематический, динамический, прочностной и вибрационный анализы функциональных групп двигателя. Рассмотрены программные продукты, с помощью которых данные этапы моделирования могут быть осуществлены. По ходу изложения материала даны учебные (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9BC114B606AADF84D52BF42D944F56EFC34E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993829   (891469) от 07.03.2016
 
 В.А. Кузовкин | Теоретическая электротехника (2005) [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891469.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891048.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889861.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889733.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889695.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888429.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887671.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887657.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885786.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885573.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885460.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885432.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884908.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884307.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883624.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883399.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883184.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882732.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882717.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882578.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882562.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881999.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881983.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881894.jpg" />
 </div>
 
 
@@ -626,62 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8B90542B655881230885CEC743A370342A85924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104377   (881483) от 14.02.2017
-
-Александр Солодков, Елена Сологуб | Физиология человека. Общая. Спортивная. Возрастная (2017) [FB2]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник подготовлен в соответствии с новой программой по физиологии для вузов физической культуры и требованиями Государственного стандарта высшего профессионального образования.
-
-Для студентов, аспирантов, научных сотрудников, преподавателей, тренеров и врачей, работающих в области физической культуры.Жанр: Биология, Учебная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8EBCE71BC8E2C29585B8B82C1C9C49814129CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104231   (881346) от 14.02.2017
-
-Г.Н. Попова, С.Ю. Алексеев | Машиностроительное черчение. Справочник. 5-е изд. (2011) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит материалы, необходимые для оформления машиностроительных чертежей и схем в соответствии со стандартами ЕСКД.Приведены таблицы по допускам и посадкам, резьбам, крепежным изделиям, показаны условные обозначения на чертежах.
- В пятом издании (1-е изд. 1986 г.) учтены изменения и дополнения в государственных стандартах на 01.09.2007.
- Справочник предназначен (   Читать дальше...   )Жанр: ЧерчениеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF19DE59EC9F44CC748C4D938D6A47A985979D27
 ```
 
 https://mybot314.ru/tekegram_catalog/

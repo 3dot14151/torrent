@@ -1,3 +1,57 @@
+###  Публикация: 1418208   (351365) от 23.10.2020
+
+Леонид Яхнин | Почемучкины книжки. Какие бывают дома? (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человек живёт повсюду – и на снежном севере, и на знойном юге, и в степных просторах, и среди лесов, и в горах, и в пустыне, и даже на воде. И в каждой из этих местностей дом устроен по-cвоему: на севере дом строят прямо из снега, в Японии – из бумаги, а в пустыне люди умудряются поместить в свой дом целое озеро!
+
+Какие именно дома строят в разных уголках мира, как (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A29CAEB5D980B51B683E42781C68BB6D5434313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 724628   (351053) от 20.11.2013
+
+Мартин Кин | Плохая собака. Как одна невоспитанная собака воспитала своего хозяина (2012) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с очаровательным зенненхундом Холой! Пусть вас не обманывают ее добродушная морда и жизнерадостное помахивание хвостом: на самом деле, Хола – настоящий кошмар любого уважающего себя собачника. Она не понимает ни одной команды, потрошит продуктовые сумки соседей и с завидным упорством каждую ночь укладывается спать в хозяйскую кровать. Но в этом нет (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B3A767F6D1E04F449A12BC5351189D50276893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 724657   (350890) от 20.11.2013
 
 Дагмар Нормет | Засыпайка в Таллинне (2004) [PDF]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350890.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350430.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350138.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350071.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349596.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349551.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349471.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349426.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349106.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349102.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349091.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348780.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348412.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348389.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348179.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348049.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348014.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347935.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347933.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347783.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347622.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347402.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347273.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347090.jpg" />
 </div>
 
 
@@ -629,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179563   (346951) от 01.11.2017
-
-Наталья Ларкин | Новые приключения кошки Нюси. Сокровища короля Андраша (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – продолжение невероятных приключений озорной кошки Нюси и ее веселых друзей.
-На этот раз Нюсе, а также Маше, бабушке, дедушке и их соседу по даче дяде Вите предстоит отправиться в Венгрию – навстречу новым захватывающим приключениям!
-Стоит сказать, что и домовому Палычу, Подвальной Крысе и Певчему Дрозду, которые остались охранять дом в селе Великие Кошарища, (   Читать дальше...   )Жанр: СказкаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59023D77EE977CBFB9038255E975E20DDD349C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418837   (346929) от 25.10.2020
-
-Геннадий Черненко | Самая первая энциклопедия. Самые быстрые (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга из серии "Самая первая энциклопедия" от издательства Росмэн расскажет о самых быстрых транспортных средствах. В издании собрана и доступным языком изложена информация о рекордных скоростях, установленных гоночными автомобилями, поездами на магнитной подушке, сверхзвуковыми самолетами и другими движущимися объектами. Материал обязательно заинтересует (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600F58B8E83B522E790490A9447DAE2822E79425
 ```
 
 https://mybot314.ru/tekegram_catalog/

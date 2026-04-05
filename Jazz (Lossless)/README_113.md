@@ -6,7 +6,7 @@ Sylvia Bennett - I Wish You Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Adult Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673416.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Duke Ellington - Bigbands Live: Liederhalle Stuttgart, March 6, 1967 (2011) Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673341.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Duke Ellington - Live in Warsaw 1971 (2009) Gambit Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673340.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Duke Ellington - Solos, Duets And Trios (1932, 1941, 1967) 1990, Bluebird [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673339.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Duke Ellington - S.R.O. (1956, 1961, 1966) 1989, Lester Recording Catalog [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673338.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Gerry Mulligan - Midas Touch: Live in Berlin (1995) 2003, Concord Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673336.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Duke Ellington - Splendeurs du grand orchestre (1959, 1961, 1966) 3CD, 2009, Son
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673335.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Alice Babs & Duke Ellington - Serenade To Sweden (1963) 2016, Real Gone Music [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673333.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Duke Ellington - Blue Note Jazz Inspiration (1953 - 1969) 2012, Blue Note [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673331.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Simon Rattle & City of Birmingham Symphony Orchestra - Ellington: Mainly Black (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673329.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Duke Ellington - Mood Indigo (1927 - 1936) 1989, Pro-Arte Digital [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673249.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Duke Ellington - The Conny Plank Session (1970) 2015, Gronland Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673248.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Duke Ellington - Sophisticated Lady: Duke's Greatest Hits (1992) Classic Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673247.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Dizzy Gillespie - The Greatest Of Dizzy Gillespie (1946 - 1949) 2017, Sony Music
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673245.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Duke Ellington - The Essential Recordings (1930-e - 1940-e) 1993, Charly Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673244.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Duke Ellington - The Complete Newport 1958 Performances (2014) 2CD, American Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673242.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Tomasz Stanko New York Quartet - December Avenue (2017) ECM [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673241.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dave Weckl - Heads Up (1992) [FLAC|Lossless|image + .cue] <Fusion, Latin Jazz, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673240.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Duke Ellington - Falling in Love with Duke Ellington (2000) RCA Victor [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673239.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Dave Brubeck Quartet - Someday My Prince Will Come (1965) 1993, Jazz Hour [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673232.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dave Weckl - Hard-Wired (1994) [FLAC|Lossless|image + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673014.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Bob Dorough Quartet - An Excursion Through "Oliver!": Songs From The Hit Sho
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672894.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dexter Gordon - Ballads (1978) 1995, Blue Note [FLAC|Lossless|image + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672776.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Jim McNeely & Frankfurt Radio Bigband - Barefoot Dances And Other Visions (2017)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672471.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Halie Loren - From The Wild Sky (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672455.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Stan Kenton Orchestra - The Stuttgart Experience (1972) 2016, Jazz Haus[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672409.jpg" />
 </div>
 
 

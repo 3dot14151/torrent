@@ -7,7 +7,7 @@ Warhammer: Dark Omen (1998) [Multi] (1.6) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050354.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Syndicate Classic Dilogy / Syndicate Plus / Syndicate Wars (1993, 1996) [Multi] 
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050268.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Shadow Vault / Shadow Vault: Зона теней (2004) [Ru] (1.0.28) License М
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049407.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Jagged Alliance 2: Wildfire (2005) [Ru/Multi] (6.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040671.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ UFO: Aftermath / UFO. Нашествие (2003) [Ru/Multi] (1.4 languages 2) Lic
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032413.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ M.U.L.E. / MULE (1983) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026678.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Shadow Watch [Ru] (P) 2000
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000372.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Police Quest: SWAT 2 (1998) [En] (1.0.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911789.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Heroes of Might and Magic IV: Complete (2004) [Multi] (3.0.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911500.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ King's Table - The Legend of Ragnarok (1993) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890531.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Fantasy General (1996) [Multi] (1.0.20211006/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824326.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Warrior Kings: Battles / Лорды войны: Битва (2003) [En] (1.23) Li
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822192.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Army Men RTS / Вояки: RTS (2002) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816482.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ UFO: Aftershock / UFO: Возмездие (2005) [Ru/Multi] (1.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800531.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.21.2.1256) License CODEX
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788280.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Heroes of Might and Magic V (2006) [Ru] (1.6/2.1/3.1) Repack xatab [Gold Edition
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787903.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ UFO: Aftershock / UFO: Возмездие [Ru] (L) 2005
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768562.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Worms 4: Mayhem / Червячки: 4 Погром [Ru] (L) 2005
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763767.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Praetorians (2003) [En] (1.04) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747477.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Sid Meier's Pirates! (2004) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662654.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Company of Heroes (2006) [Ru/En] (2.700.2.43/dlc) SteamRip Let'sPlay
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656477.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ X-COM: Apocalypse (1997) [En] (1.00) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636781.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Massive Assault (2003) [En/Fr] (1.2.204) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613296.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Massive Assault: Phantom Renaissance / Massive Assault: Расцвет Лиги 
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613187.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Jagged Alliance 2: Wildfire / Jagged Alliance 2: Возвращение в Ар�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580485.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Soldiers: Heroes of World War II / В тылу врага (2004) [Ru/En] (1.28.3
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573876.jpg" />
 </div>
 
 

@@ -1,3 +1,133 @@
+###  Публикация: 833517   (384984) от 22.10.2014
+
+Газета | Любимые рецепты читателей. Спецвыпуск №25. Мясные рецепты для мультиварки (октябрь 2014) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разнообразие мясных блюд приготовленных в мультиварках такое же огромное как и приготовленых другими способами. Этот номер издания содержит всевозможные рецепты блюд из мяса в мультиварке, будь то говядина, свинина или баранина. Холодец "Праздничный", суп "Советский", шашлык "Вкусный ужин", фаршированный перец и другие рецепты вы найдете (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91ADCA13A7F422C754611C9FD874E1D317EDB605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174686   (384961) от 15.10.2017
+
+Журнал | Гастрономъ. Спецвыпуск №7. Лучшие в мире супы (октябрь 2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами  очередной выпуск спец предложения к журналу «Гастрономъ». На этот раз мы решили поделиться с вами рецептами лучших в мире супов. Самые вкусные супы, разумеется, готовят ваши бабушки и мамы, а мы подобрали рецепты мировых хитов, которые тоже когда-то придумали чьи-то бабушки. В нашем выпуске представлен практически весь мир: пряный гаспачо и белая окрошка, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C7DAAED53F5C6D9C326B362D131E27AD634502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174329   (384942) от 15.10.2017
+
+Журнал | Linux Format №8 (226) (август 2017) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Format - первый в России ежемесячный журнал на русском языке, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью.Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA0403117EDA229985B7FCEBFFA9FC3ABAE52CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067839   (384631) от 30.10.2016
+
+Подшивка журналов | Elektor (2016) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384631.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Elektor Electronics" - популярный журнал по электронным компонентам и схемотехнике, аналог отечественных Радио, Радиолюбителя, Радиомира, и т.п. На сайте журнала можно найти дополнительные материалы к статьям (прошивки контроллеров, рисунки печатных плат)Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAF70EDAD6F0A2FFE0748EB85F89353821EF60B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068033   (384484) от 30.10.2016
+
+Журнал | Советы профессионалов №11 (ноябрь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советы профессионалов - это тематические выпуски, концентрирующие в себе лучшие публикации и новые материалы об опыте работы мастеров из разных стран мира. Один из лучших журналов по строительству и отделке дома. Все этапы работы очень наглядны.Жанр: Строительство. Дизайн.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DEBE4565ADA27E1FA8E9A560408F1FBD9D52FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 719476   (384273) от 06.11.2013
 
 Журнал | Моя любимая дача №12 (56) (декабрь 2013) [PDF]
@@ -6,7 +136,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384273.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384202.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383759.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383738.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383597.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383399.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383396.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383394.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383393.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383374.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383372.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383341.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383271.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383270.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383134.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383133.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383131.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383130.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383045.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383013.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382945.jpg" />
 </div>
 
 
@@ -539,142 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C3836693BDEB5F7A977FB7C7436B1A354C64EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447618   (382914) от 09.11.2012
-
-Подшивка газеты | Кинонеделя Ленинграда [1956—1957] [DJVU]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_382914.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Кинонеделя Ленинграда» (набережная р. Фонтанки, 59), массовый еженедельник Ленкинопроката и Лениздата. Выходит с 1956. Распространялась по подписке и через киоски «Союзпечати». Публиковала репертуар кинотеатров, Дворцов и Домов культуры, клубов, программы кинолекториев и киновечеров на предстоящую неделю, рассказы о киноактёрах, режиссёрах и др. Газета выходила с 1956 года по начало 90-х.
-
-В 1956-57 годах номера в газете не ставились, проставлялась только дата.
-В раздаче на данный момент 55 номеров (см. "Список файлов в торренте").
-
-В каждом номере 8 страниц формата А4, собственный скан.Формат: DJVU
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068396   (382484) от 31.10.2016
-
-Журнал | Военная история №12 (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тематическое издание для всех интересующихся развитием военного дела от древних времен до наших дней. Масса интересного и познавательного не только для тех, кто любит историю. Знаменитые крепости, великие полководцы, ручное оружие, женщина на войне. И многие другие смежные темы - в статьях нового номера издания.Жанр: Военное дело, историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C169057293596EA9261C1F7FD5C7EFC4518201DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068470   (382344) от 31.10.2016
-
-Журнал | Интернет-гид №10 (октябрь 2016) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382344.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Интернет-гид» — это универсальный проводник, спусковая кнопка в необъятный мир веб-страниц. Это полезная прогулка по ту сторону браузера, по самым живописным местам на карте глобальной сети.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C371030127A0E35838CD3388E6A07471EAA8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573255   (381580) от 10.11.2012
-
-Журнал | PC Week [Россия] №30 (ноябрь 2012) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381580.jpg" />
-</div>
-
-
-###  Подробнее
-
-PC Week - Журнал информирует о передовых технологиях, новейших разработках и важнейших событиях и новостях как отечественного, так и зарубежного компьютерных рынков. В Журнале PC WEEK около десяти постоянных разделов: "Новости", "Корпоративные системы", "Мобильные и настольные системы", "Netweek", "Связь", "Дистрибуция", (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F53D2D51327181055EF980735DA32A8EA93461B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 350406   (381519) от 29.10.2011
-
-Подшивка журналов | Der Spiegel (1994-2006, 2008-2011) [PDF] [Ge] [Обновлено 27.10.2011]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_381519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый популярный информационно-аналитический еженедельник Германии. В последние годы утратил традиционную социал-демократическую ориентацию и стал практически правым изданием. Политика, экономика, аналитика, наука, культура, спорт.
-Один из известнейших еженедельных журналов Германии. Сам журнал описывает себя как «самый значимый информационно-политический журнал (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

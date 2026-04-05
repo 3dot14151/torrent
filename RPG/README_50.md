@@ -1,3 +1,55 @@
+###  Публикация: 1711792   (61214) от 31.03.2024
+
+Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack DjDI
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outcast - A New Beginning – это продолжение знаменитого экшена, который фактически положил начало приключенческим играм с открытым миром. Прошло около 20 лет с момента выхода первой части, но изменения получили только графическая составляющая и сюжет. Разработчики постарались вложить максимум в развитие все той же вселенной и уникального мира, дополняя его и совершенствуя.Тип издания: RepackРазработчик: Appeal StudiosЖанр: Action, Adventure, RPG, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5283CB9A1910A227BE17F05AF47B7AA3D2ADB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711656   (61202) от 31.03.2024
+
+Metal Unit (2021) [Ru/Multi] (010309) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metal Unit повествует трагическую историю о будущем планеты. К 2060 году из недр и подземелий Земли стали прорываться злобные существа. А из космоса прилетели пришельцы, которые сперва обещали помочь, но в итоге захватили и практически полностью подчинили себе человечество. Юная девушка Джоанна – бесстрашный солдат в роботизированном костюме М-Unit 11, огнем и мечем (   Читать дальше...   )Тип издания: LicenseРазработчик: JellySnow StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53EC6A466A4A57420991BF1AFEFD5E2C6B975F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712039   (61142) от 01.04.2024
 
 MANIAC (2024) [Ru/Multi] (0.9.12B) Repack Other s [AD]
@@ -6,7 +58,7 @@ MANIAC (2024) [Ru/Multi] (0.9.12B) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61142.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Svarog's Dream (2023) [En] (2.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61110.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Stardew Valley (2016) [Ru/Multi] (1.6.3) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61061.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Knowledge, or know Lady / Ladies School Prince (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61001.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Geneforge 2 - Infestation (2024) [En] (1.0/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60904.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Legend of Heroes: Trails into Reverie (2023) [En] (1.1.4/dlc) License GOG [L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60837.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Go Fight Fantastic (2024) [Multi] (1.11.0001) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60584.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Withering Rooms (2024) [Multi] (1.22) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60562.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Pathfinder: Gallowspire Survivors (2024) [Ru/Multi] (1.0.3719) Scene DOGE
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60503.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Withering Rooms (2024) [Multi] (1.22) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60490.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Sea of Stars (2023) [Ru/Multi] (1.0.48412) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60487.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [Ru/En] (1.0.25) Repack Other
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60403.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Gothic II: Night of the Raven / Готика 2: Ночь Ворона (2003) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60400.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ In Stars and Time (2023) [Multi] (1.0.5.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60303.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Monsters Domain (2024) [Ru/Multi] (2.6.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60288.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Felvidek (2024) [Multi] (20240405) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60197.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Inkbound (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60146.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Sheba: A New Dawn (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60038.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Broken Roads (2024) [Ru/Multi] (1.40.7035) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59986.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ The Inquisitor (2024) [Ru/Multi] (1.1/dlc) Scene Rune [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59984.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Broken Roads (2024) [Ru/Multi] (1.40.7035) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59882.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Fractals of Destiny (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59879.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Monsters Domain (2024) [Ru/Multi] (2.6.5) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59847.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ NightFeed (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59844.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ NightFeed предлагает уникальную смесь экшена, в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3F5BC2A05300A9EC6D6B795C86554E176B271B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715756   (59840) от 13.04.2024
-
-Inkbound (2024) [Multi] (1.0.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inkbound - это тактическая РПГ, в которой вы сможете ощутить себя в роли героя в захватывающем онлайн-коперативном рогалике, который полностью переосмысливает игровой процесс пошаговых боев. Вы можете играть как в одиночку, так и в команде с другими геймерами, исследуя магические и опасные книги в библиотеке Афинеума и борясь за спасение этого богатого и постоянно (   Читать дальше...   )Тип издания: RepackРазработчик: Shiny ShoeЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF639125BDC92B07A17DB01563FB40AA42FD044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657819   (59782) от 14.04.2024
-
-Fallout 4 (2015) [Ru/En] (1.10.163.0/dlc) Repack dixen18 [Game of the Year Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fallout 4 - это продолжение знаменитой постапокалиптической серии, события которой развиваются спустя несколько лет после окончания Fallout 3. Протагонистом игры становится единственный выживший из Убежища 111, которое находилось неподалеку от Бостона. Волей судьбы главному герою предстоит покинуть свой дом, чтобы пуститься в полное опасностей приключение, где на (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: RPG, Action, Open WorldЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8E3FA18EC135E9ADED4E355C5BDEE8BFCC413E
 ```
 
 https://mybot314.ru/tekegram_catalog/

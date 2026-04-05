@@ -1,3 +1,167 @@
+###  Публикация: 1200415   (789680) от 29.01.2018
+
+Большая космическая Одиссея Маши Усовой
+
+>>3
+>>16
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уважаемые одноклубники!
+Команда  NNM-Club
+приглашает вас принять участие в игре:
+"Большая космическая Одиссея Маши Усовой"  Выпив лишний стакан коктейля, Маша возвращается домой, не понимая что она уже стала частью эксперимента. За ней следит могущественная организация во главе сумасшедшим ученым Номер Один, который богаче и известнее, Маска и готов завоевать (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201971   (789678) от 29.01.2018
+
+Интерстеллар / Interstellar (2014) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [IMAX Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда засуха приводит человечество к продовольственному кризису, коллектив исследователей и учёных отправляется сквозь червоточину (которая предположительно соединяет области пространства-времени через большое расстояние) в путешествие, чтобы превзойти прежние ограничения для космических путешествий человека и переселить человечество на другую планету.Производство: США, Великобритания, Канада, Исландия / Legendary PicturesЖанр: фантастика, драма, приключенияРежиссер: Кристофер НоланАктеры: Мэттью МакКонахи, Энн Хэтэуэй, Джессика Честейн, Маккензи Фой, Майкл Кейн, Дэвид Гяси, Уэс Бентли, Кейси Аффлек, Джон Литгоу, Мэтт ДэймонПеревод: Дублированный (Лицензия EUR), Профессиональный многоголосый (Омикрон), Авторский (Сербин, Живов, Есарев)Субтитры: Русские (forced,voronine, BD, iTunes, unknown), украинские (forced), английские (full, SDH, SDH-COLORED)Продолжительность: 02:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9C4501DE08D591611B3717C82A0B0FE3E1E0E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202388   (789677) от 29.01.2018
+
+Тор: Рагнарёк / Thor: Ragnarok (2017) WEB-DL [H.264/1080p-LQ] [AVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события — Рагнарёка. По легенде, это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие, (   Читать дальше...   )Производство: США, Marvel Entertainment, Marvel Studios, Walt Disney PicturesЖанр: Фантастика, Боевик, Приключения, КомедияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Идрис Эльба, Энтони Хопкинс, Кейт Бланшетт, Тесса Томпсон, Джефф Голдблюм, Карл Урбан, Марк Руффало, Бенедикт КамбербэтчПеревод: Одноголосый закадровый авторский (Solod)Субтитры: Русские, АнглийскиеПродолжительность: 02:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C1656F6CD0002948FA82A0D30B50B0FBBAAC46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196266   (789676) от 29.01.2018
+
+BELOFF 2018 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный сборник программ, распределённых по категориям, с автоматической установкой на операционные системы Windows. В сборник дополнительно добавлены портативные приложения, которые можно будет легко использовать как с диска и виртуального привода, так и с USB-накопителей, включая установку MInstAll и WPI. Для большего удобства использования сборника добавлено (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C0B80839343928529B1E24738983E06226C335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832988   (789675) от 29.01.2018
+
+Евгений Карташов | Панель для ретуши Retouch Panel (2014) [unpacked]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональному фотографу или человеку, увлекающемуся обработкой фотографий, часто приходится ретушировать фотографии людей.
+
+Если вы занимаетесь ретушью, то сами знаете, что она занимает очень много времени. Можно ли это время каким-то образом сократить?
+(   Читать дальше...   )Жанр: ФотографияФормат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70489624EFB4021A33D5E7B4DD7208B4696965D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181749   (789674) от 29.01.2018
+
+Бесстыжие / Бесстыдники / Shameless (US) (2017) WEB-DL [H.264/720p-LQ] (сезон 8, серии 1-12 из 12) AlexFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курсы плавания от Фрэнка, излечение от алкоголизма с Липом, адаптация к ранней беременности по методу Дебби, овладение ресторанном делом с Фионой и многое другое ждёт вас в новом сезоне о похождениях самой интересной семьи на свете. Галлагеры вернулись, а значит, осень в этом году скучной не будет точно!Производство: США, Bonanza Productions, John Wells Productions, Showtime Networks Inc., Sterling Films (V), Warner Bros. TelevisionЖанр: драма, комедияРежиссер: Иэн Б. МакДональд, Энтони Хемингуэй, Майкл Моррис и др.Актеры: Уильям Х. Мэйси, Эмми Россам, Камерон Монахэн, Джереми Аллен Уайт, Эмма Кинни, Итэн Каткоски, Блейк Александр Джонсон, Бреннан Кэйн Джонсон, Шанола Хэмптон, Стив Хоуи и др.Перевод: многоголосый закадровый, профессиональный - AlexFilm (ненормативная лексика)Субтитры: английские
+
+ВНИМАНИЕ! Присутствует ненормативная лексика.Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB094FDFE097FF03A344D6C274BE5E4582EEA1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275350   (789672) от 12.01.2019
 
 Apple и Google не стали повышать цены в магазинах приложений из-за роста НДС до 20%
@@ -6,7 +170,7 @@ Apple и Google не стали повышать цены в магазинах 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789672.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789656.jpg" />
 </div>
 
 
@@ -58,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789643.jpg" />
 </div>
 
 
@@ -84,7 +248,7 @@ Borderlands 2 (2013) [Ru] (1.8.4/dlc) Repack Other s [Game of the Year Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789612.jpg" />
 </div>
 
 
@@ -110,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789610.jpg" />
 </div>
 
 
@@ -136,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789575.jpg" />
 </div>
 
 
@@ -162,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789566.jpg" />
 </div>
 
 
@@ -188,7 +352,7 @@ SeasonHit v2.4.0.6 Prеmium [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789544.jpg" />
 </div>
 
 
@@ -214,7 +378,7 @@ Microsoft выпустила экстренное обновление, чтоб
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789296.jpg" />
 </div>
 
 
@@ -240,7 +404,7 @@ Microsoft разрабатывает новую версию Windows для ПК
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789284.jpg" />
 </div>
 
 
@@ -266,7 +430,7 @@ Gears of War (2007) [Ru/En] (1.3) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789276.jpg" />
 </div>
 
 
@@ -292,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789273.jpg" />
 </div>
 
 
@@ -318,7 +482,7 @@ Google реализовала поддержку DNS-over-TLS в своем DNS-
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789214.jpg" />
 </div>
 
 
@@ -344,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789212.jpg" />
 </div>
 
 
@@ -371,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789160.jpg" />
 </div>
 
 
@@ -397,7 +561,7 @@ Windows 11 с аудиодрайверами от Intel вызывает у по
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789144.jpg" />
 </div>
 
 
@@ -423,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789130.jpg" />
 </div>
 
 
@@ -449,7 +613,7 @@ Microsoft® Windows® 11 Professional VL x64 21H2 RU by OVGorskiy 11.2021
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789127.jpg" />
 </div>
 
 
@@ -475,7 +639,7 @@ Windows 10 Pro 21H2 19044.1348 x64 ru by SanLex [Ru] (2021.11.19)
 >>15
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789126.jpg" />
 </div>
 
 
@@ -501,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789125.jpg" />
 </div>
 
 
@@ -513,165 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25FC7025503C61E0BC5F982E29F7C8097AC8BF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599017   (789124) от 20.11.2021
-
-Звездные Врата: Полная коллекция / Stargate: Full collection (1994-2008) BDRip (от LostFilm)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскрыта прежде неизвестная цель "Шеврона 9", команда попадает на корабль древних, называемый "Судьба", построенный миллионы лет назад для распространения звездных врат по галактике. Команда, возглавляемая доктором Николасом Рашем и полковником Эверетом Янгом, оказывается в ловушке на корабле древних, потому что они не могут изменить запрограммированный (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Энди Микита и др.Актеры: Роберт Карлайл Луис Феррейра Дэвид Блу Брайан Смит Джамил Уолкер Смит Элейна Хаффман Элиз ЛевекПеревод: Многоголосый закадровый -Формат: AVIПродолжительность: 40 серий по ~00:43:00 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1378F705F3C81FC785BAA143D9C5B976BA10E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202883   (788878) от 31.01.2018
-
-Легенда о Коловрате (2017) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788878.jpg" />
-</div>
-
-
-###  Подробнее
-
-XIII век. Русь раздроблена и вот-вот падет на колени перед ханом Золотой Орды Батыем. Испепеляя города и заливая русские земли кровью, захватчики не встречают серьезного сопротивления, и лишь один воин бросает им вызов. Молодой рязанский витязь Евпатий Коловрат возглавляет отряд смельчаков, чтобы отомстить за свою любовь и за свою родину. Его отвага поразит даже (   Читать дальше...   )Производство: Россия, Централ Партнершип, Киностудия КИТ, Продюсерский центр ИВАНЖанр: История, Боевик, ФэнтезиРежиссер: Джаник Файзиев, Иван ШурховецкийАктеры: Илья Малаков, Полина Чернышова, Алексей Серебряков, Александр Ильин мл., Игорь Савочкин, Тимофей Трибунцев, Александр Цой, Юлия Хлынина, Андрей Бурковский, Виктор ПроскуринПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E33738FAE52A91C8FE6E8CC69628A7625F2670E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202938   (788877) от 31.01.2018
-
-Windows 7 Ultimate SP1 (x86/x64) Elgujakviso Edition (v.30.01.18) [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборки сделаны на основе оригинальных образов от MSDN:
-ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso. (Original 12.05.2011)
-ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso. (Original 12.05.2011)
-(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91ADF40E0C816AA14A5D9B0794B18C1B1790A7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202783   (788874) от 31.01.2018
-
-Adobe Premiere Pro CC 2018 12.0.1.69 RePack by KpoJIuK  [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro CC 2018 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3345330769D5DF15832B029BBBD87011EE03BC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196052   (788873) от 31.01.2018
-
-Андрей Журавлёв | Adobe Photoshop. Базовый уровень (2017) PCRec [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс позиционируется как Adobe Photoshop для начинающих, мы тем не менее построили его на платформе глубокого практического опыта использования программы. Вы будете изучать инструменты в той последовательности, в которой они применяются специалистами на практике. Это позволит вам не просто осваивать отдельные инструменты, но и понимать логику работы с изображением. (   Читать дальше...   )Производство: profileschoolЖанр: Adobe PhotoshopПродолжительность: 39:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A75F7ACD3E6B06110088EB0DC07804AEC80AE4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202569   (788872) от 31.01.2018
-
-Новое старое имя Клуба NNM-Club.ME
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внимание всем одноклубникам!Мы возвращаемся на наш старый, проверенный домен NNM-Club.MEОбновите закладки, RSS ридеры, пути обхода блокировок и т.п. Старый домен на NAME в ближайшее время станет недоступен.В случае временных проблем с закачкой *.torrent файлов вспоминаем о магнетах, и вообще всегда помним о них, не унываем и почаще используем их :)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

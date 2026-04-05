@@ -1,3 +1,61 @@
+###  Публикация: 1278809   (768467) от 26.01.2019
+
+Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classical, Instrumental, Cello>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Hour Story (12:16)
+02. Imbalance (04:14)
+03. Conditional Futures (04:02)
+04. Floating City (03:38)(   Читать дальше...   )Жанр: Contemporary Classical, Instrumental, CelloПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8A49DA98E482CBFD0859F9879444B5A65B75FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278437   (768403) от 26.01.2019
+
+Vangelis - Vangelis Nocturne-the Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Classical Crossover>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Promenade (5:51)
+02. To the Unknown Man (5:14)
+03. Irina Valentinova – Mythodea - Movement 9 (3:48)
+04. Moonlight Reflections (3:10)(   Читать дальше...   )Жанр: New Age, Classical CrossoverПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966263B0B4AA15E184745362DC147EA3F1414169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277967   (768349) от 26.01.2019
 
 Христина Соловій - Любий друг (2018) [MP3|320 Kbps] <Pop-Folk, Folk Rock>
@@ -6,7 +64,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768349.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Blackmore's Night - The Village Lanterne (2006) Box Set, Limited Edition [FLAC|L
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767922.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Michel Legrand & His Orchestra - Strings On Fire (1962) LP /Columbia/ [MP3|320 �
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767609.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Intouchables (Неприкасаемые / 1+1 /) - OST (2011) [FLAC|Lossle
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767446.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767036.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ c h a p e l s - Repertoire (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, P
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766932.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ John K. - Romantic Guitar II (2001) [FLAC|Lossless|image + .cue] <Instrumental, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766813.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Richard Clayderman - Ballade pour Adeline (2012) [FLAC|Lossless|image + .cue] <I
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766556.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766545.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766387.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Евгенич (2021) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766079.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ The Gordon Brothers - Yoga Planet (2008) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765535.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Vin Downes - When The Sea Lets Go (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765533.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Jim Brickman - Piano Tributes: Songs Of Carole King (2020) [FLAC|Lossless|WEB-DL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765432.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Ulver - Svidd Neger (Original Motion Picture Soundtrack) (2003) [FLAC|Lossless|t
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764544.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ The Essence - Enigma Lounge (2003) [FLAC|Lossless|tracks + .cue] <Enigmatic, New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764479.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Blonker - Fantasia (1980) Remastered, 1994 [FLAC|Lossless|image + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764330.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Willie Nelson - First Rose of Spring (2020) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763729.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Sons of Anarchy - The Complete Fantasy Playlist (2016) [FLAC|Lossless|WEB-D
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763716.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Claudio Simonetti - Стальные руки / Hands of Steel - Vendetta dal Fu
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763533.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763488.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Dark Country 1-5 (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk, Wor
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763444.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ David Wright & Carys - Prophecy (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763173.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763124.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F86DA092D0753515235B091C21F6226B9F838119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214833   (763074) от 23.03.2018
-
-Oscar Javelot - Inner Presence (2018) [MP3|320 Kbps] <Instrumental, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naher zu mir (To be one) (03:53)
- 02. So sicher wie im Himmel (04:42)
- 03. Good Time (04:19)
- 04. Segel im Wind (03:17)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64233814E65B5814DDB35E8D9A79E2CC237BEAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017084   (762832) от 16.05.2016
-
-Соня Тимофеева - Цыганские народные песни (1970) LP [MP3|256 кб/с] <Цыганская песня >
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кай ёнэ
-02. Настенька
-03. Нанэ мандэ родо
-04. Гэя Куля(   Читать дальше...   )Жанр: Цыганская песняПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED21EC2460E31BD1FFFC13FF20CE40046720497
 ```
 
 https://mybot314.ru/tekegram_catalog/

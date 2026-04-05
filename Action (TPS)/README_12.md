@@ -6,7 +6,7 @@ Darksiders (2016) [Ru/Multi] (1.0.2679) Repack R.G. Механики [Warmastere
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788882.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tomb Raider 4: The Last Revelation / Tomb Raider: Последнее откро�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788864.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Onimusha: Warlords (2019) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788402.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sunset Overdrive (2018) [Ru/En] (1.0/u2) Repack Mizantrop1337
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787936.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (1.0/upd1) License SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787920.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Resident Evil 0 HD Remaster / Biohazard Zero (2016) [Ru/En] (1.0/dlc) Repack xat
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787865.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Strange Brigade (2018) [Ru/Multi] (1.47.22.14/dlc) License PLAZA [Deluxe Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787457.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mido and Di (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787318.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Styx: Shards of Darkness (2017) [Ru/Multi] (1.04/dlc) Repack R.G. Механик
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785992.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Peter Jackson's King Kong: The Official Game of the Movie (2005) [Ru/Multi] (1.0
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785193.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Outcast - Second Contact (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784792.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ling (2018) [En/Ch] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783727.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/Multi] (1.0.0.1/dlc) Repack R.G. Catal
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783702.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/dlc) Repack R.G. Catalys
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783701.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783366.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ State of Decay: Year-One (2015) [Ru/Multi] (1.0 от 12.02.2018/dlc) Repack R.G.
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781967.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Styx: Shards of Darkness (2017) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781585.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Ben and Ed - Blood Party (2018) [En] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781579.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780689.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Deadly Premonition (2013) [Ru/Multi] (1.01b) Repack R.G. Catalyst [Director's Cu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779436.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Spec Ops: The Line (2012) [Ru/En] (1.0.6890.0upd2/dlc) Repack R.G. Механи�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779433.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sleeping Dogs (2014) [Ru/Multi] (1.0) SteamRip R.G. Origins [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779429.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Agents of Mayhem (2017) [Ru/Multi] (1.06/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779420.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ DmC - Devil May Cry (2013) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779311.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd1) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779174.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.196/dlc) Repack R.G. Catalyst [Complete Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779165.jpg" />
 </div>
 
 

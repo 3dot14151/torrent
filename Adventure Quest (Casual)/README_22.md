@@ -6,7 +6,7 @@ Lost Trails / Остров: Затерянные судьбы (2015) [Ru] Unoffi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683106.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tales of Terror 3: Estate of the Heart / Трепетные Истории 3: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682573.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Infected: The Twin Vaccine Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680970.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mystery of the Ancients 7: Black Dagger (2018) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680429.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hidden Expedition 16: The Golden Secret (2017) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680428.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Enchanted Kingdom 3: Fog of Rivershire (2018) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680427.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Forgotten Fairytales 2: Canvases of Time (2018) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680424.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sable Maze 4: Twelve Fears (2015) [En] Unofficial [Collector's Edition / Кол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679672.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Fierce Tales 3: Feline Sight / Жестокие истории 3. Кошачий
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679340.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Haunted Hotel 4: Charles Dexter Ward Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678798.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Ghost Files: The Face of Guilt / Дело Призрака: Лики вины (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678586.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Spirit Of Revenge 4: Florry's Well (2016) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678168.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fear for Sale 4: Phantom Tide / Страх на продажу. Призрак �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677037.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Blacked out / Жуть (L) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676645.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Dark Parables: Curse of Briar Rose / Темные предания. Прокля
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676362.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Bridge to Another World 6: Gulliver Syndrome (2019) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676309.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Blacked Out / Жуть (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676226.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Haunted Hotel 4: Charles Dexter Ward Collector's Edition / Проклятый о
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676213.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Grim Tales 8: The Final Suspect (2015) [En] Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673173.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Redemption Cemetery 12: The Day of the Almost Dead / Кладбище искуп
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672437.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Witches Legacy 12: Secret Enemy / Наследие Ведьм 12: Тайный �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672208.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Darkness and Flame. Born of Fire (2016) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671971.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Spirits of Mystery 6: Family Lies / Тайны духов 6: Семейная л
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671967.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Royal Detective 5: The Princess Returns (2018) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670697.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Haunted Hotel 16: Lost Dreams (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670693.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Vermillion Watch 4: In Blood (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670686.jpg" />
 </div>
 
 

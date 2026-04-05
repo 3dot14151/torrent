@@ -1,3 +1,61 @@
+###  Публикация: 1085885   (881814) от 05.04.2020
+
+Lee Anthony Norris - Discography 4 Releases (2013-2020) Unknown Tone Records, ...txt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Abstract, Drone, Techno Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Of Communion - Ocean Of Religion (20:28)
+ 02. Lee Anthony Norris & Porya Hatami - Perfume Technique (09:17)
+ 03. Moss Garden - Floating In Memories (05:09)
+ 04. Ishqamatics - Angels On The Stairway (09:43)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Experimental/Techno AmbientПродолжительность: 06:54:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514BAA86699D686AC030721E353EC6E72031CF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104148   (881688) от 14.02.2017
+
+Lichtmond - The Journey (2016) [FLAC|Lossless|image + .cue] <Ambient, Electronic, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Journey Part 1 [0:01:42.08]
+02. The Journey Part 2 [0:02:28.15]
+03. Flowing Like A River [0:06:30.15]
+04. Nothing But Change [0:06:53.23](   Читать дальше...   )Жанр: Ambient, Electronic, DowntempoПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2684DC22D995780B7F0C1A4CD2F1DF2BBE9C9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990689   (881601) от 05.04.2020
 
 Strie (Olga Wojciechowska, Strïe, Strië) - Discography 18 Releases (2010-2020) Time Released Sound, Serein [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Glitch, Abstract, ...
@@ -6,7 +64,7 @@ Strie (Olga Wojciechowska, Strïe, Strië) - Discography 18 Releases (2010-2020)
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881601.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ Moby - Black Lacquer (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881471.jpg" />
 </div>
 
 
@@ -63,7 +121,7 @@ VA - Cycles 7 (Mixed By Max Graham) (2016) [FLAC|Lossless|tracks+.cue] <Progress
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881169.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ VA - Moments of Soul-Chill Mix (2016) [FLAC|Lossless|tracks] <Lounge, ChillOut, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881154.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ Underworld - Barbara Barbara, We Face A Shining Future (2016) [FLAC|Lossless|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881077.jpg" />
 </div>
 
 
@@ -147,7 +205,7 @@ VA - Grotesque Winter Edition (Mixed by RAM & Mark Sherry) (2016) [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880955.jpg" />
 </div>
 
 
@@ -176,7 +234,7 @@ Sean Tyas - Degeneration (2016) [FLAC|Lossless|tracks+.cue] <Trance, Psy-Trance,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880950.jpg" />
 </div>
 
 
@@ -205,7 +263,7 @@ Physical Dreams - Orbital (2016) [MP3|320 кб/с] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880933.jpg" />
 </div>
 
 
@@ -234,7 +292,7 @@ Blutengel - Nemesis: Best of and Reworked (2016) 2CD, Deluxe Edition [FLAC|Lossl
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880840.jpg" />
 </div>
 
 
@@ -263,7 +321,7 @@ Space - Best Of (1998) 2002 BMG Russia [FLAC|Lossless|tracks + .cue] <Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880825.jpg" />
 </div>
 
 
@@ -292,7 +350,7 @@ VA - VREMЯ VПERЁD! Russkiй Pizdэnц (1993) Air Fish Records [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880617.jpg" />
 </div>
 
 
@@ -321,7 +379,7 @@ Gregory - Unknown Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880529.jpg" />
 </div>
 
 
@@ -350,7 +408,7 @@ The Now - Bobby Orlando Presents Now (2013) [FLAC|Lossless|image + .cue] <New Wa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_880338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880338.jpg" />
 </div>
 
 
@@ -379,7 +437,7 @@ VA - Stay At Home (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880146.jpg" />
 </div>
 
 
@@ -408,7 +466,7 @@ VA - Future House 2017-01 - Armada Music (2017) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880072.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ The Bhaktas - Darshan Atmosphere (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880057.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ Lauge - Pusterum (2015) [FLAC|Lossless|WEB-DL]<Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879593.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ VA - Glamour Chill House - Fashion and Rafinated Beats (2016) [MP3|320 кб/с] 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879413.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ VA - Cycles 7 (Mixed By Max Graham) (2016) [MP3|320 кб/с] <Progressive House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879412.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ VA - This Is Our House Music Miami- Finest Groovy House Tunes (2016) [MP3|320 к
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879410.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ VA - Fitness Beats (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879293.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ VA - 50 Best Tracks For Your Car 5 (2016) [MP3|256-320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879277.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ Eric Prydz - Opus (2016) [FLAC|Lossless|tracks+.cue] <Progressive House, Electro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878962.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ VA - Lounge Music Sweet Valentine (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878300.jpg" />
 </div>
 
 
@@ -683,64 +741,6 @@ VA - Lounge Music Sweet Valentine (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF672DAADA0705ABD6AE09CC575FA149267CDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104527   (878299) от 16.02.2017
-
-VA - Lounge & Love Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Thomas Dur - Midnight in Manhattan  4:56
-02.  Bronson - Pousada Paulista (Trip Dub Mix)  5:13
-03.  Logophilia - Gaillardia  5:50
-04.  Toca Lounge - Electric Feeling (Instrumental Version)  4:04(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6ADCD49BE1686FA43A0B5B4073B86EE4850E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104683   (878289) от 16.02.2017
-
-VA - Nu Disco & House Dreams Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Re-Tide - Revolution Is Here 05:42
-02. The Morphoders - Substance 06:05
-03. Massimo Voci - Thaleia 06:24
-04. Christian Belt - Urban Jungle 08:48(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6574769136886F639F6F715B7DF2EACD031352D
 ```
 
 https://mybot314.ru/tekegram_catalog/

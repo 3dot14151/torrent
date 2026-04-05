@@ -1,3 +1,61 @@
+###  Публикация: 1015692   (773159) от 12.05.2016
+
+RSN - Analog Memories (2015) [MP3|320 кб/с] <Trip Hop, Soul, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_773159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get on the Train
+02. Lucky Old You (feat. Kathrin deBoer)
+03. Aris 'n' Ricky
+04. Under the Ground (feat. Thaliah)(   Читать дальше...   )Жанр: Trip Hop, Soul, DowntempoПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92295D7832A36A332E9CF7B2F5066DB7B03829CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015985   (773146) от 12.05.2016
+
+VA - GOA Vol.59 (2016) [MP3|320 кб/с] <Trance, Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tristan & Aardvarkk - Daws of Perception 6:39
+02. Microlin - The Only One 8:28
+03. Skyfall - Landscapes 8:39
+04. Shogan - Sunlight Shuffle 7:11(   Читать дальше...   )Жанр: Trance, Psy-TranceПродолжительность: 02:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC65EFF20CF9946D7D54CA1EFD1A3FEF3B47FDDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 659967   (773111) от 24.05.2013
 
 KlubbHeads - 5 Albums , 12 Compilations (1996 - 2004) [FLAC|Lossless]<House, Pumping House, Dutch Klubb House>
@@ -6,7 +64,7 @@ KlubbHeads - 5 Albums , 12 Compilations (1996 - 2004) [FLAC|Lossless]<House, Pum
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773111.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ LaserDance - Greatest Hits & Remixes (2015) 2CD [FLAC|Lossless|image + .cue] <Sp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773016.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Beautiful Vocal Trance - Chapter 2 (2018) [MP3|320 Kbps] <Trance,Vocal Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773014.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Formation 2 (2019) [MP3|320 Kbps] <Techno, Ambient>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773012.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - The Top 100 Of Fitness Music June 2020 Get Things Started [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772966.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Alon Mor & Clockvice - The Fifth Collaje (Single) (2016) [FLAC|Lossless|WEB-DL|t
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772832.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Label Pack - Kearnage Recordings - 77 Releases (2010 - 2017) [MP3|320 кб/с] <
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772727.jpg" />
 </div>
 
 
@@ -203,7 +261,7 @@ Label Pack - Hypercut Records - 38 Releases (2013 - 2017) [MP3|320 кб/с] <Tra
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772726.jpg" />
 </div>
 
 
@@ -229,7 +287,7 @@ DJ Nikolaevv - Melody Of Leaving Summer (2018) [MP3|320 Kbps] <Trance, Uplifting
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772010.jpg" />
 </div>
 
 
@@ -258,7 +316,7 @@ Eyephone - Discography 7 Releases (1995-2016) [FLAC|Lossless|tracks+.cue, tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772009.jpg" />
 </div>
 
 
@@ -284,7 +342,7 @@ VA - Easter Chilling Breakfast (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772003.jpg" />
 </div>
 
 
@@ -313,7 +371,7 @@ VA - Markus Schulz - Kyau & Albert - Global DJ Broadcast (2019) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771989.jpg" />
 </div>
 
 
@@ -342,7 +400,7 @@ VA - Dirkie Coetzee - Reverie (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771988.jpg" />
 </div>
 
 
@@ -371,7 +429,7 @@ Silk Cords - Chill Out And Relax (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771941.jpg" />
 </div>
 
 
@@ -400,7 +458,7 @@ VA - Lounge Bar New York Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771939.jpg" />
 </div>
 
 
@@ -429,7 +487,7 @@ Akshan - World Of Duality (2018) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Ps
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771930.jpg" />
 </div>
 
 
@@ -458,7 +516,7 @@ VA - Buddha Luxury Vol.2 (Esoteric World Music) (2018) [MP3|320 Kbps] <Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771926.jpg" />
 </div>
 
 
@@ -487,7 +545,7 @@ VA - Holi Festival (2016) [MP3|320 кб/с] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771740.jpg" />
 </div>
 
 
@@ -516,7 +574,7 @@ Nina - Sleepwalking (2018) Deluxe Edition [MP3|320 Kbps] <Synthpop, Synthwave, N
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771739.jpg" />
 </div>
 
 
@@ -545,7 +603,7 @@ VA - Enhanced Ibiza 2016 (unmixed tracks) (2016) [MP3|320 кб/с] <House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771730.jpg" />
 </div>
 
 
@@ -574,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771628.jpg" />
 </div>
 
 
@@ -603,7 +661,7 @@ VA - EDM 2016 Ibiza Opening Party (2016) [MP3|320 кб/с] <House, Electro House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771590.jpg" />
 </div>
 
 
@@ -632,7 +690,7 @@ Mirage Of Deep - Discography 10 Releases (2009-2020) [MP3|320 Kbps] <Lounge, Amb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771515.jpg" />
 </div>
 
 
@@ -661,7 +719,7 @@ VA - electronica@*.lv (2003) Ingus Baušķenieka Ieraksti [FLAC|Lossless|WEB-DL|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770712.jpg" />
 </div>
 
 
@@ -675,64 +733,6 @@ VA - electronica@*.lv (2003) Ingus Baušķenieka Ieraksti [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CAEB67C8302AD2D774638C7F1007C910E683A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392086   (770691) от 23.06.2020
-
-VA - electronica2@*.lv (2004) Ingus Baušķenieka Ieraksti [FLAC|Lossless|tracks+.cue] <IDM, Techno, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cafe2 – Nothing Ever Intervenes (05:55)
-02. Craft B. – Stay Awake (2nd Edition) (07:46)
-03. Fee.nix-z – Roundtrip (07:29)
-04. Krīpis Tulo – Black Silk (05:33)(   Читать дальше...   )Жанр: IDM, Techno, ExperimentalПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F6223D647ADE0226968725F3F1CDB1EFC4A4B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016430   (770540) от 14.05.2016
-
-VA - Matura Party Mallorca (2016) [MP3|320 кб/с] <Club, House, Funky, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Strong - High Time (Del Mar Mix) 06:47
-02. Freeg - Stronger (Club Mix) (Feat. Flava & Stevenson & Johnny K. Palmer) 05:26
-03. Candy Shop - Feel It 04:45
-04. American Groove Junkies - Reach You (Radio Version) 03:33(   Читать дальше...   )Жанр: Club, House, Funky, ProgressiveПродолжительность: 03:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F2744360F7F77CD87EAB266707F6FBA5A4C40C
 ```
 
 https://mybot314.ru/tekegram_catalog/

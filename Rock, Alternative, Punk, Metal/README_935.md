@@ -1,3 +1,32 @@
+###  Публикация: 1585337   (222922) от 21.10.2022
+
+Diggeth - Zero Hour in Doomtown (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freak Flag
+02. Soultwister
+03. Last Man Standing
+04. Acardiac(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E210A553A60D4BD3FE452FA5AAB1E95DDD4C14B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585217   (222919) от 21.10.2022
 
 The New Roses - Sweet Poison (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +35,7 @@ The New Roses - Sweet Poison (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222919.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Stryper - The Final Battle (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222912.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Cassius King - Dread the Dawn (2022) [MP3|320 Kbps] <Doom Metal, Stoner>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222906.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Stereo Mammoth - EGO (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222889.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Scarcrow - The Plague Parade (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222871.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ O.R.k. - Screamnasium (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222869.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ CABAL - Magno Interitus (2022) [MP3|320 Kbps] <Deathcore / Downtempo>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222850.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Comedy of Errors - 5 Albums (2011-2022) [MP3|320 Kbps] <Progressive Rock, Neo-Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222841.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Beto Vazquez Infinity - Mental Asylum (2021) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222821.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Avatarium - Death, Where Is Your Sting (2022) [MP3|320 Kbps] <Heavy Psychedelic,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222816.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222809.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Snakeskin Boozeband - Open For Boozeness (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222806.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ The End At The Beginning - 3 Albums (2014-2022) [MP3|320 Kbps] <Progressive Meta
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222796.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222795.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Black Space Riders - We Have Been Here Before (2022) [MP3|320 Kbps] <Psych, Spac
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222789.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Eternal Idol - Renaissance (2020) [FLAC|Lossless|image + .cue] <Symphonic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222786.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Bloody Hell - Bloody Hell (2015) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222785.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Grand - Grand (2022) [MP3|320 Kbps] <Rock, AOR, Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222774.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Teleborian - Electric Fortunes (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222767.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Reb Beach - A View From The Inside (2020) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222762.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Dream Evil - The Book of Heavy Metal (2004) Limited Special 2CD Edition / 2012, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222759.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Avantasia - Mystery Of A Blood Red Rose (2015) Single [MP3|320 кб/с] <Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222755.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Otus - Torch (2022) [MP3|320 Kbps] <Doom, Sludge Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222731.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Ruby The Hatchet - Fear Is a Cruel Master (2022) [MP3|320 Kbps] <Heavy Rock, Sto
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222712.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Orden Ogan - Final Days (Orden Ogan and Friends) (2022) [MP3|320 Kbps] <Heavy Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222695.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Orden Ogan - Final Days (Orden Ogan and Friends) (2022) [MP3|320 Kbps] <Heavy Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7B387611B05AC0D5946E1DBEBAF997C37FD70AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585380   (222687) от 21.10.2022
-
-Ketha - 4 Albums (2012-2022) [MP3|320 Kbps] <Progressive Metal, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stoneclad [00:05:32]
-02. Kanati [00:07:08]
-03. Seventhunders [00:05:22]
-04. Coyotes [00:04:45](   Читать дальше...   )Жанр: Progressive Metal, ExperimentalПродолжительность: 4 CD, 02:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A32740D9AA9E9E4776E1CFD058FFAF27FBB86F
 ```
 
 https://mybot314.ru/tekegram_catalog/

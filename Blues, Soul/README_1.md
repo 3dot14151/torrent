@@ -6,7 +6,7 @@ Ekoostik Hookah - 31 West (2021) [MP3|320 Kbps] <Blues Rock, Country Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008821.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chris King Robinson - Chris King Robinson (2021) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007867.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Виртуозы жанра Blues Vol. 2 (2021) 2CD [MP3|320 Kbps] <Blues R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007699.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gema Pearl - True Blue (2019) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003493.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - 80s Blues Rock Essentials (2019) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003202.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - 100 Greatest Soul (2020) [MP3|320 Kbps] <Soul, Funk, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002420.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999111.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Blues Masters - Vol. 01-17 (2012) 51CD [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997628.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The BluesBones - Voodoo Guitar (2012) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996996.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Paul Ramirez Band - Sex With A Dragon (2012) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996215.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - L.A. Blues Authority: Cream Of The Crop (2009) [MP3|320 кб/с]<Blues-Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989397.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Gary Moore - Parisienne Walkways: The Collection (2020) 2CD [MP3|320 Kbps] <Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986978.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Syllamo Trio - Marcella (2015) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980777.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Bob Margolin - My Road (2016) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979313.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Bernard Allison - Songs From The Road (Live) (2020) [MP3|320 Kbps] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977943.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Tinsley Ellis - Ice Cream In Hell (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977849.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Buddy Guy - Live at Legends (2012) [MP3|320 кб/с]<Blues, Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977698.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Gary Moore - Live From London (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977652.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Robin Trower - Roots And Branches (2013) [MP3|320 кб/с]<Hard Rock, Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977622.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Rhythm Lords - The Early Days: 1988-1992 (2015) [MP3|320 кб/с] <Blues Rock, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975797.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Kniki & Mike Beale - The Kniki + Mike Beale Project (2013) [MP3|320 кб/с] <Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974591.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Muddy Waters - Bottled Up (2016) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974463.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Kari Hongisto Band - Trust My Blues (2015) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973424.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Kim Simmonds - Blues Like Midnight (2001) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968830.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Luxury Soul (2015) Box set [MP3|320 кб/с] <Funk , Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967795.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ Zucchero - Una Rosa Blanca (2013) (2 CD) [MP3|320 кб/с] <Pop, Rock, Folk, Blu
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962154.jpg" />
 </div>
 
 

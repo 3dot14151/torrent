@@ -1,3 +1,56 @@
+###  Публикация: 737003   (222210) от 21.12.2013
+
+Н. Дмитриева | Кот и Туська (1928) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для дошкольного возраста.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2303894FA462CFDD81460511D2789A21B45608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965974   (222182) от 16.12.2015
+
+Книжная серия | Научно-популярная библиотека школьника [12 книг] (1985-1995) [FB2, PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Химический язык насекомых.
+В жизни насекомых чрезвычайно большую роль играют запахи. Общаясь между собой при помощи пахучих молекул-феромонов, шестиногие «рассказывают» об источнике пищи, образуют брачные пары, охраняют свое жилище, метят «владения». О том, как ученые разгадали тайну химического языка насекомых, синтезировали феромоны в лабораториях и разработали (   Читать дальше...   )Жанр: Детская образовательная литератураФормат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A0743A7A3BA87DF0CEC5AD2739ED1CD310B96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 736389   (222180) от 21.12.2013
 
 Михаил Слонимский | Подвиг Андрея Коробицына (1938) [DJVU]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222180.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222179.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222147.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222115.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222079.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222040.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222015.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221985.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221972.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221961.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221955.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221948.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221826.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221814.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221803.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221797.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221753.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221613.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221583.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221571.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221381.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221378.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221369.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221304.jpg" />
 </div>
 
 
@@ -621,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF19B558EE722A1DF369E2DD9EABF83B24DFCE86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585511   (221291) от 22.10.2022
-
-Екатерина Тохтарова | Детская психосоматика. Как помочь детям расти здоровыми (2022) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга раскрывает понимание, как устроена детская психосоматика. Автор показывает взаимосвязь мышления родителей и болезней детей. Большая теоретическая основа знакомит с техниками PSY2.0. Практическая часть дает разнообразие упражнений по работе с конфликтами, которые являются причинами заболеваний. Освоив простые методы, вы сможете влиять на здоровье своих детей, (   Читать дальше...   )Жанр: детская психология, здоровье детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497C078930FC469163835988C869E4E989AF28D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269307   (221229) от 14.12.2018
-
-В.И. Фомин | Авиационные модели: Альбом чертежей (1985) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом является практическим пособием, в котором даны чертежи свободнолетающих, кордовых и радиоуправляемых моделей, построенных ведущими спортсменами СССР - чемпионами Европы и мира. Изложены основные технические требования и условия соревнований, разрядные требования и нормы, вступившие в действие с 1 января 1985 г.
-Для занимающихся авиамодельным спортом.Жанр: Сделай сам, самоделкиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C1F2FE66935876ACB3B8DDDF23034FC4C56B13
 ```
 
 https://mybot314.ru/tekegram_catalog/

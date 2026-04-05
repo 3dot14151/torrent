@@ -1,3 +1,220 @@
+###  Публикация: 1255287   (365393) от 17.10.2018
+
+Windows 7 Pro VL SP1 Lite v.8.18 by naifle (x86-x64) (2018) [Ru]
+
+>>3
+>>22
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Облегчённая сборка объединённых разрядностей сделана на основе оригинальных образов:
+ru_windows_7_professional_with_sp1_vl_build_x86_dvd_623503,
+ru_windows_7_professional_with_sp1_vl_build_x64_dvd_622441,
+с автоматической активацией и полуавтоматической установкой.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530C894609721477DC41A2E19C2BC5B11A213603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327748   (365363) от 29.09.2019
+
+Respawn возрождает Medal of Honor — это полноценный шутер для Oculus Rift
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365363.jpg" />
+</div>
+
+
+###  Подробнее
+
+EA и Respawn анонсировали возрождение Medal of Honor — правда, в виде VR-шутера для Oculus Rift.
+Не стоит сразу относиться к Medal of Honor: Above and Beyond с презрением, поскольку это игра без каких-либо «скидок» на шлем виртуальной реальности.
+Студия работает над полноценной кампанией, прохождение которой займёт 10–12 часов, однако, если изучать каждый уголок (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306854   (365083) от 29.09.2019
+
+Cooking Simulator (2019) [Ru/Multi] (1.8.0.4) License PLAZA
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы – повар, который работает в личном передвижном кафе и путешествует по всему миру на нем. Постепенно к вам заглядывают посетители и желают опробовать вашу еду. Вы должны удовлетворить их требования и приготовить изысканные блюда. Сама же готовка будет проходить все этапы, начиная с приготовления ингредиентов и нарезки, заканчивая тщательным поджариванием и смешиванием. (   Читать дальше...   )Тип издания: LicenseРазработчик: Big Cheese StudioЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CEE1CC9F5590BF17B660B2C944B27CBD0AB682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328108   (365076) от 29.09.2019
+
+GRAPHISOFT ARCHICAD 23 (Build 3003) [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365076.jpg" />
+</div>
+
+
+###  Подробнее
+
+ARCHICAD 23 это следующий шаг в развитии одного из лучших решений для архитектурного проектирования. Улучшения, реализованные в ARCHICAD 23, позволяют повысить производительность с лучшей в своем классе системой проектирования и разработки документации по технологии BIM. Новая версия дает пользователям ряд беспорных преимуществ. Среди них: новый принцип командной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: GRAPHISOFTПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538844B6FCB7E102CBA61497F93B6CF757A9C30A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575714   (364856) от 16.11.2012
+
+AVG Internet Security 2013 / Business Edition 13.0.2793 Build 5877 [Русский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364856.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVG Internet Security 2013
+Высокопроизводительная защита для вашего полного спокойствия при выполнении покупок и банковских операций или просмотре видеозаписей в Интернете.
+
+ AVG Internet Security Business Edition 2013
+Поддерживает серверные ОС и удаленное управление.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576036   (364844) от 16.11.2012
+
+Windows 8 Professional with Media Center x64 USB FLASH v30.007.12 By StartSoft [Русский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка  включает в себя модификацию русской версии Windows 8 Professional with Media Center и представлена для ознакомления. Для активации системы необходимо иметь ключ активации, который можно получить по электронной почте с официального сайта Microsoft. Ссылки указаны в разделе Дополнительная информация. В процессе настройки отключены контроль учетных записей и служба по совместимости программ. Установлена программа Start 8, которая позволяет иметь на рабочем столе меню Пуск операционной системы Windows 7, с выбором в настройках этой программы вида кнопки этого меню. Программа настроена таким образом, что по окончании установки системы сразу происходит загрузка рабочего стола,  так же, по окончании установки  установлен параметр "Автоматическое обновление отключено".  Для удобства в работе в контестное меню папок добавлены пункты Копировать в папку Переместить в папку. В свойства контекстного меню Мой компьютер добавлена возможность быстрого вызова приложений,(Программы и Компоненты, Диспетчер Задач,Администрирование, (   Читать дальше...   )Название программы: Windows 8 Professional with Media Center x64 USB FLASH v30.007.12 By StartSoftЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC985471AA873032B4B9F9428BDF947F9CCA69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574724   (364840) от 16.11.2012
+
+Call of Duty: Black Ops 2 (Русификатор) [Ru] 2012 l Новый Диск
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русификатор текста для игры Call of Duty: Black Ops 2Тип издания: Официальный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC129ABFFE2737A1F08EFCAD6AD875BB52ECA59F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575693   (364835) от 16.11.2012
+
+Петля времени / Looper (2012) [H.264] DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364835.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем, где стали возможны путешествия во времени, некая корпорация убирает нежелательных людей, отправляя их в прошлое в пластиковых пакетах. Задача принимающей стороны — всадить жертве пулю в голову, стерев тем самым несчастного из истории. Все идет гладко до тех пор, пока главный герой не распаковывает очередной пакет, обнаруживая в нем… самого себя из будущего.Жанр: Фантастика, Боевик, ТриллерРежиссер: Райан ДжонсонПродюсер: Рэм Бергман, Джеймс Д. Штерн, Лукас СмитАктеры: Джозеф Гордон-Левитт, Брюс Уиллис, Эмили Блант, Джефф Дэниелс, Ной Сеган, Пирс Гэнон, Пол Дано, Пайпер Перабо, Квинг Ксу, Трейси Томс, Фрэнк Бреннан, Гаррет Диллахант, Николас Шон Гомез, Маркус Хестер, Джон Эйз, Кевин Стиллвелл, Тирл ХастонПеревод: ДублированныйПродолжительность: 01:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E3B57FF107FF4F6181EE958EFA54048DA3D01E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950823   (364819) от 28.10.2015
 
 Эксперт Google недоволен безопасностью Windows 10
@@ -6,7 +223,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_364819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364819.jpg" />
 </div>
 
 
@@ -33,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_364797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364797.jpg" />
 </div>
 
 
@@ -61,7 +278,7 @@ UVLayout Professional 2.09.00 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364727.jpg" />
 </div>
 
 
@@ -87,7 +304,7 @@ Windows 10 PE (x64) v.4.2 by Ratiborus [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364725.jpg" />
 </div>
 
 
@@ -113,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>20
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_364722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364722.jpg" />
 </div>
 
 
@@ -140,7 +357,7 @@ Divinity: Original Sin - Enhanced Edition (2015) [Ru/En] (2.0.98.842) License RE
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364715.jpg" />
 </div>
 
 
@@ -166,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364713.jpg" />
 </div>
 
 
@@ -192,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364712.jpg" />
 </div>
 
 
@@ -218,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364711.jpg" />
 </div>
 
 
@@ -244,7 +461,7 @@ Windows 7 Ultimate SP1 x64 By Vladios13 v.24.10 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364678.jpg" />
 </div>
 
 
@@ -270,7 +487,7 @@ XCOM 2 (2016) [Ru/Multi] (29.08.2017/dlc) License CODEX [Digital Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364677.jpg" />
 </div>
 
 
@@ -296,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364676.jpg" />
 </div>
 
 
@@ -324,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364675.jpg" />
 </div>
 
 
@@ -350,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_364605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364605.jpg" />
 </div>
 
 
@@ -377,7 +594,7 @@ Apple представила четыре iPhone с поддержкой 5G
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_364603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364603.jpg" />
 </div>
 
 
@@ -404,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_364527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364527.jpg" />
 </div>
 
 
@@ -430,7 +647,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.318/dlc) SteamRip =nemos= [Ultimate Editio
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364509.jpg" />
 </div>
 
 
@@ -456,7 +673,7 @@ Death Stranding (2020) [Ru/Multi] (1.02/dlc) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364508.jpg" />
 </div>
 
 
@@ -467,221 +684,6 @@ Death Stranding – один из самых ожидаемых релизов �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:318416536642CB0A1877F65DCFC439400B0C24A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347558   (364506) от 17.10.2020
-
-Три секунды / The Informer (2019) WEB-DL [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три секунды — время полета пули, выпущенной из снайперской винтовки с расстояния 1 500 метров. Именно столько времени остается, чтобы принять решение информатору Федерального Бюро Расследований, оказавшемуся в смертельной ловушке между мафией, полицией и ФБР. На кону — его семья, свобода, жизнь.Производство: Великобритания / thefyzz, Thunder Road Pictures, Imagination Park EntertainmentЖанр: Триллер, криминал, боевикРежиссер: Андреа Ди СтефаноАктеры: Ана де Армас, Розамунд Пайк, Юэль Киннаман, Клайв Оуэн, Коммон, Рут Брэдли, Сэм Спруэлл, Мартин МакКанн, Артуро Кастро, Насир Джама, Дженна УиллисПеревод: Дублированный (Онлайн кинотеатр)Субтитры: АнглийскиеПродолжительность: 01:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C2E7658687FA30E946B7ADBDAD633E09BBD613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849206   (364505) от 17.10.2020
-
-Paint.NET plugins pack 17.10.2020 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка плагинов к Paint.NET .
-Paint.NET — бесплатный растровый графический редактор рисунков и фотографий для Windows.Paint.NET является отличной заменой редактору графических изображений, входящему в состав стандартных программ операционных систем Windows. Эффекты и плагины значительно расширяют возможности Paint.NET . Некоторые плагины имеют русский интерфейс.Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851818F998A9190ACAAF27706C4A35D97997FCA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836232   (363549) от 31.10.2014
-
-NBA 2K15 [PS3] [USA] [En] [4.60] [Cobra ODE / E3 ODE PRO ISO] (2014)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363549.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2013 году симулятор баскетболаТип издания: ЛицензияРазработчик: Visual ConceptsЖанр: Sport (Basketball) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7AC5A6D9F23FC80789B01430C56517B7EE459E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 154379   (363492) от 22.11.2009
-
-King's Bounty: Armored Princess / King's Bounty: Принцесса в доспехах [Ru] (RePack) 2009 | a1chem1st
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_363492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая приключенческая ролевая игра — долгожданное продолжение саги «King's Bounty. Легенда о рыцаре». В роли принцессы Амели игрок отправится в мир Теаны, где героине предстоит отыскать прославленного рыцаря и своего наставника Билла Гилберта.
-
-Новый мир полон неведомых опасностей: на пути принцессы станут армии ужасных монстров, огромные чудовища-боссы и раса кровожадных (   Читать дальше...   )Тип издания: LРазработчик: Katauri InteractiveЖанр: Add-on (Standalone) / RPG / Strategy (Turn-based) / 3rd PersonЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 146908   (363490) от 22.11.2009
-
-Pink Floyd - Дискография (1967-2005) [MP3|320kb/s]<Rock>
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_363490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 18:33
-1. Pink Floyd - Breathe (4:31)
-2. Pink Floyd - Money (6:40)
-3. Pink Floyd - Wish You Were Here (4:33)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255233   (363452) от 18.10.2018
-
-Председатель Комитета Госдумы по культуре Елена Ямпольская призвала "топить" интернет-пиратов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_363452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Е. Ямпольская сравнила пиратство в сети с морским и призвала «топить интернет-корабли»
-Председатель комитета Госдумы по культуре Елена Ямпольская («Единая Россия») сравнила интернет-пиратство с морским и призвала «топить корабли» на просторах интернета. Об этом она заявила в ходе проводимого в нижней палате парламента круглого стола «Совершенствование законодательных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571536   (363288) от 15.09.2022
-
-VPN Russia - VPN сервера в России v1.133 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и бесплатный Vpn Russia позволяет в один клик получить российский IP или разблокировать доступ к закрытым сайтам и приложениям. Безопасное и анонимное подключение к открытым WIFI сетям обеспечивает технология подключения VPN с ключом 2048 бит.Тип издания: ProРелиз состоялся: 10 сент. 2022 г.Разработчик: AltAppsПоддерживаемая ОС: Android 4.4 и вышеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5854E3D0D60C73446FAE72BC88D6E99BB485AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576562   (363280) от 15.09.2022
-
-HDD в шаге от окончательной гибели. Подтверждена их  ненадежность
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_363280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксперты облачного сервиса Backblaze в течение пяти лет сравнивали надежность HDD и SSD. Первые держались очень хорошо в первые четыре года, затем сдались. SSD оказались в три раза более надежными «на дальней дистанции». Это еще один удар по репутации HDD, которые давно уже не интересуют потребителей – их продажи во II квартале 2022 г. обвалились на 15%. Осталось (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

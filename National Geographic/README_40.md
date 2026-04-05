@@ -6,7 +6,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31558.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30144.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29966.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Неизвестный Китай / Lost In China (2009) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27570.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19076.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Известная Вселенная. Есть там Кто-Нибудь? 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16636.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NG: Первозданная природа. Эдем жизни / The Living Ed
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16449.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14525.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14372.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NG: Королевы / Queens (2024) WEBRip [H.264/1080p] (сезон 1, сер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14315.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ NG. Игры разума / Brain Games (2011-2016) IPTVRip [H.264] (сезон�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13943.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ NG: Аутсайдеры / Underdogs (2025) WEBRip [H.264/1080p] (сезон 1, 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13925.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12988.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ NG: Дэвид Аттенборо: Океан / Океан с Дэвидом А�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12867.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ NG: В поисках Атлантиды / Finding Atlantis (2011) WEB-DL [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9132.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9106.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6138.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ NG. Лицом к лицу с акулами с Берти Грегори / Shar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6105.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ NG: День дракона / Day of the Dragon (2024) HDTVRip [H.264] [VO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3727.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ NG. Секунды до катастрофы: 11 сентября / Seconds From
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3425.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ NG: Выживание в северных лесах / Northwoods Survival (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_342.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ NGW: Неудачи хищников / Predator Fails (2015) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664796.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Мир природы. Птицы рая / BBC: Natural World -  Birds of t
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664785.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Планета птиц / Planet of the Birds (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664781.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Animal Planet. Кошек не любить нельзя [6 серий из 6] /
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664586.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Horizon. Проект "Гринглоу". В поисках контрол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664064.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC. Тайная жизнь птиц / BBC. Secret Life of Birds (2010) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663761.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Скрытый мир Амазонки / Amazon Underworld (2016) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660905.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC: Материалы и факты. Металлы / The Secret World of Mate
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660207.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC: Первобытные поселенцы Америки / Traking the Firs
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660110.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Секретные материалы древности. Великий п�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659972.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Discovery. Апокалипсис 2012: Откровения / Maya 2012 Prophec
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658922.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery. Как устроена Вселенная. Есть ли жизнь 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658590.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658510.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Viasat Nature: BBC: Экспедиция в Новую Гвинею / Expedition
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657915.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Discovery: Монстры механики. Разрушители и круши
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657844.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657770.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Discovery: Монстры механики. Искусственные монс�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657719.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ DV: История письменности / Die Geschichte der Schrift (2011) 
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657617.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NG: Происхождение: Путешествие человечества 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657529.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656592.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ BBC. Как построить ядерную электростанцию / How
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656036.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655870.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655375.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Discovery: Аляска. Семья из леса / Alaskan Bush People (2014) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655108.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NG. Известная Вселенная / Known Universe (2009) BDRemux [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654704.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654508.jpg" />
 </div>
 
 

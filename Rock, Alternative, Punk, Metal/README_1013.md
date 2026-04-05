@@ -1,3 +1,32 @@
+###  Публикация: 1593799   (179414) от 29.11.2022
+
+Josh Read - God Fodder (A-B-Sides) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Eclectic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flail [00:10:10]
+02. The Grand Celestia, Act II [00:07:12]
+03. Peter [00:02:24]
+04. Stut Ter [00:05:14](   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 2 CD, 01:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6859AE323F3E9194A810F17C2D67FBB926B6348F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593794   (179410) от 29.11.2022
 
 Furio Chirico's The Trip - Equinox (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -6,7 +35,7 @@ Furio Chirico's The Trip - Equinox (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179410.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Czyszy - Scent Emmental (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179401.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Attick Demons - Daytime Stories... Nightmare Tales (2020) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179392.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Blank Manuskript - Himmelfahrt (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179390.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179382.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Palace - Rock And Roll Radio (2020) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179358.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Gran Torino - The Delphic Prophecy (2020) [MP3|320 Kbps] <Progressive Rock, Inst
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179341.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Angra - OMNI Live (2021) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179335.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Kalandra - The Line (2020) [FLAC|Lossless|image + .cue] <Folk-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179288.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Johnny Hallyday - Souvenirs souvenirs (1988) [FLAC|Lossless|image + .cue] <Pop-R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179287.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Magic Dance - Remnants (2020) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179285.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Sainted Sinners - Unlocked & Reloaded (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179282.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179281.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Foreign - The Symphony Of The Wandering Jew Part II (2020) [MP3|320 Kbps] <Progr
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179272.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Blackfield - For The Music (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179264.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ David Bowie - Divine Symmetry (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179247.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Kiss - Creatures Of The Night (1982) 5xCD, 40th Anniversary, Super Deluxe, 2022,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179241.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Majestica - A Christmas Carol (2020) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179206.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Metallica - Lux Æterna (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179118.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Hollywood Undead - New Empire, Vol. 2 (2020) [MP3|320 Kbps] <Alternative, Rapcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179115.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ I Compagni di Baal - I Compagni di Baal (2012) [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179093.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Mob Rules - Hollowed Be Thy Name (2002) [FLAC|Lossless|image + .cue] <Melodic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179090.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179088.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Mob Rules - Ethnolution A.D. (2006) [FLAC|Lossless|image + .cue] <Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179087.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Mob Rules - Among The Gods (2004) [FLAC|Lossless|image + .cue] <Melodic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179080.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Mob Rules - Among The Gods (2004) [FLAC|Lossless|image + .cue] <Melodic Power Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:668B4C3A6CF01B5F0327C40A9A8B3E42EC8CFE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666546   (179073) от 05.10.2023
-
-Hanged Ghost - Knowledge of the Occult (2011) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvarium
-02. The Wood & the Stone
-03. Abhorrence as a Necessary Vision of a Cruel Analysis of Those Who Live Hidden in the Radiance of Treachery
-04. ...Жанр: Doom, Death MetalПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8F2D336A4974FFE704928E2B756C0BFA445B89
 ```
 
 https://mybot314.ru/tekegram_catalog/

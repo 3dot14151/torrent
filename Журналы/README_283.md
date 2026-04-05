@@ -1,3 +1,135 @@
+###  Публикация: 1234364   (572482) от 04.07.2018
+
+Журнал | Наука и жизнь №7 (июль 2018) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572482.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Наука и жизнь" - ежемесячный научно-популярный иллюстрированный журнал широкого профиля. Издание ориентировано на массового читателя. Освещает важнейшие проблемы науки и техники, публикует научно-художественные и научно-фантастические произведения, занимательные задачи, игры.
+
+Главная цель журнала: популяризация научных знаний.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A88E8F22DA99B258ABA855B4B141B9189F13483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043386   (572363) от 16.08.2016
+
+Журнал | Windows IT Pro/RE №8 (август 2016) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное издание на русском языке, целиком и полностью посвященное вопросам работы с продуктами семейства Windows и технологиям компании Microsoft. Каждый номер журнала начинается со статей, посвященных одной из самых перспективных на данный момент технологий, оказывающих серьезное влияние на ИТ-отрасль и вызывающих интерес сообщества профессионалов Windows. (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5A52D385207376B43C492954EBB81272D71EB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555175   (572227) от 02.06.2022
+
+Журнал | Загадки истории №20 (2022) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярное, История, ЖурналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95347CA4EDF7EC80DC53169A6D8C4F9536BD299D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043403   (572193) от 16.08.2016
+
+Журнал | Linux Format №7 (211) (июль 2016) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Format - первый в России ежемесячный журнал на русском языке, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью.Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F9B626BBF68C99F7B7E503FDF1FF7A542264B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 689241   (572032) от 14.08.2013
+
+Журнал | Дом в саду №7 [июль 2013] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572032.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дом в саду» - ежемесячный журнал для всех, кому интересно садоводство, огородничество, строительство и ландшафтные работы. Основная часть журнала — письма читателей, в которых они делятся своим опытом.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD6449D59CC3A35C63F5C61968C750A6F8AD946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 689243   (571858) от 14.08.2013
 
 Газета | Сад, огород - кормилец и лекарь. Спецвыпуск №14 (62) (2013) [PDF]
@@ -6,7 +138,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571858.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571770.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571761.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571755.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571733.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571155.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571026.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571021.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570894.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570882.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570821.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570806.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570662.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570653.jpg" />
 </div>
 
 
@@ -370,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570648.jpg" />
 </div>
 
 
@@ -396,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570611.jpg" />
 </div>
 
 
@@ -422,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570248.jpg" />
 </div>
 
 
@@ -448,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570089.jpg" />
 </div>
 
 
@@ -474,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570025.jpg" />
 </div>
 
 
@@ -500,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569938.jpg" />
 </div>
 
 
@@ -526,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569934.jpg" />
 </div>
 
 
@@ -537,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C494034E87C47C50D2CD15D507CBCC0129F9C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922585   (569932) от 28.07.2015
-
-Журнал | Калашников №7 (июль 2015) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал является официальным печатным изданием Федерации практической стрельбы России и Союза российских оружейников. Журнал предоставляет достоверную информацию о боевом, специальном, служебном, охотничьем, пневматическом, газовом и холодном оружии, исторические материалы, тренинги. Новости с оружейных выставок, байки охотников, холодное оружие и многое другое.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFD5352E0A239F19C8BBE21C83C2A84E4CF7809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922345   (569929) от 28.07.2015
-
-Журнал | Изысканная выпечка №89 (2015) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря новому красочному изданию Вы узнаете о тонкостях кулинарных рецептов, технологиях приготовления и секретах использования инструментов для выпечки, о которых вы даже не догадывались. Научитесь готовить праздничные торты — от именинного с кремом и немецкого пасхального кекса до тортов «Захер», «Сент-Оноре» — и многое другое. В каждом номере - классические (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0DC57DFF870E7A6ADFA66A1A5EC95999DB0421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555313   (569913) от 03.06.2022
-
-Коллекция календарей | Playboy [USA и др.] (2022) [PDF, JPG] [En/De]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция календарей на 2022 год от эротических мужских журналов.Жанр: Мужской журналФормат: PDF, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2713328C8140CFCD195993BB1D684944DB214845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922588   (569880) от 28.07.2015
-
-Журнал | Калашников №8 (август 2015) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал является официальным печатным изданием Федерации практической стрельбы России и Союза российских оружейников. Журнал предоставляет достоверную информацию о боевом, специальном, служебном, охотничьем, пневматическом, газовом и холодном оружии, исторические материалы, тренинги. Новости с оружейных выставок, байки охотников, холодное оружие и многое другое.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8589D860BD6AE09E46E2FBD909301D363436B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922116   (569870) от 28.07.2015
-
-Журнал | Химия и жизнь №7 (2015) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569870.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Химия и жизнь» – это не обычный научно-популярный журнал, а произведение искусства, которое заключает в себе сущность современного знания о нашем мире. Журнал в значительной мере ориентирован на преподавателей и школьников. В журнале опубликованы статьи по проблемам образования и материалы, которые могут быть использованы как дополнительные к школьному курсу.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66FB81AFF3843551B41CF400401065C1EA33208B
 ```
 
 https://mybot314.ru/tekegram_catalog/

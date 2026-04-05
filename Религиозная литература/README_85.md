@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296976.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296966.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296744.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295930.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294944.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293741.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293649.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293643.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293634.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293628.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292321.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291734.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291158.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290342.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289919.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288365.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285948.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284285.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282597.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282529.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282528.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282526.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282374.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281253.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280758.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280443.jpg" />
 </div>
 
 

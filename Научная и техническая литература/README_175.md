@@ -1,134 +1,3 @@
-###  Публикация: 1210620   (778726) от 03.03.2018
-
-М. Н. Лядов | Как начала складываться Российская Коммунистическая Партия [большевиков] (1926) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историко-партийная работа М. Н. Лядова представляет большую ценность. Она написана с большевистских позиций, построена на базе широкого круга исторических источников - произведений В. И. Ленина, материалов большевистской печати, документов партийных организаций и др. Лядов хорошо знал жизнь партии, участвовал в работе многих партийных съездов, по заданию большевистских (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507F0BC25F3E3A9300C2B208F34D4452B7FBE71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210276   (778724) от 03.03.2018
-
-Г. И. Антонов и др. | Международная торговля (1954) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллектив авторов, подготовивших к изданию работу «Международная торговля», ставил перед собой задачу дать книгу, которая могла бы служить пособием по внешней торговле капиталистических стран для работников внешней торговли, преподавателей и учащихся высших учебных заведений, изучающих вопросы международных экономических и политических отношений, торговой политики, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56B03E22971CF1544ACD0132098917820AE37D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209663   (778714) от 03.03.2018
-
-М. Н. Покровский | Избранные произведения [4 тома] (1965-1967) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Николаевич Покровский (1868-1932) - крупнейший русский историк-марксист, советский политический деятель. Лидер советских историков в 1920-е годы, "глава марксистской исторической школы в СССР". Предлагаемые читателю избранные произведения Покровского имеют целью дать представление об основных работах видного советского историка, показать его действительное (   Читать дальше...   )Жанр: История, политология, экономика, культурология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA384FD46AB2957CA95E2978278A25A439B80705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210638   (778703) от 03.03.2018
-
-И.Н. Ищук (ред.) | Теоретические и физические основы радиолокации и специального мониторинга (2016) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник состоит из двух разделов.
-В первом разделе рассмотрены общие понятия, принципы и физические основы радиолокации, сигналы и помехи в радиолокации, характеристики радиолокационных целей; изложена статистическая теория обнаружения радиолокационных сигналов; представлены методы реализации радиолокационных устройств и систем, основы статистической теории разрешения (   Читать дальше...   )Жанр: РадиолокацияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE928DBCAA3B0CB0289B636D61D9A447A215F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209709   (778700) от 03.03.2018
-
-Н.П. Вишняков, Ф.И. Архипов | Устройство вооруженных сил СССР [Два издания] (1924,1927) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий труд имеет целью изложить основные данные той отрасли военных знаний, которая изучает армию, как один из элементов войны, устройство войск, управление ими, их хозяйство и т.п., т.е. организацию или устройство вооруженных сил в широком смысле этого понятия, в применении к Красной армии.Жанр: История Отечества, военная историяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF0D7DAEEC07B2F3A41C4328E93B7AF93E70165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210255   (778693) от 03.03.2018
 
 Ю.П. Солнцев и др. | Нанотехнологии и специальные материалы (2017) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778693.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778690.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778658.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778647.jpg" />
 </div>
 
 
@@ -241,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778641.jpg" />
 </div>
 
 
@@ -267,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778636.jpg" />
 </div>
 
 
@@ -293,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778633.jpg" />
 </div>
 
 
@@ -319,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778622.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778614.jpg" />
 </div>
 
 
@@ -376,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778382.jpg" />
 </div>
 
 
@@ -402,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778342.jpg" />
 </div>
 
 
@@ -430,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778334.jpg" />
 </div>
 
 
@@ -456,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778329.jpg" />
 </div>
 
 
@@ -483,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778316.jpg" />
 </div>
 
 
@@ -509,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778312.jpg" />
 </div>
 
 
@@ -535,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778304.jpg" />
 </div>
 
 
@@ -561,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778302.jpg" />
 </div>
 
 
@@ -588,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778254.jpg" />
 </div>
 
 
@@ -614,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778203.jpg" />
 </div>
 
 
@@ -643,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778202.jpg" />
 </div>
 
 
@@ -671,7 +540,7 @@ Samsung | Сервис-мануалы к технике Samsung (1998-2005) [PDF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778143.jpg" />
 </div>
 
 
@@ -682,6 +551,140 @@ Samsung | Сервис-мануалы к технике Samsung (1998-2005) [PDF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACEE79496F5DB5906E6C970C6ACAD40A3788EAB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012553   (778137) от 02.05.2016
+
+Asus | Сервис-мануалы к технике Asus (1989-2015) [PDF] [En]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлено большое количество сервис-мануалов на технику корпорации Asus, произведенную в 1989 - 2015 годах, по направлениям: ноутбуки - 53 модели, материнские платы - 11 моделей, нетбуки - 2 модели.Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA3151807D531ED9A9CF01C4B912530BD446FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210748   (778095) от 05.03.2018
+
+Ю.А. Бычков и др. (ред.) | Справочник по основам теоретической электротехники (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержание справочника соответствует программе курсов «Теоретические основы электротехники» и «Теория электрических цепей».
+Пособие содержит тематический указатель, алфавитный каталог-словарь основных понятий, законов и терминов теоретической электротехники, а также каталог типовых расчетов и ответов на основные контрольные вопросы при изучении теории электрических (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2AB399EAF2D4CF9DF482AAFCB97203A9A169F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210761   (778088) от 05.03.2018
+
+И.Г. Карапетян (ред.) | Основное оборудование электрических сетей: справочник (2014) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приводятся параметры воздушных и кабельных линий электропередачи, генераторов, трансформаторов, выключателей, источников реактивной мощности и другого электрооборудования, необходимые для проектирования и эксплуатации электрических сетей.
+В справочнике учтены все современные тенденции развития основного оборудования электрических сетей. В частности, справочник включает (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E1A68D8949A77BF55B5EC4E88D0CF1FB018311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210735   (778087) от 05.03.2018
+
+В.И. Голованов (ред.) | Справочник слесаря-монтажника технологического оборудования (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены основы строительно-монтажного производства, система обеспечения безопасности при выполнении монтажных работ. Даны основы и практические рекомендации по эффективной деятельности монтажных предприятий и организаций в современных рыночных отношениях. Главное внимание обращено на вопросы технологической подготовки производства, методы осуществления основных (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA1CF755E88293E926F57FD0DBB369081DCD775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013341   (777952) от 03.05.2016
+
+Федор Синицын | Разделяй и властвуй. Нацистская оккупационная политика (2015) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая Отечественная война 1941—1945 гг. является одной из самых трагических страниц истории нашей страны. Особую важность в этот период имел национальный фактор — ввиду того что политика гитлеровской Германии базировалась на национальной (расовой) основе.
+
+В книге на основе архивных документов проводится сравнение национальной политики СССР и политики гитлеровской (   Читать дальше...   )Жанр: Военная историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635456FADDE07551A2709D38E0ECC23F73BDD1BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

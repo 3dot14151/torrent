@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061885.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061878.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061825.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061824.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061311.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061310.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061309.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061308.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061307.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061306.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056844.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056410.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054570.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054428.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054311.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054132.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053369.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053368.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053141.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053132.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053129.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053128.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053127.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053125.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053123.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053119.jpg" />
 </div>
 
 

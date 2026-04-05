@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032172.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029331.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Uriah Heep - Live at Wacken Open Air 2019 (2021) WEBRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028835.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028702.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028152.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027530.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Accept - Герои мирового рока в честь 25-летия АО �
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027509.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Power Tale - Огненный Бог Марранов (2021) WEB-DL [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026556.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026404.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025420.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025302.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Within Temptation - Videos and Live - Essentials (Compilation) (2021) Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024853.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023582.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022365.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021579.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020483.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019266.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018532.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018346.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015771.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Eagles: Live from the Forum MMXVIII (2020) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015718.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Nightwish: Decades - Live in Buenos Aires (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015714.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014812.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014521.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ New Order – Education Entertainment Recreation (2021) BDRemux [H.264/1080i] [E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014487.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Motley Crue: The End – Live in Los Angeles (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014112.jpg" />
 </div>
 
 

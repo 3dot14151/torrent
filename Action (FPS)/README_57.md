@@ -1,3 +1,55 @@
+###  Публикация: 1811161   (8501) от 11.08.2025
+
+Heretic + Hexen (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем самое полное переиздание двух мрачных магических шутеров, заложивших основы жанра. Heretic и Hexen, созданные студией Raven Software на модифицированном движке DOOM, вышли в 1994 и 1995 годах и открыли для игроков новые грани шутеров с видом от первого лица. В этих ставших культовыми играх впервые появились рюкзак с вещами, вертикальное прицеливание (   Читать дальше...   )Тип издания: RepackРазработчик: Raven Software, Nightdive Studios, id SoftwareЖанр: ЭкшеныЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E9263A646BD99B7E58603562E2762528BDD621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811938   (8346) от 12.08.2025
+
+Deadzone: Rogue (2025) [Ru/Multi] (1.0 Build 19557379) Repack seleZen
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deadzone: Rogue - это roguelite-шутер от первого лица, действие которого разворачивается в космосе. Прорывайтесь сквозь орды враждебных машин, комбинируйте мощные улучшения и элементы, чтобы создать свой билд, и становитесь сильнее с каждым забегом - в одиночку или в кооперативе. Вы просыпаетесь на борту ISS-X, не помня, кто вы. Там легион бродячих машин, и они быстро (   Читать дальше...   )Тип издания: RepackРазработчик: Prophecy GamesЖанр: ЭкшеныЯзык озвучки: Английский, Японский, Китайский (традиционный, упрощенный)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B4A9398DBA6D9430416F5985D3B79B979C309EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763724   (8333) от 12.08.2025
 
 RAID: World War II (2017) [Ru/Multi] (25.02/dlc) Repack Let'sРlay [Special Edition]
@@ -6,7 +58,7 @@ RAID: World War II (2017) [Ru/Multi] (25.02/dlc) Repack Let'sРlay [Special Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8333.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0 Build 19557379) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8294.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8176.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Call of Duty: Modern Warfare II (2) (2022) [Ru/Multi] (9.7/9.40) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8173.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8156.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Abyssus (2025) [Ru/Multi] (1.0.1.50519/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7943.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4.23098619) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7827.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Project Downfall (2022) [Ru/Multi] (1.0.6.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7826.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Impaler Gold (2022) [Ru/Multi] (1.1.653) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7799.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7784.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4) Repack Decepticon [Campaig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7778.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Wizordum (2023) [En] (1.0.09.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7608.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2 Update 1 Build 2708229) Repac
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7567.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Call of Duty Modern Warfare III (2023) [Ru/Multi] (10.4/10.24) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7375.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0.0.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7362.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (HotFix 3/dlc) Licen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7162.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Blood West (2023) [Ru/Multi] (4.5.1 rc1/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7158.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.83) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6962.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6726.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.0) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6704.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/En] (6.5.0.1331/dlc) Let'sРlay Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6702.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Beyond Citadel (2025) [En] (0.99b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6485.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (build 19692871) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6332.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Wanterlude [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6164.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Ghostrunner - эта жестокая игра-слэшер от первого 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75D5E164D081261617B823F5C6B69E79E0C58826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814431   (6046) от 25.08.2025
-
-Dying Light (2016) [Ru/En] (1.53.0/dlc) Repack Wanterlude [Definitive Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улучшенное издание. Выживание в стиле паркур и зомби-апокалипсис - на качественно новом уровне. Оцените новейшую систему «Легенда», улучшенную графику и оптимизированный игровой процесс. В пакет входит весь существующий дополнительный контент: Be the Zombie, Cuisine & Cargo, Ultimate Survivor Bundle, The Bozak Horde - и не только. Откройте для себя огромный и (   Читать дальше...   )Тип издания: RepackРазработчик: TechlandЖанр: 3D, Action, FPS, HorrorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE59D47BB02192274EA762EC3B4CAC6B6850D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814534   (6037) от 25.08.2025
-
-Blood Storm: Alien Purge (2025) [Ru/Multi] (0.5) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6037.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента начала Холодной войны Федеральное бюро аномалий (FBA) действует как одно из самых засекреченных агентств правительства США. Его задача - расследовать, изолировать и устранять аномальные явления по всей стране: от появления внеземных существ и пространственных разломов до психических инфекций и пробуждения древних артефактов. Операции FBA быстрые, бесшумные (   Читать дальше...   )Тип издания: RepackРазработчик: Nicholas GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01AEDA88302384F2B03574EBEC5A5EEC00F2BDD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

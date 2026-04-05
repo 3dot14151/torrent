@@ -1,3 +1,30 @@
+###  Публикация: 1531808   (718341) от 17.02.2022
+
+Sapphire FX | Houdini Ship Destruction (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718341.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном тренинге мы будем рассматривать процесс создания одной сцены, но с большим количеством разнообразных эффектов, включая разрушение, взрывы, симуляцию вторичных элементов и жидкости.
+Тренинг рассчитан на людей, имеющих базовые понятия работы в Houdini. На протяжении 6 недель, мы будем подробно разбирать все типы симуляций — частичек, волюметриков в Pyro, RBD (   Читать дальше...   )Производство: Sapphire FXЖанр: СимуляцияЯзык озвучки: АнглийскийПродолжительность: 19:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684C88AF569A2B1D4BD11F58A0C756F57A57055C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531807   (718286) от 17.02.2022
 
 VFX Grace | Volcanic Eruption | Pyro FX (2021) PCRec [EN]
@@ -6,7 +33,7 @@ VFX Grace | Volcanic Eruption | Pyro FX (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718286.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718269.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718189.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718177.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718134.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718127.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718012.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718008.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717869.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716676.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716236.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716179.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ PythonYoga, Leo Trieu | Build Your Own UberEats system with Python/Django and Sw
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716178.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ Softwaretesting, Арсений Батыров, Виталий Котов | SQL:
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716176.jpg" />
 </div>
 
 
@@ -382,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716076.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715303.jpg" />
 </div>
 
 
@@ -439,7 +466,7 @@ Highlights School | Основы фотографии (2016) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715143.jpg" />
 </div>
 
 
@@ -466,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714955.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ Allan McKay | FX Technical Director Transformation Module 11 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714887.jpg" />
 </div>
 
 
@@ -520,7 +547,7 @@ Allan McKay | FX Technical Director Transformation Module 12 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714882.jpg" />
 </div>
 
 
@@ -548,7 +575,7 @@ OTUS | Deep Learning Engineer (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714557.jpg" />
 </div>
 
 
@@ -574,7 +601,7 @@ Udemy, Coding Minutes, Prateek Narang | Data Structures & Algorithms Essentials 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714411.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ Udemy, John Smilga | React Tutorial and Projects Course  (2021) WEB-DL [EN / EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714396.jpg" />
 </div>
 
 
@@ -626,7 +653,7 @@ OTUS | Руководитель разработки (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712623.jpg" />
 </div>
 
 
@@ -652,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712604.jpg" />
 </div>
 
 
@@ -663,32 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ADE69397035C12DD23BB01B20B0778B75187100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286271   (712600) от 02.03.2019
-
-Алексей Кондратьев | Курс эффективной визуализации экстерьера в Coronapic (2018) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс нацелен на максимально эффективную работу. Мы не собираемся копировать картинки из журналов, как это делают на других курсах. Мы будем работать только с реальными проектами.Производство: Ravelin SchoolЖанр: Обучающее видеоПродолжительность: 12:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D587D97E12E902A4E570956E12A3A9A054197C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

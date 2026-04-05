@@ -1,3 +1,81 @@
+###  Публикация: 1632160   (196565) от 24.06.2023
+
+Unwording (2023) [En] (1.02) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unwording - это не просто набор головоломок, а настоящее приключение, в котором вы поможете Тому преодолеть свои негативные мысли и стереотипы. Погрузитесь в мир Тома и начните разгадывать словесные головоломки, исследовать окрестности и помочь ему испытать душевное облегчение. Том живет в мире, где все вокруг напоминает о его недостатках, и каждый объект превращается (   Читать дальше...   )Тип издания: LicenseРазработчик: Frostwood InteractiveЖанр: Симулятор, Приключение, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669D81347DD9BCA8325B29D25E01CF31206C44C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642469   (196453) от 27.06.2023
+
+Before Your Eyes (2021) [Multi] (1.2.6.9) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196453.jpg" />
+</div>
+
+
+###  Подробнее
+
+События игры начинают происходить в тот самый момент, когда главный герой умирает. После этого он сразу же очутился на корабле, что принадлежит мистическому паромщику. Он должен переправлять души, но сначала выяснять, что скрывают люди и как они вообще прожили свою жизнь. Для этого он погружает всех умерших в их воспоминания и заставляет заново пройти по самым важным (   Читать дальше...   )Тип издания: LicenseРазработчик: GoodbyeWorld GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E1AB3067EFBDC83436CB072C4D973590033564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643290   (196353) от 01.07.2023
+
+Livestream: Escape from Hotel Izanami (2023) [Multi] (1.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Livestream: Escape from Hotel Izanami – смесь хоррора и приключения, игра, в которой вы отправитесь в необычный заброшенный курортный отель с приведениями, в котором на самом деле приведения, это еще далеко не самое жуткое, что можно увидеть. Три девушки стримерши решили ради славы и просмотров отправиться на просторы огромного заброшенного курортного отеля, который (   Читать дальше...   )Тип издания: LicenseРазработчик: qureate, Orgesta Inc.Жанр: Экшены, Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный, традиционный), Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E2F477E0B03894E09004ADF481FEDCD59C2E743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643530   (196310) от 02.07.2023
 
 Drake Hollow (2020) [Ru/Multi] (1.3) License GOG
@@ -6,7 +84,7 @@ Drake Hollow (2020) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196310.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Sludge Life 2 (2023) [Ru/Multi] (230630) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196286.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196276.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Shore (2021) [Ru/Multi] (19.02.2022) Scene CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196026.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ To Hell With The Ugly (2023) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195974.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Stay Out of the House (2022) [Ru/Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195961.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195684.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195622.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Dark Pictures Anthology: Man of Medan (2019) [Ru/Multi] (Build 10739751/dlc)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195589.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Kena: Bridge of Spirits / Кена: Мост духов (2021) [Ru/Multi] (2.08)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195563.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ OXENFREE II: Lost Signals (2023) [Multi] (1.2.14) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195532.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Life is Strange Remastered Collection (2022) [Ru/Multi] (11330282/11258280) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195473.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Please, Forgive Me (2023) [Ru/En] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195387.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195366.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Unholy (2023) [Ru/Multi] (30649) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195289.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Frozen Garden (2023) [En] (Build 11771483) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195036.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719_1750_15
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195006.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Welcome to Kowloon (2023) [Ru/Multi] (Build 11855091) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194801.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (Build 11792639) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194786.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194644.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194640.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Scrap (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194613.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (0.169) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194576.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Lunacy: Saint Rhodes — хоррор на выживание от первог�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC2A6AFB6A605C124F8AD2619F249E32AAC8A063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653212   (194314) от 15.08.2023
-
-Nightmare Manor (2023) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Nightmare Manor - ужасающую хоррор игру, которая отправит вас в старое поместье, пропитанное мрачной историей. В этой игре вы ощутите на себе холодное дыхание прошлого, оказавшись в месте, где живут зловещие сущности. Вы совершенно одни в страшном и неизвестном вам поместье. Или не одни? В любом случае вам придётся исследовать это место. Надеюсь (   Читать дальше...   )Тип издания: SceneРазработчик: Twisted Shell GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5E2041FFA6DBB6AB99B651833EEC15EEA396B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653023   (194292) от 14.08.2023
-
-Greyhill Incident (2023) [Ru/Multi] (1.0.6) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Greyhill Incident – проект, разработанный в жанре хоррора на выживание, который порадует держащей в напряжении атмосферой и незаурядной сюжетной линией. События отправляют нас на просторы мира двадцатого века, когда учёные всячески исключали существование НЛО, но жителям небольшого городка пришлось испытать на себе влияние инопланетных обитателей.Тип издания: SceneРазработчик: Refugium GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D80D2C5FDEE8DD0A012643B190515F5E827078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653080   (194289) от 14.08.2023
-
-Cat's Request (2023) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастическая детективная история про инопланетного кота Эша и его виртуальную помощницу, которые живут в мегаполисе, управляемом искусственным интеллектом. Однажды их спокойную жизнь нарушает внезапное появление компьютерного вируса, который ставит под угрозу все живые программы. Эш берёт на себя роль детектива, чтобы раскрыть тайну этого вируса. Вы можете переключаться (   Читать дальше...   )Тип издания: SceneРазработчик: BOVЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A9088A66AAB55F313DAD8B5725F76635993143
 ```
 
 https://mybot314.ru/tekegram_catalog/

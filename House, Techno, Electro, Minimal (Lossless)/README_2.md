@@ -1,3 +1,32 @@
+###  Публикация: 1439696   (1039609) от 14.01.2021
+
+Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) Compilation, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shingo Nakamura & Kazusa - Move On (Original Mix) (8:43)
+02. Shingo Nakamura & Stendahl - Tribute (Original Mix) (7:37)
+03. Shingo Nakamura & RNX - Oregon (Shingo Nakamura Mix) (6:26)
+04. Shingo Nakamura - Thousands Of Sounds (Original Mix) (8:39)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEA5DB01AA2D15274253C31B5D872F0BD45B337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439699   (1039564) от 14.01.2021
 
 Shingo Nakamura - Silk Digital Pres. Shingo Nakamura 01 (2014) Compilation, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
@@ -6,7 +35,7 @@ Shingo Nakamura - Silk Digital Pres. Shingo Nakamura 01 (2014) Compilation, DJ M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039564.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - The Sound of 2023 Mix 2: Seoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039087.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Defected Presents House Masters - Mr. V (2022)[FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038867.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ VA - The Sound of 2023 Mix 1: Hong Kong (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038862.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ VA - Balearic Headspace Volume 1-5 (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038848.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ VA - Soft, Deep & Dark #1-5 (2017-2020) Seven Villas Music [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038511.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ VA - Alpha 9 Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037994.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ VA - The Sound Of Christmas Gifts (2020) MixCult Records [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037513.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ VA - Genix Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037179.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036947.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ ZHU, Tame Impala - My Life (Remixes) (2018) [FLAC|Lossless|WEB-DL|tracks] <House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036618.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ Bob Moses, ZHU - Desire (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036609.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ VA - Kirill Matveev pres. 25 MixCult Dancefloor Booms (2020) MixCult Records [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036348.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ Late Night Alumni - The B-Sides (2012) Compilation [FLAC|Lossless|tracks + .cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036094.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ VA - MixCult Selected: Lola Palmer (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035722.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ VA - The Best of Vocal Deep House Music Mix 2021 [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035705.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ SNTS - Discography 17 Releases (2012-2020) [FLAC|Lossless|tracks] <Techno, Indus
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035659.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ VA - Fitness Mix 2021 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035470.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ Martin Gore (from Depeche Mode) - The Third Chimpanzee E.P. (2021) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035148.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ VA - Steyoyoke Perception, Vol. 1-8 (2017-2021) Steyoyoke Recordings [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035106.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Wolfgang Flur - Magazine 1 (2022) [FLAC|Lossless|image + .cue] <Electro, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034363.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Datawave | Aquatronics - Discography 16 Releases (2017-2020) [FLAC|Lossless|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033943.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Monolake - Discography 42 Releases (1996-2020) Imbalance Computer Music, DIN, Ch
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032821.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ VA - Espectrum II, EP2 (2021) AvantRoots [FLAC|Lossless|tracks|Vinyl] <Dub Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032745.jpg" />
 </div>
 
 
@@ -693,7 +722,7 @@ VA - FOCUS (2021) RBL266 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032547.jpg" />
 </div>
 
 
@@ -707,33 +736,6 @@ VA - FOCUS (2021) RBL266 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F241106E2A7D91AA2D67798FD22A39237F5C1C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126472   (1032459) от 10.02.2021
-
-Donato Dozzy | Voices From The Lake - Discography 53 Releases (2004-2020) Spectrum Spools, Further, Spazio Disponibile [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Experimental, Minimal ...
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volo 1 (06:59)
- 02. Volo 2 (07:22)Тип издания: CD, Web, VinylЖанр: Techno, Ambient, Experimental, Acid, Minimal •Продолжительность: 24:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A4311D429504AF19CCE948B667EE9B28353BD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

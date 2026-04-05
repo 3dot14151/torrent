@@ -1,3 +1,148 @@
+###  Публикация: 1199665   (800362) от 17.01.2018
+
+Per Frost - The Calling (2018) [MP3|320 Kbps] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Crow Blues (04:11)
+02. A Case Of You (04:44)
+03. Take Me To The River (03:59)
+04. Tannis Bay (03:34)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1F93DCC8A4C4BFDC8E24E611FCF1A7A9B9CB51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199699   (800361) от 17.01.2018
+
+Полини - Время дождей (2017) [MP3|320 Kbps] <Acoustic Rock, Folk Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Так и стоял до рассвета
+02. Солнце на коне
+03. Золотое правило
+04. Время дождей(   Читать дальше...   )Жанр: Acoustic Rock, Folk Rock, Art RockПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3D09498E4ACBF30BCF72186D65DBE7E961A17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199817   (800352) от 17.01.2018
+
+Маша Кудрявцева и группа Кудри - Люди и тени (2017) [MP3|320 Kbps] <Art Pop, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По линиям метро
+02. То снег, то дождь
+03. Там, где ты
+04. О личном(   Читать дальше...   )Жанр: Art Pop, RockПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E2DC84687DB09D5E663806C37AD289E0FA3B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385134   (800342) от 23.05.2020
+
+666 - Мясо с кровью (2020) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800342.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пули в тело - деньги в дело
+2. Летучие мыши
+3. Под прицелом
+4. Ад(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600D27C868143ECCB1CF5F78C7486D808F9BB513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385021   (800333) от 23.05.2020
+
+Pavlov's Dog - At The Sound Of The Bell (1976) [FLAC|Lossless|image + .cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Came Shining (4:20)
+02. Standing Here With You (Megan's Song) (3:52)
+03. Mersey (3:05)
+04. Valkerie (5:22)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59877B90D58A60C5B22FD747460EECE38EA470C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385130   (800332) от 23.05.2020
 
 7Б - Майская звезда (2020) Single [MP3|320 Kbps] <Rock>
@@ -6,7 +151,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800332.jpg" />
 </div>
 
 
@@ -32,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800283.jpg" />
 </div>
 
 
@@ -61,7 +206,7 @@ Painters of Ether - Painters of Ether (2021) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800253.jpg" />
 </div>
 
 
@@ -90,7 +235,7 @@ Skyclad - Vintage Whine (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800249.jpg" />
 </div>
 
 
@@ -119,7 +264,7 @@ Babooshka - Православный Аватар (2020) [MP3|320 Kbps] <Punk Ro
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800201.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ Testament - Titans Of Creation (2020) 2CD, Japanese, Limited Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800195.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ Fort Royal - 12 альбомов (1995-2020) [FLAC|Lossless|image + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800194.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ Selfaware - Entropy (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800188.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ Falconer - From A Dying Ember (2020) [FLAC|Lossless|image + .cue] <Power Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800182.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ Sammy Berell - Beyond the Veil (2021) [FLAC|Lossless|WEB-DL|tracks] <Neoclassica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800181.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ The Grandmaster - Skywards (2021) [FLAC|Lossless|image + .cue] <Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800180.jpg" />
 </div>
 
 
@@ -322,7 +467,7 @@ Death SS - Ten (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800171.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ Fall Out Boy - M A N I A (2018) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800132.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ The Johnny Van Zant Band - No More Dirty Deals (1980) Reissue, 2006, Rock Candy 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800110.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ Mastodon - Hushed and Grim (2021) 2xCD [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800104.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ BrainStorm - Год без календаря (2021) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800094.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Fall Out Boy - M A N I A (2018) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800061.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ U.D.O. - Game Over (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800000.jpg" />
 </div>
 
 
@@ -526,7 +671,7 @@ The Immediate Family - The Immediate Family (2021) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799992.jpg" />
 </div>
 
 
@@ -555,7 +700,7 @@ Pink Floyd - Ummagumma (1969) 2xCD, Remastered 2011, reissue 2021 [FLAC 2.0|192/
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799943.jpg" />
 </div>
 
 
@@ -584,7 +729,7 @@ Limp Bizkit - Still Sucks (2021) [MP3|320 Kbps] <Nu Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799927.jpg" />
 </div>
 
 
@@ -598,151 +743,6 @@ Limp Bizkit - Still Sucks (2021) [MP3|320 Kbps] <Nu Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA22859AC0A674FFF60DE4E1AF0ACE8945869272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273567   (799905) от 02.01.2019
-
-Killers - Danger de vie (1986) Reissued, 1997 [APE|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Metal Kids 05:50
-02. L'assassin 06:00
-03. Bouffon 04:45
-04. Parabellum 04:17(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757B0B0CFB7399BA4C6DA55EEE32CFB95EF9E3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273574   (799903) от 02.01.2019
-
-Wreck-Defy - Fragments of Anger (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Industrial Lies 05:33
-02. Justify the Unjust 05:10
-03. Sentenced 06:48
-04. The Eternal Lie 04:14(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A80933DB47AB616DFD51B4AE8B966218BD466D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273570   (799902) от 02.01.2019
-
-Testor - Animal Killstinct (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 01:39
-02. Heroes to the Gallows 05:57
-03. Animal Killstinct 05:16
-04. Rise of the Cobra 04:42(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1138B45800A1D9E0834AEC9C5904A286E9ACCB37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273562   (799901) от 02.01.2019
-
-Elessar - Dark Desires (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice Queen
-02. A Kiss And A Rose
-03. Fate's Introduction
-04. The Lonely Warrior's Fate(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85733DD73EE73C10EB8FEF6C8B78AAA62281A8AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273566   (799900) от 02.01.2019
-
-Imagika - And So It Burns (2001) [APE|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Chaos to Murder
-03. Fallen One
-04. My Dominion(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7C63A09ECA2D3DB1D1BE682A0E4CCACF4ED1B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

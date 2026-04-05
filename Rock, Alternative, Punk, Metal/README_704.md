@@ -1,3 +1,32 @@
+###  Публикация: 1256486   (354567) от 22.10.2018
+
+Bilskirnir - Hammerschlag (2017) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Wacht
+02. Flammenschwur
+03. Sonnenwende
+04. Feuerzauber(   Читать дальше...   )Жанр: Black MetalПродолжительность: 02:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9BF5B401D0B4A7CB8A4D82A4AAB187B132C3B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072190   (354541) от 12.11.2016
 
 НОМ & Николай Копейкин - 50 копеек (2016) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354541.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Tony Carey - 3 Albums (1984 - 2008) Remastered, 2008, Renaissance Records [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354533.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Ginevra - We Belong To The Stars (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354495.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Megadeth - Countdown To Extinction (1992) 20-th Anniversary Deluxe Edition /2012
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354480.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354446.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354443.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354434.jpg" />
 </div>
 
 
@@ -205,7 +234,7 @@ In Flames - Battles (2016) Limited Edition [FLAC|Lossless|image + .cue] <Modern 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354367.jpg" />
 </div>
 
 
@@ -234,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354306.jpg" />
 </div>
 
 
@@ -263,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354252.jpg" />
 </div>
 
 
@@ -289,7 +318,7 @@ Hanging Garden - I Am Become (2017) [MP3|320 Kbps] <Doom-Death Metal, Post-Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354088.jpg" />
 </div>
 
 
@@ -318,7 +347,7 @@ Whitesnake - Unzipped (2018) 5CD, Super Deluxe Edition [MP3|320 Kbps] <Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354023.jpg" />
 </div>
 
 
@@ -347,7 +376,7 @@ Winds of Plague - Blood of My Enemy (2017) [MP3|320 Kbps] <Symphonic Metalcore, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353976.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ Marcus Hook Roll Band - Tales Of Old Grand-Daddy (1973) Reissue, 1994, Albert Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353965.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353963.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ Airbourne - Diamond Cuts The B-Sides (2017) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353821.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ Korn - The Serenity Of Suffering (2016) Japanese Edition [MP3|320 кб/с]<Alter
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353768.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ Weezer - Pacific Daydream (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353696.jpg" />
 </div>
 
 
@@ -521,7 +550,7 @@ Nocturnus AD - Paradox (2019) [FLAC|Lossless|image + .cue] <Atmospheric, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353686.jpg" />
 </div>
 
 
@@ -550,7 +579,7 @@ Parsifal - Mountain King (2020) [MP3|320 Kbps] <Epic Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353685.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ Estigma - Control Mental (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353681.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Dream Evil - Dragonslayer (2002) Japanese Edition / King Record /[FLAC|image +.c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353659.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ Trivium - Silence In The Snow (2015) [FLAC|image+.cue]<New Wave Of American Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353504.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ Nothing But Thieves - Moral Panic (2020) [MP3|320 Kbps] <Alternative Rock, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353432.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ Leaves' Eyes - The Last Viking (2020) 2CD [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353422.jpg" />
 </div>
 
 
@@ -709,35 +738,6 @@ Leaves' Eyes - The Last Viking (2020) 2CD [MP3|320 Kbps] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FA570E718D12CE76E04C94F7A00CD54C8E9032F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417997   (353418) от 22.10.2020
-
-Eisbrecher - Schicksalsmelodien (2020) [MP3|320 Kbps] <NDH, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353418.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Skandal im Sperrbezirk
-2. Anna Lassmichrein Lassmichraus
-3. Disco in Moskau
-4. Out of the Dark(   Читать дальше...   )Жанр: NDH, Industrial MetalПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C434AAA64C29BE72AB7E001BB58C49DC09AD5ED5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Screen Snapshot 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300752.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Infographics for Pages 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300710.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Layouts for Keynote 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300709.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Typinator 7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300707.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Tri-BACKUP Pro 8.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300689.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ MyBrushes - Sketch, Paint, Design 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300514.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Sync Folders Pro 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300469.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ MenuBar Stats 3 v3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300466.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Nova 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300464.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Mountain Duck 4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300458.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Movist Pro 2.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300457.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Batteries 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300455.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Find Any File (FAF) 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300453.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ RapidWeaver 8 v8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300452.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ xScope 4 v4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300451.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Loopback 2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300449.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ DxO PhotoLab 4 ELITE Edition 4.0.2.45 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300252.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ DCommander 3 Premium v3.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300247.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ iA Writer 5.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300240.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Reeder 5 v5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300234.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ CADintosh X 8.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300086.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ AnyTrans 8.8.0.20201105 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300079.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Movavi PDFChef for Mac 2021 v21.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300078.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Gestimer 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300076.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Rhinoceros 6 v6.31.20315 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299942.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Capture One 21 Pro Beta 3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299937.jpg" />
 </div>
 
 

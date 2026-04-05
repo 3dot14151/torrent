@@ -1,3 +1,32 @@
+###  Публикация: 1195565   (141569) от 29.12.2017
+
+cmiVFX.com | Arnold for Houdini (2015) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arnold в Houdini
+
+cmiVFX представляет вам учебный курс по Houdini под названием "Arnold в Houdini 101". Эти две программы предоставляют удивительно мощный набор инструментов для сегодняшнего процесса VFX.
+Houdini даёт отличнейшие VFX инструменты, а Arnold обеспечивает качество и стабильность рендера огромного количества обломков, вольюмов и симуляции жидкости (   Читать дальше...   )Производство: cmiVFX.comЖанр: 3D графикаПеревод: Дублированный, Alex_cgЯзык озвучки: Русский, АнглийскийПродолжительность: 02:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36F95B849384408B2AB299E84BDFC9792FCA24D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678889   (141495) от 23.11.2023
 
 Legal Academy, Юрий Брисов, Глеб Крохмалюк, Марина Силанова | Legal Design (2022) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@ Legal Academy, Юрий Брисов, Глеб Крохмалюк, Марина 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141495.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Scott Robert Lim | Scott Robert Lim Complete Pack (2021) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141488.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ World of Psychology, Наталья Приймаченко | Тайм-менед
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141455.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141434.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Amigoscode, Nelson | Microservices and Distributed Systems Updated 3 (2022) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141398.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ George Moller | 100+ React Infographics (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141375.jpg" />
 </div>
 
 
@@ -175,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141244.jpg" />
 </div>
 
 
@@ -201,7 +230,7 @@ JUG Ru Group | PiterPy 2023. Конференция для тех, кто пиш
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141237.jpg" />
 </div>
 
 
@@ -227,7 +256,7 @@ Photocasa, Андрей Васильев | Чистый цвет = Чистый 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141222.jpg" />
 </div>
 
 
@@ -256,7 +285,7 @@ Udemy | Высокая доступность Exchange Server (2017) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140999.jpg" />
 </div>
 
 
@@ -282,7 +311,7 @@ Udemy, Dmytro Mezhenskyi | Производительный бэкэнд GraphQL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140951.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ Udemy | Поиск и устранение неисправностей Exchange
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140858.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ Udemy, Dmitry Soshnikov | Алгоритмы Синтаксического Ан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140803.jpg" />
 </div>
 
 
@@ -361,7 +390,7 @@ MZed, Ollie Kenchington | Углубленное изучение и овлад�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140622.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ Udemy | Администрирование Azure Active Directory (2019) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140608.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Grant Warwick | Mastering Lighting Lessons 1-4 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140602.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Liveclasses, Дмитрий Шатров | Affinity Photo: быстрый ста
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140553.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ CGMA, Clinton Crumpler | 3D UE4 Modular Environments - Модульные окр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140544.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ Udemy | Настройка и управление Windows Server 2016 S2D (2018
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140428.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140387.jpg" />
 </div>
 
 
@@ -545,7 +574,7 @@ JayLay | Мастер-класс по обработке JayLay (2014) PCRec [H.
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140279.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ Udemy, Brad Traversy и др. | 50 проектов за 50 дней - HTML, CSS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140261.jpg" />
 </div>
 
 
@@ -601,7 +630,7 @@ Geekbrains | Frontend-разработчик. Часть 3 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140078.jpg" />
 </div>
 
 
@@ -629,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140038.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140029.jpg" />
 </div>
 
 
@@ -672,35 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6D6BBE3E4456AE8691A30905B0F440737CB88C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968734   (140026) от 30.12.2015
-
-Николай Ягодкин, Светлана Ахметова | Двухдневный курс "Технологии изучения иностранных языков" (2015) DVDRip [H.264]
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пройдя курс, Вы научитесь:
-- Подробно планировать программу самостоятельного изучения языка (под любые задачи и с любого уровня)
-- Разбирать, структурировать, понимать и запоминать грамматику (через Майнд Карты и схемограммы)
-- Выводить слова и грамматику в разговорный навык (через "паттерны" со скоростью 1500-2000 фраз в час)(   Читать дальше...   )Производство: Центр Образовательных технологий Николая Ягодкина «Advance»Жанр: Иностранный языкПродолжительность: 26:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5744BDB2DB8CAA85A8D76E8BF199427C6774DD94
 ```
 
 https://mybot314.ru/tekegram_catalog/

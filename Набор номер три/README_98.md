@@ -1,3 +1,160 @@
+###  Публикация: 1095026   (923806) от 21.01.2017
+
+Торренты могут вывести из-под действия "пакета Яровой"
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из «закона Яровой» могут исключить торренты и потоковое видео
+Минкомсвязь России выступила с предложением вывести из-под действия «пакета Яровой» отдельные виды данных, хранение которых является достаточно трудоёмким процессом.В частности, к избыточной информации при реализации требований пакета предложили отнести онлайн-медиа, торрент-трекеры и IPTV. Несмотря на (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987628   (923727) от 18.02.2016
+
+Медведев зашел на заблокированный судом торрент-трекер
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьер-министр России Дмитрий Медведев смог зайти на заблокированный в России по решению суда торрент-трекер. Об этом пишут «Ведомости» со ссылкой на нескольких свидетелей! случившегося.Проверить доступность сайта Медведев решил во время заседания правительственного совета по кино, состоявшегося 17 февраля, после слов гендиректора Первого канала Константина Эрнста (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987909   (923714) от 18.02.2016
+
+Правда / Truth (2015) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923714.jpg" />
+</div>
+
+
+###  Подробнее
+
+В картине будет рассказываться о скандале, разразившемся после того, как суперпопулярный ведущий новостной программы на CBS Дэн Рэзер заявил в эфире о том, что Джордж Буш-мл. по блату попал в Национальную гвардию США, чтобы избежать отправки во Вьетнам (спасибо могучему папе Бушу-старшему, который на тот момент служил послом). После такой правды репутация Рэзера (   Читать дальше...   )Производство: США, АвстралияЖанр: ДрамаРежиссер: Джеймс ВандербилтАктеры: Кейт Бланшетт, Роберт Редфорд, Тофер Грейс, Деннис Куэйд, Элизабет Мосс, Брюс Гринвуд, Стейси Кич, Джон Бенжамин Хикки, Дэвид Лайонс, Дермот Малруни, Рэйчел Блейк, Эндрю МакФарлэйнПеревод: Двуголосый закадровый, любительскийПродолжительность: 02:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8E267A1386F43A1008D33D43E2A1F4B92F73CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987689   (923686) от 18.02.2016
+
+Street Fighter V (2016) [Ru/Multi] (1.0) Repack SEYTER
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923686.jpg" />
+</div>
+
+
+###  Подробнее
+
+В легендарной бойцовской серии вышла новая игра - Street Fighter V! Потрясающая графика изображает новое поколение мира воинов в невиданных доселе подробностях, а динамичная и понятная боевая система позволяет как новичкам, так и опытным игрокам подолгу наслаждаться драками. Сыграйте с друзьями по сети, или сразитесь за честь и славу в турнире Capcom Pro Tour.Тип издания: RepackРазработчик: Capcom и DimpsЖанр: Arcade, Fighting, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16207CE0B2B513C06A8978324B13EAE6A994F1AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917330   (923685) от 18.02.2016
+
+Just Cause 2 (2010) [Ru/En] (1.0.0.2/dlc) Repack =nemos=
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в полное адреналина свободное приключение. В качестве агента Рико Родригеза, вашей целью будет найти и убить вашего друга и наставника, который исчез на островном рае Панау. Здесь, на Панау, вы должны вызвать максимум хаоса на земле, воде и в воздухе, чтобы изменить баланс сил. Используя сочетание из уникального крюка-кошки и парашюта, вы сможете выполнять (   Читать дальше...   )Тип издания: RepackРазработчик: Avalanche StudiosЖанр: Action (Shooter), Racing, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096A665D44C9D35D05B1656D98187FBBDEF77CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987568   (923676) от 18.02.2016
+
+Рождество / The Night Before (2015) HDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923676.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о веселых приключениях трех старых друзей, отправившихся на поиски лучшей рождественской вечеринки в Нью-Йорке..Производство: США, Columbia Pictures, Good Universe, LStar Capital, Point Grey PicturesЖанр: КомедияРежиссер: Джонатан ЛевинАктеры: Джозеф Гордон-Левитт, Сет Роген, Энтони Маки, Джиллиан Белл, Лиззи Каплан, Майкл Шеннон, Хелен Йорк, Илана Глейзер, Аарон Хилл, Трэйси Морган, Дэрри Лоуренс, Нэйтан ФилдерПеревод: Любительский, двухголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:41:39Реклама: Присутствуют голосовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E912422D8EC52DBCB6A52CA17629B3E0D8BCEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987972   (923657) от 18.02.2016
 
 Navitel / Навител Навигатор v9.6.2131 RePack [Ru/En] - только программа навигации
@@ -6,7 +163,7 @@ Navitel / Навител Навигатор v9.6.2131 RePack [Ru/En] - толь�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923657.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) Portable by PortableWares [Multi/Ru
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923656.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Windows 10 Professional Ru x86-x64 1511 Orig w.BootMenu by OVGorskiy® 02.2016 (
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923650.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923640.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923638.jpg" />
 </div>
 
 
@@ -139,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923637.jpg" />
 </div>
 
 
@@ -165,7 +322,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4456.1003 VL (x86)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923635.jpg" />
 </div>
 
 
@@ -191,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923633.jpg" />
 </div>
 
 
@@ -217,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923631.jpg" />
 </div>
 
 
@@ -243,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923389.jpg" />
 </div>
 
 
@@ -269,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923274.jpg" />
 </div>
 
 
@@ -295,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923273.jpg" />
 </div>
 
 
@@ -321,7 +478,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (1.0) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923233.jpg" />
 </div>
 
 
@@ -347,7 +504,7 @@ WRC 8 FIA World Rally Championship (2019) [Ru/En] (1.5.1/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923229.jpg" />
 </div>
 
 
@@ -373,7 +530,7 @@ Solid Converter PDF 7.0 build 830 [Мультиязычный (русский п
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923219.jpg" />
 </div>
 
 
@@ -399,7 +556,7 @@ Windows 10 2in1 VL (x64) (v.1909 Build 18363.657) Elgujakviso Edition (v.07.03.2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923207.jpg" />
 </div>
 
 
@@ -428,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923185.jpg" />
 </div>
 
 
@@ -454,7 +611,7 @@ Thief Simulator (2018) [Ru/Multi] (1.42) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923183.jpg" />
 </div>
 
 
@@ -480,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923158.jpg" />
 </div>
 
 
@@ -506,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923140.jpg" />
 </div>
 
 
@@ -517,164 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFFAEDF1455A2DBE9AE808B44887AC9269D7E11C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288333   (923133) от 28.01.2011
-
-Age of Pirates 2: City of Abandoned Ships / Корсары: Город Потерянных Кораблей [Ru] (RePack/1.2.12 2009) | Fenixx
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корсары: Город Потерянных Кораблей" - это новая игра в линейке «Корсаров», продолжение "Корсары: Возвращение Легенды", которая была разработана общими силами студии Seaward.ru и компании "Акелла" как альтернативный взгляд на знаменитую трилогию о пиратах.
-В "Городе Потерянных Кораблей" создатели "КВЛ" реализовали всё то, чему по причине временных ограничений, не нашлось места в «Возвращении легенды».Заслуженно большее внимание получили мистические мотивы в сюжете игры: теперь таинственному и потустороннему отведено две полноценные локации.Первая - собственно Город Потерянных Кораблей. Зловещая пристань, куда попадают затерявшиеся в Карибском море суда, с годами накопила несметные сокровища. Только одной смелости мало, чтобы отобрать их у мертвых.Вторая - золотая столица ацтеков Теночтитлан. Здесь, как известно, тоже есть, чем поживиться. Между пиратом и его безбедной старостью стоят лишь мифические существа из мрачных верований южноамериканского племени.Можно подумать, (   Читать дальше...   )Тип издания: Перепакованная лицензияЖанр: Action, Add-on (Standalone / Naval), RPG, 3rd Person, Privateer, TraderЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 287745   (923127) от 28.01.2011
-
-Microsoft Office 2010 x86/x64 License [Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office для дома и бизнеса 2010 — это набор важнейших средств, необходимых для управления малым бизнесом или работы на дому. Усовершенствованные инструменты и функции помогают управлять предприятием и взаимодействовать с клиентами, а также способствуют эффективной организации домашних задач. Microsoft Office для дома и бизнеса 2010 поддерживает новые фото-, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863333   (923015) от 27.01.2015
-
-Три богатыря: Ход конем (2014) WEB-DL [720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Придворный конь Гай Юлий Цезарь на свою беду подслушивает разговор бояр и узнает о заговоре против князя. Что же делать? Защитить-то князя некому! Богатыри далеко — ловят разбойника Потаню, Горыныч в отпуске, войско на учениях… Но если плохие парни собираются захватить мир, то кому-то же надо его спасти? Кто же он, настоящий герой, который придет на помощь? Конечно, (   Читать дальше...   )Производство: Россия, Кинокомпания СТВ, Студия МельницаЖанр: Мультфильм, Комедия, ПриключенияРежиссер: Константин ФеоктистовАктеры: Сергей Маковецкий, Дмитрий Быковский-Ромашов, Валерий Соловьев, Олег Куликович, Дмитрий Высоцкий, Дмитрий Нагиев, Наргиз Закирова, Гоша КуценкоПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798C7FC5D42F66411F57DD03697EDC835C3D8E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863960   (923006) от 27.01.2015
-
-Ограбление по-американски / American Heist (2014) WEB-DL [H.264/720p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923006.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Джеймса темное прошлое, но сейчас он из всех сил пытается изменить свою жизнь — встречается с красивой девушкой, устроился работать автомехаником, мечтает о собственном бизнесе. Тем временем, его старший брат Френки, отсидевший десять лет в тюрьме, выходит на свободу. Френки пытается наладить отношения, но Джеймс не может простить брата за то, что много лет назад (   Читать дальше...   )Производство: США, Россия / Glacier Films, NGN ProductionsЖанр: Триллер, Криминал, ДрамаРежиссер: Сарик АндреасянАктеры: Хейден Кристенсен, Эдриан Броуди, Джордана Брюстер, Эйкон Тори, Киттлз Луис Да Силва мл., Лэнс Э. Николс, Джон МакКоннеллПеревод: Дублированный (Чистый звук) ОфициальныйСубтитры: ОтсутствуютПродолжительность: 01:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1FDE0F218ECD35FA415541D4816933EBE6EEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798465   (922996) от 27.01.2015
-
-Beyond: Two Souls / За Гранью: Две Души [PS3] [EUR] [Ru/En] [4.40] [Cobra ODE / E3 ODE Install ISO] (2013)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922996.jpg" />
-</div>
-
-
-###  Подробнее
-
-«За гранью: Две души» - новая игра от создателей блокбастера Heavy Rain - Дэвида Кейджа и студии Quantic Dream. Главные роли в этом интерактивном психологическом триллере исполняют звезды кинематографа Эллен Пейдж и Уиллем Дефо.
-Джоди Холмс - девушка, обладающая паранормальными способностями, у нее есть ментальная связь с потусторонним. Вместе с Джоди вам предстоит (   Читать дальше...   )Тип издания: RePackРазработчик: Quantic DreamЖанр: Adventure / 3D / Interactive MovieЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C20564A9FD5E757AF6D9AFB551CE3A5FEA8458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565955   (922991) от 27.01.2015
-
-Ultimate Caller HD Pro 1.0.3.8 - Фото на контакт (27.01.15) <Ru>
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сочетает в себе идентификатор вызывающего абонента в полный экран , менеджер изображений контактов, блокировщик вызовов и такие действия, как сброс звонков, переворотом телефона экраном вниз.Разработчик: LowveldПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B216AA43F62A8CF47977CD9EDD3F4F8932688510
 ```
 
 https://mybot314.ru/tekegram_catalog/

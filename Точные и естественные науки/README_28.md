@@ -1,3 +1,81 @@
+###  Публикация: 1192604   (262705) от 18.12.2017
+
+Эдвард Уилсон | Будущее Земли. Наша планета в борьбе за жизнь (2017) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Будущее Земли» известного американского социобиолога Эдварда Уилсона – сигнал бедствия, страстный призыв и одновременно конкретный план действий. Показывая непрерывный процесс вымирания различных видов животных, растений, беспозвоночных и микроорганизмов, автор предупреждает: постепенно мы одну за другой «отпиливаем ветки с древа жизни». Ставший властелином (   Читать дальше...   )Жанр: Естественные науки, экология, человек и окружающая средаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F35E723FD77EDDB21FEBAFCE9FFFD00F516B3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838938   (261602) от 25.11.2025
+
+М.С. Цедрик, У.В. Бирич, Г.П. Макеева | Физика в графиках (1964) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга представляет собой справочник по графическому материалу. В неё включено большое количество графиков и чертежей, иллюстрирующих отдельные вопросы курса физики. Справочник рассчитан на студентов техникумов и первых двух курсов ВУЗов, на студентов-заочников. Он является также ценным пособием для преподавателей физики. Справочник состоит из семи разделов: (   Читать дальше...   )Жанр: ФизикаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD99062926026516A0FBDCCA6F9FF4E251A976C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838942   (261596) от 25.11.2025
+
+В.С. Игропуло, Н.В. Вязников | Физика. Алгоритмы, задачи, решения (2004) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее пособие соответствует стандартным программам по физике дня средних школ, программам для поступающих в высшие учебные заведения. Его структура, логические и методические принципы позволяют успешно использовать пособие для освоения методов решения физических задач. В книгу включены задачи по всем разделам школьного курса физики, предлагавшиеся, в частности, (   Читать дальше...   )Жанр: ФизикаИздательство: ИлексаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311FA68C10F04823AFF05605C2BF31BB8F6AC973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838946   (261591) от 26.11.2025
 
 J.E. Goodman, J. O’Rourke, C.D. Tóth | Handbook of Discrete and Computational Geometry (2018) [PDF] [EN]
@@ -6,7 +84,7 @@ J.E. Goodman, J. O’Rourke, C.D. Tóth | Handbook of Discrete and Computational
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261591.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260874.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257496.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256772.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254309.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ D. Shaw (ред.) | Atomic Diffusion in Semiconductors (1973) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252583.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252328.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252279.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251850.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250926.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250628.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250410.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250369.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250255.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250241.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249747.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249473.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249449.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249438.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ B.M. Askerov | Electron Transport Phenomena in Semiconductors (1994) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248588.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ F.A. Kröger / Ф. Крёгер | Chemistry of Imperfect Crystals / Химия �
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246732.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245088.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242929.jpg" />
 </div>
 
 
@@ -595,85 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD12C17A6B60F278A37FC9EACD14EA0F368648C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571761   (239743) от 23.08.2022
-
-Н.И. Карякин и др. | Краткий справочник по физике (1963) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Краткий справочник по физике ставит своей целью дать практическим работникам, соприкасающимся с вопросами физики, студентам высших технических учебных заведений, преподавателям вузов, техникумов и средних школ краткое пособие, охватывающее все основные разделы современной физики. При отборе материала, вносимого в «Справочник», авторы ставили задачу более подробно (   Читать дальше...   )Жанр: ФизикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B20CA8671F821162AC72C2432DD146272B7A374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639837   (237825) от 15.06.2023
-
-М.И. Шахпаронов | Механизмы быстрых процессов в жидкостях (1980) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237825.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге излагаются теоретические основы методов изучения кинетики и механизмов быстрых и сверхбыстрых процессов, протекающих в жидкостях. Теоретические положения иллюстрируются примерами.
-Книга содержит ряд оригинальных разработок и приложений.Жанр: ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0626268E18602EE36077B5F496C8CB7D6005FA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640435   (237513) от 17.06.2023
-
-И.Ф. Ефремов | Периодические коллоидные структуры (1971) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237513.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии рассмотрены основы современного учения о процессах возникновения периодических коллоидных структур (гетерогенных гелей и гелеподобных систем) и дана их классификация. Показано прикладное значение коллоидных структур для различных областей науки и техники - химии, биологии, биофизики, геологии, почвоведения, строительного дела и др.Жанр: ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8073665C7803C428397A902DE325BC75643B6B30
 ```
 
 https://mybot314.ru/tekegram_catalog/

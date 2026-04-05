@@ -1,3 +1,61 @@
+###  Публикация: 1375483   (865485) от 14.04.2020
+
+Peter Pearson - A Piece of a Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Piece of a Dream
+02. Chilled to the Heart
+03. Affairs of the Heart
+04. Midnight Oil(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D01B432F6989B35D6BC8E49CF1650486E45468A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375565   (865398) от 14.04.2020
+
+Lennart Krarup | aka: Ibizarre, Mushroom Man, Lenny Ibizarre - Discography 28 Releases (1997-2019) [MP3|320 Kbps] <Downtempo, Deep House, Ambient, Psy Trance>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865398.jpg" />
+</div>
+
+
+###  Подробнее
+
+1997 - The Ambient Collection
+1997 - Reports From The Morphogenetic Research Lab
+1998 - Ibizarre presents Alchemea (A Journey Through Psychedelic Trip-Hop)
+1998 - Elevation(   Читать дальше...   )Жанр: Downtempo, Deep House, Ambient, Psy Trance, Progressive House, Chillout, Dub, Easy ListeningПродолжительность: 28:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9904D78636680BFF895FA0E4D5A6B20F0EEC4C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375351   (865395) от 14.04.2020
 
 VA - Satin Love (Luxury Jazz Music For Fine Dine & Lounge) (2018) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Easy Listening, Smooth Jazz>
@@ -6,7 +64,7 @@ VA - Satin Love (Luxury Jazz Music For Fine Dine & Lounge) (2018) [FLAC|Lossless
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865395.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Iketa - Discography 14 Releases (2011-2020) Visionary Mind Records [FLAC|Lossles
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865239.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Trance Wax - Live @ Atlantis Ibiza, Spain (2021-09-16) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864946.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Live @ Supersonic Festival (2021) [MP3|320 Kbps] <Electro House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864882.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Chillout Room (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864836.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Whenever Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864834.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Electronic Dance Music Vol.14 (2017) [MP3|320 Kbps] <Trance, Tech Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864830.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Creations Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864829.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Deep House Stewardess Vol.2 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864748.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Cold and Deep #13 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864745.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Morning Conversation Vol.8 Black Deep (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864744.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Finest Groovy House Music Vol.26 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864742.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Canary Islands Chillout Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864740.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Buddah Vol.3 The Best in Pure Chill Out Lounge Ambient (2017) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864738.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - This Is My Church Vol.2: The Deep-House Edition (2017) [MP3|320 Kbps] <Deep
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864732.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Chill Out Waves Vol.2: Finest In Smooth Electronic Music (2017) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864730.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Depeche Mode - Ultra (The 12 Singles) (2021) Remastered [MP3|320 Kbps] <Synth-po
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864675.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Banco De Gaia - Ollopa: Apollo Remixed (2013) [MP3|320 Kbps] <Ambient, Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864646.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Let Em Riot - Lines (2016) EP [MP3|320 Kbps] <Electropop, Synthwave, Dreamwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864642.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Deep House Edition  № 009 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864632.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Underworld - A Collection (2012) Compilation [FLAC|Lossless|tracks + .cue] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864614.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Hernan Cattaneo - Balance Presents Sudbeat (2017) [FLAC|Lossless|WEB|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864149.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Springbreak 2017/Dubstep, Drum & Bass Edition  [MP3|320 Kbps] <Dirty Dubste
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864148.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Ochre - Beyond the Outer Loop (2017) [FLAC|Lossless|WEB-DL-24Bit|tracks] <IDM, T
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864133.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Ochre - Beyond the Outer Loop (2017) [FLAC|Lossless|WEB-DL-24Bit|tracks] <IDM, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6D32D1414C5C9093896C8048931AD5124A20AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375813   (863869) от 15.04.2020
-
-Jens Buchert - Cocoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient Dub, Downbeat, Trip-Hop, Deep House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cocoon (4:33)
- 02. Ground Vibrations (4:56)
- 03. Five Zero (6:08)
- 04. Squarehead (5:46)(   Читать дальше...   )Жанр: Electronic, Ambient Dub, Downbeat, Trip-Hop, Deep HouseПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175C96C991744AE30242DE8A94D69C845DD6220C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375744   (863603) от 15.04.2020
-
-NeoSpace - Revelation Tour (2020) Limited Edition [FLAC|Lossless|tracks + .cue] <Spacesynth, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelation Tour (6:13)
-02. Neogalactic Travels (5:49)
-03. New World Order (5:01)
-04. Lost Civilization (6:08)(   Читать дальше...   )Жанр: Spacesynth, SynthwaveПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE529B01A76C0033B2A889B87F303D0184F46407
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1259364   (321265) от 03.11.2018
+
+Эволюция в действии / Evolution on the Move (2014) HDTVRip (серии 1-4)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал о поразительных особенностях поведения животных. В Саудовской Аравии, в Канаде, в Сенегале и в России ученые, обнаружили виды, которые проходят через удивительный эволюционный скачок.Производство: Франция, Arte France & Les Films en VracЖанр: Документальный, природа, эволюцияРежиссер: Жан-Франко БартодПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2358E262FC70F17277B8ED83C0CDDFCD72C5D190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582567   (320777) от 10.10.2022
 
 Дикий юг / Wild South (2019) HDTV [H.264/1080i]
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320777.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319629.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319621.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319544.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313660.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313047.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311639.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311226.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310704.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310496.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308876.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308425.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305940.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305147.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Nat Geo Wild: Хоаниб - секреты слонов пустыни / Secret
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302632.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301062.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301000.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300988.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ BBC: Как вырастить планету / BBC: How to grow a Planet [01-03
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300916.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300779.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299793.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Nat Geo Wild: Лягушка-монстр / Monster Frog (2014) HDTVRip [H.264/7
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299572.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295701.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294771.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293137.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF949B9DA876F2054C3E5C65D112EAEC42B84B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263345   (289774) от 18.11.2018
-
-Смертоносные австралийцы / Deadly Australians (2017) HDTVRip (серии 1-4)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайная жизнь самых выдающихся (и зачастую малоизвестных) убийц в Австралии, включая самую ядовитую в мире змею, опасную медузу, чудовищного крокодила и ядовитых пауков.Производство: Канада, Австралия, Film Victoria, Blue Ant Media Solution inc.Жанр: Документальный, природа, флора, фаунаРежиссер: Энн МакгваирПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD9661CD2D7462507F1B97211479A6E1B5308EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

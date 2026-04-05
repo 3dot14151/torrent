@@ -6,7 +6,7 @@ NGW: Первая тройка самых опасных животных. Ма�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706092.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Возвращение львов / Return of the lion (2016) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706090.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NGW: Молниеносные акулы / Blitzkrieg sharks (2016) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706089.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NGW: Хищники Аляски. Царство китов-убийц / Alaska'
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706086.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Укусить. Ужалить. Убить. Монстры в тени / Bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706080.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NGW: Самые странные животные в мире. В толще м�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706079.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NGW: Самые опасные убийцы. Ночные сталкеры / Wor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705994.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NGW: Заклятые враги. Кошки против собак / Ultimate 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705990.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery: Почему? Вопросы мироздания. Существую
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705679.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NGW: Дикая Монголия: страна крайностей. Выжив�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705066.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Animal Planet: Живой или вымерший. Тайваньский дым
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705064.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BBC. Как устроена природа / How Nature Works (Secrets of Our L
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705063.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705052.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NGW: Человек против животного / Man V. animal (2017) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704416.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NGW: Южная Африка. Колыбель убийц / South Africa. Cradle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704406.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NGW: Хищники Аляски. Поле боя гризли / Alaska's Deadli
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704314.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NGW: Африка. Убийцы с фантазией / Africa's Creative Killer
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704313.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Animal Planet: Cинее царство (Лазурная страна). Щуп�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703897.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Discovery. Легендарные места / Legendary Locations (2019) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703134.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Animal Planet: Земля снежного человека. Затерянно�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703108.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BBC. Horizon: Закат Солнечной системы / The End of The Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702814.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BBC. Horizon: Проект "Гринглоу". В поисках контрол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702398.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ NG: Человекообразные обезьяны / Human Ape (2017) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701358.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BBC. Тайная история британских садов / The Secret Hi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701350.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701075.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ NG: Кусать, жалить, убивать / Bite, Sting, Kill (2017) HDTVRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700355.jpg" />
 </div>
 
 

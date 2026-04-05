@@ -1,3 +1,55 @@
+###  Публикация: 1668816   (172773) от 16.10.2023
+
+Футурама / Futurama (2003) WEB-DL [H.264/1080p-LQ] (Сезон 4, Серия 1-18 из 18) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё начинается с того, когда разносчик пиццы по имени Фрай случайно оказывается замороженным в 1999 году и просыпается в будущем, спустя 1000 лет. Однако, новый мир, хотя и населённый роботами и инопланетянами, не так уж сильно отличается от старого. Фрай начинает работать в службе Планеты Экспресс, доставляющей посылки в различные уголки Вселенной. В будущем Фрай (   Читать дальше...   )Производство: США, 20th Century Fox TelevisionЖанр: мультфильм, фантастика, комедия, приключенияРежиссер: Питер Аванзино, Брэт Хааланд, Грегг ВанцоАктеры: Билли Уэст (II), Кэти Сагал, Джон Ди Маджио, Тресс МакНилл, Фил ЛаМарр, Лорен Том, Морис ЛаМарш, Дэвид Херман (I), Фрэнк Уэлкер, Рене ГарсияПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 00:22:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD44D95BE37D3B54C081D5A3E3A92D3D1BE50C3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670667   (171365) от 24.10.2023
+
+Космобой / Kid Cosmic (2021-2022) WEB-DLRip [H.264/720p] (сезон 1-3, серии 1-24 из 24) VSI Moscow, TVShows, HDRezka Studio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик находит пять мощных космических камней, и его мечта стать супергероем сбывается. Но спасать мир всё же не так просто — и одному ему точно не справиться. Эпицентр повествования сюжетной линии мультсериала "Космобой" займет девятилетний малец, поведение которого вызывает определенные странности. Мальчик, проживающий с дедушкой на территории небольшой (   Читать дальше...   )Производство: США, Netflix Animation, Craig McCracken ProductionsЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Крэйг МакКрекен, Дэйв Томас, Роберт Ренцетти, Пол Уотлинг, Бенжамин БалистрериАктеры: Джек Фишер, Аманда Селин Миллер, Лили Роуз Сильвер, Том Кенни, Кит Фергюсон, Фред Татаскьор, Грей ДеЛайл, Ким Ярбро, Кристиан Ланц, Эрик БаузаПеревод: Дублированный (VSI Moscow), многоголосый закадровый (HDRezka Studio, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, forced), английские (full)Продолжительность: 24 x ~ 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C6C198A2B4DBBE3420D88A0B89CCE2D15B00CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670668   (171331) от 24.10.2023
 
 Космобой / Kid Cosmic (2021-2022) WEB-DLRip [H.264/1080p] (сезон 1-3, серии 1-24 из 24) VSI Moscow, TVShows, HDRezka Studio
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171331.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170779.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170773.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170257.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170130.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169936.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169879.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Angry Birds: Летнее безумие / Angry Birds: Summer Madness (2022) WE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169735.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Angry Birds: Летнее безумие / Angry Birds: Summer Madness (2022) WE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169691.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168550.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167560.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167435.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167003.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166834.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166817.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166640.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166466.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Off the Air (2011-2021) WEBRip [H.264/1080p] (сезон 1-11, серии 1-42 �
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165704.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165572.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164995.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164199.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164164.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162254.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161974.jpg" />
 </div>
 
 
@@ -616,60 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E86FA39ED22D072E974285BDE2920E5F8D356B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432957   (161880) от 19.12.2020
-
-Остров летнего лагеря / Summer Camp Island (2018) WEB-DL, WEBRip [H.264/1080p-LQ] (Сезон 1-2, Серии 1-60 из ??) SDI Media
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оскар отправляется на лето в летний детский лагерь на острове. Однако остров оказывается волшебным, населённым ведьмами, волшебными монстрами, йети, привидениями, единорогами, говорящими животными и ожившими вещами. Оскар привыкает к новой обстановке вместе со своей лучшей подругой — Ёжик. Вместе они исследуют чудеса острова и должны противостоять компании ведьм, (   Читать дальше...   )Производство: США | «Cartoon Network Studios»Жанр: Приключения, Комедия, ФэнтезиРежиссер: Ники ЯнгПеревод: Дублированный (SDI Media Russia)Субтитры: русские форсированные (на непереведённые места), русские (AnCas), английские (SDH)Продолжительность: ~ 00:11:22 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03ED9EE6E460487B1AD356D67EFF5CFD78FA7A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261276   (161581) от 04.11.2023
-
-Арчер / Archer (2009-2018) WEB-DLRip [H.264/720p-LQ] (Сезон 1-9, серии 1-101 из 101) Кубик в Кубе & БЯКО Рекордс
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161581.jpg" />
-</div>
-
-
-###  Подробнее
-
-В международном шпионском агентстве ISIS любой мировой кризис — лишь предлог для высококлассных секретных агентов посоревноваться между собой в обмане и предательстве. Главным героем мультсериала является спецагент Стерлинг Арчер, известный также под кодовым именем «Герцогиня». На службе Арчеру приходится мириться со своей эксцентричной мамашей/начальницей — Мэлори, (   Читать дальше...   )Производство: США / FX NetworkЖанр: Для взрослых, Шпионская комедияРежиссер: Брайан Фордни, Адам РидПеревод: Многоголосый закадровый, профессиональный (Кубик в Кубе & БЯКО Рекордс)Субтитры: Русские (Кроме 8 сезона)
-
-Внимание! Присутствует ненормативная лексика.Продолжительность: 101х ~00:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729E144106ADC285235867EB6098BA55FE11832F
 ```
 
 https://mybot314.ru/tekegram_catalog/

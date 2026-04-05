@@ -1,32 +1,3 @@
-###  Публикация: 1680841   (133965) от 30.11.2023
-
-Axenstar - Chapter VIII (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavenly Symphony (4:35)
-02. Through the Fire and Brimstone (5:01)
-03. The Great Deceiver (4:23)
-04. Enchanted Lands (2:36)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DA99D65701F722EAF90465C2C610CB89ED6E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680643   (133951) от 30.11.2023
 
 Lucia Altieri - Lucia Altieri (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
@@ -35,7 +6,7 @@ Lucia Altieri - Lucia Altieri (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133951.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Opeth - Deliverance & Damnation Remixed (2015) Compilation [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133939.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Fate - V (2006) Remastered, 2023, Frontiers Records [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133930.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Them - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133897.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Visions Of Atlantis - A Pirate's Symphony (2023) Orchestral Version [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133873.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Paradise Lost - Icon 30 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Gothic metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133852.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Brian Eno - ForeverAndEverNoMore (2022) Forever Voiceless Edition, 2023, UMC (Un
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133848.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Cobra Spell - 666 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133827.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Peter Gabriel - i/o (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133756.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Orphaned Land - A Heaven You May Create - Live @ Heichal HaTarbut, Tel Aviv 2021
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133515.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Daisy Jones & The Six - Aurora (2023) Super Deluxe Edition [FLAC 24/48,96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133133.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Dwa Plus Jeden - Bez Limitu (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133116.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Britny Fox - Britny Fox (1988) Remaster, Expanded Edition, 2023,  SBCMG [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133106.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Status Quo - Official Archive Series Vol. 2 (Live in London 2012) (2023) New Mix
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133091.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ The Alan Parsons Project - The Sicilian Defence (2014) Reissue, 2023, Arista - L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133077.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ Fate - If Not For The Devil (2013) Remastered Version, 2023, Frontiers Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133066.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Fate - Ghosts From The Past (2011) remastered version, 2023, Frontiers Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133062.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ The Alan Parsons Project - The Instrumental Works (1988) Reissue, 2023, Arista -
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133044.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ P!nk (Pink) - Trustfall (2023) Tour Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132987.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Deep Purple - Live On The BBC (1972) /2004, Audio Fidelity/ [DST 2.0 1bit/2822,4
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132942.jpg" />
 </div>
 
 
@@ -619,7 +590,7 @@ Nuclear - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132742.jpg" />
 </div>
 
 
@@ -648,7 +619,7 @@ Modus - Friends (1987) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132720.jpg" />
 </div>
 
 
@@ -677,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132664.jpg" />
 </div>
 
 
@@ -706,7 +677,7 @@ Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132568.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ Bryan Ferry - Boys And Girls (1985) /2005 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132401.jpg" />
 </div>
 
 
@@ -752,6 +723,35 @@ Bryan Ferry - Boys And Girls (1985) /2005 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83F604A041BE5DA3B77078E7EFC28727EE033AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682358   (131508) от 07.12.2023
+
+Pyramaze - Studio Albums (7 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pyramaze — датская пауэр-метал группа, образованная в 2001 году.2004 - Melancholy Beast
+2006 - Legend Of The Bone Carver
+2008 - Immortal
+2015 - Disciples Of The SunЖанр: Progressive Power MetalПродолжительность: 06:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FD17833A6834C9759E877803F36D54D69A5A7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

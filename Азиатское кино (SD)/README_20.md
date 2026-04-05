@@ -1,3 +1,81 @@
+###  Публикация: 1386680   (793341) от 30.05.2020
+
+Цветы зла / Aku no Hana / The Flowers of Evil (2019) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Такао Касуга уверен, что его жизнь кончилась три года назад, и с тех пор он просто существует. Тогда парень учился в другой школе, зачитывал до дыр «Цветы зла» Бодлера и вздыхал по однокласснице — отличнице и красавице Нанако. Однажды после уроков, когда в классе никого не было, Такао увидел, что из шкафчика выпала физкультурная форма Нанако, и не (   Читать дальше...   )Производство: Япония / Phantom Film, Happinet, Kadokawa Daiei Studio Co. LtdЖанр: Драма, мелодрама, триллерРежиссер: Нобору ИгутиАктеры: Кэнтаро Ито, Тина Тамасиро, Мариэ Иитоё, Сиори Акита, ХонораПеревод: Двуголосый любительский (RealFake)Субтитры: Английские - отдельным файломПродолжительность: 02:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F122A2F79C14C32DB8EA1420FACFF6D8F4082A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012368   (793328) от 01.05.2016
+
+Монета призрака / Game pluk phi (2014) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Решив наказать своего друга за денежные махинации, а по пути и поживиться, забрав у мертвых ценности, которые мертвецам уже не нужны, группа друзей направляется на кладбище, где нечистый на руку товарищ, должен разрыть могилу и провести час, прикованный к трупу наручниками. Однако, жадный до звона монет друган, вытаскивает изо рта трупа погребальную монету, не зная (   Читать дальше...   )Производство: ТаиландЖанр: УжасыРежиссер: Тива МейтхайсонгАктеры: Ейяинг Рхатха Пхонгам, Намо Тункомнерд, Танаёнг ВонгтракулПеревод: Двухголосый закадровый, любительский (den904 & DeadSno)Продолжительность: 01:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94C9C9D90EF2414C12CF30FF880B0461C6CE79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509555   (792730) от 14.11.2021
+
+И снова жить (Второе рождение) / Hwajang / Revivre (2014) BDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жена Господина О, одного из директоров крупной косметической компании, скончалась от рака. Пока она четыре года медленно угасала, проигрывая болезни, Господин О оставался преданным мужем. На похороны пришли многие его сослуживцы, чтобы выразить свои соболезнования, вот только единственное, о чем думает вдовец - это Чху Ын Чжу женщина, в которую Господин О влюбился (   Читать дальше...   )Производство: Южная Корея, KTH, Myung FilmsЖанр: ДрамаРежиссер: Лим Гвон-тхэкАктеры: Ан Сон-ги, Ким Гю-ри, Ким Хо-джон, Пак Чон-щик, Чон Хе-джин, Ким Бён-чхун, Ким Ги-чхон, Мин Гён-джин, Хан И-джин, Ан Сок-хванПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4B948339CCA5E821969941058D6BA2FB1C2B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508378   (792540) от 14.11.2021
 
 Месть земли (Бесконечная глубина, Облачная гора) / Feng bao / Cloudy Mountain / Infinite Depth (2021) WEB-DLRip [MVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792540.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792516.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791803.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791469.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790903.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790312.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789581.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789171.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788983.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787758.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787394.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786853.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786670.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786532.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785227.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784551.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783656.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783334.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783110.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782244.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781024.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780327.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779440.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4223815BA18E80BD5E6137F39453C67DD165557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209242   (779434) от 25.02.2018
-
-Стальной алхимик / Hagane no renkinjutsushi / Fullmetal Alchemist (2017) WEBRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779434.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стране Аместрис алхимия широко распространена как точная наука. Два брата Эдвард и Альфонс Элрики ещё детьми пытались при помощи алхимии воскресить мёртвую маму, но поплатились за это. Старший лишился руки и ноги, младший — всего тела, хотя и был в самый последний момент чудом спасен — брат привязывает его душу к стальным рыцарским доспехам. Теперь два брата — (   Читать дальше...   )Производство: Япония / Square Enix Co. Ltd.Жанр: Боевик, фэнтези, приключенияРежиссер: Ясухиро Ириэ, Киёмицу Сато, Хироши ИкетомиАктеры: Рёске Ямада, Цубаса Хонда, Дин Фудзиока, Рюта Сато, Мисако Рэмбуцу, Ё Ойзуми, Кэндзиро Исимару, Ясуко Мацуюки, Синдзи Утияма, Каната ХонгоПеревод: Любительский (многоголосый закадровый) AniDUBСубтитры: ОтсутствуютПродолжительность: 02:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B434C9EAE18B97053ED0BA559640B95DCDF946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209082   (779415) от 25.02.2018
-
-Война волков 2 / Zhan lang 2 (2017) BDRip [H.264] [MVO]
-
->>След.
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых лучших спецназовцев Китая уходит на заслуженный отдых и поселяется в тишине, около моря. Но когда банда садистов начинает терроризировать невинных людей,он должен снова взяться за оружие и защитить тех, кто в этом нуждается.Производство: Китай / Beijing Century Media Culture, Beijing Dongfang International Cultural Communications Company, Bona International Film GroupЖанр: Драма, боевик, военныйРежиссер: Джеки ВуАктеры: Джеки Ву, Фрэнк Грилло, Селина Джейд, У Ган, Хань Чжан, Цзянь Юй, Нань Юй, Чуньюй Шаньшань, Хайфэн Дин, Олег ПрудиусПеревод: Любительский (многоголосый закадровый) GreenРай StudioСубтитры: ОтсутствуютПродолжительность: 02:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F91617163E47A679039AA6939A6343FE58E4998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209298   (779338) от 26.02.2018
-
-Стальной алхимик / Hagane no renkinjutsushi / Fullmetal Alchemist (2017) WEB-DLRip [H.264] [MVO] [PR]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779338.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стране Аместрис алхимия широко распространена как точная наука. Два брата Эдвард и Альфонс Элрики ещё детьми пытались при помощи алхимии воскресить мёртвую маму, но поплатились за это. Старший лишился руки и ноги, младший — всего тела, хотя и был в самый последний момент чудом спасен — брат привязывает его душу к стальным рыцарским доспехам. Теперь два брата — (   Читать дальше...   )Производство: Япония / Square Enix Co. Ltd.Жанр: Боевик, фэнтези, приключенияРежиссер: Ясухиро Ириэ, Киёмицу Сато, Хироши ИкетомиАктеры: Рёске Ямада, Цубаса Хонда, Дин Фудзиока, Рюта Сато, Мисако Рэмбуцу, Ё Ойзуми, Кэндзиро Исимару, Ясуко Мацуюки, Синдзи Утияма, Каната ХонгоПеревод: Многоголосый закадровый (AniDUB)Субтитры: русские (форсированные, полные)Продолжительность: 02:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775A6550563CBCFD642B6BC55198FBCB63D3E186
 ```
 
 https://mybot314.ru/tekegram_catalog/

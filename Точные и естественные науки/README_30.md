@@ -1,3 +1,90 @@
+###  Публикация: 1083682   (218471) от 19.12.2016
+
+Л. Н. Колосова (ред.) | Нидерланды. Общегеографическая карта (1993) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218471.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Нидерландов с административным делением (масштаб 1:500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C660BB558EABC16ADFB488B4E2CF2CC201D222F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084208   (218396) от 19.12.2016
+
+А. В. Молостова (ред.) | Новая Зеландия. Справочная карта (2003) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218396.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Новой Зеландии с административным делением (масштаб 1:2 000 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB29F45CFB676C11D7A5F3C37A8C755C3030822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966518   (218103) от 18.12.2015
+
+Л. Н. Колосова (ред.) | Афганистан. Общегеографическая карта (1994) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218103.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Афганистана с административным делением (масштаб 1:2 000 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8A933EC202BD3E5348EB4273C2D45E6F2E02A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269778   (217060) от 16.12.2018
 
 Андрей Шляхов | География на пальцах (2018) [PDF]
@@ -6,7 +93,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217060.jpg" />
 </div>
 
 
@@ -32,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217013.jpg" />
 </div>
 
 
@@ -60,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216750.jpg" />
 </div>
 
 
@@ -86,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216725.jpg" />
 </div>
 
 
@@ -113,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216542.jpg" />
 </div>
 
 
@@ -139,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216010.jpg" />
 </div>
 
 
@@ -167,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214238.jpg" />
 </div>
 
 
@@ -193,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213140.jpg" />
 </div>
 
 
@@ -221,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211675.jpg" />
 </div>
 
 
@@ -247,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211405.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211037.jpg" />
 </div>
 
 
@@ -301,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210969.jpg" />
 </div>
 
 
@@ -327,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210928.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210803.jpg" />
 </div>
 
 
@@ -379,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210776.jpg" />
 </div>
 
 
@@ -406,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210768.jpg" />
 </div>
 
 
@@ -432,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210753.jpg" />
 </div>
 
 
@@ -459,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210682.jpg" />
 </div>
 
 
@@ -485,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210603.jpg" />
 </div>
 
 
@@ -511,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209427.jpg" />
 </div>
 
 
@@ -537,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208987.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208575.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207968.jpg" />
 </div>
 
 
@@ -600,84 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21AA15428B1BEBE6BF0F2E80DE0DD60EDCE679AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649125   (207905) от 26.07.2023
-
-М.Я. Выгодский | Справочник по высшей математике [12-е издание] (1977) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга составляет продолжение Справочника по элементарной математике того же автора и включает весь материал, входящий в программу основного курса математики высших технических учебных заведений (механико-машиностроительных, строительных, авиационных, транспортных, электротехнических, энергетических и горнометаллургических).Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9FE2AC1CB9F5E5DDBE1A7AE6764BA586017970
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611062   (207205) от 16.02.2023
-
-Сборник | Algebra, pre-Algebra textbooks - Учебники по алгебре [84шт.] (1985-2022) [PDF, DJVU] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка учебников на английском языке по Алгебреза период с 1985 по 2022 года. Подробное описание содержимого подборки находится под спойлерами.Жанр: МатематикаЯзык: АнглийскийФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6693BAEDA10493317572BEF7FA07FC709B6EB660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651291   (206991) от 06.08.2023
-
-М.Я. Выгодский | Справочник по элементарной математике (1954) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник содержит все определения, правила, формулы и теоремы элементарной математики, а также математические таблицы. Предметный указатель и подробное содержание позволяет легко и быстро получать необходимую информацию.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E3A5A067A70C9C3EBEBE1CE24A8052CBB61476
 ```
 
 https://mybot314.ru/tekegram_catalog/

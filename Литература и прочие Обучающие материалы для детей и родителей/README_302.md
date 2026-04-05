@@ -1,3 +1,57 @@
+###  Публикация: 1070156   (369012) от 06.11.2016
+
+Василий Авенариус | Необыкновенная история о воскресшем помпейце (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказочных и фантастических произведений.Жанр: Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC54A3D7FD8DB9C8106569B26B3AAAB4C0727D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576226   (368614) от 13.09.2022
+
+Эзра Виленский | Возвращение папанинцев (1939) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Был декабрь 1937 года.
+Кончался седьмой месяц жизни на дрейфующей льдине четверки отважных советских полярников — Папанина, Ширшова, Кренкеля и Федорова.
+Льдина ушла далеко от Северного полюса. Она плыла между Гренландией и Шпицбергеном. Зимовщики продолжали свою героическую работу. Они всё время проводили научные исследования и наблюдения, аккуратно передавали в (   Читать дальше...   )Жанр: Повесть, ДокументалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A181936A060EAC9A08AF53291D671FF0E9C3537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255065   (368306) от 16.10.2018
 
 Валериан Лункевич | Основы жизни Том 1 (1910) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368306.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368304.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368299.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368292.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368077.jpg" />
 </div>
 
 
@@ -146,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368037.jpg" />
 </div>
 
 
@@ -173,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368036.jpg" />
 </div>
 
 
@@ -200,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368031.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368023.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368022.jpg" />
 </div>
 
 
@@ -280,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368019.jpg" />
 </div>
 
 
@@ -308,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367876.jpg" />
 </div>
 
 
@@ -334,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367745.jpg" />
 </div>
 
 
@@ -362,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367490.jpg" />
 </div>
 
 
@@ -390,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367335.jpg" />
 </div>
 
 
@@ -419,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367082.jpg" />
 </div>
 
 
@@ -446,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366961.jpg" />
 </div>
 
 
@@ -474,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366258.jpg" />
 </div>
 
 
@@ -500,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366254.jpg" />
 </div>
 
 
@@ -527,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366253.jpg" />
 </div>
 
 
@@ -553,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366244.jpg" />
 </div>
 
 
@@ -580,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366242.jpg" />
 </div>
 
 
@@ -607,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366056.jpg" />
 </div>
 
 
@@ -633,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365992.jpg" />
 </div>
 
 
@@ -644,62 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A21EC7EDF10AFBF2F4B29CA68158B5EEA4602BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950871   (365502) от 28.10.2015
-
-Журнал | Твоя Юла №11 (ноябрь 2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский познавательный журнал:
-- викторины;
-- комиксы;
-- страшилки;(   Читать дальше...   )Жанр: Журнал для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5506124B5F0C090309280EEF159DBA91B129DEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951189   (365486) от 28.10.2015
-
-Журнал | Каникулы с Золотой антилопой №11 (63) (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский познавательный и развивающий журнал.
-В номере: лабиринты с секретом, картинки из Зазеркалья, ребусы, шарады, кроссворды.Жанр: Журнал для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A93A7C43A9280C3703C967E683A01872810714
 ```
 
 https://mybot314.ru/tekegram_catalog/

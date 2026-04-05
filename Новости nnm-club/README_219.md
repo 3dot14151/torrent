@@ -1,3 +1,58 @@
+###  Публикация: 1196084   (272726) от 29.11.2018
+
+Paravis Flash ver:Assay 11.2018 [UEFI | x86/x64 | RU/EN]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка содержит следующие компоненты:
+1. Загрузка Windows 8 Native, 8, 10 Sergei Strelec v14.11.2018 x86/x64
+2. Загрузка Windows 7 PE BootPass 4.2.8
+3. Установка Windows 7, 10, 10 LTSC x86/x64 (оригинальные образы, обновления по 11.2018)(   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4EEE3E93E2D6FF4B9A94AC3BF090D02853838C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156773   (272722) от 29.11.2018
+
+Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая игра от создателей Heavenly Sword, Enslaved: Odyssey to the West и DmC: Devil May Cry о путешествии в глубины легенд и безумия. В эпоху викингов измученная кельтская воительница отправляется в ужасную страну мертвых, чтобы сразиться за душу погибшего возлюбленного.Тип издания: RepackРазработчик: Ninja TheoryЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCABCA6BA475022043326E490FCBCB36208BC36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502378   (272715) от 29.11.2018
 
 Доктор Хаус / House M.D. (2004-2012) WEB-DLRip (сезоны 1-8, серии 1-177 из 177) LostFilm
@@ -6,7 +61,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272715.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272188.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272187.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272184.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ Windows XP Pro SP3 StableOS 1.10 FullLite 1.10 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272171.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ StarChip - "космический корабль" в виде чипа, кот�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_272049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_272049.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ Extensis Suitcase Fusion 7 v18.2.1 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271902.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_271730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_271730.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ Phase One Capture One Pro 12.0.0.291 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271640.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271603.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ Windows 10 Enterprise 1909 18363.476 x64 Rus by OneSmiLe (13.11.2019)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271116.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ Windows 10 Enterprise LTSC 2019 17763.864 x64 Rus by OneSmiLe (13.11.2019)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271101.jpg" />
 </div>
 
 
@@ -330,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271096.jpg" />
 </div>
 
 
@@ -356,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271079.jpg" />
 </div>
 
 
@@ -382,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_271053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_271053.jpg" />
 </div>
 
 
@@ -409,7 +464,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru] (1.06) Repack Other s [Ultimate HD Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270930.jpg" />
 </div>
 
 
@@ -435,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_270780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_270780.jpg" />
 </div>
 
 
@@ -461,7 +516,7 @@ ABBYY Finereader 14 Enterprise  14.0.105.234 Repack (Тестирование) [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270687.jpg" />
 </div>
 
 
@@ -488,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270678.jpg" />
 </div>
 
 
@@ -515,7 +570,7 @@ FIFA 19 (2018) [Ru/Multi] (1.0) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270594.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ Grand Theft Auto IV / GTA IV [XBOX360] [PAL / NTSC/J] [XGD2] [Ru] (2008) | R.G. 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270584.jpg" />
 </div>
 
 
@@ -569,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270583.jpg" />
 </div>
 
 
@@ -595,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270581.jpg" />
 </div>
 
 
@@ -621,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270577.jpg" />
 </div>
 
 
@@ -632,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E29264C5F5DF335F2D416D5CD4C7051A4E45DF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337878   (270364) от 14.11.2019
-
-⚡ Российские частные компании разрабатывают 2 типа ракет-носителей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_270364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анонсировавшиеся в 2014-2016 годах амбициозные планы отечественной компании «Лин Индастриал» по созданию новых ракет для выведения спутников получили продолжение. В 2019 году разработчик в кооперации с еще двумя частными российскими фирмами ведет работу над 2 ракетами – новой версией сверхлегкого «Таймыра» и легкой ракеты «Адлер» («Сибирь»). Что это за проекты?«Таймыр» (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337707   (270339) от 14.11.2019
-
-⚡ Единого поставщика телевидения в интернете определит Роскомнадзор
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_270339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Госдума  рассмотрит проект закона №759960-7, который одобрит появление в стране единого поставщика телепрограмм в интернете. Думский комитет по информационной политике  рекомендовал принять его в первом чтении.Оператор займется распространением контента, производимого 20 каналами, которые входят в два федеральных мультиплекса. При этом уполномоченная организация, которую, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

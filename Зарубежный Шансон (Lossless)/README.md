@@ -7,7 +7,7 @@ Salvatore Adamo - In French Please ! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042885.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Charles Aznavour - Hit-Collection (1993) [FLAC|Lossless|tracks + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005271.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ V.A. - Французский поцелуй - Хиты Франции (2011) [F
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994385.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ Joe Dassin - Best of Joe Dassin 3xCD (2009) [FLAC|Lossless]<Pop / Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982365.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Patricia Kaas - Mademoiselle Chante... (1988) 1992, Deon Ltd. [FLAC|Lossless|ima
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936943.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Per Un' Ora D' Amore (2002) [FLAC|Lossless|tracks + .cue] <Chanson, Vocal, 
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922229.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Tony Carreira - Le coeur des femmes (2017) [FLAC|Lossless|tracks] <French Chanso
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885453.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Charles Aznavour - Collected (2016) 3CD [FLAC|Lossless|image + .cue] <French Cha
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844735.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Patrick Fiori - Choisir (2014) [FLAC|Lossless|tracks + .cue] <Chanson, Pop>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820529.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Edith Piaf - Edith Piaf 1962 (Remastered 2017) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807878.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Jane Birkin - Jane Birkin (1987) 2001,Universal [FLAC|Lossless|image + .cue] <Ch
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807877.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Michel Polnareff - Love Me, Please Love Me (1966) 2010, Universal [FLAC|Lossless
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802520.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Salvatore Adamo - Si Vous Saviez... (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, C
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780192.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ L - Chansons (2018) [FLAC|Lossless|WEB-DL|tracks] <Chanson Française, French Po
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779207.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Marie Laforet - French Collection (2000) [FLAC|Lossless|tracks + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762481.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Edith Piaf - French Collection 2000 (2000) [APE|Lossless|image + .cue] <Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725868.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Joe Dassin - Integrale Albums (2000) 15CD Box Set, Limited Edition [FLAC (image+
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651672.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Julio Iglesias - Da Manuela A Pensami (1978) [FLAC|Lossless|tracks + .cue] <Chan
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647388.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Bernard Lavilliers - Samedi soir a Beyrouth (2008) [FLAC|Lossless|tracks + .cue]
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629227.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Bonjour La France ( The Sound Of France ) (1993 & 1996) 2*2CD [FLAC|Lossles
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_622542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622542.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Zazie - Zen (1995) [FLAC|Lossless|tracks + .cue] <Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610120.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Francoise Hardy - L'amour fou (2012) [FLAC|Lossless|image + .cue] < Pop, chanson
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596428.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Joe Dassin - Les Plus Belles Chansons D'amour De (2003) [FLAC|Lossless]<Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587401.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Joe Dassin - Best Of 3 CD L'Album Souvenir (2010) [FLAC|Lossless]<Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_559122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_559122.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Lio - Je Suis Comme Ca (2000) [FLAC|Lossless|image + .cue] <French, Pop, Chanson
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465461.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ Patricia Kaas - 6 Студийных альбомов (1988 - 2002) /Japan/ [FLA
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_445523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_445523.jpg" />
 </div>
 
 

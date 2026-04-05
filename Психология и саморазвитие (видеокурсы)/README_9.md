@@ -6,7 +6,7 @@ Apeiron, Алексей Арестович | Семинар «Священная
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197593.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Apeiron, Алексей Арестович | Семинар «Ищите жен�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197583.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Apeiron, Алексей Арестович | Семинар «Дисциплин
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197571.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Apeiron, Алексей Арестович | Семинар «Искусство
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197559.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197552.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Apeiron, Алексей Арестович | Семинар «Сила наме�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197383.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Apeiron, Алексей Арестович | Семинар «Безжалост
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197201.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197012.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Apeiron, Алексей Арестович | Семинар «Картина м�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196941.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196610.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196608.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196469.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196365.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196341.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196327.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196044.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195900.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195504.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194153.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ IndigoGo, Денис Швец | Онлайн-курс по развитию ва
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194049.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Proprofiling, Алексей Филатов | Энциклопедия мани�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191377.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186708.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Udemy, Brad Merrill | Modern Productivity — Superhuman Focus In A Distracted W
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186195.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Udemy, Максим Дорофеев | Джедайские техники (а �
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178674.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177287.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175621.jpg" />
 </div>
 
 

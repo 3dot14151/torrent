@@ -1,3 +1,55 @@
+###  Публикация: 1362603   (947555) от 24.02.2020
+
+Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfenstein®: The New OrderTM - это возрождение серии, которая когда-то положила начало жанру FPS. Разрабатываемая студией Machine Games, в которой собрались опытные мастера, создавшие не одну знаменитую игру, Wolfenstein представляет собой сочетание психологической драмы с захватывающим сюжетом, приключениями и боевой системой от первого лица.Тип издания: RepackРазработчик: MachineGamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5AC48398C6356AD2592D7F2AD2852F6C5D9DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090481   (946932) от 06.01.2017
+
+TRON 2.0 (2003) [Multi] (1.030) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас зовут Джет Брэдли, и вы больше не человек. Вас перевели в цифровой формат, и вы очутились внутри глобальной компьютерной системы TRON. Здесь вы должны найти своего отца, похищенного обезумевшим искусственным разумом. Это задачка посложнее Quake III - вокруг кишат почти неуязвимые существа, запрограммированные только на ваше убийство. Они рыщут в недрах компьютеров, (   Читать дальше...   )Тип издания: LicenseРазработчик: Monolith Productions, Inc.Жанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A5B87C18D5A2BFE94F040F64D94D57DD3F3BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090863   (945409) от 07.01.2017
 
 Quake 4 (2005) [Ru/Multi] (1.4.2) Repack R.G. Catalyst
@@ -6,7 +58,7 @@ Quake 4 (2005) [Ru/Multi] (1.4.2) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945409.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Bequest (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940816.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Sniper: Ghost Warrior Gold Edition + 2 DLC [Ru/En] (RePack/1.3.0.0) 2010 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940645.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Far Cry 3 [Ru/En] (Repack/1.05/7 DLC) 2012 | R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940610.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Horror Hospital (2016) [En/Tr] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939559.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Rage + 3 DLC [Ru/En] (RiP/1.3) 2011 | z10yded
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939352.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ Dr. Langeskov, The Tiger, and The Terribly Cursed Emerald: A Whirlwind Heist (20
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936951.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ The Cursed Forest (2019) [Ru/En] (1.0.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935636.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Wolfenstein 3D: Spear of Destiny (1993) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934554.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Borderlands:​ Game of the Year Edition 4DLC [Ru/En] (Reрack/1.4.1) 2010 | R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933047.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (16.0.20.1060) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931612.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ Sniper: Ghost Warrior 2 / Снайпер: Воин-призрак 2  [Ru/En/Mult
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929570.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ Dead Effect 2 (2016) [Ru/En] (170 106.1208) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928527.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/En] (2.0.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924906.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ Far Cry / Rambo 3 - Afganistan [Ru] (P/Mod) 2004/2008
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923145.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ Hard Reset Redux (2016) [Ru/En] (1.1.3.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921928.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ DeadTruth: The Dark Path Ahead (2017) [En] (1.0) License PLAZA [Episode 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921794.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ Quadrant (2015-2017) [Ru/Multi] (1.53) License POSTMORTEM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920156.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ Area 51 Dilogy / Зона 51 Дилогия (2005-2007) [Ru/En] (1.1/1.2) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920124.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ Arma 3 (2013) [Ru/Multi] (1.56.134627/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919893.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ Prospekt (2016) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919870.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ Venom. Codename: Outbreak (2001) [Ru/Multi] (1.0.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918548.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Pulang: Insanity (2020) [Multi] (1.0.0.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916809.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Medal Of Honor: Airborne (2007) [Ru] (1.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916679.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ Medal Of Honor: Airborne (2007) [Ru] (1.3) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C891AD5EFA5B76602BC3CFD75FF2C78906202601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920021   (916333) от 22.02.2016
-
-Call of Juarez: Gunslinger (2013) [Ru/En] (1.0.5/dlc) Repack =nemos=
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Juarez The Gunslinger перенесет вас на просторы легендарного Дикого Запада - место, где царит неповторимая атмосфера беззакония и жестокости. Вживайтесь в роль безжалостного охотника за головами, отыщите и пристрелите самых отъявленных негодяев. Вам предстоит побывать в грязных салунах, золотых шахтах и многих других местах, где могут укрываться бандиты. (   Читать дальше...   )Тип издания: RePackРазработчик: TechlandЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE1BAE9AB99A66391354011CB2DE1E4A6199159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097203   (915125) от 26.01.2017
-
-SWAT 3: Tactical (1999) [En] (2.1) License GOG [Game of the Year Edition]
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915125.jpg" />
-</div>
-
-
-###  Подробнее
-
-В SWAT 3: Tactical Game of the Year Edition вы выступите в роли офицера специального элитного подразделения по борьбе с терроризмом SWAT. Под вашим командованием окажется отряд профессионалов, состоящий из пяти человек, основными задачами которого будет борьба с террористами и спасение заложников. В игре вам будет доступна 21 миссия, различные виды оружия с разными (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra NorthwestЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F4079377F3F8328FBEFF010A8ECDFC771600B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

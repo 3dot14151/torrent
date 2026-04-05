@@ -1,3 +1,55 @@
+###  Публикация: 1840159   (1047066) от 03.12.2025
+
+Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.96) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атмосферное RPG-приключение в ярком живом мире, где игровой процесс завязан на набор ключевых слов на клавиатуре. Следуйте за Розалиндой, хронистом-новичком, в её путешествии за знаниями, помогайте ей собирать образцы удивительной флоры и фауны. Вокруг тихо и спокойно. Кажется, война осталась далеко в прошлом. Но магия диссонанса набирает силу в тенях, отравляя сломленные (   Читать дальше...   )Тип издания: LicenseРазработчик: Fishing CactusЖанр: Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960E5B5E871489929D4F0EBFB7A1C83D6AE26F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839678   (1046865) от 30.11.2025
+
+UnReal World (1992) [En] (3.86.1/dlc) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046865.jpg" />
+</div>
+
+
+###  Подробнее
+
+UnReal World - это уникальное сочетание ролевой игры в жанре roguelike и симулятора выживания, действие которых разворачивается на Крайнем Севере давным-давно. На протяжении многих лет UnReal World славится своей глубиной, реализмом, атмосферой и захватывающим дух погружением. Игра полностью открыта, и вы сами решаете, хотите ли вы жить жизнью рыбака, отшельника (   Читать дальше...   )Тип издания: LicenseРазработчик: Sami Maaranen, Erkka LehmusЖанр: Инди, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6605B33322C92BB790140844D707887DF777BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839670   (1046862) от 30.11.2025
 
 Geneforge 5: Overthrow (2008) [En] (1.0.1g) License GOG
@@ -6,7 +58,7 @@ Geneforge 5: Overthrow (2008) [En] (1.0.1g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046862.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Geneforge 4: Rebellion (2006) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046861.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Geneforge 3 (2005) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046856.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Shin Megami Tensei III Nocturne HD Remaster (2021) [Multi] (20657000/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046834.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Eschalon: Book (2007-2014) [Ru] (1.06/1.05/1.021/dlc) Repack Nelex [Трилог
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046817.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Shana priestess of Tona (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046705.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Quartet (2025) [En] (1.2.20251019.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046674.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Shadows of Doubt (2024) [Ru/Multi] (41.04) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046498.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Two Worlds 2 (2010) [Ru/En] (2.0.6/dlc) License GOG [Epic Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045698.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ One Piece Odyssey (2023) [Ru/Multi] (01.00/dlc) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045240.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Demons Roots (2023) [Multi] (1.01/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045131.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044356.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044179.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Hero Siege (2014) [Ru/Multi] (5.6.0.0/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044102.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Blue Reflection: Second Light (2021) [Multi] (1.02/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043979.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ ATONE: Heart of the Elder Tree (2023) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043112.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Risen (2009) [Ru/Multi] (1.0a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043100.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Star Ocean - The Last Hope (2017) [Ru] (1.1.12212) Repack xatab [4K & Full HD Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041251.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Exiled Kingdoms (2018) [Ru/Multi] (1.2.1124) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041249.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Ringborn (2023) [En] (1.0) License Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041227.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Anima: Gate of Memories (2016) [Multi] (20171122) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041222.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Perseus: Titan Slayer (2023) [Ru/Multi] (1.0) License FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040666.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Guild of Dungeoneering (2015) [En] (1.2022.3.11/dlc) License GOG [Deluxe Ice Cre
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040665.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ SpellForce: Conquest of Eo (2023) [Multi] (01.00.26984) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039223.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ SpellForce: Conquest of Eo (2023) [Multi] (01.00.26984) Repack DjDI
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06E5C474B121A88F21825534D2A4B8D5246C906D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416331   (1039188) от 15.01.2021
-
-Torchlight III (2020) [Ru/Multi] (6056074/dlc) Repack xatab
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сто лет прошло со времени событий Torchlight II, и Эмберитовая Империя переживает упадок. В Torchlight III Новастрайе снова угрожает вторжение, и именно вам предстоит ее защищать от Нетерим и их приспешников. Cобирайтесь c мыслями, и вперед – на рубежи, навстречу славе, известности и новым приключениям!Тип издания: RepackРазработчик: Echtra Inc.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E9444D4D4A6D7A98AE1057B1CC39207D9EAFAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614127   (1038708) от 21.02.2023
-
-Perseus: Titan Slayer (2023) [Ru/Multi] (1.1.0) Repack DjDI
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perseus: Titan Slayer - Free Trial - это возможность погрузиться в динамические приключения, где юзерам приходится насладиться древнегреческим сеттингом. Выйдет столкнуться с Аидом и его мифологическими существами, которые будут нападать на протагониста. Герой вынужден побеждать титанов, пробираясь с боем через Царство Теней, чтобы спасти Олимп. Проект является экшен-рогаликом, (   Читать дальше...   )Тип издания: RepackРазработчик: SicariusЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4ADDA1D715FC744DA05EF9D393829019FCB6140
 ```
 
 https://mybot314.ru/tekegram_catalog/

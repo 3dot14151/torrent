@@ -1,3 +1,133 @@
+###  Публикация: 968431   (156008) от 23.12.2015
+
+Джи – нестандартная смерть / Dji. Death Sails (2012) HDTVRip [H.264/720p-LQ] (4 серии)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джи - не стандартная смерть. Тёмный рыцарь предстал в ином облике. Нет, он не белый и пушистый. Просто он жутко невезучий. Сценаристы строят ему всяческие козни. Справится он с ними или нет, смотрите сами.Производство: Молдова, SimpalsЖанр: Короткометражный, Для взрослыхРежиссер: Дмитрий ВолошинПеревод: Без слов / НемойПродолжительность: 1 серия - 00:03:56, 2 серия - 00:01:07, 3 серия - 00:01:15, 4 серия - 00:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBD32B8F9B1FAE9035CD89F821316DFBC49900E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085563   (155932) от 22.12.2016
+
+Монстры против пришельцев.Большой отрыв БОБа. / Monsters vs. Aliens.B.O.B.'s Big Break (2009) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155932.jpg" />
+</div>
+
+
+###  Подробнее
+
+У БОБа день рождения и друзья мутанты решили приготовить для него разрывной сюрприз.Производство: США | DreamWorks AnimationЖанр: Короткометражный анимационный фильмРежиссер: Роберт ПортерПеревод: Дублированный, любительский многоголосый (закадровый)Субтитры: Русские, Английские (вшитые, отключаемые)Продолжительность: 00:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA7C9919D56BFB026F71AE7EB2708FBC26F7C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737676   (155842) от 24.12.2013
+
+Игрушечная история террора / Toy Story of Terror (2013) HDTVRip [1080i]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вуди, Джесси, Баз, Рекс и другие знакомые и незнакомые персонажи проведут ночь в мотеле. Им придется столкнуться с настоящим чудовищем и другими опасностями в ожидании рассвета.Жанр: Мультфильм, короткометражка, Комедия, ПриключенияРежиссер: Энгус МакЛэйнПерсонажи: Том Хэнкс, Тим Аллен, Джоан Кьюсак, Карл Уэзерс, Стивен Тоболовски, Тимоти Далтон, Уоллес Шоун, Дон Риклз, Кристен Шол, Кейт МакКиннонПеревод: Многоголосый закадровый, любительскийОзвучка / Автор перевода: SkyeFilmTVЯзык субтитров: РусскийПродолжительность: 00:20:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330B1693BD400DB667BE3ED609F5C496F027C23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518452   (155803) от 19.12.2021
+
+Клоун Коко приземляется / KoKo Hops Off (1927) TVRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двадцатые годы прошлого века это время, когда авиация заметно взрослеет, становится мощнее. Очень популярны дальние перелеты. Через Атлантику, через весь континент и т.п. Ну, и Коко со своим собакеным решается претендовать на летный кубок.Производство: США, Inkwell StudiosЖанр: Рисованная анимацияРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские встроенные отключаемыеПродолжительность: 00:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EC062C1DC7C99EEEE01810E542A5939EEB68912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600704   (155738) от 28.12.2022
+
+Четверо с одного двора (1967) BDRip [H.264/1080p-LQ] [handmade remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо друзей с одного двора решили поймать крысу.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Инесса КовалевскаяСубтитры: ОтсутствуютПродолжительность: 00:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C81EB0E9DCB8E92ABF62310403DA96D5134BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600708   (155726) от 28.12.2022
 
 Четверо с одного двора (1967) BDRemux [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155726.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155694.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155664.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155632.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155406.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155247.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155151.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155046.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154873.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154850.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154816.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ Headspace: Руководство по медитации / Headspace Guide to M
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154786.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154709.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ My Little Pony в кино (Мой маленький пони) / My Little Pony
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154579.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ My Little Pony в кино (Мой маленький пони) / My Little Pony
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154523.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154251.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154106.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154090.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153771.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153770.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153758.jpg" />
 </div>
 
 
@@ -538,138 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A1E68136F7F28AA09ED77EA489BEC27D0C9CCFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518524   (153437) от 20.12.2021
-
-Плюшевый Бум! (2021) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вор экстра-класса Макс похищает уникальный рубин, который собирается вывезти из страны. Для этого он прячет драгоценность внутри плюшевого мишки по имени Бум — популярной детской игрушки. Но всё идёт не по плану, когда мишка по ошибке попадает в магазин игрушек, а рубин оказывается магическим и оживляет всех его обитателей. Максу предстоит найти Бума и вернуть рубин. (   Читать дальше...   )Производство: Россия / Группа Компаний «Рики», Студия Анимации «Петербург»Жанр: мультфильм, фэнтези, приключения, комедияРежиссер: Денис Чернов, Илья КуприяновСубтитры: ОтсутствуютПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3105B692CA8A5E2888BFFEB30C01133E2A70B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270844   (153417) от 21.12.2018
-
-Мой Маленький Пони: Дружба - это Чудо / My Little Pony: Friendship Is Magic (2018) WEB-DL [H.264/1080p-LQ] (сезон 8, эпизоды 01-26 из 26) [UKR/ENG, ENG Sub]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня - аликорн Твайлайт Спаркл, любимая ученица Принцессы Селестии, - всё время сидела за книгами и считала, что друзья не нужны. Принцесса Селестия даёт ей задание найти друзей и посылает Твайлайт вместе с её помощником, драконом по имени Спайк, в небольшой городок Понивилль. Там она встречает своих новых друзей: задиристую Рэйнбоу Дэш, модницу Рэрити, (   Читать дальше...   )Производство: США, Канада, Hasbro StudiosЖанр: Фентези, Приключения, КомедияРежиссер: Лорен Фауст, Джейсон Тиссен, Джеймс Вуттон, Джим МиллерПеревод: ОтсутствуетОзвучка / Автор перевода: ТК ПлюсПлюсЯзык озвучки: украинский, английскийСубтитры: английскиеПродолжительность: 00:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411BF69721993EB5692E12DB05C97B688B2B777F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 220616   (153257) от 27.12.2014
-
-Феи / Tinker Bell (2008) [1080p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_153257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в волшебный мир, населенный очаровательными обитательницами Долины Фей. Это чудесное место, наполненное мифами, магией и волшебством. Долина Фей — это целое королевство, каждый житель которого обладает своим, необыкновенным талантам, а все вместе феи выполняют очень важную работу — они заботятся о природе и помогают временам года сменять друг друга: (   Читать дальше...   )Производство: Walt Disney Pictures / СШАЖанр: Анимация, приключения, фэнтези, мультфильмРежиссер: Брэдли РэймондПеревод: Профессиональный (полное дублирование), Оригинальный (английский)Субтитры: русские, английскиеПродолжительность: 01:17:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 400114   (153213) от 21.12.2018
-
-Все дело в шляпе (Лето в Муми-доле; В Муми-дол приходит осень) (1980-1983) DVD5
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153213.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам сказки финской писательницы Туве Янссон "Шляпа волшебника".
-В мультипликационной трилогии рассказывается о веселых обитателях долины Муми-дол, в чьи лапы попадает странная шляпа. После нескольких смешных и грустных событий становится ясно, что она волшебная и умеет превращать вещи. А потом появляются новые участники и добавляют таинственности...Производство: СССРЖанр: Рисованная анимация, ДетскийРежиссер: Анатолий АляшевАктеры: И. Потоцкая, Рогволд Суховерко, Александр Очаретянский, Агарь Власова, Н. Литвинова, Зинаида Нарышкина, Светлана Харлап.Язык субтитров: ОтсутствуетПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E79CC2EC69FE4CD010B5E55B15A4F9BAC1D782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194664   (153176) от 26.12.2017
-
-Щелкунчик (1973) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из великолепных советских мультфильмов, полностью передающий всю ту таинственность, праздничность и предвкушение чего-то доброго с наступлением Нового года и Рождества.
-Мультипликационный музыкальный фильм-феерия по мотивам рождественской сказки Эрнста Теодора Амадея Гофмана «Щелкунчик и мышиный король» и одноименного балета Петра Ильича Чайковского о том, как (   Читать дальше...   )Производство: СССР, киностудия: "Союзмультфильм"Жанр: Рисованная анимацияРежиссер: Борис СтепанцевСубтитры: отсутствуютПродолжительность: 00:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96F20EAF0C81AA0147E6B4FC8361CE6035505116
 ```
 
 https://mybot314.ru/tekegram_catalog/

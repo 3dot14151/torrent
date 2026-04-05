@@ -1,165 +1,3 @@
-###  Публикация: 1526386   (738305) от 24.01.2022
-
-Джеймс Форшоу | Атака сетей на уровне протоколов (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена безопасности сетевых протоколов. Джеймс Форшоу, известный во всем мире специалист по поиску программных ошибок, рассматривает сеть с точки зрения злоумышленника, чтобы помочь вам обнаружить уязвимости и защититься от них. Вы узнаете, как можно перехватить трафик, освоите статический и динамический анализ сетевых протоколов, рассмотрите их структуры (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Д.А. БеликовФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DDBB9B5DE97611E7059620BDE9BCB94B2AAB493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527062   (737246) от 27.01.2022
-
-Давид Жаньо | Большая книга Roblox. Как создавать свои миры и делать игру незабываемой (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Roblox – компьютерная платформа, набирающая все большую и большую популярность. В ней можно создавать свои уникальные миры и играть в огромное количество различных игр. "Большая книга Roblox" станет отличным помощником в деле освоения платформы. Здесь вы найдете все – от инструкций о том, как играть до основ программирования и советов по созданию различных (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: М.А. РайтманФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD960AFEC6D3A01EAC9DEB660B54996D045FF916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397910   (736954) от 23.07.2020
-
-Вильям Столлингс | Операционные системы. Внутренняя структура и принципы проектирования, 9-е издание (2020) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как бы ни развивалась вычислительная техника и какие бы изменения в принципах вычислений ни происходили — во всех ее применениях, от смартфона и скромного ноутбука до больших мейнфреймов, распределенных систем и Интернета вещей, — всегда есть нечто неизменное: наличие операционной системы. Многие пользователи даже не подозревают, что операционная система — это не (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1813314EE4D8CAE431491C73785EE7450A5B3FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527763   (736361) от 29.01.2022
-
-Heydon Pickering, Andy Bell | Every Layout - Relearn CSS layout by example (2021) [PDF] [2nd Edition] [En]
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы столкнулись с проблемой верстки CSS, скорее всего, вы принимаете решения за браузеры, которые должны принимать их сами. С помощью серии простых, композиционных макетов, Every Layout научит вас, как лучше использовать встроенные алгоритмы, которыми оснащены браузеры и CSS.
-Использование алгоритмического дизайна макета означает отказ от @media breakpoints, (   Читать дальше...   )Жанр: ВёрсткаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4079AA01868157F684C23B7471D56577BD95E697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527776   (736343) от 29.01.2022
-
-Simon Høiberg | JavaScript In The Industry (2021) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь писать на JavaScript на промышленном уровне
-В этой книге вы узнаете, как профессионалы пишут JavaScript - в индустрии.
-То есть, в реальном мире.
-10 лет написания JavaScript - в реальном мире.(   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F65AE8028EC4758CD85B17F4169965A2F4D247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527599   (736303) от 29.01.2022
-
-Maurizio Ipsale, Mirko Gilioli | Google Cloud Certified Professional Cloud Network Engineer Guide: Design, implement, manage, and secure a network architecture in Google Cloud (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Cloud, общедоступная облачная платформа от Google, имеет множество сетевых опций, которые играют важную роль в управлении сетевой архитектурой. Эта книга даст вам практический опыт реализации и обеспечения безопасности сетей в Google Cloud Platform (GCP).
-
-Вы поймете основы инфраструктуры Google Cloud и научитесь проектировать, планировать и создавать прототип (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC398EBF6FB1FF0CE827BA5BCD0F6E1AC6FA3F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527866   (735793) от 30.01.2022
 
 Артём Слаква | Руководство по Cycles (версия 1.10 по Blender 3.0) (2021) [PDF]
@@ -168,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735793.jpg" />
 </div>
 
 
@@ -194,7 +32,7 @@ Luca Palmieri | Zero To Production In Rust - An introduction to backend developm
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735786.jpg" />
 </div>
 
 
@@ -223,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735777.jpg" />
 </div>
 
 
@@ -249,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735758.jpg" />
 </div>
 
 
@@ -277,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735323.jpg" />
 </div>
 
 
@@ -303,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734874.jpg" />
 </div>
 
 
@@ -329,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734835.jpg" />
 </div>
 
 
@@ -355,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732594.jpg" />
 </div>
 
 
@@ -381,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732473.jpg" />
 </div>
 
 
@@ -408,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731699.jpg" />
 </div>
 
 
@@ -434,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730424.jpg" />
 </div>
 
 
@@ -460,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730420.jpg" />
 </div>
 
 
@@ -486,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730359.jpg" />
 </div>
 
 
@@ -513,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730322.jpg" />
 </div>
 
 
@@ -540,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730277.jpg" />
 </div>
 
 
@@ -567,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730263.jpg" />
 </div>
 
 
@@ -594,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729817.jpg" />
 </div>
 
 
@@ -620,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729496.jpg" />
 </div>
 
 
@@ -646,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728530.jpg" />
 </div>
 
 
@@ -673,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728394.jpg" />
 </div>
 
 
@@ -684,6 +522,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12261719736340970BE781FDBCE8534E7A716200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127920   (728293) от 24.04.2017
+
+В.В. Арно, Р.В. Прокди | Photoshop - твоя любимая игрушка. Редактирование фотографий, создание фотомонтажа (2011) [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728293.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Эта книга представляет собой наглядное практическое руководство по работе с самым популярным графическим редактором Adobe Photoshop. С помощью данной книги вы на примерах научитесь работать с этой программой, выполнять всевозможные практические действия по редактированию и обработке фотографий. Описания приводятся в удобной пошаговой форме, что позволяет (   Читать дальше...   )Жанр: Графика, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21297B86698D16CFBD17EA5042A9B601B6315CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127888   (728193) от 24.04.2017
+
+М.И. Устинова и др. | Photoshop на примерах. Изучаем обработку фотографий и фотомонтаж на практике (2016) [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728193.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Эта книга представляет собой наглядное практическое руководство по работе с самым популярным графическим редактором Adobe Photoshop. С помощью данной книги вы на примерах научитесь работать с этой программой, выполнять всевозможные практические действия по редактированию и обработке фотографий. Описания приводятся в удобной пошаговой форме, что позволяет (   Читать дальше...   )Жанр: Графика, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFC7913D9B5E854FEFBA4FFD260BF532E667B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022159   (728147) от 02.06.2016
+
+Дмитрий Горьков | Tinkercad для новичков (2015) [PDF]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет заполнем рекламными статьями о применении промышленных принтеров. И материалами по серьезным профессиональным системам CAD, которые во-первых стоят приличные деньги, и самое главное избыточны для нужд проектирования простых моделей для 3D-печати. Tinkercad простой редактор, но у многих, особенно не сильно
+владеющих английским языком могут возникнуть трудности (   Читать дальше...   )Жанр: 3D-печатьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE2425D388B85F9CA7E1C5B399D3B9716259171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022166   (728079) от 02.06.2016
+
+Дмитрий Горьков | 3D-печать с нуля (2015) [PDF]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Целью данной книги было заполнить пустующую нишу по обучению 3d-печати. 3D-печать только начинает массово проникать в жизнь общества. Одной из причин почему это происходит так медленно является отсутствие структурированной информации на тему с чего начинать.
+Интернет заполнем рекламными статьями о применении промышленных принтеров. А вот о том как работать на обычном (   Читать дальше...   )Жанр: 3D-печатьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FE5EDA7B346913868CC1F3872C73E899F905F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530759   (727398) от 12.02.2022
+
+А.В. Столяров | Программирование. Введение в профессию. Задачи и этюды (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник задач, упражнений и программистских этюдов в поддержку учебника «Программирование: введение в профессию»; содержит 12 глав, соответствующих 12 частям учебника.Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C09958CBF39D1EB880D1E533828501B7FEE1493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022182   (726951) от 03.06.2016
+
+Е.А. Роганов | Основы информатики и программирования [2-издание] (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726951.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой части курса происходит знакомство с языком программирования Java, и строится теоретическая база, необходимая для изложения последующего материала. Во второй части излагаются практические методы построения правильных программ небольшого объема. Третья часть посвящена введению в объектно-ориентированное программирование, основам реализации базовых структур (   Читать дальше...   )Жанр: Теория программированияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBE5E2DBBA3ECF4A1F23A9310D75373DAB4A20D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,164 @@
+###  Публикация: 1220222   (703855) от 19.04.2018
+
+Первый инженерный образец российского микропроцессора МЦСТ R-2000
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудник МЦСТ Максим Горшенин продолжает радовать нас информацией о новых разработках МЦСТ. Недавно он выложил фотографию инженерного образца нового микропроцессора МЦСТ R-2000.Это 8-ядерный микропроцессор с системой команд SPARC V9 и тактовой частотой 2 ГГц. Он выполнен по 28-нм техпроцессу и оснащен встроенным 2-канальным контроллером памяти типа DDR4-2400. Оценочное (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220329   (703847) от 19.04.2018
+
+Garmin: City Navigator Russia NTU 2019.10 - HERE [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улицы меняются, а предприятия открываются и закрываются. Получайте самые современные данные карты на своем устройстве с этим единственным обновлением карты.
+Обновлены подробные уличные карты.
+Обновленные достопримечательности, такие как автозаправочные станции, парковочные гаражи, рестораны, гостиницы и места расположения банкоматов.
+Более быстрая и точная маршрутизация, (   Читать дальше...   )Тип издания: лицензияРелиз состоялся: апрель 2018Разработчик: Garmin / HereПоддерживаемая ОС: GarminЯзык интерфейса: русскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C3AAD5B0175728655928263D29FD3A0FCC3C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 403696   (703843) от 19.04.2018
+
+[PS1] Sony PlayStation (Japan) [Redump от 02.10.2017]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703843.jpg" />
+</div>
+
+
+###  Подробнее
+
+СборникТип издания: ЛицензияЖанр: РазныеЯзык интерфейса: только Japan
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A4B46514562C7999354691B15A4528F5B864D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026136   (703702) от 15.06.2016
+
+Создана "вечная" батарея, действующая по принципу песочных часов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703702.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конструкции батарей, основанных на принципах перетекания жидкого электролита из одного резервуара в другой (liquid flow battery), обычно используются клапана и насосы, обеспечивающие движение электролита. Этот электролит, или электролиты двух разных типов, разделенные ионной мембраной, движутся сквозь камеру с электродами, на которых и создается электрический потенциал. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026247   (703691) от 15.06.2016
+
+Очередное достижение: 3000 релизов от Vadimка!!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 3000 релизов от Vadimка!!!Уважаемые одноклубники , рад сообщить Вам о возможности поздравить нашего товарища с 3000-м релизом!От всей души поздравляем Vadimка с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации NNM-Club.me!Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 708485   (703596) от 05.06.2014
+
+Log Horizon / Лог Горизонт [2013, TV, 25 ep] HDTV 720p Raw+Rus
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцать тысяч игроков из Японии и куда больше со всего мира внезапно оказались заперты в многопользовательской ролевой онлайновой игре «Легенда Древних». С одной стороны, геймеры перенеслись в новый мир физически, иллюзия реальности оказалась почти безупречной. С другой стороны, «попаданцы» сохранили прежние аватары и обретенные навыки, пользовательский интерфейс и систему прокачки, да и смерть в игре вела всего лишь к воскрешению в соборе ближайшего крупного города. Поняв, что великой цели нет, и цену за выход никто не называл, игроки стали сбиваться вместе – одни, чтобы жить и править по закону джунглей, другие – чтобы противостоять беспределу.
+
+Сироэ и Наоцугу, в миру студент и клерк, в игре - хитроумный маг и могучий воин, давно знали друг друга еще по легендарной гильдии «Безумное чаепитие». Увы, те времена ушли навсегда, но и в новой реальности можно встретить старых знакомых и просто хороших ребят, с которыми не будет скучно. А главное – в мире «Легенды» появилось коренное население, считающее пришельцев (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Исихира СиндзиПеревод: ZoolФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76BEF09DC1437F0AB505535A58485A4DD91FF14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 311477   (703587) от 05.06.2014
 
 Маша и Медведь (2009-2014) [1080p] BDRip (1-42 серии) [Обновляемый]
@@ -6,7 +167,7 @@
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703587.jpg" />
 </div>
 
 
@@ -33,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703586.jpg" />
 </div>
 
 
@@ -59,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703584.jpg" />
 </div>
 
 
@@ -86,7 +247,7 @@ AusLogics BoostSpeed 9.0.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703408.jpg" />
 </div>
 
 
@@ -112,7 +273,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 (15.06.2016
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703402.jpg" />
 </div>
 
 
@@ -138,7 +299,7 @@ Pinnacle Studio Ultimate 19.5.1 + Bonus Content [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703399.jpg" />
 </div>
 
 
@@ -164,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703397.jpg" />
 </div>
 
 
@@ -190,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703396.jpg" />
 </div>
 
 
@@ -216,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_703002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703002.jpg" />
 </div>
 
 
@@ -242,7 +403,7 @@ Adobe Premiere Pro 2020 14.3.2.42 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702988.jpg" />
 </div>
 
 
@@ -268,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_702949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702949.jpg" />
 </div>
 
 
@@ -294,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_702906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702906.jpg" />
 </div>
 
 
@@ -322,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_702856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702856.jpg" />
 </div>
 
 
@@ -348,7 +509,7 @@ Windows 10 build 18351 (19H1): Основные изменения, улучше
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_702854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702854.jpg" />
 </div>
 
 
@@ -374,7 +535,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/En] (1.5.62.0.8) License RELOADED [Specia
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702833.jpg" />
 </div>
 
 
@@ -400,7 +561,7 @@ Spellforce 3 (2017) [Ru/Multi] (1.40) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702831.jpg" />
 </div>
 
 
@@ -426,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702773.jpg" />
 </div>
 
 
@@ -452,7 +613,7 @@ SUPERAntiSpyware Professional 6.0.1186 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702692.jpg" />
 </div>
 
 
@@ -478,7 +639,7 @@ Adobe Media Encoder CC 2017 (v11.1.0) Multilingual Update 2
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702290.jpg" />
 </div>
 
 
@@ -504,7 +665,7 @@ Adobe Illustrator CC 2017.1.0 21.1.0 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702278.jpg" />
 </div>
 
 
@@ -515,164 +676,6 @@ Adobe Illustrator CC 2017.1.0 21.1.0 RePack by KpoJIuK [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5178C10908FFBFA410B4DFF82D58F0A0C641042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132144   (702276) от 08.05.2017
-
-Последствия / Aftermath (2017) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ожидающий прилета своей семьи Роман узнает, что случилось непоправимое. Произошла авиакатастрофа и его любимые — жена и беременная дочь — погибли.
-Потеряв тех, ради кого жил, он преследует единственную цель: посмотреть в глаза невольного убийцы и услышать слова сожаления. Более года поиска приводит Романа к авиадиспетчеру Джейку, управлявшему курсом самолета в момент (   Читать дальше...   )Производство: США, Emmett/Furla Films, Hat and Cat ProductionsЖанр: Триллер, ДрамаРежиссер: Эллиотт ЛестерАктеры: Арнольд Шварценеггер, Мэгги Грэйс, Кевин Зегерс, Скут МакНэри, Ханна Уэр, Мариана Клавено, Гленн Моршауэр, Ларри Салливан, Мартин Донован, МоПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B630A77234A5C2E91FC13C8652FF8D91D2CCA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132102   (702275) от 08.05.2017
-
-Adobe Photoshop CC 2017.1.1 (20170425.r.252) Portable by XpucT [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC — многофункциональный графический редактор, разработанный и распространяемый фирмой Adobe Systems. В основном работает с растровыми изображениями, однако имеет некоторые векторные инструменты. Продукт является лидером рынка в области коммерческих средств редактирования растровых изображений и наиболее известным продуктом фирмы Adobe.Язык интерфейса: Русский и английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A534A690CE1CC029C729D826EEFD8A8D675B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220281   (702197) от 20.04.2018
-
-В России начинают внедрять системы распознавания граждан
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_702197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Власти приступили к активному развертыванию системы распознавания лиц, позволяющей задерживать граждан, находящихся в федеральном розыске. Пилотный проект запущен в московском метро, на ряде железнодорожных вокзалов и на многих стадионах. Эксперты говорят про потенциальные неудобства для рядовых граждан.В марте этого года в столичной подземке запущена система распознавания (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220573   (702107) от 20.04.2018
-
-Клименко извинился за действия Роскомнадзора при блокировке Telegram, из-за которых пострадал ряд компаний
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_702107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ситуацию вокруг блокировки Telegram прокомментировал в эфире НТВ советник президента по вопросам развития Интернета Герман Клименко. Он посоветовал Роскомнадзору действовать аккуратнее, а также извинился за действия ведомства, из-за которых пострадал ряд компаний.Специалисты Роскомнадзора выгрузили четыре принадлежащих Telegram подсети, но мессенджер стал менять (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220408   (702105) от 20.04.2018
-
-Опубликованы подробности заражения утилиты CCleaner вредоносным ПО
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_702105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Avast опубликовала краткую хронику инцидента со взломом Piriform.
-В прошлом году популярное программное обеспечение для очистки систем CCleaner подверглось масштабной атаке, в ходе которой хакеры скомпрометировали серверы компании Piriform и заменили легитимную версию утилиты на вредоносную. Вредоносное ПО инфицировало более 2,3 млн пользователей, загрузивших (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220570   (702019) от 20.04.2018
-
-Роскомнадзор добрался до серверов Microsoft (Четвертый день блокады)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_702019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскомнадзор добавил в реестр запрещенных сайтов десятки тысяч IP-адресов облачных серверов Microsoft. Об этом свидетельствуют данные из неофициальной копии выгрузки реестра.Под блокировку попала подсеть из 131 тысячи IP-адресов, 32 тысячи из которых принадлежат облачной платформе Microsoft Azure.Роскомнадзор 17 апреля заблокировал более 2,5 миллиона IP-адресов. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 580257   (345145) от 24.11.2012
+
+Ария - В жёлтом круге арены (live) 2CD (2012) [MP3|320 kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колизей (6:28)
+02. Кровь за Кровь (8:05)
+03. Аттила (6:21)
+04. Последний Закат (5:04)
+05. Осколок Льда (5:38)
+06. Штиль (5:45)
+07. Небо Тебя Найдет (6:12)
+08. Герой Асфальта (5:11)
+09. Улица Роз (7:44)
+10. Дай Жару! (5:28)Жанр: Heavy MetalПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C630A4AD8A94F96A815FA74102D7CD59891088C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418975   (344704) от 26.10.2020
 
 Texas Hippie Coalition - High In The Saddle (2019) [FLAC|Lossless|image + .cue] <Southern Rock>
@@ -6,7 +41,7 @@ Texas Hippie Coalition - High In The Saddle (2019) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344704.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344679.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Ne Obliviscaris - Urn (2017) [MP3|320 Kbps] <Melodic Black Metal, Progressive De
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344577.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ The Great Whitecross & Guardian - Revival (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344566.jpg" />
 </div>
 
 
@@ -122,7 +157,7 @@ Magnus Karlsson’s Free Fall - We Are The Night (2020) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344559.jpg" />
 </div>
 
 
@@ -151,7 +186,7 @@ Eisbrecher - Schicksalsmelodien (2020) [FLAC|Lossless|image + .cue] <Industrial 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344548.jpg" />
 </div>
 
 
@@ -180,7 +215,7 @@ Fish - Acoustic Session (1994) [FLAC|Lossless]<Progressive Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344511.jpg" />
 </div>
 
 
@@ -209,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344498.jpg" />
 </div>
 
 
@@ -238,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344445.jpg" />
 </div>
 
 
@@ -267,7 +302,7 @@ Moonspell - 1755 (2017) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344438.jpg" />
 </div>
 
 
@@ -296,7 +331,7 @@ Kozak System - 2 Альбома (2012 - 2015) [FLAC|Lossless|tracks + .cue]<Folk
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344433.jpg" />
 </div>
 
 
@@ -325,7 +360,7 @@ Scorpions - Animal Magnetism (1980) 50th Anniversary Deluxe Edition /2015, BMG/ 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344395.jpg" />
 </div>
 
 
@@ -354,7 +389,7 @@ Foo Fighters - Sonic Highways (2014) [MP3|320 кб/с]<Alt. Rock, Post-Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344349.jpg" />
 </div>
 
 
@@ -383,7 +418,7 @@ Leaves' Eyes - The Last Viking (2020) 2xCD [FLAC|Lossless|image + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344312.jpg" />
 </div>
 
 
@@ -412,7 +447,7 @@ Scorpions - Blackout (1982) 50th Anniversary Deluxe Edition /2015, BMG/  [MP3|32
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344257.jpg" />
 </div>
 
 
@@ -441,7 +476,7 @@ Scorpions - Lovedrive (1979) 50th Anniversary Deluxe Edition /2015, BMG/ [MP3|32
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344171.jpg" />
 </div>
 
 
@@ -470,7 +505,7 @@ Scorpions - Love At First Sting (1984) 50th Anniversary Deluxe Edition /2015, BM
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344170.jpg" />
 </div>
 
 
@@ -499,7 +534,7 @@ Billy Gibbons And The BFG's - Perfectamundo (2015) [MP3|320 кб/с]<Hard Rock, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344168.jpg" />
 </div>
 
 
@@ -528,7 +563,7 @@ Yngwie Malmsteen - The Yngwie Malmsteen Collection (1991) Japan [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344074.jpg" />
 </div>
 
 
@@ -557,7 +592,7 @@ Blues Power Band - Dark Room (2012) [MP3|320 кб/с]<Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343677.jpg" />
 </div>
 
 
@@ -586,7 +621,7 @@ Stratovarius - Stratovarius (2005) Reissue, 2012, Victor [OGG Vorbis|484 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343656.jpg" />
 </div>
 
 
@@ -615,7 +650,7 @@ Argash - Unleash (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343655.jpg" />
 </div>
 
 
@@ -644,7 +679,7 @@ Stratovarius - Polaris (2009) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343654.jpg" />
 </div>
 
 
@@ -673,7 +708,7 @@ Stratovarius - Elysium (2011) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343653.jpg" />
 </div>
 
 
@@ -702,7 +737,7 @@ LaMacchia - Thunderheads (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343652.jpg" />
 </div>
 
 
@@ -716,35 +751,6 @@ LaMacchia - Thunderheads (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB553F6C356500D34DB12836A6F2154BFA388A0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578582   (343651) от 24.09.2022
-
-Asylum - Tyrannicide (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Eternal Violence (03:54)
-02 - Victim Complex (04:00)
-03 - Cruelty Obsessed (04:17)
-04 - Tyrannicide (03:57)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004BAE30CB2A76DEDBFC5EE10851029FD1F56DB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

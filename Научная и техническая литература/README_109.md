@@ -1,135 +1,3 @@
-###  Публикация: 991198   (902436) от 01.03.2016
-
-Михаил Савинов | Военное дело Древней Руси IX - XI вв. Русские рати в походе и бою (2013) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая иллюстрированная энциклопедия военного дела Древней Руси - от рождения Русского государства до его расцвета в XI веке. Все о воинском обучении и боевом применении княжеских дружин и народного ополчения. Исчерпывающая информация о защитном и наступательном вооружении русских "храброе", их образе жизни, богах и жертвоприношениях, врагах и союзниках, (   Читать дальше...   )Жанр: Военно-историческая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10528177F11769DFAC65BFE0BE369688D5AD871B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991242   (902414) от 01.03.2016
-
-Лоуренс Харрисон | Евреи, конфуцианцы и протестанты. Культурный капитал и конец мультикультурализма (2016) [FB2, MOBI]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902414.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге исследуется влияние культуры на экономическое развитие. Изложение строится на основе введенного автором понятия "культурного капитала" и предложенной им и его коллегами типологии культур, позволяющей на основе 25 факторов определить, насколько высок уровень культурного капитала в той или иной культуре. Наличие или отсутствие культурного капитала (   Читать дальше...   )Жанр: Общественные и гуманитарные наукиФормат: FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B0B56176E3BDF5397F004E1C7C6633357543E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991084   (902381) от 01.03.2016
-
-Ю.С. Старикова | Основы дизайна (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящим изданием мы продолжаем серию «Конспект лекций. В помощь студенту», в которую входят лучшие конспекты лекций по дисциплинам, изучаемым в гуманитарных вузах. Материал приведен в соответствие с учебной программой курса «Основы дизайна». Используя данную книгу при подготовке к сдаче экзамена, студенты смогут в предельно сжатые сроки систематизировать и конкретизировать (   Читать дальше...   )Жанр: ДизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED11C8333389DA3C3654270829B15679B6E37B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991798   (902367) от 01.03.2016
-
-С.Б. Аджиманбетов, Б.М. Рапутов | 50 советов сельскому электрику (1993) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902367.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложены 50 советов по изготовлению и практическому использованию несложных устройств для рациональной эксплуатации электроосветительных установок, аппаратуры управления, сигнализации и защиты, электродвигателей, трансформаторов, источников питания и др. В приложении приведены необходимые справочные материалы. Для сельских электриков.Жанр: СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D532CAB4742C5A2DA6F33B20B99F981C4526F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991034   (902263) от 01.03.2016
-
-Л. Солнцева, С. Лефлёр | Самоучитель французского в комиксах и диалогах (2014) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие предназначено для самостоятельных занятий французским языком. В нем есть все, что нужно, чтобы овладеть повседневной речью: наглядная подача материала, полезная лексика, самые употребительные речевые конструкции, множество диалогов из реальной жизни, упражнения для практики, ключи для самоконтроля.
-
-Книга предназначена для начинающего и продолжающего уровня (   Читать дальше...   )Жанр: Иностранные языкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACF175ECBDB7AC298173CE209FE4F287C67DCD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 247655   (902055) от 30.08.2021
 
 Николай Якубович | Ту-2. Лучший бомбардировщик Великой Отечественной (2010) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902055.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901919.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901916.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901597.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901594.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901192.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901124.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901096.jpg" />
 </div>
 
 
@@ -347,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900997.jpg" />
 </div>
 
 
@@ -373,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900916.jpg" />
 </div>
 
 
@@ -401,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900882.jpg" />
 </div>
 
 
@@ -427,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900863.jpg" />
 </div>
 
 
@@ -453,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900817.jpg" />
 </div>
 
 
@@ -479,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900722.jpg" />
 </div>
 
 
@@ -506,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900703.jpg" />
 </div>
 
 
@@ -532,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900696.jpg" />
 </div>
 
 
@@ -560,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900565.jpg" />
 </div>
 
 
@@ -586,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900509.jpg" />
 </div>
 
 
@@ -612,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900319.jpg" />
 </div>
 
 
@@ -638,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900315.jpg" />
 </div>
 
 
@@ -664,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900311.jpg" />
 </div>
 
 
@@ -676,6 +544,142 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78F08CE30C2AE535ADA9D68336A6CD39188C7683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369838   (900310) от 25.03.2020
+
+М. Темкин | Грамотный красноармеец. Коммунистический букварь (1923) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ликвидировать безграмотность, научить многомиллионную рабочую и крестьянскую массу читать и писать — вот грандиозная задача, которую поставила себе Советская Власть. Задачу эту нельзя откладывать ни на один день, так как призванные к мирному социалистическому строительству широкие народные массы должны во что бы то ни стало, и чем скорее приобщиться к знанию.
+
+Проводить (   Читать дальше...   )Жанр: История, политология, педагогика, искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB1EFEDCF3C7C1A699E4F01D39CBC635E0DFB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369804   (899943) от 25.03.2020
+
+Д.А. Карпека | Сравнительная грамматика классического китайского языка вэньянь и современного литературного китайского языка путунхуа (2020) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее пособие представляет собой первую отечественную систематическую сравнительную грамматику классического китайского языка вэньянь и современного литературного китайского языка путунхуа, рассчитанную на лиц, освоивших нормативных курс современного
+китайского языка.
+В основу материала «Грамматики» положен, с одной стороны, язык современной китайской прессы (   Читать дальше...   )Жанр: Иностранные языкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716F30AD2B902743218EE2325FAC94D730ABAAE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369817   (899927) от 25.03.2020
+
+Айк Геворкян | Осторожно: еда! Как перестать попадаться на уловки производителей и научиться покупать полезную еду (2020) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правда ли, что маргарин делают из нефти? Стоит ли покупать майонез на перепелиных яйцах? Какие сухофрукты выбрать — гладкие и блестящие или темные и сморщенные? Среди обилия продуктов, хранящихся на прилавках и появляющихся в рекламе, сегодня действительно сложно выбрать что-то и вкусное, и полезное. Кроме того, мы привыкли искать на прилавках знакомые этикетки и (   Читать дальше...   )Жанр: ЗдоровьеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB71061D4383AD5DEE40CF3AFBD4B799E24A73E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 760893   (899911) от 26.02.2014
+
+Игорь Бестужев | Крымская война 1853-1856 гг. (1956) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крымская война 1853—1856 гг.— одно из крупнейших исторических событий XIX в.— особенно ярко выявила контраст между величием народа и ничтожностью правящих клик, мнивших себя вершителями судеб истории.
+
+В этой войне провалились захватнические планы и царизма, и правящих кругов Англии и Франции; вскрылись вопиющие пороки военных систем царизма, бонапартизма и английской (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC70F50B39DEBF1D1B6DE256ED70FADBAAE8169F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100468   (899882) от 04.02.2017
+
+Г. В. Плеханов | В защиту революционного марксизма (1922) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великой заслугой Плеханова в истории европейского и русского социализма, кроме открытия русского рабочего класса и создания русской социал-демократии,— является блестящее обоснование, развитие и популяризация теоретических, главным образом, философских и социально-исторических основ марксизма. В этом отношении он занимает несомненно первое место в ряду европейских (   Читать дальше...   )Жанр: История, философия, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07E784F2DF5CFEC5D0FD9686D8A232316B78CC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

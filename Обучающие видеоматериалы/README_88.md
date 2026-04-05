@@ -1,3 +1,32 @@
+###  Публикация: 1113014   (829113) от 16.03.2017
+
+Бизнес Молодость | Бизнес под ключ (2016) WEBRip
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический онлайн-курс из 2х занятий, для тех, кто хочет начать свой путь в бизнесе по модели франчайзинга. Курс однозначно вам необходим даже, если вы пока не планируете открывать бизнес по франшизе, но хотите узнать больше. А также:
+
+Хотите запустить прибыльный бизнес с минимальными рисками.
+Мечтаете присоединиться к успеху крупной компании в выбранной нише.(   Читать дальше...   )Жанр: Бизнес, предпринимательствоПродолжительность: 09:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA45CD09BA1372515656931A5A63DB30402B9CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005663   (828703) от 11.04.2016
 
 Виктор Агроскин | Школа системного менеджмента (2015) HDRip [H.264/720p]
@@ -6,7 +35,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828703.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828489.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828101.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ ArtStation, Tautvydas Kazlauskas | Modeling in Blender 2.83 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827949.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ Udemy, Connor Gerber | Game Ready Triple Barrel Hand Cannon [Blender 2.93, Subst
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827871.jpg" />
 </div>
 
 
@@ -141,7 +170,7 @@ Schoolism, Sonja Christoph | Introduction to Blender 2.9 [Low Quality] (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827766.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ Shaun T | CIZE - The End of Exercize Deluxe (2015) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827471.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827370.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ Stepik | Основы программирования на Python (2020) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827353.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ Skillshare, Greg Wondra | Unreal Engine 4: Character UI Creation (2020) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826331.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Udemy, CG Boost, Zach Reinhardt | Mastering Sculpting in Blender 2.79 (2018) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826317.jpg" />
 </div>
 
 
@@ -300,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826227.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826220.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ lingua franconia, Катерина Томилина | Правила чтени�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826219.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826130.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825834.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Lectrum | Продвинутый видеокурс по Redux, с фундам�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825828.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Lectrum | Видеокурс по TypeScript (2020) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825723.jpg" />
 </div>
 
 
@@ -490,7 +519,7 @@ Lectrum | Видеокурс по GraphQL (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825721.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ Lectrum | Введение в веб-разработку JavaScript, c глуб
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825720.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825718.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ Lectrum | Продвинутый курс по Docker, полное погруж
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825633.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825631.jpg" />
 </div>
 
 
@@ -622,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825626.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825623.jpg" />
 </div>
 
 
@@ -659,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6234F35208DD6962C8FFDA45BC0806C699D82C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381610   (823985) от 08.05.2020
-
-Lectrum | Продвинутый курс по Webpack v4, с чистого листа (2019) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы изучите все возможные темы, которые относятся к Webpack: от основ эффективной сборки проекта до продвинутых подходов типа code splitting и shimming.Жанр: ПрограммированиеПродолжительность: 17:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4477ABB948BE549ACD61A15F3CCE8443D7275952
 ```
 
 https://mybot314.ru/tekegram_catalog/

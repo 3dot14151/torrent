@@ -1,55 +1,3 @@
-###  Публикация: 1212520   (775657) от 12.03.2018
-
-Загнанный / Battle of the Drones (2017) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смесь "Неудержимых" и Команды «А» превращается в безудержный боевик про группу опытных наёмников, которых предаёт правительство США. Оказавшись в засаде, они вынуждены отбиваться от целой армии людей-киборгов...Производство: США / Film Tiger, Odyssey Media, OutPost MediaЖанр: БоевикРежиссер: Мишель ГулдАктеры: Доминик Суэйн, Наташа Мальте, Майкл Паре, Джейсон Эрлз, Луис Мэндилор, Олег Тактаров, Ричард Рейд, Дэн Сауфуорф, Стив Паунд, Джо МаррПеревод: Двухголосый закадровый, любительский (HiWay Grope)Субтитры: ОтсутствуютПродолжительность: 01:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20DA6F12020DC80889A5030F2E4C99A020627772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212567   (775578) от 12.03.2018
-
-Девушка в тумане / La ragazza nella nebbia (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Холодной зимней ночью психиатра Аугусто Флореса срочно вызывают на работу, чтобы обследовать попавшего в аварию инспектора Фогеля. Инспектор ничего не помнит, на месте аварии ничто не указывает на ее причину и на ее жертв, однако рубашка Фогеля в пятнах свежей крови, и эта кровь не его. В ходе беседы начинает восстанавливаться цепь невероятных событий, начавшихся (   Читать дальше...   )Производство: Италия, Германия, Франция, Colorado Film ProductionЖанр: Триллер, КриминалРежиссер: Донато КарризиАктеры: Тони Сервилло, Жан Рено, Алессио Бони, Лоренцо Рикельми, Галатеа Ранци, Микела Ческон, Лукреция Гидоне, Даниэла Пьяцца, Якопо Ольмо Антинори, Марина ОккьонероПеревод: Дублированный (iTunes)Субтитры: Русские, английские, итальянские (SDH)Продолжительность: 02:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795EC140183DC624F59F5BED9766B46A944905EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212401   (775572) от 12.03.2018
 
 Аутсайдер / The Outsider (2018) WEBRip [VO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775572.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775557.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775515.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775488.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775461.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775451.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775447.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774977.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774973.jpg" />
 </div>
 
 
@@ -296,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774854.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774796.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774791.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774784.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774740.jpg" />
 </div>
 
 
@@ -427,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774725.jpg" />
 </div>
 
 
@@ -453,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774474.jpg" />
 </div>
 
 
@@ -479,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774289.jpg" />
 </div>
 
 
@@ -506,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774188.jpg" />
 </div>
 
 
@@ -532,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773980.jpg" />
 </div>
 
 
@@ -558,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773869.jpg" />
 </div>
 
 
@@ -584,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773837.jpg" />
 </div>
 
 
@@ -610,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773834.jpg" />
 </div>
 
 
@@ -636,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773787.jpg" />
 </div>
 
 
@@ -662,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773667.jpg" />
 </div>
 
 
@@ -673,6 +621,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D44CDFC4291DB7AA58AECD26212B51307CCE26FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125167   (773396) от 13.04.2017
+
+Высшая лига 2 / Major League 2 (1994) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они возвращаются, и они в отличной форме! Несокрушимая, знаменитая команда Кливлендских индейцев собирается показать «бледнолицым», что такое настоящая игра! Все любимцы публики в сборе: «Дикий» Рик Вон, старина Джек Тэйлор, самодовольный Роджер Дорн и мастер ву-ду- отбивающий Педро Керрано!Производство: США / Morgan Creek Productions, Warner Bros. PicturesЖанр: КомедияРежиссер: Дэвид С. УордАктеры: Чарли Шин, Том Беренджер, Корбин Бернсен, Деннис Хейсбёрт, Джеймс Гэммон, Омар Эппс, Эрик Браскоттер, Такааки Исибаси, Элисон Дуди, Мишель БёркПеревод: Многоголосый, АвторскийСубтитры: АнглийскиеПродолжительность: 01:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600A2D59239D74DF4FCEE3B0724622DF951221CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124737   (773385) от 13.04.2017
+
+Чокнутый Профессор 2: Семья Клампов / Nutty Professor 2: The Klumps (2000) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симпатяге Шерману повезло вдвойне! Во-первых, профессор изобрел чудесный омолаживающий эликсир, за который ему уже предложили астрономическую сумму. Во-вторых, Кламп «втюрился по уши» в обворожительную преподавательницу Дениз Гэйнс. И, что самое главное, прекрасная Дениз отвечает Шерману взаимностью. Тут, казалось бы, и сказке конец… ан нет. Прячущийся в тучном теле (   Читать дальше...   )Производство: США / Imagine Entertainment, Universal PicturesЖанр: КомедияРежиссер: Питер СигалАктеры: Эдди Мёрфи, Джанет Джексон, Ларри Миллер, Джон Алес, Ричард Гант, Анна Мария Хорсфорд, Мелинда Магроу, Ямал Миксон, Гэбриел Уильямс, Эрл Боэн, Крис ЭллиоттПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9043EE40AF7B342FA75A70857D2D792960FF9CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

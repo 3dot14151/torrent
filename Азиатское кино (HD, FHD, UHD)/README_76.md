@@ -1,3 +1,159 @@
+###  Публикация: 1398666   (117104) от 17.02.2024
+
+Основание Китая / Jian guo da ye / The Founding of a Republic (2009) BDRip [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпическая историческая драма, посвящённая шестидесятилетнему юбилею основания Китайской Народной Республики. Фильм посвящен событиям между 1945 и 1949 годами, когда коммунисты под руководством Мао Цзэдуна боролись с националистами Чана Кайши после неудачной попытки создать демократическое коалиционное правительство. Мы увидим как в 1948 году впервые было проведено (   Читать дальше...   )Производство: Китай / China Film Group Corporation (CFGC)Жанр: Драма, Военный, ИсторияРежиссер: Хань Саньпин, Хуан ЦзяньсиньАктеры: Тан Гоцян, Чжан Голи, Сюй Цин, Лю Цзинь, Чэнь Кунь, Ванг Вуфу, Ван СюэциПеревод: Одноголосый любительскийСубтитры: АнглийскиеПродолжительность: 02:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EABEEE956D8C8590AF2CC41727D449896F0842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700579   (117070) от 17.02.2024
+
+Как украсть реку / Bongi Kim Seondal / Seondal: The Man Who Sells the River (2016) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ким Сон-даль — гениальный мошенник, владеющий обворожительной внешностью и умом. Его команда широко известна по всей стране. Они решают украсть самый дорогой продукт — табак.Производство: Корея Южная / CJ EntertainmentЖанр: комедия, историяРежиссер: Пак Тэ-минАктеры: Ю Сын-хо, Чо Джэ-хён, Ко Чхан-сок, Ра Ми-ран, Сюмин, Чон Сок-хо, Со Е-джи, Ким Ён-пхиль, Ён У-джин, Чхве Гви-хваПеревод: Многоголосый профессиональный (Официальный)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C959A9312711861959612294ED6C8FE57CCF1EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700890   (116922) от 18.02.2024
+
+Призрачная станция / Oksuyeok gwisin / The Ghost Station (2022) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получив иск из-за опрометчиво сделанной фотографии, журналистка популярного интернет-издания спешит реабилитироваться в глазах начальства и берётся за расследование самоубийства на старой платформе станции метро «Оксу». Её приятель, сотрудник метрополитена, утверждает, что видел в тот день сидящего на рельсах ребёнка. Вскоре начинают происходить ещё более странные (   Читать дальше...   )Производство: Корея Южная, Япония / Studio & NewЖанр: ужасыРежиссер: Чон Ён-гиАктеры: Ким Бо-ра, Ким Джэ-хён, Щин Со-юль, О Джин-сок, Ким Ган-иль, Ким Су-джин, Ким Гван-хён, Пак Чэ-хан, Ким Гюн-ха, Ким На-юнПеревод: Многоголосый профессиональный (Официальный)Язык озвучки: Русский, корейскийСубтитры: ОтсутствуютПродолжительность: 01:20:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DC556EFC76537D09599619337AE044A27077A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700910   (116716) от 19.02.2024
+
+Призраки: Чужая жизнь / Two Sisters (2019) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несчастье в семье по разному повлияло на сестер Мэй. Но время и доктора психиатрической клиники лечат больные души, так по крайне мере думала Уэ, когда забрала сестру к себе домой. После ее возвращения в доме стали происходить странные вещи.Производство: Малайзия / Kuman PicturesЖанр: ужасы, драмаРежиссер: Джеймс ЛиАктеры: Эмили Лим, Лим Мэй Фэнь, Уилльям Бу, Пейдж Чань, Адери Чинь, Майк Чуа, Джойс Харн, Анхелина Ху, Венис Нг, Джулианн ТаньПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97848E495236ACBED483A28FC91F9592BFAF1436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701311   (116531) от 20.02.2024
+
+А теперь я иду встретиться с тобой / Jigeum, mannareo gapmida / Be with You (2018) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Су-а, жена У-джина, умерла и оставила его с малолетним сыном. Перед смертью она сделала для ребёнка книжку, где написала, что вернётся в один дождливый день. Год спустя папа с сыном встречают женщину, которая как две капли воды похожа на Су-а, но та ничего не помнит.Производство: Корея Южная / Bluetree Pictures, Movie Rock, Studio Beside The LibraryЖанр: мелодрама, фэнтезиРежиссер: Ли Джан-хунАктеры: Со Джи-соп, Сон Е-джин, Ким Джи-хван, Ко Чхан-сок, Ли Ю-джин, Ким Хён-су, Пэ Ю-рам, Ли Джун-хёк, Со Джон-ён, Щин У-хиПеревод: Многоголосый профессиональный (IVI)Язык озвучки: Русский, корейскийСубтитры: РусскиеПродолжительность: 02:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F3322A6BD0CD90E6DFC6F7A7249DFE8C1377A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701830   (116239) от 22.02.2024
+
+Армия мёртвых в Пусане / Bangbeom: jaechaui / The Cursed: Dead Man's Prey (2021) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Происходит серия загадочных убийств, как-то связанная с восставшими из мёртвых, которые могут ходить и говорить. Ожившими трупами явно кто-то манипулирует.Производство: Корея Южная / Climax StudioЖанр: боевик, фэнтези, детективРежиссер: Ким Ён-ванАктеры: Ом Джи-вон, Чон Джи-со, Чон Мун-сон, Ким Ин-гвон, Ко Гю-пхиль, О Юн-а, Ли Соль, Квон Хэ-хё, Пак Чон-хван, Ким Ми-суПеревод: Дублированный (Moygolos)Язык озвучки: Русский, корейскийСубтитры: ОтсутствуютПродолжительность: 01:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97E55488643997A79F888B31D8C3905CFCFE04D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701834   (116225) от 22.02.2024
 
 Игра в переговоры / Hyeopsang / The Negotiation (2018) WEBRip [H.264/1080p] [MVO]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116225.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115867.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115704.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115681.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115679.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115574.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115511.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115483.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115472.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115375.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115197.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115195.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115182.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114960.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114882.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114677.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114667.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114660.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114658.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114634.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76BA2192D50FDF20D5E9E00FDA64663AA02A0B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704128   (114533) от 03.03.2024
-
-Армия мёртвых в Пусане / Bangbeom: jaechaui / The Cursed: Dead Man's Prey (2021) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Происходит серия загадочных убийств, как-то связанная с восставшими из мёртвых, которые могут ходить и говорить. Ожившими трупами явно кто-то манипулирует.Производство: Корея Южная / CJ Entertainment, Climax Studio, KeyEast, Studio DragonЖанр: боевик, фэнтезиРежиссер: Ким Ён-ванАктеры: Ом Джи-вон, Чон Джи-со, Чон Мун-сон, Ким Ин-гвон, Ко Гю-пхиль, О Юн-а, Ли Соль, Квон Хэ-хё, Пак Чон-хван, Ким Ми-суПеревод: Дублированный (Moygolos)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEC2413FBBE61777293403EBF2691A458ABBCEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704694   (114188) от 05.03.2024
-
-Фантом / Yuryeong / Phantom (2023) BDRemux [H.264/1080p] [Fra Transfer] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114188.jpg" />
-</div>
-
-
-###  Подробнее
-
-1933 год, японская оккупация Кореи. После очередного покушения на нового губернатора пятерых подозреваемых в связях с борцами за освобождение привозят в одиноко стоящий отель. Японский офицер знает, что среди них находится шпион, так называемый фантом, которого он обещает вычислить до полудня следующего дня. Напряжение нарастает, присутствующие начинают подозревать (   Читать дальше...   )Производство: Корея Южная / CJ Entertainment, LampЖанр: триллер, история, боевикРежиссер: Ли Хэ-ёнАктеры: Соль Гён-гу, Ли Ха-ни, Пак Со-дам, Пак Хэ-су, Со Хён-у, Ким Дон-хи, Ким Джун-хи, Ко Ин-бом, Чо Ха-сок, Со Джин-вонПеревод: Многоголосый профессиональный (Кинопоиск HD)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 02:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DE5A9D43428EAF62E94D8165641179F8A0828A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704652   (114163) от 05.03.2024
-
-Фантом / Yuryeong / Phantom (2023) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114163.jpg" />
-</div>
-
-
-###  Подробнее
-
-1933 год, японская оккупация Кореи. После очередного покушения на нового губернатора пятерых подозреваемых в связях с борцами за освобождение привозят в одиноко стоящий отель. Японский офицер знает, что среди них находится шпион, так называемый фантом, которого он обещает вычислить до полудня следующего дня. Напряжение нарастает, присутствующие начинают подозревать (   Читать дальше...   )Производство: Корея Южная / CJ Entertainment, LampЖанр: триллер, история, боевикРежиссер: Ли Хэ-ёнАктеры: Соль Гён-гу, Ли Ха-ни, Пак Со-дам, Пак Хэ-су, Со Хён-у, Ким Дон-хи, Ким Джун-хи, Ко Ин-бом, Чо Ха-сок, Со Джин-вонПеревод: Многоголосый профессиональный (Кинопоиск HD)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 02:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F2D8614B5B52286720D03A45C9BA3F6515F4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704624   (114146) от 05.03.2024
-
-Фантом / Yuryeong / Phantom (2023) BDRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114146.jpg" />
-</div>
-
-
-###  Подробнее
-
-1933 год, японская оккупация Кореи. После очередного покушения на нового губернатора пятерых подозреваемых в связях с борцами за освобождение привозят в одиноко стоящий отель. Японский офицер знает, что среди них находится шпион, так называемый фантом, которого он обещает вычислить до полудня следующего дня. Напряжение нарастает, присутствующие начинают подозревать (   Читать дальше...   )Производство: Корея Южная / CJ Entertainment, LampЖанр: триллер, история, боевикРежиссер: Ли Хэ-ёнАктеры: Соль Гён-гу, Ли Ха-ни, Пак Со-дам, Пак Хэ-су, Со Хён-у, Ким Дон-хи, Ким Джун-хи, Ко Ин-бом, Чо Ха-сок, Со Джин-вонПеревод: Многоголосый профессиональный (Кинопоиск HD)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 02:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD917A3786631425BD004A63038BA804DAE1FE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704731   (114072) от 06.03.2024
-
-Контрабандистки / Milsu / Smugglers (2023) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114072.jpg" />
-</div>
-
-
-###  Подробнее
-
-1970-е, прибрежный городок Кунчхон. Решив поднимать со дна нелегальные грузы, группа ныряльщиц вскоре привлекает внимание начальника местной таможни. Тот устраивает облаву, во время которой происходит ужасный несчастный случай, пойманные девушки получают сроки, и только Чо Чхун-джа умудряется сбежать. Два года спустя, промышляя контрабандой Сеуле, Чхун-джа попадает (   Читать дальше...   )Производство: Южная Корея / Next Entertainment World, Filmmaker R&KЖанр: боевик, криминал, комедияРежиссер: Рю Сын-ванАктеры: Ким Хе-су, Ём Джон-а, Чо Ин-сон, Ко Мин-щи, Пак Чон-мин, Ким Джон-су, Ким Джэ-хва, Пак Кён-хе, Ли Джин-хи, Ли До-гунПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, КорейскийСубтитры: АнглийскиеПродолжительность: 02:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998B365578B0FF16E09568B76C8780C0C0058F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708126   (113216) от 19.03.2024
-
-Кошмарная легенда района Сибуя 2 / Shibuya kaidan 2  / The Locker 2 (2004) WEB-DL [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113216.jpg" />
-</div>
-
-
-###  Подробнее
-
-В районе Сибуя ходит легенда о камере хранения: если туда положить дары и произнести молитву, то у вас резко повышаются шансы встретить парня или девушку своей мечты. Молодёжь оставляет там дары и ждёт романтических приключений, не подозревая, что существует ещё одна легенда, — о зловещей камере, которая — если её открыть — приносит ужасное проклятие.Производство: Япония / Geneon EntertainmentЖанр: ужасыРежиссер: Кэи ХорияАктеры: Маки Хорикита, Фумина Хара, Аканэ Кимура, Кэнъити Мацуяма, Тиаки Ота, Анна Сакаки, Акари Хосода, Асами Мидзукава, Сюдзи Касивабара, Ю МисакиПеревод: Одноголосый любительский (Animegroup)Язык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18D628B0C4A97D3D0525E4A7685FFAF9F50A158
 ```
 
 https://mybot314.ru/tekegram_catalog/

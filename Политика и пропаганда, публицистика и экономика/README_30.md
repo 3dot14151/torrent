@@ -1,3 +1,29 @@
+###  Публикация: 1570044   (210435) от 15.08.2022
+
+Парни «с Квартала» (2022) IPTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210435.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2018 году Владимир Зеленский объявил — он идет в президенты Украины. Этот простой парень из студии «Квартал 95» обещал мир Донбассу, русский язык — украинцам, уважение — ветеранам Великой Отечественной войны. И люди ему поверили. Так кто же он, «простой парень» Владимир Зеленский? Константин Затулин: "Они ведь на самом деле с бору по сосенке оказались у этой (   Читать дальше...   )Телекомпания: Россия / Первый каналЖанр: Документальный, Политика, ПропагандаРежиссер: Антон ПономаревУчастники: Депутат Госдумы Константин Затулин,  писатель и публицист Николай Стариков,  академик РАН, д.м.н. Геннадий Онищенко,  музыкант, композитор Алексей Поддубный (Джанго),  декан факультета медиакоммуникаций МГИК Юрий Кот,  депутат Верховной Рады Украины V-VI созывов Алексей Журавко,  доцент департамента политологии Финансового университета при Правительстве РФ Геворг МирзаянСубтитры: отсутствуютПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C14DFF9E013EA186440715031544B3DCF01635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642529   (210301) от 28.06.2023
 
 Агитпроп. Джинн противоречий (27.06.2023) WEBRip [H.264/1080p-LQ]
@@ -6,7 +32,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210301.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208900.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205370.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203369.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202666.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202318.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202269.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_202047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202047.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201631.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200862.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200208.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198954.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196987.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196666.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195729.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195200.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195117.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194781.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193079.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192966.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190969.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190900.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189904.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189891.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189327.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBB7A156CD3DB155F953E90CAC17883A5B1109CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663841   (186448) от 23.09.2023
-
-Военная тайна с Игорем Прокопенко (23.09.2023) WEB-DL [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186448.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0486DA4F64535CDB5395C6E232D249FD3688AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

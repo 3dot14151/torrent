@@ -1,3 +1,29 @@
+###  Публикация: 1556542   (230390) от 09.06.2022
+
+Udemy, Titanforged Entertainment | Unreal Engine 5 Blueprints: Develop Your First Two Games (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы ищете быструю и мощную систему визуального скриптинга , позволяющую может создать любую игру, которую вы хотите, Unreal Engine 5 Blueprints - лучший выбор. Создавайте высококачественные игры, используя те же инструменты, которые AAA-студии используют в своих проектах на Blueprints. Все бесплатно. Переходите к созданию игры с помощью Unreal Engine 5 Blueprints! (   Читать дальше...   )Производство: Udemy, Titanforged EntertainmentЖанр: Unreal EngineЯзык озвучки: АнглийскийПродолжительность: 11:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF9D997DAB65A041E49D1E9271E346853ED99E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556678   (230348) от 10.06.2022
 
 Мастерская лёгкого пара | Курс по строительству бани (2022) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230348.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Skillshare, 3D Tudor | Substance Painter to Unreal Engine 5 Masterclass (2022) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230317.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine Complete Material Syst
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230284.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Tim Bergholz | Ultimate Grenade Tutorial Hardsurface 3D Course (2015) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230275.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Skillshare, Alan Ayoubi | After Effects Motion Graphic Beast (2020) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230272.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Motion Design School, Iaroslav Kononov | UI Animation Essentials (2019) WEB-DL [
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230254.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230038.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Stan Air | AirHair Tutorial (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229940.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ Udemy, Stephen Grider | The Complete React Native + Hooks Course (2021) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229896.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ Udemy, Maximilian Schwarzmüller, Manuel Lorenz | SQL - The Complete Developer's
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229862.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ Advanced Training, Иннокентий Солнцев | Курс «Cisco SPCORE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229849.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ Hudozhnik Online, Полина Абдулаева | Черно-белый Нов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229806.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ Vikisews, Виктория Ракуса | Немарафон по пошиву �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229765.jpg" />
 </div>
 
 
@@ -366,7 +392,7 @@ polski.online, Иванна Мных | Польский за 2 месяца (202
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229730.jpg" />
 </div>
 
 
@@ -395,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229692.jpg" />
 </div>
 
 
@@ -421,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229672.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Udemy.com | Adobe Photoshop cc course from A-Z Beginner to Master (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229553.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ ui.dev (ex. Tyler McGinnis), Tanner Linsley | React Query (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229530.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Jacque Fresco | The Venus Project (2004-2012) WEBRip [H.264] [EN]
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229449.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229257.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229011.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Convert Monster | Идеальный Landing Page, Яндекс.Директ, Go
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228907.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228629.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227422.jpg" />
 </div>
 
 
@@ -668,7 +694,7 @@ Enterclass, Илья Ибряев | Мачу-Пикчу (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227303.jpg" />
 </div>
 
 
@@ -679,32 +705,6 @@ Enterclass, Илья Ибряев | Мачу-Пикчу (2023) WEB-DL [AD] [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0D2A9C6FDFBEC68DBB8DBA0184E9850ADC964D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650068   (227295) от 30.07.2023
-
-Lextorium, Михаил Церковников, Владимир Прохоренко | Споры об энергии (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Споры о снабжении ресурсом по присоединенной сети (электро-, тепло-, водо-, газоснабжение) являются одними из самых распространённых в арбитражной практике по договорному праву. Поскольку квалифицирующим признаком договора на снабжение энергией является наличие присоединённой сети, важно понимать, какое значение имеет принадлежность объектов сетевого хозяйства. В (   Читать дальше...   )Производство: LextoriumЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 14:59:43Реклама: Вставки и наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17F2791DBBD3D1AC8E3505945E299082099973E
 ```
 
 https://mybot314.ru/tekegram_catalog/

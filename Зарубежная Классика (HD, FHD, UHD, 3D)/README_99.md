@@ -1,3 +1,107 @@
+###  Публикация: 788030   (38742) от 31.10.2024
+
+...иначе мы рассердимся / ...altrimenti ci arrabbiamo! (1974) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил да был один мафиози местного значения. И задумал он, по совету своего верного психолога, возвыситься, разорив беззащитный парк аттракционов и построив на его месте огромный небоскрёб. И всё бы у него получилось, если бы под горячую руку распоясавшихся рэкетиров не попалась дюна-багги, любимый автомобиль двух приятелей — голубоглазого красавца и медведоподобного (   Читать дальше...   )Жанр: Боевик, КомедияРежиссер: Марчелло ФондатоАктеры: Теренс Хилл, Бад Спенсер, Пэтти Шепард, Деогратиас Уэрта, Джон Шарп, Мануэль де Блас, Луис Барберо, Дональд Плезенс, Эмилио Лагуна, Рафаэль АльбачинПеревод: ДвухголосыйПродолжительность: 01:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9341BF73414CE02AD1A6DDD50B9EA515FC7FBEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681839   (38641) от 01.11.2024
+
+Поезд ужасов / Horror Express (1972) WEBRip [H.264/1080p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38641.jpg" />
+</div>
+
+
+###  Подробнее
+
+1906 год. Геологическая экспедиция находит в глухом районе Китая захоронение. Останки грузятся в Пекине на транссибирский экспресс, но уже на вокзале православный священник утверждает, что там находится нечистая сила.Производство: Великобритания, Испания / Benmar Productions, Granada FilmsЖанр: ужасы, фантастика, триллер, приключенияРежиссер: Эухенио МартинАктеры: Кристофер Ли, Питер Кушинг, Альберто де Мендоса, Сильвия Тортоса, Хулио Пенья, Жорж Риго, Анхель дель Позо, Виктор Исраэль, Хельга Лине, Элис Рейнхарт, Хосе Хаспе, Телли Савалас, Висенте РокаПеревод: Студийный одноголосый (Андрей Ярославцев)Язык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D27E20A34EADCF93CAD6A7AA29D1F4D602EDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757838   (38613) от 01.11.2024
+
+Виктория Великая / Victoria the Great (1937) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кино дает интимный портрет одной из самых долго царствовавших королев с первых дней ее правления до празднования бриллиантового юбилея. Роль королевы в государственных делах была весьма незначительной. Однако ее имя стало символом, олицетворяющим преуспеяние и самодовольство английских господствующих классов, а период ее правления получил название «викторианского (   Читать дальше...   )Производство: Великобритания / Herbert Wilcox ProductionsЖанр: драма, историяРежиссер: Херберт УилкоксАктеры: Анна Нигл, Антон Уолбрук, Вальтер Рилла, Х.Б. Уорнер, Мэри Моррис, Джеймс Дэйл, Феликс Эйлмер, Чарльз Карсон, Гордон МакЛеод, С.В. ФренсПеревод: Авторский (Алексей Яковлев)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 02:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA811F1E5A1D00581160E52468A39A1D6628889D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606658   (38601) от 01.11.2024
+
+Кэрри / Carrie (1976) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Робкую и доверчивую Кэрри третируют и обижают в школе и дома. От природы добрая девушка становится замкнутой и мрачной. В то же время она открывает в себе странные и страшные силы. А сверстники готовят очередную изощренную шутку над Кэрри, даже не подозревая, чем это для них закончится.Производство: США / Red Bank FilmsЖанр: ужасы, драмаРежиссер: Брайан Де ПальмаАктеры: Сисси Спейсек, Пайпер Лори, Эми Ирвинг, Уильям Кэтт, Джон Траволта, Нэнси Аллен, Бетти Бакли, П.Дж. Соулз, Присцилла Пойнтер, Сидни ЛэссикПеревод: Многоголосый профессиональный (Варус Видео)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48F3DAE5459CE995799430FF2DC762AD9276896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758092   (38506) от 02.11.2024
 
 Великая иллюзия / La grande illusion (1937) BDRip [H.264/720p]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38506.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38230.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38045.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38013.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37898.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37896.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37794.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37605.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37454.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37215.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37131.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36935.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36898.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36836.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36718.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36605.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36373.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36339.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36107.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35954.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35920.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35747.jpg" />
 </div>
 
 
@@ -565,111 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:247004AD1ADC7F8653F7FE4F007E1BD08005EDD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762998   (35563) от 01.12.2024
-
-Скажи, что ты любишь меня, Джуни Мун / Tell Me That You Love Me, Junie Moon (1970) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лайза Миннелли в роли Джуни Мун, женщины, чье лицо и рука обезображены кислотой, вылитой на нее извращенцем, над которым она посмеялась, когда он заставил ее раздеться на кладбище. Роберт Мур - молодой человек, воспитанный «голубым», раненный в результате несчастного случая на охоте с другом, за которым он как раз приударил. Кен Хауард в роли умственно отсталого. (   Читать дальше...   )Производство: США / Otto Preminger FilmsЖанр: драма, мелодрама, комедияРежиссер: Отто ПреминджерАктеры: Уэйн Типпит, Гай Сорел, Клариса Тейлор, Лайза Миннелли, Барбара Логан, Бен Пьяцца, Роберт Мур, Кен Ховард, Энн Ревер, Джеймс КокоПеревод: Многоголосый профессиональный (5 канал)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D907DD38678B05D19A70E317B63BB363A30B531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043965   (35387) от 03.12.2024
-
-Золото Маккенны / Mackenna's Gold (1969) BDRemux [H.264/1080p]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря случайным обстоятельствам шериф Маккенна узнает о том, где спрятано золото древнего индейского племени. В качестве «живой карты» он становится заложником бандита Колорадо, который мечтает найти каньон «дьявольское наваждение»… К группе головорезов примыкают все новые и новые охотники за богатством, но далеко не всем суждено будет добраться до цели. Тем (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Highroad Productions, Open RoadЖанр: Вестерн, ПриключенияРежиссер: Дж. Ли ТомпсонАктеры: Грегори Пек, Омар Шариф, Телли Савалас, Камилла Спарв, Кинен Уинн, Джули Ньюмар, Тед Кэссиди, Ли Дж. Кобб, Рэймонд Мэсси, Бёрджесс МередитПеревод: Дублированный, авторскийЯзык субтитров: Русский, английскийПродолжительность: 02:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF9504124FABDF20397304859B49346D69D4B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763654   (35233) от 04.12.2024
-
-Месье Венсан / Monsieur Vincent (1947) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнеописание католического священника, который с 1610 по 1660 годы прошёл путь от пленника турецких пиратов, проданного в рабство, до первого советника царственных особ, от индивидуальных исканий способов борьбы с последствиями эпидемии чумы до создания монастырских сообществ дочерей милосердия и викентийцев. Ватикан включил "Месье Венсан / Monsieur Vincent" (   Читать дальше...   )Производство: Франция / Office Familial de Documentaire Artistique (O.F.D.A.), Union Générale Cinématographique (UGC)Жанр: драма, биография, историяРежиссер: Морис КлошАктеры: Пьер Френе, Эме Кларион, Жан Дебюкур, Лиз Деламар, Жермена Дермо, Габриель Дорзиа, Пьер Дюкс, Ивонн Годо, Мишель Буке, Жан Карме, Габриель Фонтан, Марсель Перес, Марсель Валли, Жорж ВитреПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (leoferre24), английскиеПродолжительность: 01:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8CC0E72A6ADC7B872DFFF2165792602781785F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304705   (35077) от 06.12.2024
-
-Конвой / Convoy (1978) BDRip [H.264/1080p-LQ]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный конвой грузовиков, вздымающих тучи пыли, движется к границе штата юго-западной части Америки.
-Массивную коллекцию машин всех размеров и очертаний ведет «Резиновый утенок», легендарный водитель-дальнобойщик, который собрал армию единомышленников, протестуя против полицейской коррупции, государственных законов и теневой политики.Производство: США / EMI Films, Robert M. Sherman ProductionsЖанр: Боевик, ДрамаРежиссер: Сэм ПекинпаАктеры: Крис Кристофферсон, Эли МакГроу, Эрнест Боргнайн, Берт Янг, Мэдж Синклер, Френклин Эджайя, Брайан Дейвис, Сеймур Кэссел, Кэсси Йэтс, Уолтер КеллиПеревод: Дублированный (Киностудия им. Горького с многоголосыми вставками из ОРТ)Субтитры: Русские (full), Английские (full + SDH)Продолжительность: 01:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2E2D928BB0EBB22B839D6D321B148158062C0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

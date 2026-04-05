@@ -1,3 +1,31 @@
+###  Публикация: 1808719   (10322) от 26.07.2025
+
+Kobezzza, Андрей Кобец | Практический курс по TypeScript - от новичка до PRO (2025) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный курс, посвященный последней версии TypeScript 5 и его стандартному компилятору tsc. В рамках учебной программы вы изучите все аспекты языка и особенности работы с типами, освоите создание программ для интеграции в pipeline процесса сборки и оптимизации итогового кода, а также получите знания об альтернативных реализациях транслятора TS.
+
+Рассмотрим все детали (   Читать дальше...   )Производство: KobezzzaЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 41:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2E7E4C6EF9A67FA65985342DB4D4AC3973F00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809442   (9903) от 30.07.2025
 
 Balun.Courses, Игорь Панасюк | Профилирование в Golang (2025) WEB-DL [RU]
@@ -6,7 +34,7 @@ Balun.Courses, Игорь Панасюк | Профилирование в Golan
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9903.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Balun.Courses, Владимир Балун | Глубокий Go — нюанс�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9899.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ Balun.Courses, Сергей Венецкий | Глубокий Git (2025) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9473.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ Yesdress nostress, Анастасия Кульбацкая | Самый крут
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9301.jpg" />
 </div>
 
 
@@ -122,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9298.jpg" />
 </div>
 
 
@@ -150,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8186.jpg" />
 </div>
 
 
@@ -178,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7899.jpg" />
 </div>
 
 
@@ -204,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7809.jpg" />
 </div>
 
 
@@ -233,7 +261,7 @@ Alexander Semenko | Вся необходимая база по Assembler (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7802.jpg" />
 </div>
 
 
@@ -259,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7785.jpg" />
 </div>
 
 
@@ -285,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7782.jpg" />
 </div>
 
 
@@ -311,7 +339,7 @@ Computer Science Center | Программирование на Rust (2019) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7775.jpg" />
 </div>
 
 
@@ -339,7 +367,7 @@ klerk, Елена Ярушкина | Персональные данные в 20
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7765.jpg" />
 </div>
 
 
@@ -365,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7764.jpg" />
 </div>
 
 
@@ -394,7 +422,7 @@ f5game, Ольга Грищенко | Wow-контент за 1 минуту (20
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7760.jpg" />
 </div>
 
 
@@ -423,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7758.jpg" />
 </div>
 
 
@@ -449,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7750.jpg" />
 </div>
 
 
@@ -478,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7734.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7559.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ StasPiter | Программирование на Delphi в Rad Studio (2015) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7541.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7534.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7530.jpg" />
 </div>
 
 
@@ -620,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7526.jpg" />
 </div>
 
 
@@ -649,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7514.jpg" />
 </div>
 
 
@@ -675,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7491.jpg" />
 </div>
 
 
@@ -689,35 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CAF2F712CFF123B11F372A5E88E25A27AC9B2B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813000   (7342) от 17.08.2025
-
-Greech, Анастасия Гречушникова | Практический курс по дизайну карточек для Wildberries и Ozon (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улучшишь свои навыки, создашь 5 и более выдающихся работ в своём портфолио и увеличишь стоимость своих дизайнерских услуг. Этот курс для тебя, если ты:
-тратишь много времени на поиск идеи, материалов и разработку дизайна для одного проекта;
-не знаешь, как сделать так, чтобы клиенты сами обращались к тебе и покупали твои услуги;
-выполняешь работу за небольшие деньги (   Читать дальше...   )Производство: GreechЖанр: видеокурс, обучающий курс, графика, дизайн, нейросетиЯзык озвучки: русскийПродолжительность: 16:40:55Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B68C54E80598EBFEB50EFDA8A9F1A97B6A5169
 ```
 
 https://mybot314.ru/tekegram_catalog/

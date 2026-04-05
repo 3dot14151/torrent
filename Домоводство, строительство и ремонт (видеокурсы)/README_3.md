@@ -6,7 +6,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628653.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_614376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_614376.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_574276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574276.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556333.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540325.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528644.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507820.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Archicad-Master | Проектирование и визуализация в Sk
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506878.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495341.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494717.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488710.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487897.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471827.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471809.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470729.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470709.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468312.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466141.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459716.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450568.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418899.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416822.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Rick Arnold | Строим сарай с Риком Арнольдом / Build a
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393675.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Eltray.com | Зануление и заземление [2011] PCRec
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377980.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377031.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376875.jpg" />
 </div>
 
 

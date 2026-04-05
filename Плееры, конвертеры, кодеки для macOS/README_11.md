@@ -1,3 +1,29 @@
+###  Публикация: 1342475   (223965) от 02.12.2019
+
+Aimersoft Video Converter 6.1.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aimersoft Video Converter, протестированный на более чем 10 000 видеофайлов, является самым быстрым конвертером видео для Mac и Windows, который работает с непревзойденной скоростью преобразования в 90 раз выше, чем у современников. Быстрый конвертер файлов не только поддерживает большое количество медиаформатов, но и сохраняет оригинальное качество в HD и Ultra (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AimersoftПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158A1B04B1A3DCFC3FAD4A0DE46AF5B524DA7FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652338   (217701) от 11.08.2023
 
 Downie 4 v.4.6.25 [Multi/Ru]
@@ -6,7 +32,7 @@ Downie 4 v.4.6.25 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217701.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ VideoDuke 2.14 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214321.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Movist Pro 2.8.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211856.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ X Lossless Decoder XLD 20230627 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210372.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ IINA 1.3.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207830.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ iVI Video Converter 4 v.4.754 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207414.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206649.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Airy 3.28 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206036.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Movist Pro 2.8.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204547.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Downcast 2.11.25 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203539.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ MacX DVD Ripper Pro 6.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203413.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ DRMare Audio Music Converter for Mac 2.8.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203071.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Vidmore Video Converter 2.3.36 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200280.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ AirFoil+Airfoil Satellite 5.11.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189794.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ IINA 1.3.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187736.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ Aimersoft Video Converter Ultimate for Mac 11.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179981.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ Elmedia Player Pro 7.17 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175698.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ Macgo Mac Blu-ray Player Pro 3.3.22 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174640.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ Softorino YouTube Converter PRO for Mac 5.1.9 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171573.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ MediaHuman Youtube Downloader for Mac 3.9.9.86 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171500.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ Permute 3 v.3.11.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171437.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ MacX Video Converter Pro 6.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171404.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ Colibri 2.1.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171200.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ WinX HD Video Converter for Mac 6.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171042.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ OmniPlayer Pro - Media Player 2.1.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171016.jpg" />
 </div>
 
 
@@ -661,34 +687,6 @@ OmniPlayer Pro для Mac - это универсальный медиаплее
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:535AEF7D3BF7DDC9CF67F48FEC7D1D7E4530A6EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672179   (170357) от 27.10.2023
-
-Downie 4 v.4.6.32 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 27.10.2023Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B086E078E1917156D46759658FE2FC4266BA4B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

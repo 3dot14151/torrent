@@ -1,3 +1,55 @@
+###  Публикация: 526463   (219198) от 11.12.2012
+
+Михаил Русаков | Создание и раскрутка сайта от А до Я [2010] [unpacked]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как создать профессиональный сайт? Как разместить его в Интернете? Как раскрутить сайт и поднять его посещаемость? Данный видеокурс  подробно отвечает на все эти вопроса. 246 уроков общей продолжительностью более 50-ти часов обучающего видео сделают из Вас настоящего профессионала, который способен создать практически любой сайт (как минимум, 99% сайтов, которые Вы видите в Интернете).Жанр: Создание сайта, Веб-дизайнФормат: unpackedПродолжительность: 50:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD56A2B49ACE227A1DFDBB48391433AC1108F30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266964   (218483) от 15.12.2018
+
+Летящие сквозь ночь / Nightflyers (2018) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) OMSKBIRD [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218483.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о группе исследователей, которые отправляются на далекую планету, чтобы найти загадочное существо, но в пути сталкиваются с другими опасностями.Производство: США / Gaeta / Rosenzweig Films, HypnoticЖанр: ужасы, фантастикаРежиссер: Эндрю МакКарти, Майк Кэхилл, Мэгги КилиАктеры: Оуэн Мэкен, Дэвид Аджала, Джоди Смит, Энгус Сэмпсон, Сэм Страйк, Майя Эшет, Брайан Ф. О’Бирн, Гретхен Мол, Филлип Риз и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDСубтитры: английскиеПродолжительность: ~00:44:00 серия (00:58:20 - первая серия)Реклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D60F420CB47E14CC421A5257AF5C49C9565A82A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151507   (218278) от 10.08.2023
 
 Игра престолов / Game of Thrones (2017) WEBRip [H.264/1080p-LQ] (сезон 7, серии 1-7 из 7) LostFilm
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218278.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Bandicam 5.3.3.1893 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218137.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217538.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217416.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217275.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Joe Cocker - Fire it Up Live (2013) BDRip [720p]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217182.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ The Matrix: Path of Neo / Матрица: Путь Нео (2005) [Ru/En] (1.2) R
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217149.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217085.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Tom Clancy's Rainbow Six: Siege (2015) [Ru/En] (1.1) Repack R.G. Механик�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217037.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217020.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Dying Light (2015) [Ru/En] (1.6.2/dlc) Repack R.G. Механики [Ultimate Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217009.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_216959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216959.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216860.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216833.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ Test Drive: Ferrari Racing Legends [En/Multi5] (L) 2012 | SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216059.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ Darksiders 2: Death Lives [Ru/En] (Repack/u6) 2012 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216019.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215950.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215873.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215766.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215747.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215501.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215450.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215383.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215381.jpg" />
 </div>
 
 
@@ -630,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9B90B3F5CF474282CA56ABA72578C5FD5305B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425192   (215330) от 23.11.2020
-
-Air Explorer Pro 4.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Air Explorer Pro — один из лучших файловых менеджеров для работы с облачными хранилищами. Программа поддерживает работу с такими сервисами: OneDrive, Google Drive, 4shared, Box, Dropbox, Mega, Copy, Mediafire, Yandex, Baidu, Mail.ru, поддержка подключения по протоколам WebDAV, FТP и SFTP.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68ED067DD3A2A2721940108CADD72CE0CF99EB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343589   (215329) от 07.12.2019
-
-Ночь в осаде / Trauma Center (2019) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испуганная женщина, избитая неизвестными, оказывается ночью одна в больничном изоляторе травматологического центра. Раненная и обессиленная, она должна найти в себе силы сбежать от двух киллеров, которые пришли извлечь важную улику, указывающую на их причастие к громким криминальным делам. К счастью, ветеран полиции получает задание защищать главную героиню, и он (   Читать дальше...   )Производство: США / BondIt Media Capital, Buffalo 8 Productions, Emmett/Furla/Oasis FilmsЖанр: Боевик, триллерРежиссер: Мэтт ЭскандариАктеры: Брюс Уиллис, Никки Уилан, Стив Гуттенберг, Тексас Бэттл, Роман Митичян, Тайлер Джон Олсон, Хезер Йохансен, Тито Ортис, Дэйв Медоуз, Линн ГилмартинПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:26:10Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACCB7BE6A8DAA7CF53A89C39D94346125F416F5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,164 +1,3 @@
-###  Публикация: 1654567   (202333) от 21.08.2023
-
-Книжная серия "Head First O'Reilly" в 26 книгах +1CD (2011-2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202333.jpg" />
-</div>
-
-
-###  Подробнее
-
-В серию входят переводные книги издательства O'Reilly. Это уникальная серия "визуальных" книг, созданных по последним методикам эффективного обучения. Книги имеют огромное количество иллюстраций, графиков и таблиц, что позволяет усваивать материал намного эффективнее. Разговорный стиль изложения концентрирует внимание читателя, а упражнения, контрольные (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2153A8C0B85AB95C36A3D68537E89956436F808D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654395   (202325) от 21.08.2023
-
-Дэвид Гриффитс, Дон Гриффитс | Head First. Программирование для Android на Kotlin, 3-е издание (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам уже пришла в голову гениальная идея мобильного приложения, которое завоюет весь мир? Дело за малым — воплотить ее в жизнь.
-
-Эта полностью переработанная и обновленная книга поможет сразу приступить к работе. Вы на практике узнаете, как структурировать приложение, создавать гибкие и интерактивные пользовательские интерфейсы, сохранять информацию в базе данных (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32C748BDA4A06691C4B64D76DF4F54B6C32F0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655659   (201993) от 27.08.2023
-
-Пьер-Оливье Лоране и др. | Программирование на Kotlin для Android (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена разработке мобильных приложений для Android на языке Kotlin. Рассмотрены основные структуры и элементы языка, подробно описан фреймворк коллекций Kotlin. Показана архитектура операционной системы Android, приложений и их контейнеров, изучаются основы параллельного программирования. Рассказано о потокобезопасности, работе с параллелизмом с использованием (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: обработанный скан с OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736FBB65AF2BD7C8DAAD1A1F5868D3B86657D5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616463   (201933) от 02.03.2023
-
-Коллектив авторов | Анатомия для 3D-художников. Курс для разработчиков персонажей компьютерной графики (2022) [PDF]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201933.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D-моделирование и CGI — стремительно развивающееся направление в современной графике и дизайне, а профессия CG-художника является одной из самых востребованных на творческом рынке. Вместе с новой книгой от 3dtotal вы получите базу для работы с персонажами в таких программах, как 3ds Max или ZBrush, а также советы от профессионалов индустрии.
-Иностранные дизайнеры, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFCD4D9753320881A5EFD4377296EA4953895CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829989   (201766) от 26.10.2025
-
-Олег Скрынник | DevOps для ИТ-менеджеров. Концентрированное структурированное изложение передовых идей [2-e издание] (2019) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201766.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге четко и последовательно изложены ключевые понятия, принципы и практики DevOps, дано определение DevOps и его место относительно других методологий управления ИТ, включая Agile. Эта книга не про автоматизацию, она акцентирована на разъяснение сути DevOps, построение команды и управление ИТ, без привязки к конкретным технологиям и инструментам. Книга не носит (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5813C641CFF419E37DE017BE8CA9AE3F88DC6459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617198   (201690) от 05.03.2023
-
-Sandeep Rawat | CI/CD Pipeline with Docker and Jenkins (2023) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга  представляет собой правильное сочетание повествования, концепций и реальной реализации. Книга фокусируется на пути к CI/CD зрелости команды с точки зрения DevOps.
-
-Книга проведет вас по CI/CD-пути проекта, начиная с определения проблем, с которыми столкнулась команда, и того, как команда использует CI в качестве первого шага для преодоления проблем. Далее в (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A85724F9D24ED2B9D43CC38E32A4A3CC79C58D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617849   (201551) от 08.03.2023
 
 Nanik Tolaram, Nick Glynn | Full-Stack Web Development with Go (2023) [PDF] [EN]
@@ -167,7 +6,7 @@ Nanik Tolaram, Nick Glynn | Full-Stack Web Development with Go (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201551.jpg" />
 </div>
 
 
@@ -193,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201427.jpg" />
 </div>
 
 
@@ -220,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201425.jpg" />
 </div>
 
 
@@ -248,7 +87,7 @@ Sourabh Mishra | Practical Highcharts with Angular, 2nd Edition (2023) [PDF] [EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201416.jpg" />
 </div>
 
 
@@ -276,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201396.jpg" />
 </div>
 
 
@@ -302,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201390.jpg" />
 </div>
 
 
@@ -328,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201373.jpg" />
 </div>
 
 
@@ -355,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201356.jpg" />
 </div>
 
 
@@ -381,7 +220,7 @@ Maxwell Flitton | Rust Web Programming - Second Edition (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201340.jpg" />
 </div>
 
 
@@ -410,7 +249,7 @@ Alex Nuijten,  Patrick Barel | Modern Oracle Database Programming (2023) [PDF] [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201193.jpg" />
 </div>
 
 
@@ -436,7 +275,7 @@ Kolawole Mangabo | Full Stack Django and React (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201121.jpg" />
 </div>
 
 
@@ -462,7 +301,7 @@ Sarah Guthals | GitHub For Dummies, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201075.jpg" />
 </div>
 
 
@@ -488,7 +327,7 @@ Blaine Bateman | The Pandas Workshop (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200940.jpg" />
 </div>
 
 
@@ -514,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200894.jpg" />
 </div>
 
 
@@ -540,7 +379,7 @@ Victor G Brusca | Advanced Unity Game Development (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200819.jpg" />
 </div>
 
 
@@ -566,7 +405,7 @@ Michele Riva | Real-World Next.js (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200705.jpg" />
 </div>
 
 
@@ -592,7 +431,7 @@ Joseph Hocking | Unity in Action, 3rd Edition (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200704.jpg" />
 </div>
 
 
@@ -618,7 +457,7 @@ Machine Minds AI | Building Javascript Apps with Chat GPT (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200522.jpg" />
 </div>
 
 
@@ -646,7 +485,7 @@ Maya Shavin | Frontend Development Projects with Vue.js 3 (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200330.jpg" />
 </div>
 
 
@@ -672,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200278.jpg" />
 </div>
 
 
@@ -683,6 +522,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03DABDF7F2528BD7BD260074EB3A24B93DB0CAFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625007   (200221) от 08.04.2023
+
+Николай Климович | Линкбилдинг. Продвижение сайта путем построения связей и репутации (2023) [PDF, EPUB]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наиболее полное и единственное на русском языке руководство по внешней SEO-оптимизации и продвижению сайтов ссылочным методом в условиях новейших алгоритмов поисковых систем, таких как Google Spam Link Update, Page Experience и YATL Автор делится самым честным и независимым мнением о ссылках, спаме, аутриче и внешней поисковой оптимизации. Читателям впервые открываются (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD210C4A441E9C16597372A48871CD8691EF502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625200   (200176) от 09.04.2023
+
+Dr. Deepali R Vora и др. | Python Machine Learning Projects (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга начинается с объяснения того, насколько важно машинное обучение сегодня и какие технологии необходимы для его работы. Затем книга поможет вам ознакомиться с основными концепциями, лежащими в основе машинного обучения, включая основы программирования на Python. В ней объясняются различные типы алгоритмов машинного обучения и их применение в различных областях, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899C0FB6D4C28F936D915E10C06A53331AE3EBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625411   (200170) от 09.04.2023
+
+Джеффери Л. Клинтон | Создай свой собственный язык программирования (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассказывает о том, как разрабатывать уникальные языки программирования, чтобы сократить время и стоимость создания приложений для новых или специализированных областей применения вычислительной техники. Вы начнете с реализации интерфейса компилятора для вашего языка, включая лексический и синтаксический анализатор, а к концу чтения сможете разрабатывать и (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: С.В. МинцФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF55D1E84E1824654ADA77102079E923DCE53FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624922   (200144) от 08.04.2023
+
+Victor Hugo Garcia | Getting Started with Angular: Create and Deploy Angular Applications (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в архитектуру приложения Angular, начиная с введения в TypeScript и ES6 и переходя к модулям и компонентам, используемым для создания сложных приложений. В этой книге представлен практический подход к тому, как стать опытным разработчиком Angular, создав три полноценных приложения.
+
+Вы начнете с обзора фреймворка Angular, где будут представлены TypeScript (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F612106AE0F4BF350B9D4271FE8840A9879056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625567   (200138) от 10.04.2023
+
+Ashwin Pajankar | Python Unit Test Automation, 2nd Edition (2021) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как автоматизировать модульные тесты Python 3 с помощью библиотек автоматизации, таких как doctest, unittest, nose, nose2, pytest и selenium. В этой книге рассматриваются важные концепции автоматизации тестирования программного обеспечения и демонстрируется, как автоматизировать, организовывать и выполнять модульные тесты с помощью Python. Она также знакомит (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188A29F2BC8A5BC37883E7E0A037EB0C3643FE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625466   (200129) от 10.04.2023
+
+Stephen Chin и др. | DevOps Tools for Java Developers (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200129.jpg" />
+</div>
+
+
+###  Подробнее
+
+С развитием DevOps, недорогих облачных вычислений и контейнерных технологий подход Java-разработчиков к разработке сегодня кардинально изменился. Это практическое руководство поможет вам использовать преимущества микросервисов, бессерверных и облачных технологий с применением новейших методик DevOps для упрощения процесса сборки и создания высокопроизводительных (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D576D958A0E4D52F725A0B03306FE13F6D99FB55
 ```
 
 https://mybot314.ru/tekegram_catalog/

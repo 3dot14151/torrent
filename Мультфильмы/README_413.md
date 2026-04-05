@@ -1,3 +1,134 @@
+###  Публикация: 1778568   (28183) от 09.02.2025
+
+Сны оружия / Боевой ангел Алита / Battle Angel Alita / Hyper Future Vision: Gunnm (1993) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (1-2 серии из 2) Viki & Azazel [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля, XXVI век. Под небесным городом Салемом находится нижний город-свалка, где живут отбросы общества. Однажды вместе с мусором в нижний город сбрасывают останки девушки-киборга, которого находит и решает починить доктор Идо. После восстановления выясняется, что у киборга нет воспоминаний.Производство: Япония / Animate Film, Geffen Pictures, KSS Inc., Madhouse, Movic Inc.Жанр: аниме, мультфильм, фантастика, боевик, драма, криминалРежиссер: Хироси ФукутомиАктеры: Мики Ито, Каппэи Ямагути, Сюнсукэ Кария, Мами Кояма, Сигэру Тиба, Рюдзабуро Отомо, Кадзухико Кисино, Кодзи Тотани, Такуми Ямадзаки, Кадзуюки СогабэПеревод: Двухголосый любительский (Viki & Azazel)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:29:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91105D5705163FC7D7F36DBF0391B07021E463FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539463   (28168) от 09.02.2025
+
+Недодел и Передел (1979) WEBRip 1080p [H.264/1080p-LQ] [Handmade remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм рассказывает поучительную историю о двух мультипликационных героях Фоме и Ереме. Два брата походили друг на друга по внешности, но были разными по характерам.Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Геннадий СокольскийСубтитры: ОтсутствуютПродолжительность: 00:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8202926248A7193B86262E21617E2D5C2A4A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394179   (28162) от 09.02.2025
+
+Вот так тигр! (1963) WEBRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28162.jpg" />
+</div>
+
+
+###  Подробнее
+
+О том, как котенок вообразил себя тигром, но никого не смог напугать, кроме мышонка.Производство: СССР / СоюзмультфильмЖанр: Детский, рисованная анимацияРежиссер: Александр ТрусовАктеры: Клара Румянова, Рина Зеленая, Юрий Хржановский, Тамара ДмитриеваСубтитры: ОтсутствуютПродолжительность: 00:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B791B9DB7C2B41797A5396BD5E8D0AB8C36046F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778666   (28144) от 09.02.2025
+
+Иван Царевич и Серый Волк 6 (2024) WEBRip [H.264/720p] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28144.jpg" />
+</div>
+
+
+###  Подробнее
+
+По щучьему велению, по царскому хотению Иван и его верные друзья отправляются на волшебную выставку чудес со всего сказочного мира — других посмотреть и себя показать. На кону честь Тридевятого царства, а исполняющая желания Щука — как назло, возьми да исчезни. Спасать положение, как всегда, приходится Ивану, Серому Волку и Василисе. Там, на неведомых дорожках, им (   Читать дальше...   )Производство: Россия, Кинокомпания CTB / СТВ, Анимационная студия «Мельница»Жанр: мультфильм, приключения, фэнтезиРежиссер: Дарина Шмидт, Константин ФеоктистовАктеры: Никита Ефремов, Александр Боярский, Татьяна Бунина, Михаил Боярский, Константин Бронзит, Максим Сергеев, Дмитрий Высоцкий, Мария Цветкова-Овсянникова, Алиса Боярская, Олег КуликовичСубтитры: РусскиеПродолжительность: 01:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B71ACCC86CAA35A83D8952A35093A48EECA62C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621385   (28132) от 09.02.2025
+
+Жаркие звёзды (1982) TCRip [H.264/1080p-LQ] [handmade remastered AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28132.jpg" />
+</div>
+
+
+###  Подробнее
+
+По стихотворению Владимира Луговского.
+Отряд белогвардейцев ворвался в село и для потехи разгромил Школу грамотности сельской бедноты. Девушка-учительница скачет за подмогой к красноармейцам...Производство: СССР / КиевнаучфильмЖанр: мультфильм, короткометражкаРежиссер: Юрий СкирдаАктеры: Олег КомаровСубтитры: ОтсутствуютПродолжительность: 00:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188BAD5EFE0DCBB09085F84932C6E336985647D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509642   (28129) от 09.02.2025
 
 Кто меня толкнул? (1973) WEB-DLRip [H.264/1080p-LQ] [Remastered AI]
@@ -6,7 +137,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28129.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28088.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28082.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28058.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28049.jpg" />
 </div>
 
 
@@ -138,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27882.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27867.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27864.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27862.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27860.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27859.jpg" />
 </div>
 
 
@@ -296,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27858.jpg" />
 </div>
 
 
@@ -323,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27847.jpg" />
 </div>
 
 
@@ -349,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27844.jpg" />
 </div>
 
 
@@ -376,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27816.jpg" />
 </div>
 
 
@@ -402,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27815.jpg" />
 </div>
 
 
@@ -428,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27763.jpg" />
 </div>
 
 
@@ -454,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27694.jpg" />
 </div>
 
 
@@ -482,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27637.jpg" />
 </div>
 
 
@@ -508,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27563.jpg" />
 </div>
 
 
@@ -534,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27534.jpg" />
 </div>
 
 
@@ -545,136 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF73A6D7EAA9D27AC9FCC43A9ED4182B24C13E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779886   (27518) от 15.02.2025
-
-Моана 2 / Moana 2 (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив вызов от предков-искателей, Моана и Мауи отправляются в далёкие и опасные воды Океании.Производство: США, Канада / Disney Television Animation, The Walt Disney Company, Walt Disney Animation CanadaЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Дэвид Деррик мл., Джейсон Хэнд, Дэна Леду МиллерАктеры: Дуэйн Джонсон, Аулии Кравальо, Алан Тьюдик, Рэйчел Хаус, Николь Шерзингер, Темуэра Моррисон, Роуз Матафео, Awhimai Fraser, Khaleesi Lambert-Tsuda, Hualalai ChungПеревод: Дублированный (Jaskier), Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884E4E761606DFEA0105A29FC289EFC2221545E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779885   (27502) от 15.02.2025
-
-Моана 2 / Moana 2 (2024) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив вызов от предков-искателей, Моана и Мауи отправляются в далёкие и опасные воды Океании.Производство: США, Канада / Disney Television Animation, The Walt Disney Company, Walt Disney Animation CanadaЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Дэвид Деррик мл., Джейсон Хэнд, Дэна Леду МиллерАктеры: Дуэйн Джонсон, Аулии Кравальо, Алан Тьюдик, Рэйчел Хаус, Николь Шерзингер, Темуэра Моррисон, Роуз Матафео, Awhimai Fraser, Khaleesi Lambert-Tsuda, Hualalai ChungПеревод: Дублированный (Jaskier), Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889D1BD3733AE4AB62CE34B1F20031E7AC5E2067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771857   (27483) от 16.02.2025
-
-Властелин колец: Война рохирримов / The Lord of the Rings: The War of the Rohirrim (2024) WEB-DLRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27483.jpg" />
-</div>
-
-
-###  Подробнее
-
-События фильма происходят за 183 года до начала трилогии «Властелин колец». Король Рохана Хельм Молоторукий сталкивается с величайшей угрозой своего правления. Стремясь отомстить за смерть своего отца Фрека, Вульф собирает под своим управлением разрозненные племена Дунландцев и возглавляет военное вторжение на королевство.Производство: США, Япония / New Line Cinema, Sola Entertainment, Warner Bros. Animation, WingNut FilmsЖанр: аниме, мультфильм, фэнтези, боевикРежиссер: Кэндзи КамиямаАктеры: Гайа Уайз, Брайан Кокс, Люк Паскуалино, Миранда Отто, Кристофер Ли, Лоррейн Эшборн, Шон Дули, Алекс Джордан, Джанин Дувицки, Майкл УилдманПеревод: Перевод: Дублированный (Movie Dubbing, Flarrow Films), Многоголосый (TVShows, LostFilm, AniLibria)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (SDH) и др.Продолжительность: 02:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F32B5847EB476D04EE725A75C401365E7A523C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779929   (27409) от 16.02.2025
-
-Большой секрет для маленькой компании (1979) DVDRip [H.265/1080p] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кукольный мультфильм по сценарию поэтессы Юнны Мориц, притча о дружбе, преданности, предательстве и раскаянии.Производство: СССР, СоюзмультфильмЖанр: кукольный, детский, короткометражный, музыкальныйРежиссер: Юлиан КалишерАктеры: Татьяна Никитина, Сергей Никитин, Юнна МорицСубтитры: отсутствуютПродолжительность: 00:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752FBE152890DC7B00DAB0BE1823E9919869C58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780074   (27402) от 16.02.2025
-
-Приключения Джеки Чана / Jackie Chan Adventures (2001-2002) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 2 из 5, 1-39 серии из 39) ОРД [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеки Чан путешествует по миру в поисках древностей, многие из которых обнаруживают в себе волшебные свойства. Кроме того наш герой виртуозно владеет восточными единоборствами, он - стремителен, неуловим, и борется со злом во всех его проявлениях.Производство: США, Гонконг / Adelaide Productions Inc., Blue Train Entertainment, Columbia TriStar Domestic Television, Columbia TriStar Television, The Jackie Chan GroupЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Кристофер Беркли, Майкл Чанг, Энди ТомАктеры: Джеки Чан, Джеймс Се, Стэйси Чан, Саб Симоно, Ной Нельсон, Клэнси Браун, Адам Болдуин, Джулиан Сэндс, Джон Ди МаджиоПеревод: Дублированный (Объединение "Русский дубляж")Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B781F0538C9D0B23EDB7B83D57B8ED48B59DFB6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

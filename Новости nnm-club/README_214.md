@@ -1,3 +1,55 @@
+###  Публикация: 1173825   (287092) от 19.11.2018
+
+Battle Chasers: Nightwar (2017) [Ru/Multi] (24037) Repack R.G. Catalyst
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battle Chasers: Nightwar - это красочная ролевая игра с интересным сюжетом, где герою предстоит путешествовать по опасным подземельям и участвовать в сражениях, механика которых заимствована из классических jRPG.  Погрузитесь в мир комикса-бестселлера 90-х!Тип издания: RepackРазработчик: Airship SyndicateЖанр: Strategy (RTS, TBS), RPG, ActionЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2F15E1A557E9779D016C9EC041799410393A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 161018   (287076) от 14.12.2011
+
+Кин-Дза-Дза (1986) DVDRip (серии 1-2 из 2)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прораб Владимир Николаевич Машков и студент Гедеван из Советского Союза середины 80-х годов XX века оказываются на планете Плюк в галактике Кин-Дза-Дза. Планета эта представляет собой "конец технологической цивилизации", которая исчерпала все ресурсы ради технического прогресса. В компании двух бродячих артистов Уэфа и Би прораб и студент пытаются вернуться (   Читать дальше...   )Жанр: Фантастика, Комедия, ПриключенияРежиссер: Георгий ДанелияАктеры: Станислав Любшин, Леван Габриадзе, Евгений Леонов, Юрий Яковлев, Ольга Машная, Георгий Данелия, Лев Перфилов, Ирина Шмелева,Перевод: ОригинальныйПродолжительность: 02:07:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 270074   (287044) от 14.12.2010
 
 Сказ о розовом зайце (2010) DVDRip
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287044.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Disciples III: Resurrection / Disciples 3: Орды нежити [Ru] (Repack) 2
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287040.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Davinci Resolve Studio 14.1.1.005 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286967.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286771.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286757.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286751.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286748.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285424.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285398.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_285243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_285243.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285221.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_285216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_285216.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_285207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_285207.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285179.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285174.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285172.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285037.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285032.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.60.3700 Final RePack (& p
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285027.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284981.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_283859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_283859.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ S.T.A.L.K.E.R.: Call of Misery (2016) [Ru] (1.0d/fix2) Mod Rainford
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283845.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ AMD Radeon Software Crimson ReLive Edition 16.12.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283761.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Radiocent 3.5.0.97 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283759.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ Radiocent - бесплатная программа для прослушива�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:483729C46E108607BB92C822D262685FD21B77EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186594   (283724) от 26.11.2017
-
-Кудрин рассказал, когда появятся бессмертные люди
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_283724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кудрин спрогнозировал появление "практически бессмертного человека" в течение 10-15 лет
-Глава Центра стратегических разработок (ЦСР), экс-министр финансов Алексей Кудрин считает возможным появление в ближайшие 10-15 лет технологий, которые позволят существенно продлевать жизнь человека. Об этом он сообщил, выступая на Общероссийском гражданском форуме.Бывший (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081410   (283631) от 09.12.2016
-
-Malwarebytes Anti-Malware Premium 3.0.4.1269 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malwarebytes Anti-Malware - новая версия программы от создателей RogueRemover Pro, AboutBuster и других популярных утилит, способная находить и удалять разнообразные вредоносные программы. Программа использует эвристический метод сканирования, способный в реальном времени контролировать безопасность системы в целом. Также имеется возможность полного сканирования (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4822015BE6338091CB019254060608D423B55D06
 ```
 
 https://mybot314.ru/tekegram_catalog/

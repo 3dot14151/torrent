@@ -1,3 +1,32 @@
+###  Публикация: 1490993   (913252) от 23.08.2021
+
+Foxford, Юлия Глухих  | Основы программирования на Python (2020-2021) WEB-DL
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кому будет полезен курс
+Курс подойдёт тем, кто только начинает изучать программирование на Python.
+Какие знания дает курс
+Курс позволяет освоить базовые конструкции программирования, встречающиеся в любом языке программирования, а также написать под руководством преподавателя несколько игр.(   Читать дальше...   )Производство: FoxfordЖанр: ПрограммированиеПродолжительность: 45:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E970B5F679334A25344BE70F742C927976454A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988897   (912906) от 24.02.2016
 
 lynda.com | CINEMA 4D R17 Essential Training (2016) PCRec [H.264/720p] [EN]
@@ -6,7 +35,7 @@ lynda.com | CINEMA 4D R17 Essential Training (2016) PCRec [H.264/720p] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912906.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912818.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Profileschool | Скрытая логика изобразительного м�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912791.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ CGcircuit, David Adan | Introduction to VEX - Volume 1 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912078.jpg" />
 </div>
 
 
@@ -112,7 +141,7 @@ Udemy, Mrawan Hussain | Blender 2.83: How to create realistic BedRoom with Cycle
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911926.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ Experiment-fest,  Виталий Черемисинов, Искандер Мир
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911907.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911890.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911742.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911638.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911620.jpg" />
 </div>
 
 
@@ -277,7 +306,7 @@ Stepik, Андрей Бойко, Анастасия Заречнева | Авт�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911608.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ Udemy, YouRa Allakhverdov | TypeScript с нуля - от основ до advanc
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911526.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911287.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911164.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911130.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911063.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911059.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911057.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ TheNewBoston | Фотошоп CS6 / Photoshop CS6 (2014) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910966.jpg" />
 </div>
 
 
@@ -521,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910965.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ CGcircuit, David Adan | Introduction to VEX - Volume 3 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910575.jpg" />
 </div>
 
 
@@ -577,7 +606,7 @@ CGcircuit, David Adan | Introduction to VEX - Volume 2 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910574.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ Udemy | Скриптинг в Blender 2.81 / Python Scripting in Blender 2.81 wi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910415.jpg" />
 </div>
 
 
@@ -631,7 +660,7 @@ FlippedNormals | Ретопология в Blender 2.8 / Retopology in Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910361.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ Bang Bang Education | Как устроены буквы (2018) PCRec [H.264/108
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910307.jpg" />
 </div>
 
 
@@ -670,32 +699,6 @@ Bang Bang Education | Как устроены буквы (2018) PCRec [H.264/108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3657E1C780E92CD576F4A56388200E7E8898A68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491573   (910240) от 25.08.2021
-
-Udemy, Nicholas Lever | The Beginners Guide to 3D Web Game Development with ThreeJS (2021) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как писать код JavaScript, получая удовольствие от создания игр с помощью WebGL библиотеки ThreeJS.Производство: UdemyЖанр: Разработка игрЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 07:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CFC677FDCFDE69B89E036FBC36589D5B54963F
 ```
 
 https://mybot314.ru/tekegram_catalog/

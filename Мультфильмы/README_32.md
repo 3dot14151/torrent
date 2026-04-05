@@ -1,3 +1,135 @@
+###  Публикация: 604510   (996039) от 18.01.2013
+
+Громовые Коты / ThunderCats (Сезон 1, серий 26 из 26) (2011) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996039.jpg" />
+</div>
+
+
+###  Подробнее
+
+О фильме: Многие поколения жителей Тандеры жили и процветали, пока однажды на их королевство не напала армия злобных ящеров, возглавляемая колдуном Мамм-Ра. Порабощенную Тандеру еще можно спасти, и небольшая группа выживших жителей, возглавляемая молодым наследником трона, Лайоном-О, отправляется на поиски Книги Предзнаменований ‒ артефакта, который может привести (   Читать дальше...   )Жанр: Рисованная анимация, ПриключенияРежиссер: Шон Сонг, Ёсихару АсиноПерсонажи: Принц Лайн-о, колдун Мамм-Ра, Рамлак, СлизэПеревод: Многоголосый закадровыйПродолжительность: 26 х ~00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADF089BACFE8628BBE3BEFB81497C49AF43080C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605056   (996017) от 18.01.2013
+
+Тэд Джонс и Затерянный город 3D / Las aventuras de Tadeo Jones (2012) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тэд — обычный чикагский строитель, страстно мечтающий о невероятных открытиях и опасных приключениях. Однажды его по ошибке принимают за известного археолога и отправляют в Перу на поиски сокровищ инков. Радости Тэда не было предела, но, похоже, она оказалась преждевременной…Производство: Испания / Telecinco Cinema, Ikiru Films S.L.Жанр: Приключения, СемейныйРежиссер: Энрике ГатоАктеры: Оскар Барберан, Меритксель Ане, Карлес Канут, Фиона Глэскотт, Адам Джеймс, Мишель Хеннер, Мигель Анхель Дженнер, Энрикета Линарес, Мак МакДональд, Брюс МаккиннонПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571E571320FE6BF96EE1B348E263B0B084378205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604767   (995999) от 18.01.2013
+
+Нико 2 / Niko 2 - Lentäjäveljekset (2012) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые приключения веселого и отважного олененка Нико, мечтающего, как и его легендарный отец, стать летающим оленем в упряжке Санта-Клауса. Все начинается накануне Рождества. Вместе со своими друзьями, белкой Джулиусом, лаской Вилмой и сводным братишкой Джонни Нико с нетерпением ждет Санту. Но тот снова попадает в невероятную историю. Неужели дети останутся без подарков?Производство: Финляндия, Германия, Дания, ИрландияЖанр: Приключения, Комедия, СемейныйРежиссер: Кари Юуусонен, Юрген ЛердамАктеры: Эрик Карлсон, Вуокко Ховатта, Кари Хиеталахти, Пертти Койвула, Юха Вейонен, Кари Кетонен, Аааре Карен, Элина Книхтиля, Рику Ниеминен, Ристо КаскилахтиПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8792EA5DFEB1E6608734A58ECD277D1EBAAC9222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605103   (995987) от 18.01.2013
+
+Ронал-варвар / Ronal Barbaren (2011) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ронал — самый нетипичный варвар на Земле. Его не интересуют ни битвы, ни завоевания, ни пиры. Больше всего на свете ему хочется, чтобы все просто оставили его в покое. Но судьба распоряжается иначе. Однажды злобный принц Вольказар, вождь враждебного племени, захватывает всех варваров в плен, чтобы принести их в жертву древним богам и обрести власть над миром. На (   Читать дальше...   )Жанр: Мультфильм, Фэнтези, Комедия, ПриключенияРежиссер: Крестен Вестбьерг Андерсен, Торбьорн Кристофферсен, Филип Эйнштейн ЛипскиПерсонажи: Андерс Юль,  Хади Ка-Куш,  Лерке Винтер Андерсен,  Брайан Лукке,  Ларс Миккельсен,  Питер Од,  Ларс Бом,  Свен-Оле Торсен,  Оле Теструп,  Пребен КристенсенПеревод: ДублированныйПродолжительность: 01:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261422F3B1220C258B97249F5D88416EBAC29534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605350   (995838) от 19.01.2013
+
+Сказки старого пианино: Чайковский. Элегия. (2011) WEB-DLRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальная интерпретация жизни и творчества выдающегося русского композитора Петра Ильича Чайковского – элегантного, выразительного, драматичного, играющего на невидимом инструменте и танцующего в лучах волшебного фонаря, вспоминая свою жизнь. Восьмая серия «Сказок старого пианино» – не биографическое ЖЗЛ, а изящная элегия о памяти и меланхолии...Жанр: музыкальный, биографическийРежиссер: Ирина Марголина, Barry Purves
+
+За Рип  Спасибо  	PovetinaПродолжительность: 00:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFBEDB535DC8EC013FF60FA5BC5F6F98D8C76659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605359   (995825) от 19.01.2013
 
 Сказки старого пианино: Сергей Прокофьев. Четвертый апельсин (2011) WEB-DLRip
@@ -6,7 +138,7 @@
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995825.jpg" />
 </div>
 
 
@@ -34,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995752.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995742.jpg" />
 </div>
 
 
@@ -88,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995733.jpg" />
 </div>
 
 
@@ -114,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995704.jpg" />
 </div>
 
 
@@ -140,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995481.jpg" />
 </div>
 
 
@@ -166,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995449.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995434.jpg" />
 </div>
 
 
@@ -219,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995425.jpg" />
 </div>
 
 
@@ -247,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995422.jpg" />
 </div>
 
 
@@ -274,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995421.jpg" />
 </div>
 
 
@@ -302,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995417.jpg" />
 </div>
 
 
@@ -328,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995413.jpg" />
 </div>
 
 
@@ -354,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995376.jpg" />
 </div>
 
 
@@ -380,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995344.jpg" />
 </div>
 
 
@@ -406,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995024.jpg" />
 </div>
 
 
@@ -432,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995007.jpg" />
 </div>
 
 
@@ -458,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994974.jpg" />
 </div>
 
 
@@ -484,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994796.jpg" />
 </div>
 
 
@@ -511,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994699.jpg" />
 </div>
 
 
@@ -537,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994663.jpg" />
 </div>
 
 
@@ -548,137 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84173985B9A604E4A4CC24BFC8EF6948AA2DB6DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606971   (994660) от 22.01.2013
-
-Том и Джерри: Робин Гуд и Мышь-Весельчак / Tom and Jerry: Robin Hood and His Merry Mouse (2012) [1080p] Blu-Ray
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он грабил богатых, раздавал награбленное бедным, а теперь ему отчаянно нужна помощь Тома и Джерри! Знаменитый разбойник Робин Гуд попал в лапы злого шерифа Ноттингемского, а возлюбленной Робина, деве Мэриан, грозит серьезная опасность со стороны алчного принца Джона. Сумеют ли заклятые враги Том и Джерри на время забыть о своей вражде, чтобы спасти положение? В новом (   Читать дальше...   )Производство: США, Warner Home VideoЖанр: Рисованная анимацияРежиссер: Спайк Брандт, Тони ЧервонеПерсонажи: Роб Полсен, Тодд Стэшвик, Лорейн НьюменПеревод: ДублированныйЯзык субтитров: Русские, английские, французские, немецкие, испанскиеПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32EA04B89E64C027F485C354D34059CEE30933B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607048   (994618) от 22.01.2013
-
-Рождественская история / A Christmas Carol (2009) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это викторианская поучительная история о старом и ожесточившемся скупердяе Эбенезере Скрудже, который в течение одной ночи переживает испытание глубокого очищения. Мистер Скрудж — финансист/денежный меняла, который посвятил всю свою жизнь накоплению богатства. Он презирает всё, кроме денег, включая дружбу, любовь и рождественские праздники.Жанр: Мультфильм, Фэнтези, Драма, Комедия, СемейныйРежиссер: Роберт ЗемекисПерсонажи: Джим Керри,  Гари Олдман,  Колин Фёрт,  Кэри Элвис,  Робин Райт,  Боб Хоскинс,  Стив Валентайн,  Дэрил Сабара,  Сэйдж Райан,  Эмбер Гейни МидеПеревод: ДублированныйПродолжительность: 01:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E995B6D84B0F1C199C49B80D6AB68E1530EED51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605990   (994581) от 22.01.2013
-
-ВакФу / WakFu (сезон 2, 26 серий из 26 + 1 SP) (2011) [H.264/720p-LQ] WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994581.jpg" />
-</div>
-
-
-###  Подробнее
-
-С возвращением в мир Вакфу!
-Наши герои окрепли и слегка повзрослели. Всё казалось бы хорошо — Нокс повержен, царит мир и порядок... Лишь доблестного рыцаря Сэдлигроува не хватает нашей компашке. Но действительно ли он погиб? Еву терзают сомнения...Жанр: Компьютерная анимация, Приключения, КомедияРежиссер: Тот, Оливье Тулье / Tot, Olivier "Güss" ThulliezПерсонажи: Юго, Седлигроув, Руэль, Амалия, ЕвангелинПродолжительность: 26 серий по ~ 00:22:00 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BC02575F212338E23FC9E47D26DAD665A17FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333302   (994149) от 01.01.2012
-
-Рождественская история / A Christmas Carol (2009) [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это викторианская поучительная история о старом и ожесточившемся скупердяе Эбенезере Скрудже, который в течение одной ночи переживает испытание глубокого очищения. Мистер Скрудж - финансист/денежный меняла, который посвятил всю свою жизнь накоплению богатства. Он презирает всё, кроме денег, включая дружбу, любовь и рождественские праздники.Производство: США, Walt DisneyЖанр: Фэнтези, Драма, СемейныйРежиссер: Роберт ЗемекисВ ролях: Джим Керри, Стив Валентайн, Дэрил Сабара, Сэйдж Райан, Эмбер Гейни Миде, Райан Очоа, Бобби Пейдж, Рон Боттитта, Сэмми Ханратти, Джулиан ХоллоуэйПеревод: ДублированныйЯзык субтитров: Русские(Форсированные),Русские(Полные), Украинские(Форсированные), Украинские(Полные), Английские (полные)Продолжительность: 01:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A060A3EDB2A22A9B2741182D993362179DEF3B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608258   (993964) от 24.01.2013
-
-Геркулес / Hercules (1997) HDTVRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аид — властитель загробного мира. Много лет назад он был фактически сослан своим старшим братом Зевсом в глубины Ада и теперь намерен наверстать упущенное, собрав армию монстров и захватив Олимп. Единственный, кто может помешать Аиду — сын Зевса, юный Геркулес, поэтому прислужники злодея похищают младенца и превращают его в простого смертного. Спустя много лет юноша (   Читать дальше...   )Жанр: Мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон МаскерПерсонажи: Тейт Донован (Hercules, озвучка), Джошуа Китон (Young Hercules, озвучка), Роджер Барт (Young Hercules, исполнитель песни), Дэнни ДеВито (Philoctetes, озвучка), Джеймс Вудс (Hades; Lord of the Underworld, озвучка), Сьюзэн Иган (Meg, озвучка), Боб Голдтуэйт (Pain, озвучка), Мэтт Фрюэр (Panic, озвучка), Рип Торн (Zeus, озвучка), Саманта Эггар (Hera, Hercules' Mother, (   Читать дальше...   )Перевод: Полный дубляж, вкл. песни, многоголосый закадровый, авторскийЯзык субтитров: Русские, английскиеПродолжительность: 01:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4773A383CEB5603692957A5CFCA0AD52CFFCCF77
 ```
 
 https://mybot314.ru/tekegram_catalog/

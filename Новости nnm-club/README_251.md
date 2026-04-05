@@ -1,3 +1,55 @@
+###  Публикация: 1569089   (158769) от 26.12.2022
+
+Doma TV Net Pro v4.3 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смотрите то, что интересно, 24 часа в сутки без выходных и праздников. ТВ доступно в хорошем качестве для людей с различными предпочтениями. Дома ТВ Нет обязательно понравится всем без исключения. Настало время ощутить преимущества настоящего телевидения, каким оно должно быть в интересах зрителя!Тип издания: AdfreeРелиз состоялся: 17 декабря 2022Разработчик: domanetvПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D261DA2403D81DCC5598DB4638A27B7EF6823D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663697   (158719) от 12.11.2023
+
+Кибердеревня (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158719.jpg" />
+</div>
+
+
+###  Подробнее
+
+2100 год. Николай счастливо живет с семьей в кибердеревне на Марсе. Он спокойно ведет роботизированное хозяйство, пока на планету не прилетает руководитель огромной корпорации — Барагозин, который хочет построить на месте деревни новый завод. Николай отправляется в полное опасностей и приключений путешествие до Земли, чтобы спасти свой дом.Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Григорий Скряпкин, Сергей Бурунов, Артем Семакин, Елена Махова, Влада Лукина, Маргарита Силаева, Сергей Фёдоров, Григорий Столбов, Зоя МансуроваСубтитры: Русские (Full, SDH)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5FA46EE8C86EA411B2C95CBD50902BFB758C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967198   (158520) от 20.12.2015
 
 Новейший завет / Le tout nouveau testament (2015) WEB-DLRip
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158520.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Football Manager 2016 (2015) [Ru/Multi] (16.1.1) Repack Piston
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158517.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Revo Uninstaller Pro 3.1.5 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158289.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158280.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158277.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158276.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Apple рассказала, зачем замедляет старые iPhone (�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_158059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_158059.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Parasite Eve 2 (2000) [Ru/En] (1.0) Repack Ma2012ks
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157755.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157712.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157692.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157661.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Aliens vs. Predator (2010) [Ru] (2.27.0/dlc/tr) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157654.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Seed4.Me VPN и Proxy 1.0.64 (акция COMSS) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157627.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157568.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157539.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157526.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157414.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157396.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157368.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Destiny + Destiny: The Taken King (2014) [PS3] [EUR] 4.60 [Cobra ODE / E3 ODE PR
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157288.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_157210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_157210.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7719/dlc) License GOG [Deluxe Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156498.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156489.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156363.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F34096C18C42F2C292DD52123706FAE96DB6B8A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329341   (156283) от 20.12.2019
-
-Choujin Koukousei-tachi wa Isekai demo Yoyuu de Ikinuku you desu! / Сверходарённым школьникам даже другой мир нипочём! [2019, TV, 12] WEBRip 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь гениальных японских старшеклассников покорили мир, используя свои умопомрачительные способности во всём, от политики до экономики и развлечений. В один роковой день эти гении попадают в авиакатастрофу, но оказываются не в морге… Очнувшись в другом мире, где магия и зверолюди вполне реальны, эти семеро впадают в панику — вернее, они поступили бы так, будь они (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Янаги СинсукэЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512676D54FD5602C0B4CBC93B4996D635BD524BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270010   (156231) от 19.12.2018
-
-Матрица: Трилогия / The Matrix: Trilogy (1999-2003) BDRip [H.264/1080p] [Remastered]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм изображает будущее, в котором реальность, существующая для большинства людей, - есть в действительности симуляция, созданная разумными машинами, чтобы подчинить и усмирить человеческое население, в то время как тепло и электрическая активность их тел используются машинами в качестве источника энергии. Узнав об этом, хакер по кличке Нео оказывается втянут в (   Читать дальше...   )Производство: США, Австралия, Warner Bros., Village Roadshow PicturesЖанр: Боевик, Фантастика, ПриключенияРежиссер: Энди Вачовски, Лана ВачовскиАктеры: Киану Ривз, Лоренс Фишбёрн, Кэрри-Энн Мосс, Хьюго Уивинг, Глория Фостер, Джо Пантольяно, Маркус Чонг, Джулиан Араханга, Мэтт Доран, Белинда МакКлори, Моника Беллуччи, Ламбер Вильсон, Энтони Вон, Гарри Дж. Ленникс, Рэндолл Дак Ким, Брюс Спенс, Джада Пинкетт Смит, Хэролд Перрино, Хельмут БакайтисПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:16:21 + 02:18:18 + 02:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7B187A9A175FF3F3447D40DB84AC427A051877
 ```
 
 https://mybot314.ru/tekegram_catalog/

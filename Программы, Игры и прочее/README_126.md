@@ -1,3 +1,107 @@
+###  Публикация: 1698304   (118606) от 08.02.2024
+
+Reverso Translation Dictionary / Переводной словарь Reverso 11.8.9 Mod by Number one' [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reverso Translation Dictionary / Переводной словарь Reverso - очень полезное приложение для путешественников, не способных общаться с жителями других стран на их родном языке и просто для тех, кто хочет подтянуть знания языка. Проект представляет собой словарь-переводчик для разговора в реальном времени. Поддержка обширного спектра мировых языков, быстрота работы (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 31.01.2024Разработчик: Reverso Technologies Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D244FD88639F8C4A4C2B1A679A93D04B1B438224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697710   (118516) от 09.02.2024
+
+Узлы 3D / Knots 3D v8.8.1 Paid [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завязывайте, развязывайте и вращайте пальцем более 190 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь!Тип издания: Paid / FullРелиз состоялся: 09.02.2024Разработчик: Nynix LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E0523C912ACC897E46800392BCAA41FF1CA6C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698713   (118328) от 10.02.2024
+
+ToonMe v0.6.109 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите превратить ваше селфи в классный мультяшный портрет всего за секунду? Искусственный интеллект к вашим услугам! Немного магии и ToonMe превратит ваше фото в мультяшный рисунок или векторный портрет. То, для чего раньше требовалось несколько дней кропотливой работы профессионального художника, теперь доступно каждому! С ToonMe художником станете выТип издания: ProРелиз состоялся: 09.02.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453CF9ED7CF3D9C8E846E44669DAEBC67C4FF899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698708   (118315) от 10.02.2024
+
+Spyglass v3.9.9 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весьма удобный инструмент для путешествий там, где нет хороших дорог и широкополосного доступа к Интернтету. Некоторые типа карт доступны для предварительной загрузки. Для работы требуется включённый GPS-модуль. Множество настроекТип издания: PremiumРелиз состоялся: 08.02.2024Разработчик: Happymagenta UABПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BF8893F62DAED39E27273A44C030EAA87FC5E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698716   (118310) от 10.02.2024
 
 Ventusky: Прогноз погоды v31.0 Mod by maxi123444 [Ru/Multi]
@@ -6,7 +110,7 @@ Ventusky: Прогноз погоды v31.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118310.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.016.1439 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118291.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ ActionDirector - Видеоредактор v7.12.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118256.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ SD Maid v5.6.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118193.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ MX Player Pro v1.78.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118188.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Offline Maps / Офлайн карты для путешественников v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118178.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118172.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118163.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Strava: бег, велоезда, хайкинг v346.7 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117974.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117690.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ DNS Changer - Secure VPN Proxy v1321-2r Pro Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117134.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117126.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Photo Editor v9.9 Pro Mod by Balatan, Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117100.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Astrological Charts / Астрологические Карты Pro v10.5.1 [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117094.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Sense Flip Clock & Weather v6.51.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117085.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Plus Messenger (Telegram+) v10.6.4.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117084.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Horary Chart / Астрология: Хорарная Карта v3.1.1 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117067.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116940.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ IPTV Pro v7.1.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116616.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Strava: бег, велоезда, хайкинг v347.5 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116545.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ PhotoDirector v18.10.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116517.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Moon+ Reader Pro v9.1 build 901001 Mod by Balatan + Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116134.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Moon+reader относится к категории универсальных 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBFBAC6C82D6BBFBDFD4F15599C45007605B0A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702173   (116131) от 23.02.2024
-
-Garmin: TOPO Active Russia v.5.00 [Ru]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карта Garmin Topo Active Russia v.5.0 является полностью бесплатной, доступной для загрузки в совместимые навигаторы и часы Garmin. Основа данных - OpenStreetMap (OSM), в добавление на карте присутствует слой быстрого расчёта маршрутов (работает с совместимыми навигаторами GPSMAP 66, серия часов Fenix 5 Plus, fenix 6, fenix 7, epix (Gen 2), MARQ). Карта разделена (   Читать дальше...   )Тип издания: бесплатноРелиз состоялся: январь 2022Разработчик: OSM / GarminПоддерживаемая ОС: GarminЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC447BDBA02B38D1C9910DF9237301452DD33CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699810   (116101) от 23.02.2024
-
-Настольные и карточные игры v20.7 Mod by vedserega [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во все игры можно играть как против компьютера, так и по bluetooth, wifi или онлайн на интернет сервере. Общение на сервере возможно как в общем чате, так и лично с игроками. Все игры, собранные в этом приложении не являются азартными играми. В приложении используется только виртуальная валюта без реального вывода денег.Тип издания: FullРелиз состоялся: 20.02.2024Разработчик: Strict gamesПоддерживаемая ОС: Android 5.0+Жанр: Настольные игрыЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DFEE325B4DB2BE749847F70ED8930BF01B4D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701959   (116042) от 23.02.2024
-
-ToonMe v0.7.0 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите превратить ваше селфи в классный мультяшный портрет всего за секунду? Искусственный интеллект к вашим услугам! Немного магии и ToonMe превратит ваше фото в мультяшный рисунок или векторный портрет. То, для чего раньше требовалось несколько дней кропотливой работы профессионального художника, теперь доступно каждому! С ToonMe художником станете выТип издания: ProРелиз состоялся: 22.02.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F66F55AF834687D31F8FCAB2E8A958CB9C7D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701963   (116025) от 23.02.2024
-
-Moon+ Reader Pro v9.1 (build 901001) Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 17.02.2024Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F27A828D4D84B31A3B2317EE5EE8D6F4FDA6B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

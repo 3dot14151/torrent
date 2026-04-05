@@ -1,3 +1,29 @@
+###  Публикация: 1325367   (414042) от 14.09.2019
+
+ProfIT | MySQL 8 (2019) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семинар посвящен не так давно вышедшей новой, восьмой версии популярнейшей базы данных MySQL. Что же так сильно изменилось, что потребовалось столь "круто" менять номер версии? Об это узнаете на вебинаре!Производство: ProfITЖанр: Базы данных, MysqlПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97577F9716E5300EA4CC75F920DB2C8C6584A27E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066315   (413455) от 25.10.2016
 
 Алекс Яновский | Миллион долларов с нуля за 2 года (2014) PCRec [H.264/720p]
@@ -6,7 +32,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413455.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413400.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413307.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ The Gnomon Workshop, Justin Holt | Painting Realistic Skin in Mari 2.0 (2013) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412213.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411962.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411810.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ Sabatovsky, Влад Сабатовский | After Effects от новичка 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411749.jpg" />
 </div>
 
 
@@ -203,7 +229,7 @@ Gilad | Fé Fit Women's Workout Program (2016) WEBRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411530.jpg" />
 </div>
 
 
@@ -230,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411364.jpg" />
 </div>
 
 
@@ -259,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411352.jpg" />
 </div>
 
 
@@ -288,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411180.jpg" />
 </div>
 
 
@@ -315,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411027.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Lynda.com | Learning Cinema 4D R20 (2018) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410651.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410644.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410129.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Postgres Professional | Разработка серверной части пр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409826.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Profileschool | Панорамная фотография (2014) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409709.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | Дизайн Sci-Fi меха в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409322.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Lynda.com | Windows 10 October 2018 Update Essential Training (2018) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408961.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408910.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Lynda, Joel Bradley | Substance B2M (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408736.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Lynda, Joel Bradley | Substance Designer Essential Training Updated (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408582.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Digital Tutors, Dan Cox | Designing a Modular Structure for Games in 3ds Max (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408577.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Lynda, Aaron F. Ross | 3ds Max Advanced Materials (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408573.jpg" />
 </div>
 
 
@@ -667,7 +693,7 @@ Gumroad, Tim Bergholz | Ultimate Weapon Tutorial – Complete Edition (2015) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408292.jpg" />
 </div>
 
 
@@ -679,32 +705,6 @@ Gumroad, Tim Bergholz | Ultimate Weapon Tutorial – Complete Edition (2015) PCR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F82B5C73249E69829435C34833A636C3EB2B342B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066765   (408019) от 28.10.2016
-
-Tony Horton | THF (2014) WEBRip [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домашние тренировки Tony Horton Fitness на канале YouTube.Производство: США / BeachbodyЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 10:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3182716CCC34950FADC50C487B610DF06F2C5AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

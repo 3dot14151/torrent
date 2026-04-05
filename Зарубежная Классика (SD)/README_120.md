@@ -1,3 +1,60 @@
+###  Публикация: 460309   (79892) от 03.03.2012
+
+Три мушкетера / Les Trois Mousquetaires (1961) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из лучших и одна из самых точных экранизаций знаменитого романа Александра Дюма "Три мушкетера".
+
+Состоит из двух фильмов:
+1. Подвески королевы (1961)(   Читать дальше...   )Вот уж правда, счастье и несчастье идут рука об рука. Вспомните, как повезло Д`Артаньяну: его полюбила прелестная госпожа Бонасье, сама королева вознаградила его за отвагу, а главные забияки мушкетерского полка назвали гасконца своим другом.
+У Д`Артаньяна появился могущественный враг - сам кардинал Ришелье. Он не может простить мушкетеру истории с подвесками. Но (   Читать дальше...   )Жанр: мелодрама, приключения, историяРежиссер: Бернар БордериАктеры: Жерар Баррэ, Милен Демонжо, Перретт Прадье, Жорж Декриер, Бернар Воринже, Жак Тожа, Франсуаза Кристоф, Ги Трежан, Даниэль Сорано, Ги Делорм, Жан Карме, Робер Берри, Анн Тоньетти, Анри Нассье, Жак Сейлер, Саша Питоефф, Малка Рибовска, Андре Вебер, Анри Коган, Жерар Дарьё, Эспанита Кортес, Клод Салез, Мадлен Колон-Ламбер…Перевод: дублированный, двухголосый закадровыйПродолжительность: 01:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCD60CF3FD3B1CF2C11FA8F5F9C95646040596E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459825   (79464) от 01.03.2012
+
+Жил-был мошенник / There Was a Crooked Man (1960) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79464.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Англии неудалой мошенник, бывший подрывник, отдувающий за чужие грехи и собственные невзгоды срок — досрочно освобожден, и попадает на производство, где понимает — здесь всё прогнило, особенно хозяева. Обещает — будет всё иначе…
+И таки украл у промышленных заправил этот Богом забытый город, каких десятки в Англии…Жанр: комедияРежиссер: Стюарт БёрджАктеры: Норман Уисдом (Norman Wisdom), Альфред Маркс, Эндрю Крикшэнк, Реджинальд Бекуив, Сюзанна Йорк, Джин Кларк, Тимоти Бейтсон, Пол Уитсан-Джонс, Фред Гриффитс, Энн Хефферман, Розалинд Найт, Рид Де Руэн, Брайан Аултон, Глин Хьюстон, Перси Херберт, Эдна Петри, Джек Мэй, Рональд Фрайзер, Эд Деверо, Сэм Кидд, Редмонд Филлипс, Джон Баррард, Эдди Бойс, Фред Хэггерти, Уильям (   Читать дальше...   )Перевод: ДублированныйПродолжительность: 01:37:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459377   (79257) от 29.02.2012
 
 Тинтин и загадка Золотого Руна / Tintin and the Mystery of the Golden Fleece (1961) DVDRip
@@ -6,7 +63,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79257.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79112.jpg" />
 </div>
 
 
@@ -60,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78975.jpg" />
 </div>
 
 
@@ -88,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78974.jpg" />
 </div>
 
 
@@ -115,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78901.jpg" />
 </div>
 
 
@@ -142,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78787.jpg" />
 </div>
 
 
@@ -169,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78757.jpg" />
 </div>
 
 
@@ -197,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78747.jpg" />
 </div>
 
 
@@ -224,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78553.jpg" />
 </div>
 
 
@@ -250,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78153.jpg" />
 </div>
 
 
@@ -276,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76912.jpg" />
 </div>
 
 
@@ -302,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76827.jpg" />
 </div>
 
 
@@ -328,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76764.jpg" />
 </div>
 
 
@@ -354,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76400.jpg" />
 </div>
 
 
@@ -383,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76159.jpg" />
 </div>
 
 
@@ -411,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75997.jpg" />
 </div>
 
 
@@ -437,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75670.jpg" />
 </div>
 
 
@@ -463,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75543.jpg" />
 </div>
 
 
@@ -489,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75163.jpg" />
 </div>
 
 
@@ -517,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74474.jpg" />
 </div>
 
 
@@ -544,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73502.jpg" />
 </div>
 
 
@@ -571,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73420.jpg" />
 </div>
 
 
@@ -597,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73070.jpg" />
 </div>
 
 
@@ -625,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71942.jpg" />
 </div>
 
 
@@ -636,58 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9E3E2BB230A8D6A0CF7F0AE609A90BAD3C390D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776518   (71263) от 01.02.2025
-
-Корабль дураков / Ship of Fools (1965) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноимённому роману Кэтрин Энн Портер (1962)... Пассажиры разных национальностей и слоёв общества в 1933 году в течение нескольких недель плывут на гигантском лайнере «Вера» из порта Веракрус (Мексика) в Бремерхафен (Германия), где к власти пришли нацисты. Среди пассажиров - невротическая разведённая женщина и пытающийся ухаживать за ней самоуверенный (   Читать дальше...   )Производство: США / Stanley Kramer ProductionsЖанр: драма, мелодрама, военныйРежиссер: Стэнли КрамерАктеры: Вивьен Ли, Симона Синьоре, Хосе Феррер, Ли Марвин, Оскар Вернер, Элизабет Эшли, Джордж Сигал, Хосе Греко, Майкл Данн (I), Чарльз Корвин, Хайнц Рюманн, Лилия Скала, Барбара Луна, Альф Челлин, Кристиана ШмидтмерПеревод: профессиональный двухголосый (СВ Дубль по заказу тк Культура; Film Prestige)Язык озвучки: русский, английскийСубтитры: русские (Film Prestige), английскиеПродолжительность: 02:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F57ABFF5F505F79B5EA76A9356B4253BA54BF82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776950   (71130) от 03.02.2025
-
-Филадельфийская история / The Philadelphia story (1940) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основой сценария послужила одноимённая пьеса Филипа Бэрри... Богатая филадельфийская красавица из высшего общества Трейси Лорд собирается вступить в новый брак и не хочет никакой шумихи вокруг своего имени. Но с помощью бывшего мужа Трейси издатель «жёлтого» журнала добивается присутствия на свадьбе своих репортёров. В ожидании сенсации они являются в дом, и там (   Читать дальше...   )Производство: США / Loew's Inc., Metro-Goldwyn-Mayer (MGM)Жанр: мелодрама, комедияРежиссер: Джордж КьюкорАктеры: Кэри Грант, Кэтрин Хепбёрн, Джеймс Стюарт, Рут Хасси, Джон Ховард (I), Роланд Янг, Джон Холлидэй, Мэри Нэш, Вирджиния Вейдлер, Генри Дэниелл, Лайонел Пейп, Рекс Эванс, Кинг Баггот, Хиллари Брук, Веда БаклэндПеревод: профессиональный многоголосый закадровый (Film Prestige), профессиональный двухголосый закадровый (Светла / ОРТ; Лазер видео), авторский (Пётр Карцев)Язык озвучки: русский, английскийСубтитры: русские (Film Prestige), английскиеПродолжительность: 01:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506925C185BC7E24B2460B6C4BEC843CBE44CC1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

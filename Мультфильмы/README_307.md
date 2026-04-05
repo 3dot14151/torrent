@@ -1,3 +1,135 @@
+###  Публикация: 1577422   (207786) от 18.09.2022
+
+Коралина в Стране Кошмаров / Coraline (2008) BDRip [H.265/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коралина, маленькая девочка, попадает в другой мир, скрытый за секретной дверцей. Этот мир — ее альтернативная жизнь, которая не перестает ее радовать, все здесь хорошо, но только до поры до времени. Однажды она понимает, что ее настоящим родителям за ее проделки угрожает смертельная опасность. Коралине придется найти выход из мира, наполненного призраками, в реальную (   Читать дальше...   )Производство: США /  Laika Entertainment, PandemoniumЖанр: мультфильм, фэнтези, триллер, драма, семейныйРежиссер: Генри СеликАктеры: Дакота Фаннинг, Кит Дэвид, Тери Хэтчер, Дженнифер Сондерс, Дон Френч, Джон Ходжмэн, Роберт Бэйли мл., Иэн МакШейн, Аанха Нил, Джордж СеликПеревод: Дублированный, Двуголосый профессиональный, АвторскийСубтитры: русские (форсированные, полные), английские (полные)Продолжительность: 01:40;36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD1D73431B647E5C77200888D7DDDA9C74EAEB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625724   (207755) от 18.09.2022
+
+Приключения в Изумрудном Городе (4 серии из 4) (1999-2000) DVD9
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ураган переносит девочку Долли и щенка Тотошку из Канзаса в Волшебную страну, где жизнь не подчиняется обычным законам и возможны любые чудеса.
+
+Вместе с новыми друзьями: Соломенным Страшилой, Железным Дровосеком и Трусливым Львом - они направляются к Волшебнику Изумрудного Города, который может помочь ей вернуться домой. Волшебник соглашается исполнить по одному (   Читать дальше...   )Производство: Россия, Студия анимационного кино "Мельница"Жанр: детский, приключения, сказкаРежиссер: Александр МакаровАктеры: Михаил Боярский, Вадим Гущин, Татьяна Михалевкина, Гелий Сысоев и др.Субтитры: АнглийскиеПродолжительность: 01:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983E816F31921C9E88C29F4EDB307FB17E2B3566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611118   (207743) от 10.02.2023
+
+Русалочка / The Little Mermaid (1989) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таинственные глубины моря хранят немало тайн, а обитатели океана могут рассказать множество удивительных историй. И самой невероятной из них была и остаётся история русалочки Ариэль. Дочь могущественного царя подводного мира Тритона, она однажды влюбляется в прекрасного и мужественного принца. Но разве они могут быть вместе - земной человек и морская дева? Однако (   Читать дальше...   )Производство: США / Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон МаскерПеревод: дублированный, профессиональный двухголосый, авторскийЯзык озвучки: русский, украинский, казахский, английскийСубтитры: русские (forced, songs, full), украинские (forced, full), английские (full, SDH)Продолжительность: 01:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E65226B9EEA0CA32F6BFE8C20FC41DE98CE9FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611181   (207731) от 10.02.2023
+
+Русалочка / The Little Mermaid (1989) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таинственные глубины моря хранят немало тайн, а обитатели океана могут рассказать множество удивительных историй. И самой невероятной из них была и остаётся история русалочки Ариэль. Дочь могущественного царя подводного мира Тритона, она однажды влюбляется в прекрасного и мужественного принца. Но разве они могут быть вместе - земной человек и морская дева? Однако (   Читать дальше...   )Производство: США / Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон МаскерПеревод: дублированный, профессиональный двухголосый, авторскийЯзык озвучки: русский, украинский, казахский, английскийСубтитры: русские (forced, songs, full), украинские (full), английские (full, SDH)Продолжительность: 01:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127614E2EB0EC22A74C8B09D6B7FF53E122A80BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649803   (207717) от 29.07.2023
+
+Миньоны: Грювитация / Minions: The Rise of Gru (2022) BDRip [AV1/1080p-LQ] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миллион лет миньоны искали самого великого и ужасного предводителя, пока не встретили ЕГО. Знакомьтесь — Грю. Пусть он еще очень молод, но у него в планах по-настоящему гадкие дела, которые заставят планету содрогнуться.Производство: США / Illumination Entertainment , Universal PicturesЖанр: мультфильм, фантастика, комедия, криминал, приключения, семейныйРежиссер: Кайл Балда, Брэд Эблесон, Джонатан дель ВальАктеры: Стив Карелл, Пьер Коффан, Алан Аркин, Тараджи П. Хенсон, Мишель Йео, Джули Эндрюс, Расселл Брэнд, Жан-Клод Ван Дамм, Дольф Лундгрен, Дэнни ТрехоПеревод: Дублированный (iTunes)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914CA359C4930C520927CC08775906DF08F1E0ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040483   (207706) от 19.09.2022
 
 Маленький принц / The Little Prince (2015) BDRip 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
@@ -6,7 +138,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207706.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207697.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207695.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207692.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207687.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207682.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207680.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207679.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207673.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207672.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207671.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207656.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207653.jpg" />
 </div>
 
 
@@ -345,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207651.jpg" />
 </div>
 
 
@@ -371,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207636.jpg" />
 </div>
 
 
@@ -397,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207620.jpg" />
 </div>
 
 
@@ -423,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207613.jpg" />
 </div>
 
 
@@ -449,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207610.jpg" />
 </div>
 
 
@@ -475,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207609.jpg" />
 </div>
 
 
@@ -501,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_207603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_207603.jpg" />
 </div>
 
 
@@ -529,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207600.jpg" />
 </div>
 
 
@@ -540,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0334E9E4050EB86ED49077992A041E900A098A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611582   (207581) от 12.02.2023
-
-Велма / Velma (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) RuDub
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207581.jpg" />
-</div>
-
-
-###  Подробнее
-
-О жизни главной умницы корпорации «Тайна» Велмы Динкли до её встречи со Скуби и компанией.Производство: США / Warner Bros. AnimationЖанр: мультфильм, комедия, криминал, детектив, приключенияРежиссер: Энн Уокер Фаррелл, Meg Waldow, Cal RamseyПеревод: Многоголосый профессиональный (RuDub)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536E1413DD301B28501FBBBFAE26E1AC135B5FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497124   (207554) от 20.09.2022
-
-Лис и пес (Дилогия) / The Fox and the Hound (Diology) (1981, 2006) [H.264] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тод и Коппер все еще как ниточка и иголочка, но когда у Коппера появляется шанс попасть в супер группу, их дружба подвергается испытанию.Жанр: мультфильм, приключения, семейныйРежиссер: Джим КаммерудАктеры: Йон Бобо, Харрисон Фан, Патрик Суэйзи, Риба МакИнтайр, Роб Полсен, Вики Лоуренс, Джим Каммингс, Джефф Фоксворти, Кэт Сауси, Стивен РутПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063C905C0E3D2CC42F877A534672632473CA9CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611928   (207501) от 13.02.2023
-
-Кот в сапогах 2: Последнее желание / Puss in Boots: The Last Wish (2022) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кот в сапогах потратил восемь из девяти отпущенных ему жизней и теперь отправляется в новое приключение, чтобы отыскать мифическое Последнее желание и восстановить свои жизни.Производство: США / DreamWorks AnimationЖанр: мультфильм, комедия, приключенияРежиссер: Джоэль Кроуфорд, Хануэль МеркадоПеревод: дублированный (Red Head Sound), профессиональный многоголосый (Jaskier, TVShows)Субтитры: русские (full), английские (full)Продолжительность: 01:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3696822CE3F36A2E5D2EFDB6C7A24CCAC315153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650466   (207486) от 01.08.2023
-
-День рождения бабушки (1981) WEBRip [H.264/1080p-LQ] [handmade]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207486.jpg" />
-</div>
-
-
-###  Подробнее
-
-В бабушкин день рождения ее внук со своим верным псом пытаются придумать – что ей подарить?Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Владимир АрбековСубтитры: ОтсутствуютПродолжительность: 00:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7F958D528BAB4405FBB1050E6479BDD104FCAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249453   (207455) от 24.09.2022
-
-Тобот / Tobot (2010) WEB-DL [H.264/720p] (сезоны 3-4, серии 44 из 44)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тоботы — южнокорейский мультсериал производства Young Toys и Retrobot, созданный в 2010 году. Расследуя цепочку загадочных автокатастроф, доктор Франклин Чар угнан преступниками. Этот инцидент активизирует его творение под названием «Тобот», автомобили, которые превращаются в роботов с помощью специального ключа, называемого «Tokey». Первые два Тобота доктора Чара, (   Читать дальше...   )Производство: Южная Корея, студии Young Toys и RetrobotЖанр: Приключения, ФентезиРежиссер: Дал ЛиПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E87CD62A4B9437B304C64FD4EAC73FD06369D7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

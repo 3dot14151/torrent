@@ -1,3 +1,109 @@
+###  Публикация: 1240978   (520942) от 16.08.2018
+
+Секс и незамужняя девушка / Sex and the Single Girl (1964) WEB-DLRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520942.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Хелен Герли Браун.
+Редактор «желтого журнала» «Стоп» Боб Вестон процветает! Чем скандальнее его статьи — тем в больший экстаз впадают главный редактор и редколлегия! Последним его «шедевром» стало исследование книги молодого психолога, очаровательной Хелен Браун. Ей 23 года, она не замужем и при этом пустилась в книге в исследования любви, секса и семейной (   Читать дальше...   )Производство: США. Fernwood Productions Inc., ReynardЖанр: КомедияРежиссер: Ричард Ричард КуайнАктеры: Тони Кертис, Натали Вуд, Генри Фонда, Лорен Бэколл, Мэл Феррер, Фран Джеффрис, Лесли Пэрриш, Эдвард Эверетт Хортон, Ларри Сторч, Стабби КэйПеревод: Двуголосый закадровый, одноголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1694B17EC6F88693FA131CDF1FB1CD5D692661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126722   (519887) от 17.08.2018
+
+Барон Мюнхгаузен / Baron Prasil (1962) BDRip [H.264/1080p] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барон Мюнхгаузен, Сирано де Бержерак и жюль-верновский герой Бирбикен встретились на Луне с молодым ученым-астрономом, нашим современником. Приняв его за обитателя Луны, Барон Мюнхгаузен решает отправиться вместе с ним на Землю, дабы показать ему, на что способна настоящая фантазия....
+Фантасмагория по книге Бюргера, стилизованная под гравюры Доре. 3еман вводит в (   Читать дальше...   )Производство: Чехословакия, Filmov Studio Gottwaldov, Krtk Film PrahaЖанр: Фантастика, Фэнтези, Мелодрама, КомедияРежиссер: Карел ЗеманАктеры: Милош Копецки, Рудольф Елинек, Яна Брейхова, Карел Хёгер, Nadesda Blazickova, Карел Эффа, Йозеф Глиномаз, Зденек Годр, Мирослав Голуб, Мирослав ГомолаПеревод: Дублированный, одноголосый закадровыйСубтитры: английские, чешскиеПродолжительность: 01:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2319A47F285270164DF2D6AD9BEBC13A08B9FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924987   (519423) от 19.08.2015
+
+Из породы беглецов / The Fugitive Kind (1960) HDTV [H.264/1080i-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валентайн Ксавьер — бродячий музыкант, решивший сменить образ жизни и покончить со злачными местами и ночными клубами. Волею судьбы он попадает в провинциальный городок, где устраивается на работу продавцом в магазин Джейба Торренса. Между ним и Леди Торренс — женой хозяина магазина возникает симпатия. Но на сердце парня также претендует молодая и взбалмошная Кэрол (   Читать дальше...   )Производство: США, Pennebaker ProductionsЖанр: Драма, МелодрамаРежиссер: Сидни ЛюметАктеры: Марлон Брандо, Анна Маньяни, Джоэнн Вудворд, Морин Стейплтон, Виктор Джори, Р.Г. Армстронг, Эмори Ричардсон, Мадам Спиви, Сэлли Грейси, Люсиль БенсонПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E03B49C617054B4DADC6FBEF349E6D1463CD3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924710   (519346) от 19.08.2015
+
+Как украсть миллион / How to Steal a Million (1966) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в Париже. Молодая девушка, дочь миллионера, втайне промышляющего подделкой произведений искусства, и преступник, должны выкрасть с выставки изобразительного искусства в музее один из «шедевров» отца девушки, чтобы спасти его от разоблачения.Производство: США / World Wide ProductionsЖанр: Мелодрама, Комедия, КриминалРежиссер: Уильям УайлерАктеры: Одри Хепберн, Питер О’Тул, Илай Уоллак, Хью Гриффит, Шарль Буайе, Фернан Гравей, Марсель Далио, Жак Марен, Мусташ, Роже ТревильПеревод: Дублированный, многоголосый закадровый, одноголосый закадровыйСубтитры: Русский, английский (SRT)Продолжительность: 02:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD73C7EB6A0A42D8DEF766E434F8A77763DF47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533357   (518692) от 14.08.2012
 
 Невезучие / La chevre (1981) HDTVRip [H.264/720p-LQ] [PR]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518692.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518663.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518662.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517628.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517598.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517264.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516707.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515572.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514827.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514753.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514507.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514453.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513486.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513398.jpg" />
 </div>
 
 
@@ -379,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512821.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512737.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512705.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512585.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512502.jpg" />
 </div>
 
 
@@ -509,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511455.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510406.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509016.jpg" />
 </div>
 
 
@@ -573,110 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5491EE396E33B4E1EE6C73D9FC06E1D30155F2B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561941   (508947) от 09.07.2022
-
-Айвенго / Ivanhoe (1952) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по мотивам исторического романа сэра Вальтера Скотта "Айвенго" 1819 года. В 1190 году саксонский рыцарь сэр Уилфред из Айвенго инкогнито возвращается в Англию из Третьего крестового похода, чтобы собрать деньги для выкупа короля Англии Ричарда Львиное Сердце из австрийского плена. В Англии Айвенго узнаёт, что брат Ричарда принц Джон намерен вероломно (   Читать дальше...   )Производство: США, Великобритания, Metro-Goldwyn-Mayer (MGM), Loew'sЖанр: драма, мелодрама, приключенияРежиссер: Ричард ТорпАктеры: Роберт Тейлор, Элизабет Тейлор, Джоан Фонтейн, Джордж Сандерс, Эмлин Уильямс, Роберт Дуглас, Финлэй Карри, Феликс Эйлмер, Френсис Де Вулф, Норман ВулендПеревод: профессиональный многоголосый (New Dream Media; SomeWax), авторский (Алексей Михалёв)Субтитры: русские, английские SDHПродолжительность: 01:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE846C6DDB6AA89D6D9BE5FB9EB0E004397FAAF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929092   (508929) от 29.08.2015
-
-Можешь не стучать / Don't Bother to Knock (1952) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йоркский отель. Родители приглашают молодую особу Нэлл Форбс (Мэрилин Монро) посидеть с их дочерью, пока они будут на банкете. Им невдомек, что у миловидной девушки серьезные проблемы с психикой. Встретив в этом же отеле летчика Джеда Тауэрса, напомнившего ей погибшего жениха, Нелл приглашает его в номер. Ребенок начинает ей мешать…Производство: США, Twentieth Century Fox Film CorporationЖанр: Триллер, ДрамаРежиссер: Рой Уорд БейкерАктеры: Мэрилин Монро, Ричард Уидмарк, Энн Бэнкрофт, Донна Коркоран, Джинн Кэгни, Лурин Татл, Элиша Кук мл., Джим Бэкус, Верна Фелтон, Уиллис Бучей, Дон БеддоПеревод: Многоголосый закадровый (Первый канал)Продолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE1C80217D5F01D8F6CBBA5229590DAAE54F9EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791821   (507811) от 30.08.2015
-
-Мотылек / Papillon (1973) BDRip [H.264/720p-LQ]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: США, Франция / Allied Artists Pictures CorporationЖанр: Драма, КриминалРежиссер: Франклин Дж. Шаффнер / Franklin J. SchaffnerАктеры: Стив МакКуин, Дастин Хоффман, Виктор Джори, Дон Гордон, Энтони Зерби, Роберт Димен, Вудроу Парфри, Билл Муми, Джордж Кулурис, Рэтна АссанПеревод: Многоголосый закадровый (профессиональный)Язык субтитров: Русский, АнглийскийПродолжительность: 02:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C3D747B1B05700D04D5037F55C283A64E79B8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293008   (507643) от 24.07.2019
-
-Побег из Шоушенка / The Shawshank Redemption (1994) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бухгалтер Энди Дюфрейн обвинен в убийстве собственной жены и ее любовника. Оказавшись в тюрьме под названием Шоушенк, он сталкивается с жестокостью и беззаконием, царящими по обе стороны решетки. Каждый, кто попадает в эти стены, становится их рабом до конца жизни. Но Энди, обладающий живым умом и доброй душой, находит подход как к заключенным, так и к охранникам, (   Читать дальше...   )Производство: США / Warner Bros., Castle Rock EntertainmentЖанр: драма, криминалРежиссер: Фрэнк ДарабонтАктеры: Тим Роббинс, Морган Фриман, Боб Гантон, Уильям Сэдлер, Клэнси Браун, Джил Беллоуз, Марк Ролстон, Джеймс Уитмор, Джеффри ДеМанн, Ларри БранденбургПеревод: Профессиональный многоголосый (Киномания)Субтитры: Русские (Kinomania, Soyuz-Video, Sunny-sko, Russian 4), АнглийскиеПродолжительность: 02:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B292A7CBC38B857F6ACAF000AD75CDFC753E17F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

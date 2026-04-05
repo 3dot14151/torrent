@@ -1,3 +1,55 @@
+###  Публикация: 1649209   (230600) от 26.07.2023
+
+М.Я. Выгодский | Дифференциальная геометрия (1949) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230600.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге читатель найдет материал, в основном совпадающий с материалом других руководств по дифференциальной геометрии и отвечающий программам университетов и педагогических институтов. Но по методу изложения эта книга существенно отличается от упомянутых руководств.Жанр: МатематикаИздательство: ГостехиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41780DD8679488336AEB9E6389DCD031CD638FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582521   (230504) от 10.10.2022
+
+С.К. Годунов | Уравнения математической физики (1971) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет изложение оригинального курса лекций, которые автор читал в Московском и Новосибирском университетах. Нетрадиционный выбор материала связан с тем, что автор много занимался приложениями дифференциальных уравнений к механике сплошных сред и разработкой численных методов для решения этих уравнений. Автор стремился отобрать материал, который к настоящему (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5F95E9060603B3EB1EFE863A1E43A077BA3DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649143   (230404) от 26.07.2023
 
 М.Я. Выгодский | Основы высшей математики (1963 - 1965) [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230404.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230392.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230251.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229982.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229906.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229868.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229675.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229421.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229372.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229224.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229133.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228792.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228559.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227284.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227259.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227107.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226743.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225553.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225080.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224995.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224973.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224600.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224509.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224484.jpg" />
 </div>
 
 
@@ -630,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D700F74F6C594D144764D8752873F2531E112FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965800   (224428) от 15.12.2015
-
-Светлана Хмелевская | Социальная философия и социология (2002) [FB2]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное учебное пособие предваряет цикл дисциплин, связанных с изучением тех или иных сторон жизни общества. Социальная философия и социология дают общее представление об обществе как целостной системе, которое затем конкретизируется в ряде иных аспектов его исследования другими науками.
-Для преподавателей и студентов юридических, а также иных вузов, где преподаются (   Читать дальше...   )Жанр: Философия, Обществознание, УчебникиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:790604208463116543FAE11DE947F9E842EA2006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965713   (224342) от 15.12.2015
-
-В.В.Левичев | Электронные и фотонные устройства. Принцип работы, технологии изготовления (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание устройств и методов нанотехнологий, изложенные в данном пособии, позволят понять основные принципы использования квантомеханических явлений в приборостроении.
-Пособие предназначено для магистров по направлению 12.04.01 «Приборы исследования и модификации материалов на микро- и наноразмерном уровне.Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDC0BEF967ACF5A87687203E0F5C59A8429AFBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

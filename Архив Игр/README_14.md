@@ -6,7 +6,7 @@ StarCrawlers (2015) [En] (b.6) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842917.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842105.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Assassin’s Creed: Brotherhood / Assassin's Creed: Братство крови 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842040.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Moon Hunters (2016) [Ru/Multi] (1.0.2126) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840928.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Villagers (2016) [Ru/Multi] (1.010) Repack ALiAS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840926.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.1.1.0/dlc) Repack R.G. Catalys
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840915.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840640.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840580.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840506.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ TNA Impact [PS3] [EUR] [ENG] [3.41] [Cobra ODE / E3 ODE PRO ISO] (2008)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839834.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Mystery Seekers: The Secret of the Haunted Mansion (P) [En] 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839258.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838875.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838834.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838809.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Full Mojo Rampage (2013) [Ru/Multi] (1.0.124) SteamRip Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838490.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835941.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.0.6b/dlc) SteamRip R.G. Игроманы [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834474.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Sniper Elite Anthology / Антология Sniper Elite (2005-2013) [Ru/En] Rep
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833958.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Endless Legend (2014) [Ru/Multi] (1.4.0 S3/dlc) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833914.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Deponia 4: Deponia Doomsday (2016) [Ru/Multi] (1.1.0239) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833909.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Party Hard (2015) [Ru/Multi] (1.2.0) License 0x0007
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833786.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/E
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833698.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Low Magic Age (2017) [Multi] (0.91.46.5) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833202.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Aron's Adventure (2021) [En] (1.3.19) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833097.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Severed Steel (2021) [Ru/Multi] (1.011) License GOG [Digital Deluxe Version]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833086.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Black Book (2021) [Ru/Multi] (1.0.0.20) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833066.jpg" />
 </div>
 
 

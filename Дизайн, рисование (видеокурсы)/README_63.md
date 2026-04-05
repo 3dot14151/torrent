@@ -1,3 +1,57 @@
+###  Публикация: 1571575   (209935) от 22.08.2022
+
+Schoolism, Nathan Fowkes | Digital Landscape Painting Workout (2021) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Укрепите свои творческие мускулы с Натаном Фоуксом, концепт-художником и цветовым стилистом студии DreamWorks, Disney, Blue Sky Studios и многих других!
+Натан создал 30 демонстраций продолжительностью до часа каждая и предоставил все необходимые рекомендации, чтобы вы могли рисовать вместе с каждым упражнением каждый день в течение 30 дней.Производство: SchoolismЖанр: РисованиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 24:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D44BD259731CDEB00BAD2E165ECE3684D6460CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571970   (209803) от 24.08.2022
+
+Schoolism, Iain McCaig | Drawing Workout (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть художником - это не просто карьера, это образ жизни. Легендарный художник и визуальный рассказчик Иэн МакКейг продемонстрирует некоторые из художественных техник, которые он использует для оттачивания своего мастерства и воображения, а также расскажет то, как сохранять вдохновление и бесстрашие при встрече с пустой страницей.
+Художественные навыки МакКейга можно (   Читать дальше...   )Производство: SchoolismЖанр: РисованиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 09:20:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50271B9AEE24EDA01800FD5543FFDB063F66A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571906   (209784) от 24.08.2022
 
 Game Art Institute, Adam Skutt | Character Creation For Games with Adam Skutt (2016) PCRec [EN, RU]
@@ -6,7 +60,7 @@ Game Art Institute, Adam Skutt | Character Creation For Games with Adam Skutt (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209784.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ SideFX, Paul Esteves | Houdini 19 Nodes (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209726.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Gumroad, Frank Tzeng | Zbrush BPR RENDERING package (2017) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209471.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ Schoolism, Nathan Fowkes | Environment Design Workout with Nathan Fowkes (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209436.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Granich.Design, Вадим Гранич | Графсистема Swiss (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209344.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Granich.Design, Вадим Гранич | Графсистемы Брутали�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209319.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Antipin-STUDIO, Виталий Антипин | Искусство портре�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209304.jpg" />
 </div>
 
 
@@ -198,7 +252,7 @@ Udemy, David Bittorf | Substance Painter for Beginners - creating normal maps (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209297.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ Pluralsight, Nathan Glemboski | Creating Hand Painted Textures in Substance Pain
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209291.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ Artilike, Любовь Титова | Акварельный Новогодни�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209288.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ Gumroad, Daniel Thiger | Substance Studies Tutorial Graphic Design (2019) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209144.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ Pluralsight, Dan Cox | Hard Surface Modeling a Modular Structure for Games in 3d
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209140.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Pluralsight, Dan Cox | Sculpting Modular Structures in ZBrush (2016) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209107.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 2 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209087.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ Epic Games, Kaye Vassey | Making the Most of Animation Blueprints (2018) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209079.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ FlippedNormals, Tyler Smith | Creating a Realistic Ocean in UE4 (2022) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209058.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ Exp-Points, Alex Beddows | Creating Fabric Materials in Substance Designer (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209046.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ Levelup.Digital, Eric Wiley | Advanced Shape Creation in Substance Designer (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209045.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ Udemy, Nexttut, Hamidreza Afshari | Substance 3D Painter Advance Course (2022) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209034.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ Artstation Learning, Jay Cummings | Substance Painter: Pushing Your Texturing Fu
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209003.jpg" />
 </div>
 
 
@@ -545,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208956.jpg" />
 </div>
 
 
@@ -574,7 +628,7 @@ sova.arty, Алина Сова | Иллюстратор 2.0 для телефо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208842.jpg" />
 </div>
 
 
@@ -603,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208785.jpg" />
 </div>
 
 
@@ -631,7 +685,7 @@ Digital Tutors, Dan Cox | Rapidly Creating Stylized Game Assets in ZBrush (2015)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208775.jpg" />
 </div>
 
 
@@ -642,64 +696,6 @@ Digital Tutors, Dan Cox | Rapidly Creating Stylized Game Assets in ZBrush (2015)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B191C286F6E16EA28EF1A03A06B500B2F70275A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646887   (208752) от 16.07.2023
-
-Михаил Соловьев | Магия света. Как создавать свет в акварели (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208752.jpg" />
-</div>
-
-
-###  Подробнее
-
-На курсе мы будем говорить о самом главном, что есть в акварели – о свете. Свет определяет всю картину, которую мы наблюдаем. Поэтому он так важен в акварели!
-
-На курсе вы узнаете все технические приемы (все техники создания света) и базовые принципы создания света; узнаете, из-за чего предметы начинают светиться.
-(   Читать дальше...   )Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19F290B3DE4DF8ECE31701D53C8CCCB4F02B60C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646884   (208713) от 16.07.2023
-
-Hudozhnik Online, Анастасия Брагина | Скетчинг маркерами - вводный курс (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разбираемся с материалами для скетчинга и создаем первые работы. Уроки в студийном качестве, теория и практика.
-
-Вместе с Анастасией Брагиной мы записали практико-теоретический курс для всех, кто только начинает работать спиртовыми маркерами.
-(   Читать дальше...   )Производство: Hudozhnik OnlineЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 05:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4780C253035B76F6B278EA67A8309E6CF54AFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

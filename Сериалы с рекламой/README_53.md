@@ -1,3 +1,55 @@
+###  Публикация: 1749824   (43335) от 16.09.2024
+
+Энтревиас / Entrevias / Wrong Side of the Tracks (2023) WEBRip (сезон 3, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в Энтревиасе, беднейшем районе Мадрида. Сериал рассказывает о Тирсо Абантосе, бывшем военном, управляющем хозяйственным магазином, чей монотонный распорядок дня нарушается, когда его неуправляемая и непокорная приемная внучка-подросток Ирен, уговаривает своего парня Нельсона украсть героин у наркодилера Сандро. В то время как молодая (   Читать дальше...   )Производство: Испания / Alea Media, Mediaset EspañaЖанр: боевик, триллер, драма, криминал, приключенияРежиссер: Iñaki Mercero, Альберто Руис Рохо, Ориоль Феррер и др.Актеры: Хосе Коронадо, Нона Собо, Felipe Londoño, Лаура Рамос, Маноло Каро, Мануэль Тальяфе, Ицияр Атьенца, Мария де Нати, Луис Саэра, Мария Молинс и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:15:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2957EEA819F7EE2F1C424D72F2477529364761F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750002   (43245) от 17.09.2024
+
+Банда в зелёных перчатках / Gang Zielonej Rekawiczki (2024) WEBRip [H.264/1080p] (сезон 2, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43245.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре событий оказываются три женщины-грабительницы преклонного возраста. Когда очередное преступление идет не по плану, им приходится скрываться от сотрудников правоохранительных органов в доме престарелых. Главные героини и не подозревали, чем обернется их очередное приключение. В доме престарелых они случайным образом раскрывают зловещую тайну и оказываются (   Читать дальше...   )Производство: Польша / Baboo Production, Netflix, Baboo ProductionЖанр: комедия, криминалРежиссер: Tadeusz Sliwa, Бартош Крухлик, Antonio GaldamezАктеры: Магдалена Кута, Малгожата Потоцкая, Анна Романтовска, Мирослав Зброевич, Beata Bandurska, Karolina Rzepa, Войцех Дурьяш, Эльжбета Гертнер, Юзеф Дурьяш, Томира Ковалик и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:35:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A40E05EC4EAB43F4AD52BB09E8CE5452B63FC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749995   (43238) от 17.09.2024
 
 Банда в зелёных перчатках / Gang Zielonej Rekawiczki (2022) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43238.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43235.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43230.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43155.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43125.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41714.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41693.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41082.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41051.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40255.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40227.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39707.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39602.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39596.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39594.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39591.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39300.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39291.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38598.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38596.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38594.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38531.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38168.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38132.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D1ADE37C4FEC6FAB4A01E10AF7442E2A555263C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759325   (37600) от 11.11.2024
-
-Вероника / Veronika (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вероника Грен, офицер полиции и мать двоих детей, борется со своей сложной семейной жизнью и тайной зависимостью от таблеток. Когда она внезапно видит перед собой мертвого мальчика, ей кажется, что она сошла с ума. Постепенно Вероника вынуждена признать, что мальчик - не иллюзия. Она понимает, что должна докопаться до истины, и вскоре обнаруживает, что улики ведут (   Читать дальше...   )Производство: Швеция / BigsterЖанр: триллер, драма, криминалРежиссер: Йонас Александр АрнбюАктеры: Александра Рапапорт, Тобиас Зантельман, Арвин Кананян, Sarah Rhodin, Eddie Eriksson Dominguez, Baxter Renman, Андерс Мосслинг, Пер Граффман, Эмели Гарберс, Санна Экман и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские, английскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0835FE89BF7AFB52FAE00B1B3F435A2F87EFED4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759326   (37588) от 11.11.2024
-
-Вероника / Veronika (2024) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вероника Грен, офицер полиции и мать двоих детей, борется со своей сложной семейной жизнью и тайной зависимостью от таблеток. Когда она внезапно видит перед собой мертвого мальчика, ей кажется, что она сошла с ума. Постепенно Вероника вынуждена признать, что мальчик - не иллюзия. Она понимает, что должна докопаться до истины, и вскоре обнаруживает, что улики ведут (   Читать дальше...   )Производство: Швеция / BigsterЖанр: триллер, драма, криминалРежиссер: Йонас Александр АрнбюАктеры: Александра Рапапорт, Тобиас Зантельман, Арвин Кананян, Sarah Rhodin, Eddie Eriksson Dominguez, Baxter Renman, Андерс Мосслинг, Пер Граффман, Эмели Гарберс, Санна Экман и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9281EFED551DB0E9ABB521C8E786E209ACC862B
 ```
 
 https://mybot314.ru/tekegram_catalog/

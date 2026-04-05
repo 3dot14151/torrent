@@ -1,141 +1,3 @@
-###  Публикация: 1136509   (672638) от 23.05.2017
-
-Ю.Л. Мазор и др. (ред.) | Радиотехника. Энциклопедия (2010) [DJVU]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энциклопедия содержит около 2500 статей, поясняющих почти 4000 наиболее употребляемых в радиотехнике терминов. Поскольку книга должна быть одновременно и энциклопедией, и учебным пособием, в ней используется комбинированная система расположения терминов (статей): по темам они разделены на главы, которые отвечают учебным дисциплинам, а в пределах глав расположены (   Читать дальше...   )Жанр: РадиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A915375FCE59C542B029DFADD1FD861F534D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136462   (672631) от 23.05.2017
-
-Р.С. Хансен | Фазированные антенные решетки (2012) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672631.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дается всесторонний анализ особенностей проектирования и исследования характеристик фазированных антенных решеток и входящих в них систем. Особое значение придается рассмотрению алгоритмов, пригодных для использования на ПК.
-  Книга предназначена научным работникам и инженерам, занимающимся исследованиями и разработками фазированных антенных решеток, а также (   Читать дальше...   )Жанр: Радиотехника, антенныФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F45C92E57D7A1BF6157BBB954C2E3B61323F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136556   (672539) от 23.05.2017
-
-Uldis Zarins, Sandis Kondrats | Anatomy for Sculptors, Understanding the Human Figure (2014) [PDF] [En]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672539.jpg" />
-</div>
-
-
-###  Подробнее
-
-226 страниц самого простого в использовании руководства по анатомии человека для художников объясняют в простой форме строение человеческого тела. Студенты, изучающие искусство, 3D-скульпторы и иллюстраторы найдут в этом руководстве практический фундамент, на котором построят свое знание анатомии - важнейшей предпосылки для тех, кто хочет рисовать или лепить легко (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76DCD5CDB548180FE508B512C9C1C7999AE62A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536585   (672448) от 13.03.2022
-
-Tony Bancroft | Directing for Animation  / Режиссура в анимации (2013) [PDF] [ENG-RUS]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ни один предмет в художественной школе вас этому не научит.
-
-Хотите верьте, хотите – нет, но за режиссурой великих анимационных картин стоит больше, чем создание красивых иллюстрации и запоминающихся персонажей. На фронт работы потребуется прихватить еще внутреннее творческое видение и лидерскую хватку – выдающегося владения карандашом, кистью или стилусом будет (   Читать дальше...   )Жанр: РежиссураПеревод: ПереводвсемФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B21CC1F2DB57E9FC084352EA9253EA22EE9EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510041   (672199) от 13.06.2012
-
-Максим Фомич | Как защитить свои права [2010] [FB2]
-
->>Научная и техническая литература
->>Нормативная документация
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672199.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге вы найдете описание наиболее часто встречающихся нарушений в сфере наших с вами прав в повседневной жизни, а также способы пресечения этих нарушений с точки зрения закона. Книга написана простым языком, понятным человеку, не имеющему юридического образования.
-Вы узнаете, как вернуть сломавшуюся вещь в магазин, как не сдавать сумки в камеру хранения при входе в торговый центр, как правильно разговаривать с милиционером и сотрудником ГИБДД, какие у вас права при нахождении в самолете и в поезде и многое другое. Все советы подкреплены ссылками на действующее законодательство РФ.
-
-Также в книге приведены адреса и телефоны контролирующих органов, куда вы можете пожаловаться на нарушение своих прав продавцами, сотрудниками милиции и ГИБДД, врачами и др.
-
-У каждого из нас есть права, с нарушением которых мы сталкиваемся практически ежедневно - в магазине, на дороге, на улице, в транспорте, дома. Нас обманывают, пользуясь нашей правовой безграмотностью. А мы терпим, так как часто не знаем, как правильно (   Читать дальше...   )2010Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C44C74E72620FEB0C1AE2C33EBAA0BBE68D4880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030547   (672171) от 01.07.2016
 
 Б. Тураев (ред.) | Законы Хаммурапи (2015) [FB2]
@@ -144,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672171.jpg" />
 </div>
 
 
@@ -172,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672157.jpg" />
 </div>
 
 
@@ -198,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672059.jpg" />
 </div>
 
 
@@ -224,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671843.jpg" />
 </div>
 
 
@@ -251,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671640.jpg" />
 </div>
 
 
@@ -277,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671424.jpg" />
 </div>
 
 
@@ -303,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671152.jpg" />
 </div>
 
 
@@ -329,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671038.jpg" />
 </div>
 
 
@@ -355,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671025.jpg" />
 </div>
 
 
@@ -382,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671023.jpg" />
 </div>
 
 
@@ -410,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670913.jpg" />
 </div>
 
 
@@ -437,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670911.jpg" />
 </div>
 
 
@@ -463,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670838.jpg" />
 </div>
 
 
@@ -489,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670829.jpg" />
 </div>
 
 
@@ -515,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670782.jpg" />
 </div>
 
 
@@ -541,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670778.jpg" />
 </div>
 
 
@@ -569,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670730.jpg" />
 </div>
 
 
@@ -596,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670639.jpg" />
 </div>
 
 
@@ -622,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670635.jpg" />
 </div>
 
 
@@ -648,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670633.jpg" />
 </div>
 
 
@@ -674,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670609.jpg" />
 </div>
 
 
@@ -686,6 +548,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71758F6CE6BAC89D6814CD1C6201EB947E8711DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537073   (670586) от 14.03.2022
+
+Л.Е. Лаптева и др. | История отечественного государства и права. Учебник и практикум (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670586.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издании освещается законодательный и политический опыт российского государства на разных этапах его развития, раскрываются особенности возникновения и эволюции юридического статуса личности. Рассматриваются тенденции и закономерности исторического развития отечественных государственных институтов, что способствует формированию у студентов навыков работы с юридическими (   Читать дальше...   )Жанр: ЮриспруденцияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43858D94AE01D8EBAB7DCE5B834C3A489B01921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291436   (670492) от 24.03.2019
+
+Л. П. Берия | К вопросу об истории большевистских организаций в Закавказье (1948) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670492.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании опубликован доклад, произнесенный Л. Берией на собрании тбилисского партактива 21-22 июля 1935 года и посвященный вопросам истории большевистских организаций в Закавказье.Жанр: История, политология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35209F0AD7BBF31760857158890AE21BEB6EFF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291349   (670488) от 24.03.2019
+
+Б.Б. Резванцев, Б.З. Резванцев | В поисках Шамбалы (2015) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы уверены, что век географических открытий не закончился! Благодаря буддийскому учению, привлеченному в качестве путеводителя, он продолжается до сих пор. Читатели узнают о чакрах Евразии, о ее географической мандале, о природных воплощениях будд и бодхисаттв (ландшафтные нирманакаи), посетят древние и святые места, в том числе не изученные ранее, этого континента. (   Читать дальше...   )Жанр: История, Культурология, РелигиоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B51196DD1833B26AA70A82E6E4908194A76AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510744   (670457) от 14.06.2012
+
+А.Е. Тарас | Войны Московской Руси с Великим княжеством Литовским и Речью Посполитой в XIV-XVII вв. [2006] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена рассмотрению многочисленных войн Московской Руси с Великим княжеством Литовским и Речью Посполитой, происходивших в течение более чем 300 лет. Попутно описаны некоторые другие вооруженные конфликты: гражданские войны феодального периода, татарские набеги, казацкие восстания. Ныне события тех далеких времен отчасти забыты, отчасти недостаточно изучены, (   Читать дальше...   )Жанр: Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A68E26C13034A0CD07B7460D0272DA86B92C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291148   (670351) от 24.03.2019
+
+Борис Соколов | Краткая история ядов и отравлений (2019) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670351.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Я даю вам горькие пилюли в сладкой оболочке.
+Сами пилюли безвредны, весь яд – в их сладости». (С. Ежи Лец)
+
+Одними и теми же составами можно производить алкоголь, удобрения, лекарства, а при благоприятном направлении ветра – уничтожить целую армию на поле боя. Достаточно капли в бокале вина, чтобы поменять правящую династию и изменить ход истории. Они дешевы и могут (   Читать дальше...   )Жанр: Военное дело/спецслужбы, Документальная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7004C1D3F93BA482047DC9DFC92FA7185AF8C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

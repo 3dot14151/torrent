@@ -1,3 +1,59 @@
+###  Публикация: 1493906   (892548) от 05.09.2021
+
+IconKit 10.1.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для создания (генерации) иконок на Mac OSX. С помощью IconKit вы легко сможете создавать иконки разных размеров и для разных устройств - это элементарно, просто перетащите изображение размером 1024х1024 на рабочее поле программы.
+
+Основные возможности:
+• Интуитивный интерфейс(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04.09.2021Разработчик: Mojtaba KomeiliПоддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E731701FCF5E91125AB7E0C4CA54D353A830AE6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494052   (892449) от 05.09.2021
+
+Watermark Sense - Bulk Process 1.4.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Защитите свою интеллектуальную собственность, продвигайте свой бренд, добавляйте информационные наложения, и обрабатывайте одновременно много изображений.
+Watermark Sense - инструмент с минимальными настройками для пакетной обработки изображения. Это позволяет достичь больших творческих результатов в пакетном режиме, экономя много времени на выполнение повторяющихся (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.09.2021Разработчик: VeprITПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB88962FAC1EBD0FAB415E8E6A1D1579B04C36F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493991   (892440) от 05.09.2021
 
 Photo Sense - Bulk Enhancement 2.1.3 [En]
@@ -6,7 +62,7 @@ Photo Sense - Bulk Enhancement 2.1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892440.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ Toast Titanium Pro 12.1 (3580) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892135.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ Travel Journal 1.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891559.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ FreeWay Pro 7.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891537.jpg" />
 </div>
 
 
@@ -113,7 +169,7 @@ Ceceree 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891521.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ MoneyWiz 2.3.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891320.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ Business Templates Lab - Templates for Pages 3.1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891289.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ HDRLightStudio 5 v5.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891180.jpg" />
 </div>
 
 
@@ -223,7 +279,7 @@ Sketchode 1.3.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891173.jpg" />
 </div>
 
 
@@ -252,7 +308,7 @@ Window Tidy 2.1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891161.jpg" />
 </div>
 
 
@@ -279,7 +335,7 @@ Infographics Lab for Pages - Templates Bundle 3.1.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891003.jpg" />
 </div>
 
 
@@ -306,7 +362,7 @@ Weather Widget Deskto‪p Full version 3.9.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890906.jpg" />
 </div>
 
 
@@ -334,7 +390,7 @@ Mira v1.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890887.jpg" />
 </div>
 
 
@@ -362,7 +418,7 @@ SyncMate 2.5.0.921 UB
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890813.jpg" />
 </div>
 
 
@@ -394,7 +450,7 @@ Reflector 2.6.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890452.jpg" />
 </div>
 
 
@@ -422,7 +478,7 @@ Stats 2.6.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889331.jpg" />
 </div>
 
 
@@ -448,7 +504,7 @@ Whisk 2.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889326.jpg" />
 </div>
 
 
@@ -474,7 +530,7 @@ Dumper 1.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889226.jpg" />
 </div>
 
 
@@ -502,7 +558,7 @@ handyPrint 5.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889215.jpg" />
 </div>
 
 
@@ -529,7 +585,7 @@ Grids for Instagram 7.0.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889094.jpg" />
 </div>
 
 
@@ -555,7 +611,7 @@ Chatty for Facebook 1.9.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888186.jpg" />
 </div>
 
 
@@ -584,7 +640,7 @@ Stellar Partition Manager 3.0.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887936.jpg" />
 </div>
 
 
@@ -612,7 +668,7 @@ Templates for iWork - Alungu Designs 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887678.jpg" />
 </div>
 
 
@@ -641,7 +697,7 @@ Logic Pro X 10.2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887484.jpg" />
 </div>
 
 
@@ -652,61 +708,6 @@ Logic Pro X — самая совершенная версия Logic. Новые
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B8A6F2F232B6B2E3C2FA6A168C33611D80031D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103305   (887203) от 11.02.2017
-
-Templates for Photoshop - Alungu Designs 2.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблоны для Photoshop предлагает 200 высококачественные PSD шаблоны для книг, информационных бюллетеней, вырезок и других документов.
-
-Премиум-качество предлагает 200 красивых и функциональных конструкций для Adobe Photoshop и включает в себя эклектичную смесь полностью редактируемых шаблонов, из листовок и счетов-фактур до 50 стильных вырезок.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13 декабря 2016Разработчик: Alungu UABПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92C1FFA26EB30702AD93FAC40C271C70D0C44DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372171   (886766) от 02.04.2020
-
-Adobe Zii 2020 - Universal Patcher 5.1.9 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518B258E4CCCE217CAEBFDFF694574688B1D8850
 ```
 
 https://mybot314.ru/tekegram_catalog/

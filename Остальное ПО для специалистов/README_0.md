@@ -1,3 +1,84 @@
+###  Публикация: 1843175   (1049115) от 19.12.2025
+
+WinToUSB Technician 10.4 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049115.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToUSB - позволяет устанавливать и запускать операционную систему Windows с USB-HDD или USB-Flash, используя образ ISO или CD/DVD диск в качестве источника установки. WinToUSB также поддерживает создание загрузочного WinPE USB, он может помочь вам перенести содержимое WinPE на диск USB и сделать накопитель загрузочным.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CE42220D1209F4E2B299327EA2E8ED9BB83A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843095   (1048940) от 18.12.2025
+
+Hex Editor Neo Ultimate 7.50.04.8813 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hex Editor Neo – Редактор Шестнадцатеричных и Бинарных Файлов под Windows. Программа имеет многооконный интерфейс, возможности по просмотру, поиску, замене и отладке данных.
+Вы можете широко использовать следующие основные функции: Type, Cut, Copy, Paste, Fill, Delete, Insert, Import и Export и др. Поддерживаются режимы перезаписи и вставки, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39703A93B0B16214CD006DC583CF6A51F11D245C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842804   (1048870) от 17.12.2025
+
+1С:Зарплата и управление персоналом (ЗУП) базовая 3.1.36.39 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для управления человеческими ресурсами предприятия фирмой «1С» разработан современный инструмент автоматизации задач управления персоналом, ведения кадрового учета и расчетов в соответствии с требованиями законодательства для коммерческих предприятий различного масштаба — 1С:Зарплата и управление персоналом 8.
+
+1С:Зарплата и управление персоналом 8 — решение для (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473AC5F36404578CDF50E911999A8C464F4F3F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841173   (1047789) от 09.12.2025
 
 Wolfram Mathematica 14.3 [En]
@@ -6,7 +87,7 @@ Wolfram Mathematica 14.3 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047789.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047197.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ Magma Computational Algebra System 2.20.9 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039795.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ Adobe Dreamweaver 2021 (21.1.0.15413) Portable by XpucT [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038644.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ Inno Setup 6.2.2 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038536.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ ColorAndCode 20.2 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035146.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ HyperX NGENUITY 5.2.8.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031736.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ Help+Manual Professional Edition 8.3.1 Build 5793 + HelpXplain 1.4.0.1345 + Prem
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023918.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ InstallAware Studio Admin X13 Build 3.9 2021 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022024.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ HelpXplain 1.5.0.1428 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020793.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ ZOC Terminal 6.41 [English]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993823.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ ESD Toolkit 1.4 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940939.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ EasyUEFI Enterprise 2.8 Release 1 [Multi]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933120.jpg" />
 </div>
 
 
@@ -349,7 +430,7 @@ ChemDraw Ultra 12.0.2 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918654.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ WinTariff 2.9.9 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911508.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ Veeam Backup & Replication 9.0.0.902 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907301.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ Logiware go1984 Ultimate 6.3.0.1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897234.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ Acme CAD Converter 2021 8.10.1.1530 (DC 10.09.2021) RePack (& Portable) by elchu
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884136.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872788.jpg" />
 </div>
 
 
@@ -508,7 +589,7 @@ Windows USB-DVD Download Tool 1.0.30 (Portable) [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865907.jpg" />
 </div>
 
 
@@ -534,7 +615,7 @@ Bootstrap Studio 5.0.3 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861611.jpg" />
 </div>
 
 
@@ -560,7 +641,7 @@ Axure RP Pro, Team, Enterprise 9.0.0.3693 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861534.jpg" />
 </div>
 
 
@@ -586,7 +667,7 @@ Enterprise Architect 12.1.1229 Corporate Edition [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860197.jpg" />
 </div>
 
 
@@ -597,84 +678,6 @@ Enterprise Architect —всесторонний набор UML-инструме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2358A954E5A778BFBDEFEFC6C1DBBA4DAC5A28E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376450   (860173) от 17.04.2020
-
-SQLite Expert Professional 5.3.5.475 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860173.jpg" />
-</div>
-
-
-###  Подробнее
-
-SQLite Expert Professional – мощный визуальный инструмент для удобного управления БД SQLite3. Программа совмещает управление базами данных и их обслуживание в единой интегрированной среде с четким и интуитивно понятным пользователю графическим интерфейсом. С помощью этого приложения пользователь может редактировать и просматривать таблицы, перестраивать поля, проставлять (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CBDE18CE7CEF6198AF450B75C6C82B90BE1244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875115   (859128) от 05.03.2015
-
-BOOTICE 1.3.3.2 Portable [Ru/En]
-
->>След.
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859128.jpg" />
-</div>
-
-
-###  Подробнее
-
-BOOTICE - утилита для изменения или бэкапа/восстановления MBR (Master Boot Record) или PBR (Partition Boot Record). Поддерживается загрузочные записи: Grub4DOS, SysLinux, PLoP Boot Manager, MS NT52/60, ... Например, с помощью этой утилиты, вы можете установить Grub4DOS вашим MBR или PBR, установить NTLDR или BOOTMGR к вашему PBR, установить SYSLINUX на PBR, установить (   Читать дальше...   )Язык интерфейса: Русский, Английский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FA782799EBDF358928B3BBC2EACFF249BB5A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109924   (854968) от 01.03.2017
-
-Security Eye 3.5 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Security Eye - бесплатная программа для наблюдения с помощью камер, поддерживает работу с Веб и IP камерами, записывает видео и имеет встроенный детектор движения. Это программное обеспечение позволяет организовать систему видеонаблюдения и в реальном времени мониторить обстановку дома, в офисе, на автостоянке и в других местах где установлены ваши камеры. Интерфейс (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45673F77EC8EBCDACBC4428C20F5DA2C3F664009
 ```
 
 https://mybot314.ru/tekegram_catalog/

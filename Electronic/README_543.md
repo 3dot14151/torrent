@@ -1,3 +1,119 @@
+###  Публикация: 1811124   (16442) от 08.08.2025
+
+VA - Armin van Buuren - A State Of Trance 1237 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DIM3NSION & EGGSTA – Shattered
+02. Chocolate Puma – Let Your Mind Be Free
+03. Armin van Buuren & JOA – Heavy (Trending Track)
+04. Electrique Boutique – Revelation (Renato Cohen Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4998A2110303CB51A4E20C0A2119E62B9EC16B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811056   (16441) от 08.08.2025
+
+VA - Rimini Summer Party, Vol. 2 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Warrior - Canggu Skavenger (Original Mix) 06:19
+02. Sodara (CH) - Weekend (Extended Mix) 05:13
+03. Jo Fridan - Give Me An Option (Original Mix) 04:30
+04. Asrael - Human Rebirth (Original Mix) 07:34(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968E3E6BC254531B9A6D3BB9C1E4C917A99B047B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799840   (16222) от 30.05.2025
+
+VA - Maretimo Chill Radio - Best of Vol.4 - Positive Summer Vibes (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinematic - Costa Soleada (4:38)
+02. Vladi Strecker - Good Morning (4:17)
+03. DJ Maretimo - Pure Destination (5:09)
+04. Airstream - The Art of Lounge (4:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B965B9B6F07DAC2A0071D2D01F032334B5399E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800241   (15834) от 02.06.2025
+
+Jennifer Lopez - On the 6 (1999) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Electronic, Latin, Funk / Soul, Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Had My Love    [0:04:25.55]
+02. Should’ve Never    [0:06:14.25]
+03. Too Late    [0:04:27.32]
+04. Feelin’ So Good    [0:05:27.23](   Читать дальше...   )Жанр: Electronic, Latin, Funk / Soul, PopПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A0354D3762261EECFE2CA9959A8AD91BB26A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800412   (15832) от 02.06.2025
 
 State Azure + Data Rebel - Core (2025) EP [FLAC|Lossless|Web-DL|tracks] <Techno, Ambient, Downtempo>
@@ -6,7 +122,7 @@ State Azure + Data Rebel - Core (2025) EP [FLAC|Lossless|Web-DL|tracks] <Techno,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15832.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15831.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - A State of Trance Radio Top 50 - 2025, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15830.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Chill Out Paradise, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15827.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Calibre - Little Foot (2025) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dubstep, Te
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15738.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Aedon - The Quietest Shade (2025) [FLAC|Lossless|Web-DL|tracks] <Experimental, B
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15736.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - 25 Years Of Anjuna Mixed By ANUQRAM (2025) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15731.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Ibiza Summer 2025 (House Hotties from the Heart) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15730.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Anyma - The End Of Genesys (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic House &
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15664.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Filatov & Karas - Collection (2014-2025) [FLAC|Lossless|tracks] <House, Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15657.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ Loess - battens (2025) [FLAC|Lossless|Web-DL|tracks] <IDM, Ambient, Experimental
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15653.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ VA - Top 11 March 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15638.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ VA - Peaceful State: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15576.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ VA - Vocal House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15543.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ VA - Armin van Buuren - A State Of Trance 1228 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15472.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ VA - Ori Uplift - Uplifting Only Episode 643 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15442.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ Robin Schulz - Uncovered (2017) [FLAC|Lossless|image + .cue] <Electronic, Dance-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15438.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ VA - Dancefloor Hits 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15082.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ VA - Deep House Summer Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14935.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ V.A. - Cafe del Mar Ibiza Chillout Mix VI (DJ Mix) (2025) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14830.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ ARTY - Live @ Audio (San Francisco, United States) (2025-05-24) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14720.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Club Crimson Room - Dark Desire (2025) [MP3|320 Kbps] <Electro, EBM, Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14410.jpg" />
 </div>
 
 
@@ -626,121 +742,6 @@ Club Crimson Room - Dark Desire (2025) [MP3|320 Kbps] <Electro, EBM, Industrial>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:098895C6E2D4A639540A342043CE769F9AD2CCE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802290   (14405) от 16.06.2025
-
-4 Strings - Diving (2002) [FLAC|Lossless|tracks + .cue] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Diving (Vocal Radio Edit) 3:09
-02 Diving (Minimalistix Vocal Mix) 6:57
-03 (Take Me Away) Into The Night (RMB Vocal Mix) 6:39Жанр: TranceПродолжительность: 16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6EE6F45BD3628956927A3090FF8A5F83F69577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802401   (14402) от 16.06.2025
-
-Kontrast - Imperium Tyrannis (2025) [MP3|320 Kbps] <Darkwave, EBM, Electro-Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Metamorphose [00:05:07]
-02 - D3r Diktator [00:05:01]
-03 - Daemmerung und Manifest [00:06:34]
-04 - Tanzmaschinen [00:03:35](   Читать дальше...   )Жанр: Darkwave, EBM, Electro-IndustrialПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C13484AE392D2290DAB44148F5EB24B5E49D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802341   (14401) от 16.06.2025
-
-VA - Dancefloor Sessions, Vol. 01 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TRYLOW - Unholy (02:25)
-02. STI Project - Good Luck (02:21)
-03. Tjalling Reitsma & RAYNE - You Don't Know Love (02:50)
-04. Vis a Vis - Its A Feeling (VIP Mix) (01:47)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:29:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:919E0E623357EAE3E42CAC60D321E2B7FBE0D42B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802365   (14400) от 16.06.2025
-
-Kris Cayden - Stranger Than Fiction (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dubstep>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Paranormal Summer [1:07]
-02 - Love Is On Fire [4:39]
-03 - Wake [3:59]
-04 - Ghost [3:39](   Читать дальше...   )Жанр: Electronic, DubstepПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD03E61DD9C470987F30293922A9B964E82A1221
 ```
 
 https://mybot314.ru/tekegram_catalog/

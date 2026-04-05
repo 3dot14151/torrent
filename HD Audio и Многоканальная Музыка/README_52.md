@@ -1,32 +1,3 @@
-###  Публикация: 1630815   (236410) от 04.05.2023
-
-Depeche Mode - Playing The Angel (2005)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236410.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. A Pain That I'm Used To (4:11)
-A2. John The Revelator (3:43)
-A3. Suffer Well (3:49)
-B1. The Sinner In Me (4:56)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE6A86AAFF7E3EB1C8F7E43049BAAEE7137C8110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629913   (236395) от 28.04.2023
 
 Underworld - Change The Weather (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
@@ -35,7 +6,7 @@ Underworld - Change The Weather (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236395.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Darkseed - Studio Albums (8 releases) (1996-2010) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236312.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Danzig - Studio Albums (9 releases) (1994-2017) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236104.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Мелодии Друзей (1971) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236092.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Civil War - Studio Albums (5 releases) (2012-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235963.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Entombed / Entombed A.D. - Studio Albums (16 releases) (1990-2019) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235909.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235786.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235659.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Эстрадная Орбита (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235630.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235348.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235260.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234631.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Wuthering Heights - Studio Albums (5 releases) (1999-2010) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234242.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233980.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, Ne
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233869.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233757.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Mnemic - Studio Albums (5 releases) (2003-2012) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233340.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Moonspell - Studio Albums (13 releases) (1995-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233007.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Emperor - Studio Albums (7 releases) (1993-2001) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232991.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232952.jpg" />
 </div>
 
 
@@ -614,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232878.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Olivia Dean - Messy (2023) [FLAC 24/96|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232419.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Moby – Reprise (Box Set, Special Edition) (2021) [DTS-ES Discrete 6.1 CD-Audio
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232099.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Middle Of The Road - Chirpy Chirpy Cheep Cheep, Tweedle Dee, Tweedle Dum and oth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231774.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Ray Conniff - Hello Young Lovers (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231406.jpg" />
 </div>
 
 
@@ -744,6 +715,35 @@ A4 Favourite Love Theme From Tchaikovsky's ''Romeo And Juliet''(   Читать 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D7D9C72EDC680AB97ED20B924505ED891DD990A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637016   (231036) от 02.06.2023
+
+Led Zeppelin - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231036.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Stairway To Heaven
+A2 Custard Pie
+A3 D'Yer Mak'er
+A4 Houses Of The Holy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B023AFBE1BDCF28A2386BD86C4C89199AAA0E246
 ```
 
 https://mybot314.ru/tekegram_catalog/

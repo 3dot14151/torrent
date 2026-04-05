@@ -1,3 +1,33 @@
+###  Публикация: 498694   (975720) от 09.02.2013
+
+Тайны мира с Анной Чапман (29 выпусков) (2012-2013) SATRip [обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный проект Анны Чапман на РЕН ТВ полностью меняет свой формат!
+
+Самая загадочная ведущая на нашем телевидении и новый цикл документальных расследований! В новом сезоне программа будет посвящена исследованиям связей между фактами, которых на первый взгляд не существует – медицинский шпионаж, тайны белых халатов, технологии сексуально-политического скандала, любовь как причина военных конфликтов, а также самый таинственный заговор 21 века. Неизвестные подробности громких политических дел. Вся правда без цензуры.
+
+Анна Чапман раскроет самые громкие тайны нашего времени!Жанр: ДокументальныйПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616344   (975707) от 09.02.2013
 
 Wolfram Mathematica 9.0.1 [English]
@@ -6,7 +36,7 @@ Wolfram Mathematica 9.0.1 [English]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975707.jpg" />
 </div>
 
 
@@ -34,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975197.jpg" />
 </div>
 
 
@@ -63,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975195.jpg" />
 </div>
 
 
@@ -89,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975191.jpg" />
 </div>
 
 
@@ -115,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975189.jpg" />
 </div>
 
 
@@ -141,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975188.jpg" />
 </div>
 
 
@@ -167,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975169.jpg" />
 </div>
 
 
@@ -193,7 +223,7 @@ Navitel / Навител: Официальные карты релиза 2019-Q3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975036.jpg" />
 </div>
 
 
@@ -219,7 +249,7 @@ Acronis True Image 19.0.6027 / Universal Restore 11.5.40010 / Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974169.jpg" />
 </div>
 
 
@@ -245,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974086.jpg" />
 </div>
 
 
@@ -271,7 +301,7 @@ Navitel / Навител Навигатор v9.6.904/1327/1978 Real CLONES UniRe
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974083.jpg" />
 </div>
 
 
@@ -297,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974080.jpg" />
 </div>
 
 
@@ -323,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973881.jpg" />
 </div>
 
 
@@ -349,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973536.jpg" />
 </div>
 
 
@@ -375,7 +405,7 @@ Elcomsoft Wireless Security Auditor 5.2.272 Professional Edition [Multi/Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973010.jpg" />
 </div>
 
 
@@ -401,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972839.jpg" />
 </div>
 
 
@@ -427,7 +457,7 @@ Far Cry 2 (2008) [Ru] (1.03/dlc) Repack Other s [Fortune's Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972694.jpg" />
 </div>
 
 
@@ -453,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972585.jpg" />
 </div>
 
 
@@ -479,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972584.jpg" />
 </div>
 
 
@@ -505,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971486.jpg" />
 </div>
 
 
@@ -531,7 +561,7 @@ Far Cry 3 (2012) [Ru] (1.05 /dlc) Repack =nemos= [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971476.jpg" />
 </div>
 
 
@@ -559,7 +589,7 @@ Xara Xtreme Pro 5.1.0.9131 Portable [Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971439.jpg" />
 </div>
 
 
@@ -587,7 +617,7 @@ Syberia v1.0.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971117.jpg" />
 </div>
 
 
@@ -613,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970744.jpg" />
 </div>
 
 
@@ -639,7 +669,7 @@ Windows 7 (x86/x64) UralSOFT 1.5.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970407.jpg" />
 </div>
 
 
@@ -652,32 +682,6 @@ Windows 7 (x86/x64) UralSOFT 1.5.12 [Русский]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357923   (970278) от 06.02.2020
-
-Reboot Restore Rx 3.3 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reboot Restore Rx — интересный, распространяемый как Freeware продукт, который позволит защитить пользователя компьютеров на базе операционных систем Windows от возможных изменений в системе, в частности загрузочного сектора MBR. Программа делает снимок системы и после перезагрузки ПК, мы видим первоначальное состояние диска или раздела, который предварительно указываем, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCCAB5D659BCA07DB6AF0AE58D1596469222666
 ```
 
 https://mybot314.ru/tekegram_catalog/

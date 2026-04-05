@@ -6,7 +6,7 @@ Wings - Red Rose Speedway (The Bruce McMouse Show) (2018) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672117.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668571.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adam by Eve: Анимационный концерт / Adam by Eve: A live in An
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667719.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kiss - Rocks Vegas (2016) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666394.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Deep Purple - California Jam (1974/2016) Blu-ray [H.264/1080i ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666315.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ David Gilmour - Rattle That Lock (2015) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666309.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Deep Purple - ...To The Rising Sun (In Tokyo) (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666218.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ ONUKA и НАОНИ (06.04.2017) WEB-DL [H.264/1080p-LQ] [UKR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664095.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662031.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661771.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Royal Hunt - 2016 (25 Anniversary) (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660000.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Ken Hensley: Blood On The Highway, Albert Hall (2007) [720] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_658693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658693.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ UK - Curtain Call (2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656684.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655763.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ UK - Curtain Call (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655737.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Rammstein - Paris (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655608.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Rammstein - Paris (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654486.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Metallica: Orion Music Festival 2012: The Black Album (2012) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_654225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654225.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653593.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ The Police: Certifiable - Live in Buenos Aires (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651205.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651129.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651128.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Muse - BBC Radio 1's Big Weekend (2015) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651102.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ BRUTTO - Live in Atlas (2016) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649416.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Metallica - Orion Music Festival - The Black Album (2012) HDTVRip 720 [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_648930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648930.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647137.jpg" />
 </div>
 
 

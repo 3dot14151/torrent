@@ -1,32 +1,3 @@
-###  Публикация: 1702362   (115812) от 24.02.2024
-
-Mac Saturn - Hard to Sell (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mint Julep (3:30)
-02. Young In Paradise (3:16)
-03. Sleep (3:41)
-04. Ain't Like You (3:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1AB31E142D7BC89B97740BD41E32343CF829434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702296   (115810) от 24.02.2024
 
 Erika de Casier - Still (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
@@ -35,7 +6,7 @@ Erika de Casier - Still (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115810.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Takida - The agony flame (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115808.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Mike Zito - Life Is Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115806.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Suede - Bloodsports (2013) Deluxe Edition, 2024, Edsel [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115804.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Dark Fortress - Studio Albums (8 releases) (2001-2020) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115802.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ MGMT - Loss of Life (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie, Psychedel
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115800.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Cynic - Uroboric Forms - The Complete Demo Recordings (2017) Compilation [FLAC|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115799.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Myriam Hernandez (Myriam Hernández) - Sinergia (2022) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115716.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Александр Зацепин, Леонид Дербенев - Песн
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115698.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Kyuss - Studio Albums (4 releases) (1991-1995) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115684.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Yes - Drama (1993 (1980)) [FLAC 24/192|Lossless|tracks] <Prog Rock, Classic Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115680.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Cycleam - Dream Cycle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115672.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Saffire - For The Greater Good (2015) Redux, 2024, Rock Of Angels Records [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115671.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Mezzrow - Then Came The Demos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115670.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ He Was A God - Muckraker (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115668.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Gen and the Degenerates - Anti-Fun Propaganda (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115664.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Emilie Schiott (Schiøtt) - Like a Sunday (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115335.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Rogue Johnsen Project - HOME (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115334.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Jazz Sax Lounge Collection, Smooth Jazz Sax Instrumentals - Summer Saxophone Rel
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115329.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Romantic Moods Academy, Jazz Music Collection Zone - Jazz Music for a Romantic M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115328.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Jazz Music Lovers Club - Music for Sexy Striptease (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115326.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Accept - Humanoid (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115322.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Twilight Tapirs - Great Lake Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115310.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Wojtek Stanisz Quartet - Szuflandia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115309.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Kevin & JD - Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115302.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Kevin & JD - Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F67E6024782A812F2ABD72C238330B15CB17B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702946   (115300) от 27.02.2024
+
+Relaxing Instrumental Jazz Ensemble - Beautiful Jazz Instrumental Collection (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth Moves (3:18)
+02. Background Jazz (3:18)
+03. Only Jazz (3:18)
+04. Sensual Ambience (3:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9732DA8A11639082EB90B891DE5A0A6190D173C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

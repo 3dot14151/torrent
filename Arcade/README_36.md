@@ -6,7 +6,7 @@ Unalive 010 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198136.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kao the Kangaroo / Кенгуренок Као (2022) [Ru/Multi] (1.6.0/dlc) Lic
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197555.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Batora: Lost Haven (2022) [Ru/Multi] (rc14 shipping 3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197459.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ We Love Katamari REROLL+ Royal Reverie (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197330.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Project Lazarus (2023) [Ru/Multi] (7.0) Scene DARKSIDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197007.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Contra Anniversary Collection (2019) [En] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197001.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Chronicles of Galdurvale (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196854.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.0.3.0) Repack dixen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196789.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196785.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Tesla vs Lovecraft (2018) [Ru/Multi] (1.0.7/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196633.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ JYDGE (2017) [Ru/Multi] (1.2.1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196607.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Fireball Wizard (2023) [Ru/Multi] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196534.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Voodolls (2023) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196258.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Guilty Gear -Strive- (2021) [Multi] (1.27/dlc) Scene SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196038.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Battle Axe (2021) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195826.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Fall of Porcupine (2023) [Multi] (1.1.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195798.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Cave (2013) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195390.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Ape Out (2019) [Ru/Multi] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195133.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ ANVIL (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194526.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ TailQuest Defense (2023) [Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194524.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Pinball FX3 (2017) [Multi] (1.0.26.0/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194396.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mail Time (2023) [Multi] (1.00.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194309.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Zombie Shooting Star: ARCADE (2022) [Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194087.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Zombie Shooting Star (2022) [Multi] (1.1) License GOG [16+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193979.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2.1173.0) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193400.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Castle Crashers (2012) [Ru/En] (3.0/dlc) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193366.jpg" />
 </div>
 
 

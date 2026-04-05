@@ -1,3 +1,56 @@
+###  Публикация: 1461098   (1022092) от 08.04.2021
+
+TechSmith Camtasia 2020 Studio v2020.0.18 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.04.2021Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD411A6B2EE085449D85CE0D6BE572D7CB6BC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457423   (1022072) от 08.04.2021
+
+Sketch 71.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch – настоящий векторный редактор содержащий в себе великое множество действительно мощных инструментов позволяющих проводить всевозможные манипуляции с векторной графикой.
+Sketch от Bohemian Coding — один из лучших векторных редакторов под macOS. Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2021Разработчик: Bohemian CodingПоддерживаемая ОС: 10.14.4 or laterЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F9DAF7976665C47C66E2B4FFE4379CCF734789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462540   (1021220) от 14.04.2021
 
 Digital Clock 3D 2.0.0 [Multi/Ru]
@@ -6,7 +59,7 @@ Digital Clock 3D 2.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021220.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ ForkLift 3.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021211.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Kaleidoscope 2.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021026.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ OmniFocus Pro 3 v3.11.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021018.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ Magnet 2.6.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020982.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ Capture One 21 Pro Pro v14.1.1.63 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020979.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Comic Strip Factory 1.0.137 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020876.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ Paint X - Paint, Draw and Edit 6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020833.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ UkeLib Chords Pro 1.3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020698.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ GtrLib Chords Pro 1.3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020681.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Awesome Mails Pro 4 v4.0.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020671.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Flotato Pro 36 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020324.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ NAMO 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020320.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ Dato 2.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020177.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ AYVY 1.11.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020176.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ Firefox Developer Edition for Mac 89.0 Beta [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019995.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ StarUML 4.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019972.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ Templates for Keynote - DesiGN 7.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019955.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ Cloud Outliner Pro 2.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019832.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ Rumpus PRO 9 v9.0.1 + Tether Client 1.1  [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019829.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ Dark Mode for Safari 3.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019825.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ Audio Playr 2.3.1  [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019816.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ TextSniper - OCR simplified 1.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019805.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ Total Video Player 3.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019650.jpg" />
 </div>
 
 
@@ -625,59 +678,6 @@ Total Video Playerr Pro является мощным, полнофункцио�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B90357DB08B4D90E82AADCBD5222DFB33612340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465107   (1019512) от 24.04.2021
-
-File List Export 2.6.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019512.jpg" />
-</div>
-
-
-###  Подробнее
-
-File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл. Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.04.2021Разработчик: Giorgos TrigonakisПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE47B3A3BD3F53F4051A440E25C26786207F766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465119   (1019511) от 24.04.2021
-
-Iconographer Mini 1.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iconographer Mini - это быстрый и простой способ взять логотип и создать либо набор значков Mac (для использования с Xcode), либо сжатый файл *icns для использования с другими инструментами разработки Mac (например, Xojo).
-Iconographer Mini был разработан для macOS 11.0 Big Sur, чтобы соответствовать новой визуальной теме и помогать разработчикам создавать значки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.04.2021Разработчик: Ohanaware Co., LtdПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E635BDB9E2427D12506FB05B1D24689FADE51E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

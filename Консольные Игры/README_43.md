@@ -6,7 +6,7 @@ FIFA 18 Legacy Edition (2017) [PS3] [EUR] 4.21 [Repack / 1.02] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400190.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FIFA 18 Legacy Edition (2017) [Xbox360] [PAL] 17349 [Freeboot] [License] [Multi]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400127.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Doom 3 BFG Edition [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398669.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ PRO EVOLUTION SOCCER 2013 [PSP] [RUS/MULTI5] [ISO] [FULL] (2012)
 >>PSP
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397488.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Resistance: Burning Skies (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396417.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Borderlands 2 [PS3] [ENG] [NTSC] [FULL] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393429.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ubisoft Triple Pack: Outland, From Dust, Beyond Good and Evil HD [XBOX360] [En] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392379.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Avatar: The Legend of Aang - The Burning Earth [Wii] [PAL] [Multi 2] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391408.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Epic Mickey 2 : The Power Of Two [Xbox 360] [ENG] [RegionFree] [LT+3.0/15574] (2
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390629.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ The Legend of Zelda: A Link to the Past [Wii] [Virtual Console] [RUS] [Pal] (200
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390596.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Call of Duty: Black Ops 2 [Xbox 360] [ENG] (RegionFree) (LT+2.0/15574) (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389735.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ One Piece: Pirate Warriors [PS3] [ENG] [FIXED FOR 3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388838.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Pro Evolution Soccer 2013 [PS3] [RUS] [PAL] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386780.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ God Eater 2: Rage Burst (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/Multi
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386425.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 >>Ромы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386410.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ HITMAN: Game of the Year Edition / HITMAN: издание «Игра года» 
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385011.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ The Wolf Among Us (2014) [PSVita] [USA] 3.60 [HENkaku] [Unofficial] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384347.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Project Zero: Maiden of Black Water / Fatal Frame: Maiden of Black Water (2015) 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384262.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ TANK! TANK! TANK! (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384158.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Syberia 2 / Сибирь 2 (2015) [Xbox360] [RegionFree] 17349 [Freeboot] [Unoff
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384150.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Crypt of the NecroDancer (2016) [PSVita] [EUR] 3.65 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383322.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ The Amazing Spider-Man/ Новый Человек-Паук [PS3] [FullRUS] [PAL]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382181.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Double Dragon Neon [PS3] [ENG] [NTSC] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382173.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Legend of the Guardians: The Owls of Ga'Hoole (2010) [PS3] [EUR] 3.30 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380507.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ How to Train Your Dragon (2010) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO ISO] [L
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380498.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Warp [PS3] [PSN] [ENG] [NTSC] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379957.jpg" />
 </div>
 
 

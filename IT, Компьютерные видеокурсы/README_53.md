@@ -1,29 +1,3 @@
-###  Публикация: 1151031   (570012) от 20.07.2017
-
-Foxford | Язык C++ (2016-2017) PCRec [H.264/1080p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык программирования C был разработан в начале 1970-х годов как язык системного программирования для операционной системы Unix. В 1990-х годах на его основе был создан язык программирования С++, поддерживающий концепции объектно-ориентированного и обобщённого программирования. В начале курса мы будем изучать темы, общие для языков С и C++ — синтаксис языка, стандартные (   Читать дальше...   )Производство: Россия / ФоксфордЖанр: Программирование, C++Продолжительность: ~02:00:00 урок
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518462645333D0D04E53E0FB3F885493E1A583B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555018   (569917) от 03.06.2022
 
 Udemy, Stephen Ulibarri | Unreal Engine 5 C++ Multiplayer Shooter (2022) PCRec [EN]
@@ -32,7 +6,7 @@ Udemy, Stephen Ulibarri | Unreal Engine 5 C++ Multiplayer Shooter (2022) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569917.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Udemy, Наиль Алишев | Spring - Полный курс. Boot, Hibernate
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569904.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Profileschool | Маски. Практика применения (2014) [PCRec]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568469.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568457.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564665.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564652.jpg" />
 </div>
 
 
@@ -197,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564567.jpg" />
 </div>
 
 
@@ -224,7 +198,7 @@ nastroika-pc.ru | Конфигурации компьютеров [2012] SATRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564449.jpg" />
 </div>
 
 
@@ -250,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562301.jpg" />
 </div>
 
 
@@ -279,7 +253,7 @@ Geekbrains | PHP. Уровень 2 Профессиональная веб-ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562208.jpg" />
 </div>
 
 
@@ -306,7 +280,7 @@ Udemy, GameDev.tv Team, Stephen Ulibarri | Unreal Engine 5 Blueprints - First Pe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559339.jpg" />
 </div>
 
 
@@ -335,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559002.jpg" />
 </div>
 
 
@@ -361,7 +335,7 @@ JavaBegin | Spring (2014-2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558362.jpg" />
 </div>
 
 
@@ -387,7 +361,7 @@ Lynda.com | WordPress (2010-2014) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557453.jpg" />
 </div>
 
 
@@ -413,7 +387,7 @@ Geekbrains | PHP. Быстрый старт Личный блог на PHP с н
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557218.jpg" />
 </div>
 
 
@@ -439,7 +413,7 @@ Pluralsight.com | Python - Beyond the Basics (2014) PCRec [H.264] [RU/EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556816.jpg" />
 </div>
 
 
@@ -468,7 +442,7 @@ Lynda.com | Working with Data on the Web (2013) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556555.jpg" />
 </div>
 
 
@@ -496,7 +470,7 @@ JavaBegin | Hibernate (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556211.jpg" />
 </div>
 
 
@@ -522,7 +496,7 @@ OTUS | Подготовительный курс «Разработчик Java»
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556164.jpg" />
 </div>
 
 
@@ -548,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556159.jpg" />
 </div>
 
 
@@ -576,7 +550,7 @@ GeekUniversity | Третья четверть. Социальная сеть и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554292.jpg" />
 </div>
 
 
@@ -602,7 +576,7 @@ GeekUniversity | Четвертая четверть. Разработка Highl
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554291.jpg" />
 </div>
 
 
@@ -628,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553376.jpg" />
 </div>
 
 
@@ -654,7 +628,7 @@ ProfIT | Redis - основы и практическое использован
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552697.jpg" />
 </div>
 
 
@@ -680,7 +654,7 @@ Skillbox | Excel c 0 до PRO (2015-2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552676.jpg" />
 </div>
 
 
@@ -691,6 +665,32 @@ Skillbox | Excel c 0 до PRO (2015-2016) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5BAA50CCC87F88B090D65DCB854281654F6EF5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046464   (552584) от 26.08.2016
+
+SmartMe Алексей Коваленко | Функциональное программирование на JavaScript (2015) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Функциональное программирование сегодня, как, впрочем, и всегда, является неотъемлемой частью разработки приложений разного характера. В JavaScript функциональный стиль программирования был заложен еще при его рождении. Как ребенок получает цвет глаз от одного из своих родителей, так и JavaScript получил данную парадигму в наследство от языка с гордым названием Scheme.Производство: SmartMeЖанр: javascript , front-endПродолжительность: 2:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB85F86F962C7FF1A7E613320C1D34B102BAEA27
 ```
 
 https://mybot314.ru/tekegram_catalog/

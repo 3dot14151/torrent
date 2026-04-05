@@ -1,3 +1,61 @@
+###  Публикация: 1128599   (726352) от 26.04.2017
+
+VA - Pure Bliss Vocals - Spring (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ana Criado & Alan Morris - Border Line (Radio Edit)  3:15
+02.  Allen Watts & Katty Heath - Break Without The Pain (Radio Edit)  3:23
+03.  Audrey Gallagher & Kaimo K - Lullaby (Radio Edit)  4:02
+04.  Adip Kiyoi & Susie Ledge - Another Chance (Radio Edit)  3:51(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908A2252CCA18F028D4B3CC4F32A3F72ED0AC46F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128850   (726266) от 26.04.2017
+
+Alphaville - Strange Attractor (2017) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giants (3:29)
+ 02. Marionettes With Halos (4:23)
+ 03. House Of Ghosts (5:08)
+ 04. Around The Universe (4:01)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CADF5920ABE180E98129A0168B8B8844B39642F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218197   (725292) от 08.04.2018
 
 VA - Good Day Music Compilation Vol.4 (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Good Day Music Compilation Vol.4 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725292.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ ATB - 8 Album, 3 Compilation (1999-2007) (17CD)[FLAC|Lossless]<Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_725282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725282.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ VA - Dream Trance: The Future Is Now (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725208.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Zhu - Ringos Desert (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725152.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - DJ Robert Miles - In The Mix (1997) Mixed [FLAC|Lossless|image + .cue] <Bre
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725085.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Dormantgod - Animated Bas-Reliefs (2007) [FLAC|Lossless|image + .cue] <Dark Ambi
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725070.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Swoop And Cross - Stories Of Disintegration (2018) [FLAC|Lossless|Web-DL|tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724918.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Alfa State - Plays 7V (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Dow
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724916.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Mirror System - Mirrorsystem (2005) [MP3|320 Kbps] <Downtempo, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724914.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Sportskanone Vol 1 (25 Dance Bangers To Make You Sweat) (2017) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724838.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Poppy Ackroyd - Resolve Reimagined (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724781.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Jango Music - Bora Bora Ibiza Summer (2016) [MP3|320 кб/с] <Tech House, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724658.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Modern Eleven - Under The Bright Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724656.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Andrey Zhitnev - The Best Of Playing Space and Ray Orion (2017) [MP3|320 Kbps] <
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724610.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Workout Beats EDM 2019 Power And Workout Motivation Music [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724609.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Valentine's Day Classics: 30 Greatest Love Songs (2022) [MP3|320 Kbps] <Pop
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724568.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Trip to the Sea Vol.2: Chill Lounge del Mar (2016) [MP3|320 кб/с] <Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724556.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Zoon Politicon - Black In White (2016) 2CD [MP3|320 кб/с] <Electronic, Synth-
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724542.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Vamos A la Playa: Eivissa (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724540.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ m² (m2, Squaremeter) - Discography 13 Releases (2000-2010) Ant-Zen, Hands Produ
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724459.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Tiesto - In Search Of Sunrise 5: Los Angeles (2006) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724361.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Pogo - 2 альбома (2015,2016) [MP3|320 kbps] <house, chill electronic, idm
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724354.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Phaeleh - All That Remains (2016) EP [MP3|320 кб/с] <Tech House, Ambient, Mod
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724255.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Nina (Nina Boldt) - 8 Releases (2011-2018) [FLAC|Lossless|WEB-DL|tracks] <Synth-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724194.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Nina (Nina Boldt) - 8 Releases (2011-2018) [FLAC|Lossless|WEB-DL|tracks] <Synth-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F2A3DF9F4B8FF539FA5FADACE5F29E8CC7A2483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284974   (724066) от 24.02.2019
-
-DJ Skydreamer - Наш Ответ!!! ATB (2005) [MP3|320 Kbps] <House, Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend Of Dreamy (4:35)
-02. Light Fantasy (5:20)
-03. Back To The Universe (3:52)
-04. Relieve (4:01)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C65112EAAA268BCB58DF7E533B47E5901182AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218434   (723408) от 09.04.2018
-
-VA - Interfered Vol.I (Mixed by Enlusion) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enlusion - Interfered Volume I (continuous DJ mix)
-02. Neil Soun - Bending Light (intro mix)
-03. Aquya - Ataraxia (radio edit)
-04. Vitaly Shturm - Sensoria (radio edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586EE965B2790E82696C87B3B30A95274E997413
 ```
 
 https://mybot314.ru/tekegram_catalog/

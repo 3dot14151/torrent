@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590513.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Melanie Martinez - Carousel (2014) MasterRip [ProRes/1080p] [10-bit]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590341.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Летний марафон № 176 / Видеоклипы (Самые Но
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590321.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-L
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589580.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589279.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589236.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Kiss - Live In Nurburgring (2010/2012) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589019.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Lacrimosa - Live In Mexico City (The First Edition) Bonus DVD (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588764.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Megadeth - Countdown To Extinction - Live  (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588621.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Status Quo - Pictures - Live At Montreux (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588607.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588575.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ France Gall - видеозаписи (1963 - 1984)/ VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_588165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_588165.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ The Prodigy - World's on Fire (2011) [1080i] BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587790.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586838.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586829.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586774.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Linkin Park - Rock in Rio (2012) HDTVRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_586673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_586673.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586050.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585992.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ U2: 360° at the Rose Bowl (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585958.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585895.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Nightwish - Showtime, Storytime (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583628.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583352.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582279.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581798.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ Metallica - Fan Can Six, Copenhagen(2010) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581797.jpg" />
 </div>
 
 

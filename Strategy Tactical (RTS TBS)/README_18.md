@@ -1,3 +1,55 @@
+###  Публикация: 1751161   (42653) от 23.09.2024
+
+Combat Mission: Battle for Normandy (2023) [En] (4.05/dlc) License GOG
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Combat Mission: Battle for Normandy достоверно воссоздает опыт тактических сухопутных боевых действий на Западной Франции во время Второй мировой войны. Базовая игра охватывает трехмесячный период после высадки союзников в Нормандии, от операции Overlord в июне до Cobra Breakout в августе. Тяжелый бой стал легендой, и высокие стандарты Combat Mission в отношении (   Читать дальше...   )Тип издания: LicenseРазработчик: BattlefrontЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602B63FBCED20C2962BD67F83FCAF57997C6D6AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658146   (42172) от 28.09.2024
+
+Hadean Tactics (2023) [Multi] (1.1.13) Scene Tenoke
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hadean Tactics – это военная стратегия с элементами карточной игры. Вам предстоит выбрать одного из героев, который затем спустится в темные подземелья, где вступит в схватку с порождениями темных сил. Враги в проекте представлены в виде разнообразных монстров, начиная от слабых демонов и заканчивая огромными повелителями преисподней.Тип издания: SceneРазработчик: Emberfish GamesЖанр: Инди, СтратегииЯзык субтитров: Английский, Бразильский Португальский, Китайский (упрощенный), НемецкийЯзык интерфейса: Английский, Бразильский Португальский, Китайский (упрощенный), Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07193F0A281EE05FD73C6C9F50D7BC63FBAF702F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744031   (41749) от 02.10.2024
 
 Sins of a Solar Empire II (2) (2024) [Ru/Multi] (28.16.0) Repack Decepticon
@@ -6,7 +58,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (28.16.0) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41749.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Steamworld Heist (2016) [Ru/Multi]  (2.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41334.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Ash of Gods: Redemption (2018) [Ru/Multi] (1.6.24/dlc) License GOG [Digital Delu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40649.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Combat Mission: Shock Force 2 (2020) [Multi] (02.06.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40221.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39342.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39318.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39145.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Inkulinati (2023) [Ru/Multi] (1.48.1.0/dlc) License GOG [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37019.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Scene Rune [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36792.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (101.102.62906.0/dlc) Re
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36729.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36712.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Victoria 3 (2022) [Ru/Multi] (1.8.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36650.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.02.001) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36178.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (2.2.2.32791/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36116.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ The Troop (2023) [Ru/Multi] (Build 20241125/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35378.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack Let'sРlay [Final Cut]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34651.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Scene R
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34480.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34332.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Warcraft III (3): Reforged (2020) [Ru/En] (2.0.1.22498) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33102.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.2.12.54620) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32905.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ The Legend of Heroes: Trails from Zero (2022) [Multi] (1.4.13) License GOG [Extr
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32898.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.11/dlc) Repack Let'sРlay [C
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32527.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Men of War II (2024) [Ru/Multi] (1.041/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32485.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31820.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ This War of Mine - первая игра, которая позволяет ув
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C23BE1CA4AF420A3762A9DA24AB0B2F901B13568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771780   (31638) от 08.01.2025
-
-Toy Tactics (2023) [Ru/Multi] (1.1E) Repack FitGirl
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toy Tactics - основанная на законах физики стратегия в реальном времени, в которой вы можете рисовать боевые построения и отправлять в бой валкие игрушки. Под руководством легендарных генералов научитесь рисовать схемы расположения на поле боя и отправляйте крошечные легионы в бой с ордами нежити. Усиливайте армию артефактами и разрушительными заклинаниями, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Kraken EmpireЖанр: Экшены, Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2C55CE3E5BD3321773B95A0D2C510BFE0EA3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747595   (31554) от 09.01.2025
-
-Red Solstice 2: Survivors (2021) [Ru/Multi] (3.16/dlc) Repack Wagner
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31554.jpg" />
-</div>
-
-
-###  Подробнее
-
-После падения Земли прошло 117 лет, и перед вами стоит крайне важная задача. Вас пробудили, чтобы вы возглавили «Ячейку» - секретное спецподразделение, созданное для борьбы с нашествием мутантов, которые стали жертвами вируса STROL. Вам с отрядом предстоит прорваться сквозь ряды мутантов и найти лекарство от опасного вируса, который ставит под угрозу существование (   Читать дальше...   )Тип издания: RepackРазработчик: IronwardЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3E2DD8EB58F63904EE465F71A8A5A115CD4282
 ```
 
 https://mybot314.ru/tekegram_catalog/

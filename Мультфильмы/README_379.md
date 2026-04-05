@@ -1,3 +1,133 @@
+###  Публикация: 1804441   (65648) от 29.06.2025
+
+Золотая коллекция любимых мультфильмов. Выпуск 8 (1958-1981) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник кукольных и рисованных отечественных мультипликационных фильмов для детей. В него вошли: В стране невыученных уроков; Козленок, который считал до десяти; Кошкин дом; Крошка енот; Осторожно щука; Петушок и солнышко; Рикки-Тикки-Тави; Стрекоза и муравей; Тигренок в чайнике; Тигренок на подсолнухеПроизводство: СССР / Союзмультфильм, Киевнаучфильм, ТО ЭкранЖанр: рисованная анимацияРежиссер: Юрий Прытков, Владимир Дегтярев, Марианна Новогрудская, Олег Чуркин, Михаил Каменецкий, Иван Уфимцев, Леонид Носырев, Александра Снежко-БлоцкаяАктеры: Лина Будник, Борис Лобода, Людмила Козуб, Людмила Игнатенко,  Мария Виноградова, Николай Литвинов, Леонид Харитонов, Григорий Шпигель, Алексей Грибов, Клара Румянова, Александр Баранов и другеСубтитры: отсутствуютПродолжительность: 01:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBE4030DD5D4C90FAAD7D74C1D97CAF13A168CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804740   (65600) от 01.07.2025
+
+Чудесный светофор / Сова-светофор (1938) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавная история о том, как сова случайно стала светофором на лесном перекрестке. И помогла навести порядок в лесном тропиночном движении. Ко всеобщему удовольствию.Производство: СССР / МосфильмЖанр: кукольный мультфильм, сказка, короткометражныйРежиссер: Георгий ЕлизаровСубтитры: отсутствуютПродолжительность: 00:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:958BEC1A03AC68AAD09EF75ECEED0FEF80332F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804687   (65596) от 01.07.2025
+
+Про бегемота, который боялся прививок (1966) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень смешно, когда большой и сильный Бегемот боится обыкновенного укола.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Леонид АмальрикАктеры: Михаил Яншин, Георгий Милляр, Григорий Шпигель, Елена Понсова, Георгий ВицинСубтитры: отсутствуютПродолжительность: 00:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2DF45159BF7D23C3C4173F52CFCF21C0C51A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804725   (65579) от 01.07.2025
+
+Паучок Ананси (Три желания, Паучок Ананси и волшебная палочка) (1970 -1973) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки джунглей об умном и добром паучке Ананси, по мотивам африканских сказокПроизводство: СССР / ТО "Экран"Жанр: мультфильм, короткометражкаРежиссер: Идея Гаранина, Марианна Новогрудская, Виктор Севрюгов, Николай АлександровичАктеры: арри Бардин, Анатолий Папанов, Сергей Цейц, Борис Левинсон, Маргарита КорабельниковаСубтитры: отсутствуютПродолжительность: 00:19:52 + 00:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A271BB400B83430BFA329E6D40BACCE82C81B327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806101   (65396) от 11.07.2025
+
+Разные колеса (1960) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудолюбивые и изобретательные жители теремка — петушок, ёжик, лягушка и мушка — нашли в лесу брошенную медведем телегу с разными колёсами и сделали из этих колёс много полезных вещей.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, мультфильм, детский, короткометражкаРежиссер: Леонид АмальрикАктеры: Георгий Вицин, М. Тархова, Юрий Хржановский, Елена Понсова, Иван ЛюбезновСубтитры: отсутствуютПродолжительность: 00:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87224A349E7C7BD3F062853978A9E31382666001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806247   (65383) от 12.07.2025
 
 Сказка о добром Умаре (1938) WEBRip [H.264]
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65383.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65315.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65130.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65071.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65000.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64972.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64883.jpg" />
 </div>
 
 
@@ -191,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64816.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64734.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64662.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64592.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64494.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64084.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64051.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64023.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63803.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63794.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63736.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63733.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63603.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63593.jpg" />
 </div>
 
 
@@ -541,137 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97CFFDEED71F81F4F453C674605A64DDF6774C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705746   (63522) от 09.03.2024
-
-Леди Баг и Супер-Кот: Париж / Miraculous World: Paris (2023) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63522.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то время как Маринетт и Адриан пытаются разобраться со своими новыми способностями и управлять ими, в Париже появляются их злые версии — Шедибаг и Коготь Нуар. Они сумели пробраться в мир людей из параллельной перевернутой вселенной. Они ищут Чудесную Бабочку, которой обладает Гесперия. И теперь Леди Баг и Супер-Коту придется очень постараться, чтобы помочь Гесперии (   Читать дальше...   )Производство: США, Франция / Zagtoon, Method Animation, SAMG AnimationЖанр: мультфильм, семейный, детский, фэнтези, мелодрама, комедия, приключенияРежиссер: Томас АстрюкАктеры: Кристина Валенсуэла, Брайс Папенбрук, Кейт СильверстайнПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47DA8CD6D0CF8E34E96BB32C76EFF1477EC71869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705744   (63513) от 09.03.2024
-
-Леди Баг и Супер-Кот: Нью-Йорк. Союз героев / Miraculous World: New York, United Heroes (2020) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63513.jpg" />
-</div>
-
-
-###  Подробнее
-
-В честь недели дружбы между Францией и США класс Маринетт готовится к поездке в Нью-Йорк. Эдриан тоже хочет поехать, но поначалу его не отпускает отец, к тому же Леди Баг просит Супер-Кота последить за Парижем в ее отсутствие. Когда Габриель все-таки разрешает сыну полететь в Нью-Йорк, Эдриан оказывается перед сложным выбором. Желание посетить Нью-Йорк пересиливает, (   Читать дальше...   )Производство: США / Zagtoon, Method Animation, SAMG AnimationЖанр: мультфильм, семейный, детский, фэнтези, мелодрама, комедия, приключенияРежиссер: Томас АстрюкАктеры: Кристина Валенсуэла, Брайс Папенбрук, Кит Силверштейн, Кэрри Керанен, Села Виктор, Сабрина Вайз, Зино Робинсон, Макс Миттелман, Мела Ли, Реба БурПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0868605EE6AB92C2C1F8FFA9CD9A6B5A763F90A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705745   (63507) от 09.03.2024
-
-Леди Баг и Супер-Кот: Шанхай. Легенда о Леди Драконе / Miraculous World: Shanghai, The Legend of Ladydragon (2021) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы встретиться с Адрианом, уехавшим в Шанхай, Маринетт отправляется навестить своего дядю Вана, который собирается праздновать юбилей.
-По приезде в Китай у неё крадут все вещи, в том числе сумку с Тикки, которая помогает ей трансформироваться в Леди Баг. Беспомощная и одинокая в огромном городе, Маринетт принимает помощь очень изобретательной молодой девушки по (   Читать дальше...   )Производство: США, Франция / Zagtoon, Method Animation, SAMG AnimationЖанр: мультфильм, семейный, детский, фэнтези, мелодрама, комедия, приключенияРежиссер: Томас АстрюкАктеры: Кристина Валенсуэла, Брайс Папенбрук, Кит Силверштейн, Мела Ли, Макс Миттелман, Кэрри Керанен, Брук Чалмерс, Caleb Yen, Алекс Лэ, Ксанте ХюнПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F60F550F48BDD3B7B8637F51258B56B82F3C3EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705763   (63409) от 10.03.2024
-
-Босоногий Гэн 2 / Hadashi no Gen 2 / Barefoot Gen 2 (1986) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик Гэн потерял почти всю семью, кроме беременной мамы, во время ядерной бомбардировки. Гэн ищет, как прокормиться самому и найти пищу маме. Он встречает мальчика, очень похожего на своего погибшего родного брата, и они становятся друзьями. Проходит три года, и, кажется, жизнь наладилась - мама работает, а Гэн ходит в школу, когда последствия ядерной катастрофы (   Читать дальше...   )Производство: Япония / MadhouseЖанр: аниме, мультфильм, военный, история, драмаРежиссер: Тосио ХиратаПеревод: Многоголосый профессиональный (AniDUB)Субтитры: русскиеПродолжительность: 01:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D10FA5EB77531661943D166DCDBE0847F95107C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705762   (63408) от 10.03.2024
-
-Песня Юга / Song of the South (1946) TC [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о приключениях маленького Джонни, приехавшего погостить на плантацию своей бабушки. Добрый дядюшка Римус придумывает и рассказывает Джонни и его друзьям забавные истории про Братца Кролика и других обитателей сказочной страны, которая оказывается совсем неподалеку. Эти занимательные истории очень помогают мальчику привыкнуть к новой жизни и обрести новых друзей.Производство: США / Walt Disney ProductionsЖанр: мультфильм, мюзикл, фэнтези, комедия, семейныйРежиссер: Харви Фостер, Уилфред ДжексонПеревод: Многоголосый профессиональный (ИДДК)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52BBE7E3AC0747FE965E6C74EE869455EA2F410
 ```
 
 https://mybot314.ru/tekegram_catalog/

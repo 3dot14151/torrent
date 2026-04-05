@@ -1,3 +1,134 @@
+###  Публикация: 1375584   (865252) от 14.04.2020
+
+Феи: Легенда о чудовище / Legend of the NeverBeast (2014) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационная сказка расскажет удивительную историю о веселой и талантливой фее Фауне, которая убеждена в том, что о книге нельзя судить по ее обложке, впрочем, как и о животном по его клыкам, поэтому она дружит с таинственным существом громадных размеров из Нетландии по прозвищу Чудовище.
+В это время группа волшебных фей разведки не настолько уверены в этом страшном (   Читать дальше...   )Производство: США / DisneyToonЖанр: Фэнтези, ПриключенияРежиссер: Стив ЛотерПеревод: ДублированныйСубтитры: нетПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A6DDF23A1B11500ACCD9BFA13F0DDD63AE4C71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375470   (865247) от 14.04.2020
+
+Стрела наследия: Семь жемчужин (2018) WEB-DL [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма начинается в стенах Национального музея Республики Татарстан. Одно неосторожное движение, и вот задетый экспонат уже нарушает ритм привычной жизни: стрела вонзается в бубен, и …начинаются удивительные странствия главных героев. Сорванец Роман и храбрая умница Зулейха «спасают мир» - ищут волшебные артефакты, чтобы снова загнать в древний бубен злого (   Читать дальше...   )Производство: Россия / «Татармультфильм»Жанр: Детский, Компьютерная анимация, ФэнтезиРежиссер: Сергей КиатровАктеры: Ринат Тазетдинов, Ляйсан Файзуллина, Ришат Ахмадуллин, Минвали Габдуллин, Ильнур ЗакировПеревод: Не требуется (Русский)Продолжительность: ~01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A991F6AE0686A8677D5CFB43154AB9E1D86E9E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375552   (865065) от 14.04.2020
+
+Легенды «Смертельной битвы»: Месть Скорпиона / Mortal Kombat Legends: Scorpions Revenge (2020) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет мультфильма расскажет об очередном смертельном турнире Шан Цзуна, в котором участвуют бойцы с Земли и других миров. В центре истории окажется жаждущий мести за смерть семьи и клана Скорпион, который соглашается принять участие в межпространственном состязании.Производство: США / DC Entertainment, Midway Games, Warner Bros. AnimationЖанр: Мультфильм, фэнтези, боевик, приключенияРежиссер: Этан СполдингПеревод: Многоголосый любительский (AniPlague)Субтитры: Русские (форсированные на надписи), английские (Full, SDH)Продолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A00263AED95C78E52C9C53E277A1035888B7FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497541   (864961) от 22.09.2021
+
+Клоун Коко. Глиняный городок / Clay Town (1924) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс лепит из глины клоуна, а клоун лепит бюст Макса. Ну, а потом, как обычно в мультиках про Коко, начинается какая-то фантасмагория.Производство: США, Out of the Inkwell FilmsЖанр: Рисованная анимацияРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190A4F6C83FCA1BB50AA707F34493A71DA205D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874103   (864691) от 02.03.2015
+
+Пингвины Мадагаскара / The Penguins of Madagascar (2014) BDRemux 3D [1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёрка пингвинов-шпионов — Шкипер, Ковальски, Рико и Прапор — объединяется с командой «Северный ветер», помогающей беззащитным животным. Им предстоит остановить злобного осьминога, доктора Октавиуса Брайна, желающего уничтожить этот мир…Производство: США, DreamWorks Animation, Pacific Data Images (PDI)Жанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Эрик Дарнелл, Саймон Дж. СмитАктеры: Том МакГрат, Крис Миллер, Кристофер Найтс, Бенедикт Камбербэтч, Петер Стормаре, Джон Малкович, Кен Жонг, Аннет МахендруПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC0E13D99A1DD9E1FDDBC7255CE7AF8ACCBFDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874074   (864606) от 02.03.2015
 
 Пингвины Мадагаскара / The Penguins of Madagascar (2014) Blu-ray 3D [1080p] [3D/2D]
@@ -6,7 +137,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864606.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864601.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864589.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864308.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864304.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864303.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864170.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864152.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863836.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863822.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863723.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863674.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863499.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863378.jpg" />
 </div>
 
 
@@ -374,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863325.jpg" />
 </div>
 
 
@@ -401,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863321.jpg" />
 </div>
 
 
@@ -429,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863263.jpg" />
 </div>
 
 
@@ -455,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863243.jpg" />
 </div>
 
 
@@ -481,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862875.jpg" />
 </div>
 
 
@@ -507,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862612.jpg" />
 </div>
 
 
@@ -533,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862601.jpg" />
 </div>
 
 
@@ -544,136 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84CEDF6311E82EC74767F979CC60317D1EE5EF2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874679   (862474) от 03.03.2015
-
-Флинстоуны: борцы каменного века / The Flintstones and WWE: Stone Age Smackdown (2015) WEB-DL [H.264/720p-LQ] [Line]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потеряв отпускные деньги своей семьи, Фред решает вернуть их с помощью спортивного шоу - рестлинга.Производство: США |  Hanna-Barbera, WWE Studios, Warner Bros. AnimationЖанр: мультфильм, комедия, приключенияРежиссер: Тони Червоне, Спайк БрандтПеревод: Многоголосый закадровый (Line)Язык субтитров: АнглийскийПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300B3E054C944308C4879187FF2EDEC95B46EB20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999642   (862282) от 23.03.2016
-
-Хороший динозавр / The Good Dinosaur (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара] [hand made 16:9]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862282.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сюжету динозавры не вымерли, а эволюционировали в разумных существ и живут и здравствуют на Земле. А вот люди остались на довольно примитивной стадии развития. Фильм расскажет историю дружбы динозавра и маленького мальчика.Производство: Pixar Animation Studios, Walt Disney PicturesЖанр: Приключения, фэнтези, комедия, приключения, семейныйРежиссер: Питер СонПерсонажи: Джеффри Райт, Фрэнсис МакДорманд, Малиа Нипай-Падилья, Райан Типл, Джек МакГроу, Маркус Скрибнер, Рэймонд Очоа, Джек Брайт, Питер Сон, Стив ЗанПеревод: Дублированный (Лицензия)Продолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB58C83979BBDFFE6FF516B2E7148C7A9961C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999415   (862275) от 23.03.2016
-
-Ледниковый Период: Погоня за яйцами / Ice Age: The Great Egg-Scapade (2016) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрэт, Мэнни, Сид, Диего и другие доисторические герои Ледникового Периода в совершенно новом уморительном анимационном приключении! Новый бизнес Сида по высиживанию яиц успешно развивается, но когда подлый кролик –пират Сквинт крадет яйца, Мэнни, Диего и остальные отправляются в бесстрашную спасательную операцию , которой суждено стать первой в истории погоней за (   Читать дальше...   )Производство: США, Blue Sky StudiosЖанр: Мультфильм, комедияРежиссер: Рикардо КертисАктеры: Блейк Андерсон, Лили Эстефан, Сет Грин, Габриэль Иглесиас, Дэнис Лири, Джон Легуизамо, Джош Пек, Куин Латифа, Рэй Романо, Шонн Уильям СкоттПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 00:24:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07456EB2BCCB5580680DE3BE40D43530A6DE106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108457   (862240) от 25.02.2017
-
-Жизнь кабачка / Ma vie de Courgette (2016) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862240.jpg" />
-</div>
-
-
-###  Подробнее
-
-У девятилетнего мальчика Икара весьма странное прозвище и трагическая судьба. Он жил с матерью, но их жизнь не отличалась яркими событиями. После внезапной смерти мамы Икар остается совсем один и замыкается в себе. По закону несовершеннолетнего направляют в детский дом, прислав за ним полицейского по имени Реймонд. Между мужчиной и мальчиком завязывается дружба, (   Читать дальше...   )Производство: Швейцария, Франция, Blue Spirit Animation, France 3 CinemaЖанр: Кукольный, Мультфильм, Семейный, ДрамаРежиссер: Клод БаррасПерсонажи: Полин Жаккуд, Мишель Вюйермоз, Бриджитт Россет, Моника БуддеПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:06:10Реклама: Присутствуют голосовые и текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E3146E5D0E6A7BF0D1113B3DFBAC940D4AAE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999416   (862187) от 23.03.2016
-
-Ледниковый Период: Погоня за яйцами / Ice Age: The Great Egg-Scapade (2016) WEB-DL [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрэт, Мэнни, Сид, Диего и другие доисторические герои Ледникового Периода в совершенно новом уморительном анимационном приключении! Новый бизнес Сида по высиживанию яиц успешно развивается, но когда подлый кролик –пират Сквинт крадет яйца, Мэнни, Диего и остальные отправляются в бесстрашную спасательную операцию , которой суждено стать первой в истории погоней за (   Читать дальше...   )Производство: США, Blue Sky StudiosЖанр: Мультфильм, комедияРежиссер: Рикардо КертисАктеры: Блейк Андерсон, Лили Эстефан, Сет Грин, Габриэль Иглесиас, Дэнис Лири, Джон Легуизамо, Джош Пек, Куин Латифа, Рэй Романо, Шонн Уильям СкоттПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 00:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634B8D2DB406B18118E75899FBFE66BB9FC64255
 ```
 
 https://mybot314.ru/tekegram_catalog/

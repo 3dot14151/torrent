@@ -1,3 +1,119 @@
+###  Публикация: 1081894   (281057) от 11.12.2016
+
+VA - Mountain Sound The Lounge Of Beaver Creek (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Susy Seven - Come With Me 7:00
+02. Sternenton - Lift Into The Sky 5:34
+03. Time Away - Mnemba Reef 5:54
+04. Lee & Sun - Underwater 3:44(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E422B8082EEF6A63AAABD717EBF1296F5E522FB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081964   (281056) от 11.12.2016
+
+VA - Underground People Christmas 2016 (50 Tracks For Your Winter Party) (2016) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phunk Investigation - Dna Extractor (Markus Schulz Big Room Reconstruction Edit) 04:15
+02. M. Fukuda - Wind Knights 07:14
+03. Andreew - Olympic 06:36
+04. Anti-Slam & W.E.A.P.O.N - The Original B-Boy (Phunk Investigation Remix) 08:14(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 06:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9F99ADC381D6851554A7856C1A0098C421E1F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081835   (281055) от 11.12.2016
+
+VA - Chillout Tonight: City Club Edition (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joop & Aurelio - Macaracas 5:03
+02. Zero Feedback - Rien ne va plus (Don Gorda Project Remix) 7:00
+03. Don Gorda Project - Rise to the Surface 5:36
+04. Enrico Donner - I Need a Love 6:11(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C7E96BAA66A301062D72B66BC8463F8485BBDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081966   (281052) от 11.12.2016
+
+VA - Mainstage Music Top 10 (2016) [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W&W - How Many 2:48
+02. TWIIG - Hero 3:00
+03. Maurice West - Dont You Say 3:10
+04. W&W with Hardwell & Lil Jon - Live The Night 2:13(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 00:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D9ADB4B4B0EF2A1C32D25C199B1F625821D3DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081953   (281040) от 11.12.2016
 
 VA - Vocal House Dance Music Experience 2016 Vol.01 (Mixed By Jora Mihail) (2016) [MP3|320 Kbps] <House, Vocal House, Progressive>
@@ -6,7 +122,7 @@ VA - Vocal House Dance Music Experience 2016 Vol.01 (Mixed By Jora Mihail) (2016
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281040.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Smoothly Winter Lounge 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281029.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Armada Music: Best Of (2016) [MP3|320 Kbps] <House, Trance, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280905.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Armada Deep Best Of (2015) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280792.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Pure Bliss Vocals: Best Of (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280785.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Hardwell - United We Are Remixed (Extended Mixes) (2015) [FLAC|Lossless|WEB-DL]<
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280782.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Trance Cloud II (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280775.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Masters Of Balance - The Album (2012) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280771.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Soulful Ibiza Sound (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280768.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Underground Festival Part. 3 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280764.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Mixmag Germany Presents Kittball (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280754.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Fluxsense - Ionosphere (2017) Uxmal Records [FLAC|Lossless|WEB-DL|tracks] <Psybi
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280611.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Opus III - Guru Mother (1994) [APE|Lossless]<Vocal House, Ambient, Electronica>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280522.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ VA - Liquid Drum and Bass Sessions 2019 Vol 1 & 2 (2019) Fokuz Recordings [FLAC|
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280512.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Ori Uplift - Uplifting Only 001 - 200 / Promo & Guest Mixes (2013 - 2016) [MP3 |
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279792.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ VA - Ibiza Lounge House: For DJs Only (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279570.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ VA - WeArmada 2019 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279524.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Doom Poets - Lost Connection (2018) Tech Itch Recordings [FLAC|Lossless|tracks+.
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279461.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ VA - Xmas Jazz Affair: Smooth Chill Out Winter Lounge Tunes (2016) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279293.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ VA - The Groove Lounge Vol.10 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279292.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ VA - Best of Christmas Deephouse (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279291.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ VA - Coffee House (Always Fresh And The Best) Vol.5 (2016) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279290.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ VA - Coffee House (Always Fresh And The Best) Vol.5 (2016) [MP3|320 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A7BFE34B9CDEAA1CE3999DE1B25E8F014F0A6FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082498   (279282) от 12.12.2016
-
-VA - Winterotica Lounge: Smooth Erotic Bedroom Chillout Desires (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sambu - Snowflakes On My Pillow 3:34
-02. Orbitell - Sundown Highway 5:09
-03. Raphael Van Sandern - Timeless in Space 6:14
-04. Chill 2 U - Nightwalker 4:54(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56023A7EBF719BEED0F342337A88CF8E746F7A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082159   (279198) от 12.12.2016
-
-VA - Y.S.E. In The Box Vol.9 (2016) [MP3|320 Kbps] <Trance, Goa Trance, Psychedelic>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Basic - Master System (Funk Truck Remix) 8:16
-02. Asarualim - La Vida 7:15
-03. Streamers - Creationist 9:23
-04. Dousk - Blender (Rigel Remix) 8:19(   Читать дальше...   )Жанр: Trance, Goa Trance, PsychedelicПродолжительность: 03:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C96AE13F5B75179CBCCF3B60B64D9C689E0C337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336724   (279167) от 07.11.2019
-
-VA - From Disko to Disko (Winter 2018 Compilation) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telussa & Tijssen - The Groove (5:59)
-02. Lophius Rec - Don't Wanna Be (Genaro Fernandez Remix) (6:50)
-03. Phonista - Dyadic (7:25)
-04. Denace 2 Society - Come On (6:22)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 01:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8247198AF9A5EE6D3B351F8F18E35F1B88BBCE78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336687   (279162) от 07.11.2019
-
-VA - Ultimate ADE (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azima - #Lifted (Kiyoi and Eky Remix)
-02. Kiyoi and Eky - Kumpala (Extended Mix)
-03. Shuhrat Iskanderov - Reconnect (Divaiz Remix)
-04. DNRJ - Revolution (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC2B7DBC7279F58BA8418E30A630695A9E7FC72
 ```
 
 https://mybot314.ru/tekegram_catalog/

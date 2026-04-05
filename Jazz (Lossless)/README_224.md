@@ -6,7 +6,7 @@ Kat Green - Until You (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291740.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Duke Ellington - Moonlight Fiesta (1936 - 1953) 3CD, 2011, Le Chant du Monde [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291730.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Waso - Live In Laren (1980) 1992, Polydor [FLAC|Lossless|tracks + .cue] <Gypsy, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291676.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Max Roach & Abdullah Ibrahim - Streams Of Consciousness 1977 (2003) Piadrum Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291675.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gene Ammons - Up Tight! (1961) 1994, Prestige [APE|Lossless|image + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291591.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ralph Sharon Trio - The Magic Of George Gershwin (2000) Avid Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291585.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Casiopea - Platinum (1987) 2017, Universal [FLAC|Lossless|image + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291582.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Casiopea - Euphony (1988) 2017, Universal [FLAC|Lossless|image + .cue] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291576.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mark Murphy - Links (2001) HighNote[FLAC|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291491.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Zoot Sims & Al Cohn - Zoot Case (1982) 1991, Sonet Records[FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290447.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ John Coltrane - A Love Supreme. In Concert (1961, 1965) 1991, Suisa[APE|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290417.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Thelonious Monk - Criss-Cross (1963) 1993, Columbia[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290416.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ray Charles & Betty Carter - Just You Just Me (1991) Traditional Line[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290341.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Eubie Blake - Memories Of You (1973) 2003, Shout! Factory [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290116.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Chico Freeman - The Emissary (1996) Clarity Recordings [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290115.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Eric Gale - Part Of You (1979) 2017, Sony Music [FLAC|Lossless|image + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290114.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ronnie Scott's Jazz Quintet - Never Pat A Burning Dog (1991) Ronnie Scott's Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290113.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Yusef Lateef - At Cranbrook And Elsewhere (1958) 2009, El Records [WavPack|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289952.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nat King Cole - Greatest Love Songs (1987) [FLAC|Lossless|tracks + .cue] <Ballad
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289928.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Simone Kopmajer - Spotlight On Jazz (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289921.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ely Bruna - Remember The Time (2010) Irma Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289911.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sweetbottom - Live The Reunion - (Urban Island Music) (2003) [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289889.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ June Christy - Cocktail Hour 1950-e - 1960-e (2001) 2CD, Allegro [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289882.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Plastic Waste Band - Crushed (2019) [FLAC|Lossless|tracks + .cue] <Fusion / 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289877.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Victor Feldman - Suite Sixteen (1955) [APE|Lossless|image + .cue] <Cool, West Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288602.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Wynton Marsalis Septet - Blue Interlude (1992) Columbia[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288596.jpg" />
 </div>
 
 

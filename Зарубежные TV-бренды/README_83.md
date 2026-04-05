@@ -6,7 +6,7 @@ NG: Голливудская наука. Чудо машины / Hollywood Scien
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448481.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448476.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NGW: Национальные парки Америки / America's National Par
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448320.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ BBC: Каковы размеры Вселенной? / How Big is the Universe? 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448199.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Discovery: Америка: факты и домыслы / America: Facts vs. Fic
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447119.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC. Самые опасные дороги мира / World's Most Dangerous Ro
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446937.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC: Двадцатка самых опасных наркотиков /BBC: The
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446832.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Discovery: Ангелы и демоны. Факты или домыслы? / Ang
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446641.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ History Channel. Между молотом и наковальней / Forged in
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446073.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445984.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery: Разрушители легенд. Спецвыпуск: Коман
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444918.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Discovery: Разрушители легенд. В поисках утрачен
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444748.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG. Тайная семерка Африки / Africa's Secret Seven (2003) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444658.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Discovery: Разрушители легенд. Трансформеры / MythB
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444601.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444600.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444486.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443989.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NGW: Вся правда о крокодилах / The whole truth about crocodi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443578.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NG. Зеленоглазый леопард / Jade Eyed Leopard (2020) WEB-DL [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442721.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NGW: Грозовые кошки / Storm Cats (2016) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442251.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NGW: Охота ягуара на побережье / Jaguar Beach Battle (2018
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442248.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ BBC: Ада Лавлейс: первая леди программировани
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441597.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ NGW: Матриархат / Girl Power (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441303.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441168.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440142.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NG: Возвращение на Титаник / Back to the Titanic (2020) WEB-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439983.jpg" />
 </div>
 
 

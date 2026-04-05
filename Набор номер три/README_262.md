@@ -1,3 +1,168 @@
+###  Публикация: 1132859   (696338) от 11.05.2017
+
+Фантастическая любовь и где ее найти / This Beautiful Fantastic (2016) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаете ли вы, что все события, происходящие в нашем мире, даже самые незначительные, взаимосвязаны самым удивительным образом?
+Как полет бабочки может вызвать где-то мощный ураган, так и странные поступки тихой и одинокой девушки, живущей в мире своих фантазий, могут навсегда изменить жизнь совершенно разных людей, подарив им счастье и раскрасив окружающий мир яркими, (   Читать дальше...   )Производство: Великобритания, СШАЖанр: Фэнтези, Драма, Мелодрама, КомедияРежиссер: Саймон ЭбаудАктеры: Джессика Браун-Финдлэй, Джереми Ирвин, Эндрю Скотт, Том Уилкинсон, Анна Чэнселлор, Шила Хэнкок, Эйлин Дейвис, Шарлотта Эспри, Пол Блэкуэлл, Тиа ШентонПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957267707B29FD1235A23F7F94B66C2C2861AE6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 673701   (696251) от 28.06.2013
+
+Cryostasis: Sleep of Reason / Анабиоз: Сон Разума (2008) [Ru/En] (1.0.2.608) RePack R.G. Механики
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анабиоз: Сон Разума
+Мертвый холод, тьма одиночества и забвения — в замкнутом пространстве погибшего корабля остановилось время и замерло все, что некогда было живым и разумным. Блуждая в огромном лабиринте трюмов и отсеков, наводненных страхом и отчаянием, герою предстоит узнать драматическую историю капитана и его команды и, преодолевая соблазн погрузиться в летаргию (   Читать дальше...   )Тип издания: RePackРазработчик: Action FormsЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13160FFC397BC8F230ECDDCECE70AFF3E93050B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535565   (696250) от 28.06.2013
+
+[Программа] (Android 2.3.3+) jetAudio Plus 3.2.0 - Музыкальный плеер /обновлено 28.06.13/
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696250.jpg" />
+</div>
+
+
+###  Подробнее
+
+jetAudio это музыкальный плеер с поддержкой BBE/BBE ViVA/Wide/Reverb/X-Bass и 10 полосным эквалайзером
+jetAudio для Windows это наилучший и больше всего загружаемый плеер (по версии CNET.COM) и, вы теперь можете слушать звук очень высокого качества на вашем Андроиде.
+Плеер воспроизведет все ваши файлы (.wav, .mp3, .ogg, .flac, .m4a, .mpc, .tta, .wv, .ape, .mod, .spx и др.) в наилучшем качестве с разнообразными эффектами и улучшалками такие BBE, BBE ViVA, Wide, Reverb, X-Bass.
+В плеере 32 настройки эквалайзера, (   Читать дальше...   )Разработчик: Team JetЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 146909   (696145) от 19.06.2010
+
+[JAP] Дрейфующее интернет-кафе / Hyoryu Net Cafe (2009) DVDRip (9 из 11) [RU sub]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный, ничем не примечательный день, заканчивается грозой и ливнем, метро не работает и Токи Коичи приходится заночевать в интернет-кафе. В тот день, из-за грозы, многим пришлось заночевать в этом кафе, в том числе и бывшей однокласснице Токи - Тоно, к которой Токи не равнодушен.
+На утро, когда все вышли из кафе, в надежде пойти по своим обычным делам, они обнаружили, что находятся в лесу, метро и такси там конечно нет, еды тоже. Что с ними случилось? Куда все подевались (или это они куда-то перенеслись)? И что теперь делать? А кто этот подозрительный парень, и вот тот как-то странно себя ведёт...Жанр: Мистика, драмаАктеры: # Ito Atsushi - Токи Коичи
+# KIKI - Кахо Тоно
+# Asami Reina
+# Takahashi MaiФормат: MP4Продолжительность: 11 эпизодов по 46 минут
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971301   (695778) от 19.06.2016
+
+Окей, Блокнотик v1.9.2 [Ru] - быстрые напоминания голосом
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окей, Блокнотик - это быстрые напоминания голосом. Например, скажите: «Заплатить за интернет 20 числа, повторяй каждый месяц», чтобы программа напоминала ежемесячно оплачивать интернет. С приложением "Окей, блокнотик" достаточно сказать, что и когда нужно сделать в привычной для вас форме. Блокнотик всё поймёт и напомнит о важном деле. Больше не нужно никаких (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 16.06.2016Разработчик: Dmitriy V. LozenkoПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF601208FD6021C855E21C708F69074965051FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027433   (695777) от 19.06.2016
+
+Red Giant Magic Bullet Suite 12.1.5 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет плагинов, состоящий из семи мощных инструментов финальной редакторской обработки, используемых для профессиональной цветокоррекции, освещения, улучшения и производства фильмов в After Effects, Premiere Pro, Avid и Sony Vegas Pro. В пакет включены следующие плагины: Magic Bullet Looks 3, Magic Bullet Colorista III, Magic Bullet Film, Magic Bullet Mojo 2, Magic (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB61BC178BB18F5969D966B210BFD787BDC330D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027334   (695775) от 19.06.2016
 
 Garmin: Дороги России Топо 6.22-R2 (FID 3332 + FID 4594) [Ru]
@@ -6,7 +171,7 @@ Garmin: Дороги России Топо 6.22-R2 (FID 3332 + FID 4594) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695775.jpg" />
 </div>
 
 
@@ -33,7 +198,7 @@ Windows 10 (x86/x64) +/- Office 2016 20in1 by SmokieBlahBlah 18.06.16 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_695774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_695774.jpg" />
 </div>
 
 
@@ -62,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_695554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_695554.jpg" />
 </div>
 
 
@@ -88,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695509.jpg" />
 </div>
 
 
@@ -114,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_695423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_695423.jpg" />
 </div>
 
 
@@ -140,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695421.jpg" />
 </div>
 
 
@@ -166,7 +331,7 @@ StarCraft: Brood War (1998) [Ru/Multi] (1.16.1/3.2.0.10/dlc) Repack R.G. Catalys
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695419.jpg" />
 </div>
 
 
@@ -192,7 +357,7 @@ Skype 7.41.32.101 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695348.jpg" />
 </div>
 
 
@@ -218,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_695341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_695341.jpg" />
 </div>
 
 
@@ -244,7 +409,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/En] (1.5.62.0.8) Repack R.G. Механи
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695334.jpg" />
 </div>
 
 
@@ -270,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695059.jpg" />
 </div>
 
 
@@ -296,7 +461,7 @@ WinBoot-загрузчики Windows 7 и 8.1 (в одном ISO) v15.05.08 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695055.jpg" />
 </div>
 
 
@@ -323,7 +488,7 @@ SolidWorks Premium Edition 2015 SP3 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695053.jpg" />
 </div>
 
 
@@ -349,7 +514,7 @@ Autodesk 3ds Max 2016 (x64) [Multi]
 >>18
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695052.jpg" />
 </div>
 
 
@@ -376,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_694666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_694666.jpg" />
 </div>
 
 
@@ -402,7 +567,7 @@ Corona Renderer 1.7.4 for 3ds Max 2012-2019 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694647.jpg" />
 </div>
 
 
@@ -428,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_694605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_694605.jpg" />
 </div>
 
 
@@ -454,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_694604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_694604.jpg" />
 </div>
 
 
@@ -481,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694601.jpg" />
 </div>
 
 
@@ -507,7 +672,7 @@ NieR: Automata (2017) [Multi] (1.0.1787043/dlc) Repack R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694599.jpg" />
 </div>
 
 
@@ -518,163 +683,6 @@ Nier: Automata (NieR new project) — это сиквел NIER, действие
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AFCA454933831706DAE15539017A96BB58AD50E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672734   (694382) от 29.06.2013
-
-За отказ удалять пиратский контент предложили ввести миллионные штрафы
-
->>3
->>15
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чего ждать Рунету от закона о защите авторских правДепутаты Станислав Говорухин и Станислав Левин внесли 25 июня в Госдуму законопроект о штрафах за отказ удалять пиратский контент. Документ опубликован на сайте нижней палаты парламента.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674079   (694378) от 29.06.2013
-
-Падение Олимпа / Olympus Has Fallen (2013) HDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда на Белый Дом нападают террористы, а президента берут в заложники, дискредитированный бывший охранник главы государства Майк Бэннинг оказывается внутри захваченного здания. И теперь он единственный, кто сможет спасти президента…Производство: США / Millennium Films, West Coast Film Partners, Nu-Image FilmsЖанр: Триллер, БоевикРежиссер: Антуан ФукуаАктеры: Джерард Батлер, Аарон Экхарт, Морган Фриман, Эшли Джадд, Мелисса Лео, Финли Якобсен, Дилан МакДермотт, Рик Юн, Анджела Бассетт, Рада МитчеллПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECA8A0DB884B81C3068826D33AA25A44DFA427F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027743   (693884) от 20.06.2016
-
-Anvir Task Manager 8.1.2 DC 18.06.2016 Final RePack (& Portable) by KpoJIuK [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693884.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnVir Task Manager предоставляет подробную информацию о работе системы и, в то же время, предоставляет большое количество инструментов для управления Windows. Для того, чтобы заменить все функции AnVir Task Manager, придется установить около 10 разных программ.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E25FC59D1344C92F03E47E3D3188D51E5E0122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027763   (693878) от 20.06.2016
-
-Набор обновлений UpdatePack7R2 16.6.20 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E401D6DFE1A33A8D5B87D1068877DEC2155A44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027736   (693872) от 20.06.2016
-
-Call of Duty: Black Ops 2 (2012) [Ru] (1.0.0.1/upd3/MP+SP+tr) Repack =nemos=
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие второго эпизода Black Ops, посвященного секретным операциям вооруженного до зубов спецназа, развернется в 2025 году. Развитие технологий не сказалось на здравом смысле, а слоган «мир во всем мире» так и остался недостижимой мечтой. Ведущие страны погрязли в новой холодной войне, и отыскать выход из сложившегося тупика способны лишь элитные бойцы особого (   Читать дальше...   )Тип издания: RepackРазработчик: TreyarchЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95100024B7B0E56595967105D02FCCE66D738F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016168   (693871) от 20.06.2016
-
-Гoморра / Gomorra (2016) HDRip [H.264/720p-LQ] (сезон 2, серии 1-12 из 12) SunshineStudio
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драматический сериала «Гоморра» снят по мотивам одноименного произведения итальянского писателя и журналиста Роберто Савино. Опубликованный в 2006 году роман стал настоящим бестселлером, и это не удивительно, ведь из-за него автор и по сей день находиться в смертельной опасности, так как влиятельная преступная организация «Каморра» была очень возмущена книгой, и (   Читать дальше...   )Производство: Италия, ГерманияЖанр: Боевик, Драма, КриминалРежиссер: Стефано Соллима, Клаудио Капеллини, Франческа КоменчиниАктеры: Сальваторе Эспозито, Марко Д’Амор, Фортунато Серлино, Мария Пиа Кальцоне, Доменико Бальзамо, Кармине Монако, Алессио Галло и другиеПеревод: Двуголосый закадровый, любительский - SunshineStudioПродолжительность: ~00:56:00 серияРеклама: присутствуют аудио, видео вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE10F23CEF849962E19BF9CDD9FA3077F8DE7946
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1112738   (838072) от 11.03.2017
-
-В. П. Шишков (ред.) | Ветеринария. Большой энциклопедический словарь (1998) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемый читателю Словарь - популярное научно - справочное издание, выпущенное при участии большого авторского коллектива ведущих специалистов по ветеринарии. В 4000 статьях содержатся разносторонние сведения по основным вопросам теории и практики ветеринарии, представляющие домашних животных, охотников и т. д. Особое внимание в книге уделено описанию болезней (   Читать дальше...   )Жанр: уход за животнымиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C89DD21F3269D11E6DEADDE9CB68903BC3C97E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003915   (837737) от 06.04.2016
 
 Татьяна Никитина | Толковый словарь молодежного сленга. Слова, непонятные взрослым. Около 2000 слов (2003) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837737.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831388.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826756.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826638.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813776.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809534.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804227.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803522.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800062.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797920.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794501.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794447.jpg" />
 </div>
 
 
@@ -352,7 +326,7 @@ Kopenhagen Wilfried, Neustadt Rolf | Das Grosse Flugzeugtypenbuch (1982) [DJVU] 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794392.jpg" />
 </div>
 
 
@@ -379,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793380.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792960.jpg" />
 </div>
 
 
@@ -431,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788550.jpg" />
 </div>
 
 
@@ -459,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787986.jpg" />
 </div>
 
 
@@ -485,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784295.jpg" />
 </div>
 
 
@@ -511,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783164.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782391.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782047.jpg" />
 </div>
 
 
@@ -592,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778815.jpg" />
 </div>
 
 
@@ -620,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778254.jpg" />
 </div>
 
 
@@ -646,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765712.jpg" />
 </div>
 
 
@@ -672,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747566.jpg" />
 </div>
 
 
@@ -683,6 +657,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFBCC96EC607CC847154CC50D5EE836AD8A2CD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019989   (746350) от 25.05.2016
+
+В. А. Лысенко | Современный англо-русский морской технический словарь (2004) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый вниманию специалистов «Современный англо-русский морской технический словарь» - результат 35-летнего опыта практической работы автора в составе экипажей судов. Данное издание не имеет аналогов в СНГ по широте освещения всех сторон работы судового специалиста: от специальных технических вопросов до решения правовых конфликтов по оплате труда в международных (   Читать дальше...   )Жанр: Словари, морское делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD708E1D8D1D0DA3EA62D21C7EA772DA41B8686
 ```
 
 https://mybot314.ru/tekegram_catalog/

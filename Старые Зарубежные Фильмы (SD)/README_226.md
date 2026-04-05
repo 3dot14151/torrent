@@ -1,3 +1,133 @@
+###  Публикация: 1761465   (36680) от 20.11.2024
+
+Мистер Аркадин / Mr. Arkadin (1955) BDRip [H.264] [DVO] [Полная версия]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грегори Аркадин - фигура тёмная, архикапиталист, чьё могущество и богатство окутано тайной. У него есть замок в Испании и дочь. Красивая, полная жизни, оберегаемая, как дочь султана. Аркадин страдает амнезией и нанимает мелкого американского контрабандиста, чтобы тот раскопал его прошлое. Его скрытая цель - найти и стереть с лица земли старых гнусных компаньонов, (   Читать дальше...   )Производство: Франция, Испания, Швейцария / Filmorsa, Cervantes Films, Sevilla FilmsЖанр: нуар, драма, криминал, детектив, триллерРежиссер: Орсон УэллсАктеры: Орсон Уэллс, Грегуар Аслан, Аким Тамирофф, Патриша Медина (I), Джек Уотлинг, Мануэль Рекена, Миша Ауэр, Петер ван Эйк, Майкл Редгрейв, Сюзанн Флон, Фредерик О'Брэди, Катина Паксино, Тамара Шэйн, Паола Мори, Роберт АрденПеревод: профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1FE29A4321116C4F4F9DDF243A543A9149BDB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761510   (36673) от 20.11.2024
+
+Любой ценой / Ad ogni costo (1967) DVDRip [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ушедший на пенсию университетский профессор, долгие годы мечтавший ограбить бриллиантовую компанию в Бразилии, при помощи своего давнего друга, ныне криминального босса, собирает команду взломщиков. Под руководством бывшего военного они выезжают в Рио.Производство: Италия, Испания, Германия (ФРГ) / Constantin Film, Coral P.C., Jolly FilmЖанр: криминалРежиссер: Джулиано МонтальдоАктеры: Джанет Ли, Роберт Хоффманн, Клаус Кински, Риккардо Куччолла, Жорж Риго, Адольфо Чели, Эдвард Г. Робинсон, Жуссара Мигель дель Кастильо, Лучана АнджолиллоПеревод: Двуголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C728B73535DBF4FFA5639ABD35D3BE2A00D139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761634   (36611) от 21.11.2024
+
+Грех любви / Pecado de amor (1961) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монахиня Магда Бельтран вспоминает о причинах своего ухода в монастырь. Она была певицей, выступала в ночных клубах и имела огромный успех, благодаря своей красоте и голосу. Пытаясь избавиться от своего молодого любовника Анхеля, она случайно знакомится с его отцом, влиятельным адвокатом и общественным деятелем Адольфо Вега Линаресом, который, в свою очередь, хочет (   Читать дальше...   )Производство: Испания, Италия / Cesáreo González Producciones Cinematográficas, Producciones Benito Perojo S.A., Transmonde FilmЖанр: драма, музыкаРежиссер: Луис Сесар АмадориАктеры: Сара Монтьель, Реджинальд Кернан, Рафаэль Алонсо, Жерар Тиши, Теренс Хилл, Алессандра Панаро, Ана Мария Кустодио, Ана Мария Ноэ, Клелия МатанияПеревод: любительский одноголосыйЯзык озвучки: русский, испанскийСубтитры: русские (на песни, Grampy; Пестриков), английскиеПродолжительность: 01:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0A1BB28FD4E18837FEEF653E19350A0C0E7B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761637   (36590) от 21.11.2024
+
+Во дворе / On the Yard (1978) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказавшись в тюрьме штата, мошенник Джулсон не может приспособиться к сложному социальному порядку тюремной системы. Независимый образ мыслей Джулсона мало впечатляет его сокамерников и приводит к конфликту с Чилли, лидером одной из самых могущественных банд в тюрьме. Столкнувшись в одиночку с группой хладнокровных убийц, Джулсон на собственном опыте узнает, чем (   Читать дальше...   )Производство: США / Midwest FilmsЖанр: дарамРежиссер: Рафаэль Д. СильверАктеры: Джон Хёрд, Томас Дж. Уэйтс, Майк Келлин, Ричард Брайт, Джо Грифази, Лейн Смит, Ричард Хэйес, Гектор Трой, Ричард Джемисон, Томас ТонерПеревод: Авторский (Алексей Багичев)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F610F22D56CF284252241EF8680A54E0BB4A9128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761827   (36450) от 22.11.2024
+
+Глаза без лица / Les yeux sans visage / Eyes without a Face (1960) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по одноимённому роману Жана Редона... Полиция находит труп в реке и приглашает доктора Женессье, у которого недавно пропала дочь Кристиан, на опознание. Убитый горем отец организует похороны, но на самом деле, девушка жива, а Женессье вот уже несколько месяцев пытается восстановить её изуродованное лицо. Его помощница Луиза заманивает в поместье девушек, которым (   Читать дальше...   )Производство: Франция, Италия / Champs-Élysées Productions, Lux Film S.p.a.Жанр: ужасы, драмаРежиссер: Жорж ФранжюАктеры: Пьер Брассёр, Алида Валли, Жюльет Майниель, Эдит Скоб, Франсуа Герин, Александр Риньо, Беатрис Альтариба, Шарль Блаветт, Клод Брассёр, Мишель ЭчеверриПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD792A46CB5EBC6DE6E63D171B32A9F10AA14A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762047   (36361) от 23.11.2024
 
 Связанные насмерть / Dead Ringers (1988) BDRip [H.264] [MVO]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36361.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36346.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36156.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35960.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35959.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35648.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35636.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35616.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35316.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35314.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35261.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35107.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34903.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34792.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34592.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34487.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34437.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34323.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33994.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33955.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33863.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62011BE464EFAF11108543750C2CCE996056634F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766272   (33859) от 17.12.2024
-
-Болотная тварь / Swamp Thing (1982) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческий фильм ужасов по мотивам одноимённого персонажа комиксов DC, созданного Леном Вейном и Берни Райтсоном... Ученый превращается в ходячий овощ и прячется в болоте, где сражается с разными злодеями и иссыхает от тоски по своей любимой девушке...Производство: США / SwampfilmsЖанр: ужасы, фэнтезиРежиссер: Уэс КрэйвенАктеры: Луис Джордан, Эдриенн Барбо, Рэй Уайз, Дэвид Хесс, Николас Уорт, Дон Найт, Эл Рубан, Дик Дурок, Бен Бейтс, Наннетт БраунПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 01:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B29E10509B75D8FC0F6F6185CF6AA31717CA3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766467   (33766) от 18.12.2024
-
-Иона или Последний день Помпеи / Jone ovvero gli ultimi giorni di Pompei (1913) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время извержения Везувия в 79 г. до н.э. стихия поглотила город, унесла жизни одних людей, других же пощадила по своей прихоти. И в эпицентре трагических событий оказывается влюбленная пара - юноша Главк  и красавица-гречанка Иона. Очень драматическая история, наверное поэтому этот сюжет черезвычайно популярен в кинематографе. Первый фильм об этой истории снят (   Читать дальше...   )Производство: Италия / Pasquali e C.,  Vay e HubertЖанр: драма, немое киноРежиссер: Убальдо Мария Дель Колле, Giovanni Enrico VidaliАктеры: Кристина Располи, Луиджи Меле, Giovanni Enrico Vidali, Suzanne De Labroy, Giovanni Ciusa, Michele Ciusa, Giuseppe Majone Diaz, Ines MelidoniПеревод: немой с интертитрами (CHAYKA2 (Феникс))Субтитры: итальянские (интертитры), русские (отдельным файлом)Продолжительность: 01:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DBD458276B0F88ECE5B1CA7433D165FBABE657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766570   (33657) от 19.12.2024
-
-Дом Ашеров / Падение дома Ашеров / The Fall of the House of Usher (1960) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вольная интерпретация одноимённого рассказа Эдгара Аллана По... Мистер Винтроу приезжает из Бостона в сумрачное поместье, где на холме расположился мрачный дом Ашеров. Открывшееся ему зрелище поражает — сама усадьба и однообразные окрестности мрачны и ничем не радуют глаз. Винтроу хочет забрать с собой Мэдлин, сестру владельца поместья, с которой он помолвлен уже (   Читать дальше...   )Производство: США / Alta Vista ProductionsЖанр: ужасы, драмаРежиссер: Роджер КорманАктеры: Винсент Прайс, Марк Дэймон, Мирна Фэйхи, Гарри Эллерб, Дэвид Эндар, Билл Борзаж, Майк Джордан, Элеанор ЛеФэбер, Рут ОкландерПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (Беллена), английскиеПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9124B6AE783540B70EAEDDE767230F9E939E4C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766406   (33656) от 19.12.2024
-
-Подменыш / Подкидыш / The Changeling (1980) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Композитор и профессор музыки Джон Рассел при трагических обстоятельствах потерял жену и дочь. В поисках утешения он переезжает в старое поместье, в котором на протяжении многих лет никто не жил. Однако у Джона складывается впечатление, что в доме кто-то есть, и этот кто-то — ребёнок, пытающийся посвятить его в некую тайну...Производство: Канада / Chessman Park ProductionsЖанр: ужасы, детективРежиссер: Питер МедакАктеры: Джордж К. Скотт, Триш Ван Девере, Мелвин Дуглас, Джин Марш, Джон Коликос, Бэрри Морс, Мадлен Шервуд, Хелен Бёрнс, Фрэнсис ХайландПеревод: профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD77E37C4C5BFFFD340F924EE3BE2AD712E38BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767056   (33442) от 21.12.2024
-
-Я стеснительный, но я лечусь / Je suis timide... mais je me soigne (1978) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жил во Франции очень застенчивый человек, который никак не мог познакомиться с девушкой, которая ему нравилась. Он решил вылечиться от своей застенчивости и обратился к психиатру-шарлатану, который сначала только выкачивал из нашего героя деньги, но позже решил всерьёз помочь влюблённому. Трудность заключалась в том, что девушка выиграла в одном конкурсе поездку (   Читать дальше...   )Производство: Франция / Albina Productions S.a.r.l., Fideline FilmsЖанр: комедияРежиссер: Пьер РишарАктеры: Пьер Ришар, Альдо Маччоне, Жак Франсуа, Мими Кутелье, Катрин Лашанс, Робер Дальбан, Жан-Клод Массулье, Жак Фаббри, Робер Кастель, Рауль ДэлфозПеревод: профессиональный многоголосый (Фильмэкспорт), профессиональный двухголосый (ОРТ Видео), любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, французскиеПродолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA6432731F825333E3E9BD99DD4BEAD2AEC67E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

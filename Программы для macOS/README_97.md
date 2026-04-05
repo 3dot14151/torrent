@@ -1,3 +1,56 @@
+###  Публикация: 1412673   (415390) от 30.09.2020
+
+iZotope - RX 8 Audio Editor Advanced STANDALONE, VST, VST3, AAX 8.1.0.544 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415390.jpg" />
+</div>
+
+
+###  Подробнее
+
+RX уже давно является популярным пакетом для ремонта и полировки звука для фильмов, телевидения, музыки, подкастов, видеоигр, библиотек сэмплов и многого другого. В RX 8 мы создали новые инструменты и улучшили любимые модули, чтобы помочь вам достичь большего за меньшее время, чем когда-либо.
+В версии 8 мы добавили новые функции в линейку продуктов, чтобы ускорить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2020Разработчик: iZotope, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA144B0C652B7D73D12841903AE0B025D886920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167560   (415095) от 21.09.2017
+
+Notefile 2.7.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notefile позволяет быстро делать заметки и синхронизировать их со всеми вашими устройствами. Он доступен как приложение для Mac и универсальное приложение для iOS для iPhone, iPad и iPod touch. Ваши заметки автоматически синхронизируются с iCloud или нашей собственной Junecloud Sync. Если вы используете синхронизацию Junecloud, вы также можете просматривать и редактировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2017Разработчик: Junecloud LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Французский, Немецкий и др;
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19196935910C8C436807C354E52A22D4DE12B4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573220   (415055) от 30.08.2022
 
 FiveNotes 2.3 [En]
@@ -6,7 +59,7 @@ FiveNotes 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415055.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ QuickLinks 2.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414915.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Dark Mode Switch 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414911.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ TextMan 1.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414782.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Wake on Lan for Mac 1.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414780.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ One Switch 1.26.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414757.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Flowstate 1.33 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414753.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ Wondershare DVD Creator 6.1.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414654.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ Cool Menu 1.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414644.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ Chaos Control Premium 1.16 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414642.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Boring Old Menu Bar 1.23 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414634.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ SmartSound SonicFire Pro 6 v.6.6.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414624.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ GoodTimes 1.3.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414467.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ KeyKey — Typing Practice 2.9.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414422.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ OS X Server 3.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413955.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ Apple Aperture 3.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413947.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ Canvas Draw 5 v5.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413194.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ FX Photo Studio CK (Pro) 3.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413162.jpg" />
 </div>
 
 
@@ -490,7 +543,7 @@ JetBrains PhpStorm 2020.2.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413149.jpg" />
 </div>
 
 
@@ -518,7 +571,7 @@ Templates Lab for MS Office 3.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413019.jpg" />
 </div>
 
 
@@ -546,7 +599,7 @@ DayRate - Currency Converter 5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412662.jpg" />
 </div>
 
 
@@ -572,7 +625,7 @@ AnyTrans v6.0.1 (20170920)
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412598.jpg" />
 </div>
 
 
@@ -599,7 +652,7 @@ Animated Wallpapers 1.0.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412528.jpg" />
 </div>
 
 
@@ -625,7 +678,7 @@ Cisdem Data Recovery 13.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412385.jpg" />
 </div>
 
 
@@ -636,63 +689,6 @@ Cisdem DataRecovery может помочь вам восстановить це
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F916833F34F1AC7640B203C3A66C78CAC56A03F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066563   (412248) от 26.10.2016
-
-Photo Batcher 1.2.4 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Batcher - программа для пакетной обработки цифровых фотографий и изображений. Позволяет конвертировать, вращать изображения, изменять их размер, корректировать цвета, накладывать спецэффекты и водяные знаки.
-
-Поддерживает форматы JPEG, JPEG2000, PNG, TIFF, TGA, GIF, BMP, PICT, PSD, PDF и др.Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: osxbytesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, голландский, французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076792FE33FA138A025EB177577B5B34B9C35C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066600   (412242) от 26.10.2016
-
-SQLPro for MSSQL - Management studio for SQLServer 1.113 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412242.jpg" />
-</div>
-
-
-###  Подробнее
-
-SQLPro для MSSQL -  управление базами данных для Microsoft SQL Server
-SQL Client представляет собой легкий клиент базы данных Microsoft SQL Server, что позволяет получить быстрый и простой доступ к MSSQL серверам, в том числе через облачные сервисы, такие как SQL Azure или Amazon RDS.
-
-Особенности включают в себя:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2016Разработчик: Hankinsoft Development, IncПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B733466FF39A6F7F8D328D5913E7124FD1A89C
 ```
 
 https://mybot314.ru/tekegram_catalog/

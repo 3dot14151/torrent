@@ -1,3 +1,32 @@
+###  Публикация: 1615691   (1037291) от 27.02.2023
+
+Mist Of Misery - Studio Albums (6 releases) (2013 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mist Of Misery - шведская симфоник-блэк-метал группа из Стокгольма, образованная в 2010 году Саймоном Шёландером и Андреасом Мортуцем Бернинге.2013 - Temple of Stilled Voices (EP)
+2016 - Absence
+2017 - Fields of Isolation (EP)
+2017 - Shackles Of Life (EP)Жанр: Symphonic Black MetalПродолжительность: 04:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71D38FAF446F5C82C1CA9DCCF90A8F7B38A8E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441372   (1037096) от 23.01.2021
 
 Mark Knopfler - Down The Road Wherever (2018) 2LP [DSD128 2.0|5,6MHz/1bit|tracks|Vinyl-Rip] <Rock>
@@ -6,7 +35,7 @@ Mark Knopfler - Down The Road Wherever (2018) 2LP [DSD128 2.0|5,6MHz/1bit|tracks
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037096.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dolly Roll - Dolly Roll/Happy Coctail (1985) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037002.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Verve - Studio Albums (4 releases) (1993-2008) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036974.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036917.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Алексей Мажуков – Песни Любви (1983) [FLAC 2.0|19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036717.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Dimmu Borgir - Studio Albums (13 releases) (1994-2022) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036682.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ KYPCK - Studio Albums (4 releases) (2008-2016) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034398.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034132.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ VA - Italian Pop Music (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034040.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Wisdom - Studio Albums (5 releases) (2004-2016) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033680.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ VA - I Can't Complain But Sometimes I Do EP (2021) Regelbau [FLAC 2.0|44.1/24|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032997.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ MaYaN - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032970.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Donny Osmond - Донни Осмонд (1976) Лицензия фирмы Polydo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031642.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030764.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Sheavy - Studio Albums (9 releases) (1996-2013) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030295.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Grant Miller - Greatest Hits & Remixes (2016) [FLAC 2.0|192/24|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029090.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Ryszard ''Skiba'' Skibinski - 1951-1983 (1984) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028846.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Tango - Electric Ball (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, New 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028743.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Manowar - 11 альбомов (1982-2012) (FLAC 2.0|96,192/24|FLAC|VinylRip] <He
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025347.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021778.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021712.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021607.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021538.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020248.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020216.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ A3 Contrapunctus 3 (No. 3)(   Читать дальше...   )Жанр: Classica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E03C8D4C8E31BD6103BB2013F47BB16FDB38C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463658   (1019903) от 21.04.2021
-
-Кино - 45 (2021) Reissue 1982, AnTrop [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <New Wave, Post-Punk, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальная Версия
-01. Время есть, а денег нет (4:12)
-02. Алюминиевые огурцы (3:10)
-03. Бездельник №1 (3:15)(   Читать дальше...   )Жанр: New Wave, Post-Punk, AcousticПродолжительность: 01:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C75194C4C43E1B67A1ECEC93AA87BFF5D0407E
 ```
 
 https://mybot314.ru/tekegram_catalog/

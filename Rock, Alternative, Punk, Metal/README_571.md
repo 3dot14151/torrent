@@ -1,3 +1,61 @@
+###  Публикация: 933132   (506259) от 01.09.2015
+
+Carousel - 2113 (2015) [OGG| 438-478 кб/с]<70's Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble
+02. Photograph
+03. Buried Alive in Your Arms
+04. Jim’s Song(   Читать дальше...   )Жанр: 70's Hard RockПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280CBC9C5C2C7BE2241D8405791147A549DDAF86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933217   (506255) от 01.09.2015
+
+The Rubens - Hoops (2015) [OGG| 477-516 кб/с]<Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallelujah
+02. The Night Is On My Side
+03. Hoops
+04. Switchblade(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460A34FAD2F517ABD3E1CB49C1F4D7531690B913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933037   (506248) от 01.09.2015
 
 Pentagram - Curious Volume (2015) [OGG| 486-535 кб/с]<Doom Metal, Hard Rock, Heavy Metal>
@@ -6,7 +64,7 @@ Pentagram - Curious Volume (2015) [OGG| 486-535 кб/с]<Doom Metal, Hard Rock, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506248.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Molotov - Con Todo Respeto (2004) [MP3|320 Kbps] <Alternative Rock, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506225.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Soulipsist - Гештальт терапия. Сеанс 1 (2022) [MP3|320 Kbps]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506224.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Blue Goose - Blue Goose (1975) Japanese Edition, 2004, Air Mail Archive [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506223.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506222.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ E.S.T. - Russian Vodka (Demo) (1988) Mini-Album, 2022, Limited Edition [MP3|320 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506219.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506198.jpg" />
 </div>
 
 
@@ -212,7 +270,7 @@ Praying Mantis - Legacy (2015) [OGG| 489-523 кб/с]<Melodic Heavy Metal, Hard 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506176.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ Fear Factory - Genexus (2015) [FLAC|image+.cue]<Industrial Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506175.jpg" />
 </div>
 
 
@@ -270,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506079.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ Hurula - Klass (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505971.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ Dying Fetus - Wrong One To Fuck With (2017) [WavPack|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505969.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505913.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ Ian Gillan - Contractual Obligation #2 Live in Warsaw (2019) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505897.jpg" />
 </div>
 
 
@@ -416,7 +474,7 @@ Thy Art Is Murder - 5 Альбомов, 2 EP, 1 Сингл (2008-2019) [FLAC|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505788.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ Dodsfall - Kaosmakt (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505479.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ Besatt - Anticross (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505478.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ Amongst Liars - Amongst Liars (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505476.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ Act Of Defiance - Birth and the Burial (2015) [FLAC|image+.cue]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505434.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ Dovorian - Kneel and Follow (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505390.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ Protector - 4 Studio Album (1988-1993) [FLAC|Lossless|image + .cue] <Thrash, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505386.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ Molotov - Con Todo Respeto (2004) [FLAC|Lossless|image + .cue] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505385.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ Project Pain - 3 Studio Albums (2012-2018) 3xCD [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505384.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ Motorhead - Bad Magic (2015) [FLAC|tracks+.cue]<Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505269.jpg" />
 </div>
 
 
@@ -692,64 +750,6 @@ Motorhead - Bad Magic (2015) [FLAC|tracks+.cue]<Heavy Metal, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC0B35131059B0CE64FC025A2BDE462BA50919BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316662   (505070) от 27.07.2019
-
-Babooshka - На страже Православия (2019) [MP3|320 Kbps] <Punk Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505070.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На страже Православия
-2. Материнский капитал
-3. Мне всегда 88
-4. Стань скином(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F1F228ECE529B9E3297D9D7412EA59FB15AA1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933739   (505061) от 02.09.2015
-
-Amorphis - Under The Red Cloud (2015) Limited Edition [MP3|320 кб/с]<Progressive, Doom, Folk, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under the Red Cloud
-02. The Four Wise Ones
-03. Bad Blood
-04. The Skull(   Читать дальше...   )Жанр: 01:00:04Продолжительность: Progressive, Doom, Folk, Melodic Metal
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822DEC915FF74299CAE474C84C2822EE7560ACE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

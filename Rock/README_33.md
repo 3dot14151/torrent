@@ -6,7 +6,7 @@ VA - 1968 A Music Revolution (2018) [MP3|320 Kbps] <Rock, Folk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668108.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Man Made - Man Made (1971) Reissue, 2010, Mandala [MP3|320 Kbps] <Rock, Prog Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666769.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Delines - The Sea Drift (2022) Deluxe Edition [MP3|320 Kbps] <Blues Rock, Co
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666760.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Classic Rock Hits 2022 [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666566.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Angel - White Hot (1977) Reissue, 1992, Casablanca [MP3|320 Kbps] <Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666056.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Voltaire - The Very Best of Aurelio Voltaire, Vol. 2 (2017) 2CD [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666054.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Soft Rock Love (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663275.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Georgia Satellites - Georgia Satellites (1986) [MP3|320 Kbps] <Southern Rock, Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663169.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Richie Sambora (Ричи Самбора) - Ballad Of Youth (1991) Single, Mercur
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662883.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Angel - Sinful (1979) Reissue, 1992, Casablanca [MP3|320 Kbps] <Rock, Hard Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662881.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ RSO (Richie Sambora & Orianthi) - Radio Free America (2018) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662756.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Infidels (with Molly Johnson) - Infidels (1991) [MP3|320 Kbps] <Hard Rock, Funk 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660758.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ U2 - The Joshua Tree: 30th Anniversary [Super Deluxe 4CD Box Set] (2017) [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659911.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ New England - Explorer Suite (1980) Reissue, 2009,  Wounded Bird Records [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659755.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ New England - Walking Wild (1981) Reissue, 1998, GB Music [MP3|320 Kbps] <Classi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659753.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ New England - New England (1979) Reissue, 1993, MCA Records [MP3|320 Kbps] <Clas
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659752.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Gemini - Geminism (1987) [MP3|320 кб/с]<Rock, Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659274.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Witchwood - Litanies From The Woods (2015) [MP3|320 кб/с]<70's Vintage Hard R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659061.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Madder Lake - Stillpoint (1973) Reissue, 1991,  Mushroom [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658271.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ The Bullets - Somethin` Real Good! (2017) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658222.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Smith - A Group Called Smith (1969) Reissue, 1994, Varèse Sarabande[MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658216.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ The Mudcats - Shake It Up (2017) [MP3|320 Kbps] <Rock&Roll, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658212.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Sister Sparrow & The Dirty Birds - The Weather Below (2015) [MP3|320 кб/с]<Fu
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658078.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Muse - Drones Singles (2015) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657763.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Roger Waters - Is This the Life We Really Want? (2017) [MP3|320 Kbps] <Progressi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657701.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ John Lennon - Icon (2015) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657673.jpg" />
 </div>
 
 

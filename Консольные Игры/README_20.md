@@ -6,7 +6,7 @@ Just Dance 2016 (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757161.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Project Zero: Maiden of Black Water / Fatal Frame: Maiden of Black Water (2015) 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757075.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Disney Epic Mickey 2: The Power of Two (2013) [PSVita] [EUR] 3.60 [NoNpDrm] [Lic
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755898.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Cabela's Dangerous Hunts 2013 [PS3] [USA] [4.21] [Cobra ODE / E3 ODE PRO ISO] (2
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755687.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Affordable Space Adventures (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Mu
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755223.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Super Time Force (2014) [Xbox360] [Region Free] 13599 [FreeBoot] [XBLA] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754164.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Rio [Wii] [PAL] [Multi 5] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753771.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Call of Duty: Ghosts (2013) [PS3] [EUR] 4.40 [OFW / CFW] [DLC] [Repack] [Ru/Mult
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752999.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Farming Simulator 15 (2015) [PS3] [USA] 4.70 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752914.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Beat Saber (2018) [Other] [USA] 9.0 [License] [En] [VR]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752818.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752357.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Hyrule Warriors (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack / 1.9.0] [Multi
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751387.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ New Super Mario Bros. U + New Super Luigi U (2012) [WiiU] [EUR] 5.3.2 [Loadiine 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749474.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Flow (2007) [PS3] [USA] 1.90 [Cobra ODE / E3 ODE PRO ISO]  [PSN / 2.00/ 1 DLC] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749370.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Disney Infinity 2.0 (2014) [PS3] [EUR] 4.60 [Cobra ODE / E3 ODE PRO ISO] [Licens
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748034.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ The Swapper (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747863.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Deus Ex: Human Revolution - Director's Cut (2013) [WiiU] [EUR] 5.3.2 [Loadiine G
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747727.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ DeathSpank (2010) [PS3] [EUR] 3.10 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747318.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Armillo (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746245.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ RUNBOW (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746242.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Call of Duty: Ghosts (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [Multi] |
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745935.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Pullblox World / Pushmo World (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744852.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Rodea the Sky Soldier (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744844.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Just Dance 2019 (2018) [Wii] [EUR] [License] [Multi]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744708.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Wii Party U (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744617.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ How to Survive (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744615.jpg" />
 </div>
 
 

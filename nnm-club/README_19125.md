@@ -1,554 +1,30 @@
-###  Публикация: 1833965   (247853) от 02.11.2025
+###  Публикация: 493490   (248729) от 08.05.2012
 
-Food.ru: пошаговые рецепты v02.14.00 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Food.ru — это пошаговые рецепты и мобильное приложение про все, что связано с едой. Любите готовить и хотите получать новые рецепты бесплатно? Или учитесь готовить еду и хотите делать правильно все, от готовки до сервировки? Тогда вам поможет наша база знаний:
-- кулинарные обзоры;
-- советы от шеф-поваров;
-- подборки и лайфхаки;(   Читать дальше...   )Тип издания: ModРелиз состоялся: 01.11.2025Разработчик: X5MediaПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F837A18922EA73C925560AD0B8E19BC2AA7C7CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659347   (247851) от 02.11.2025
-
-Хижина дяди Тома / Onkel Toms Hutte / Uncle Tom's Cabin (1965) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическая экранизация всемирно известного одноименного романа Гарриет Бичер-Стоу, в котором с большим реализмом изображаются ужасы рабовладельческой системы в Америке.Производство: Франция, Италия, ФРГ, Югославия / Авала-фильм, CCC Filmkunst GmbH, Debora FilmЖанр: ДрамаРежиссер: Геза фон Радваньи / Géza von RadványiАктеры: Джон Кицмиллер, Херберт Лом, Олив Мурфилд, О.В. Фишер, Катана Кайэтано, Михаэла Май, Милен Демонжо, Чарльз Фоусет, Вильма Дегишер, Томас ФритшПеревод: Дублированный (советский дубляж, Мосфильм)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D25FF3FBE192EA89898E51E0E00E1004584B575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491975   (247850) от 05.05.2012
-
-Windhand - Windhand (2012) [MP3|320 кб/с]<Stoner Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Candles (06:08)
- 02. Libusen (08:19)
- 03. Heap Wolves (05:04)
- 04. Summon The Moon (10:44)
- 05. Winter Sun (11:50)2012Жанр: Stoner DoomПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE531A3ACE4D24812B2121E4100FFEBFD4DD375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492484   (247849) от 05.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (05.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E19A7FF1B6830F82F164D0D101635ECE8930FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833770   (247848) от 02.11.2025
-
-Джессами Хибберд | Синдром самозванца. Как вырваться из ловушки токсичного мышления (2021) [PDF, MP3, Дмитрий Шабров]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синдром самозванца – это явление, при котором люди считают себя недостойными успеха. Они убеждены, что получили все благодаря удаче или другим не зависящим от них причинам, и боятся, что их некомпетентность и несостоятельность в конечном итоге будут раскрыты. Поэтому у таких людей нет возможности радоваться своим достижениям, а значит, и вообще жизни.Жанр: ПсихологияИздательство: БиблосФормат: PDFПродолжительность: 07:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3592A4B5389392C13594FAC5F37A542A4E1D14CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833955   (247846) от 02.11.2025
-
-Андрей Шляхов | Сказочная анатомия (2025) [FB2, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Витаминкин из Университета тридевятого царства приглашает юных читателей в удивительное путешествие по человеческому организму!
-
-«Сказочная анатомия» Андрея Шляхова – это волшебный учебник, в котором наука встречается со сказкой!
-(   Читать дальше...   )Жанр: Детская познавательная и развивающая литератураИздательство: АСТФормат: FB2, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FCF61B910CE1A9F3979DAC9723BEDC2FE39B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492486   (247845) от 05.05.2012
-
-[Wallpapers] Desktop wallpapers (05.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B71588179011E09E640805A431C6E43C073631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833973   (247844) от 02.11.2025
-
-PilotEdit Lite & Pro 20.4.0 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
-PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED396A64221429BB660598AAF839B07F72B95ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491923   (247843) от 05.05.2012
-
-VA - Клубные Новинки Vol.71 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel & Dresden feat. Molly - Tracking Treasure Down (original mix)
-02. Solarstone & Clare Stagg - The Spell (Solarstone Pure Mix)
-03. Veerus, Maxie Devine - Funky Beats (Original Mix)
-04. Julian Vincent and Shannon Hurley - Lost In Space (DoubleV Remix)
-05. Dave Nadz & Leblanc - Haamiah (Original Mix)
-06. Sheef Lentzki - Lucifer (Teho Remix)
-07. Nicologik and Zephyr vs Tiff Lacey - Lost for Words (Extended Mix)
-08. Dj Soundlife - Cloudburst (Extended Mix)
-09. HouseEssence - That Before (Original Mix)
-10. South Ground - Let's Rock (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC0250107A961789D95C12D0054CA5E21F343E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833975   (247842) от 02.11.2025
-
-Своя игра (02.11.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Ирина Петрова, Сергей Коновалов, Кристина КораблинаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2F4BC2112F136F46F62CC4DFE46B64AB7E5C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492142   (247841) от 05.05.2012
-
-VA - Soul of Ibiza Volume 29 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix)
-002. Sean Tyas feat. David Berkeley - Believe (Original Mix)
-003. Vast Vision - Black Shores (Original Mix)
-004. Trilucid feat. Sophie Tusnelda - Bring You The Sun (Original Mix)
-005. Vada - Fire In The Sky (Original Mix)
-006. Paul Webster feat. Angelic Amanda - Forever Today (Original Mix)
-007. Solid Stone feat. Hanna Finsen - Helpless (Original Mix)
-008. Gareth Emery feat. Mark Frisch - Into the Light (Alex M.O.R.P.H. Remix)
-009. Solarstone feat. Bill Mcgrudy - Is There Anyone Out There (Dirty Herz Remix)
-010. Simon Patterson feat. Lucy Pullin - Keep Quiet (Original Mix)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3052498A1627E3BB3164A03008FD67A68DA80E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491971   (247840) от 05.05.2012
-
-De Lirium’s Order - Veniversum (2012) [MP3|320 кб/с]<Technical Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autistic Savant (06:38)
-02. 44 (06:41)
-03. Maximum Sentence (05:39)
-04. Seppuku (04:20)Жанр: Technical DeathПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BBEE5EF92EB9DFA63FCF9C6CD519A1BF0E486B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492252   (247839) от 05.05.2012
-
-VA - Клубные Новинки Vol.72 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisko Electrofantik - No Thanx (Original Fanatik Mix)
-02. Orbion - Aurora (Sensetive5 Remix)
-03. Stan Kolev, Juan Mejia - To The Clouds (Beat Factory Remix)
-04. Eitan Carmi - New West (Cristian Poow Remix)
-05. S.K.A.M. - Outside The Box (Original Mix)
-06. Lauhaus, Kabale Und Liebe - Hiphouse (Original Mix)
-07. Sidney Samson - Get Low (Original Mix)
-08. Freza - La Luna (Original Mix)
-09. Mode B - Phantom (Original Mix)
-10. Steven Quarre & Morris Mavado ft. Orlando Vaughan - Starlight (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4EE967BDE4DC9874F5464A1F0715B9DB691E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833977   (247837) от 02.11.2025
-
-Sipnetic v1.1.8 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весьма недурственное (по утверждению разработчика) приложение для SIP-телефонии. Обширные настройки качества и безопасности подтверждают данное мнение. Ничего лишнего.
-Sipnetic – это бесплатный программный IP-телефон, разработанный на базе протокола SIP. Приложение позволяет подключаться к вашему провайдеру VoIP, облачной АТС или корпоративному серверу телефонии.Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: IPTONПоддерживаемая ОС: Android 4.0.1+ (реком. 7.0+)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B761532FCAD7EF4F8216392186D8A8F525E808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492018   (247836) от 05.05.2012
-
-VA - Top Club Hits Vol.4 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mads Arp Feat. Julie Harrington – Alive
-02. DJ Favorite & Вероника Данилова - Бессонница (Radio Edit)
-03. Remady feat. Manu-L - Higher Ground
-04. Aaizu Yazoo - Megaton (AMO + NAVAS Rework)
-05. Sousa & Mad feat. Kaysee - Temptation (More & Masters Remix)
-06. Cathy Burton & Omnia - Hearts Connected (Original Mix)
-07. Pat Farrell feat. Max'C - Stronger (Club Mix)
-08. Jan Blomqvist - I Don't Think About You (Original Mix)
-09. DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow To California (DJ Favorite Radio Edit)
-10. Muzikjunki - Crazy 4 You (Club Mix)2012Жанр: Dance, ClubПродолжительность: 05:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFAE2BC3D4A5C598C54EDF8BED6D44E1854971B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833980   (247835) от 02.11.2025
-
-NEMOPHILA. Seize the Fate U.S. tour 2023 HOUSE OF BLUES SAN DIEGO (2023) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247835.jpg" />
-</div>
-
-
-###  Подробнее
-
-NEMOPHILA - японская женская метал/рок группа, основанная в 2019 г. в Токио.
-Запись концерта, прошедшего в рамках американского тура "Seize the Fate" 12.03.2023 в "HOUSE of BLUES" San Diego.1. Seize the Fate
-2. 雷霆 -RAITEI-
-3 .炎天 -ENTEN-
-4. Change the world(   Читать дальше...   )Производство: ЯпонияЖанр: J-Metal, J-RockУчастники: Маю, Саки, Хадзуки, Мурата Таму, ХарагутиПродолжительность: 01:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E218E3628B47727B4236519D289BD42271DE237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492110   (247834) от 05.05.2012
-
-VA - Seashore Desire #27 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance, Progressive Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247834.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) (7:39)
-2. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Extended Mix) (7:55)
-3. Faruk Sabanci - As Faces Fade (Alexander Popov Remix) (6:50)
-4. Pedro Del Mar & illitheas - Bahia Del Sol (Illitheas Mix) (8:12)
-5. Roman Loud - Beach At Sunrise (Original Mix) (8:24)
-6. W&W - Beta (Original Mix) (5:20)
-7. Vast Vision - Black Shores (Original Mix) (8:34)
-8. Ralphie B - Bullfrog (Original Mix) (8:55)
-9. Steve Brian & Cressida - Cambodia (Original Mix) (8:06)
-10. Fadios & Raneem - Chromium (Max Graham Remix) (6:47)2012Жанр: Uplifting Trance, Dream Trance, Progressive Trance, TranceПродолжительность: 06:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80ADA3CDED5989FE3D25043CBDE550B31D476C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833981   (247833) от 02.11.2025
-
-Бобби Джо и изгой / Bobbie Jo and the Outlaw (1976) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бобби Джо Бейкер, бесцельно скитающаяся по стране, бросает работу в такси и присоединяется к Лайл Уилеру, подражающему преступникам Дикого Запада, чтобы отправиться в путешествие, полное краж, хаоса и убийств...Производство: США / American International Pictures (AIP), Caldwell ProductionsЖанр: драма, мелодрама, криминал, триллерРежиссер: Марк Л. ЛестерАктеры: Марджо Гортнер, Линда Картер, Джесси Винт, Мерри Линн Росс, Белинда Баласки, Джин Дрю, Пег Стюарт. Геррит Грэм, Джон Дурин, Вёрджил ФрайПеревод: авторский (Сергей Завалишин)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:28:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB87B52D8E36C7D039F26B785B6FB0EBEFAAC51F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492292   (247832) от 05.05.2012
-
-Журнал | АиФ. Спецвыпуск. Здоровье № 5 [2012] [PDF]
+Марго Ланаган | Лакомые кусочки [2011] [FB2][TXT
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Весну, как известно, ждут все, кроме аллергиков, у которых в это время года обычно происходит обострение недуга. А людей, страдающих аллергией, с каждым годом становится всё больше. Сегодня, по статистике, четверть жителей индустриально развитых городов - аллергики. Многие из них просто не ходят по врачам, потому что убеждены: этот недуг неизлечим! Это не так! Даже в самых запущенных случаях можно добиться стойкого длительного улучшения, что для любого пациента равносильно выздоровлению. Как? Ответ на этот вопрос вы найдёте в сегодняшнем спецвыпуске. По традиции на вопросы читателей отвечают самые авторитетные врачи-аллергологи.2012Формат: PDF
+Странная, причудливая история, основанная на старинной германской легенде, известной нам по сказке братьев Гримм «Белоснежка и Краснозорька».
+
+ Когда становится по-настоящему плохо — в человеческую судьбу вторгаются загадочные силы…
+
+ Молодая женщина, ставшая жертвой насильников, переносится в мир фейри Лонгфилд — мир, где предстоит расти ее дочерям Бранзе и Эдде.
+
+ Однако кроме миров людей и фейри существуют и миры иные.
+
+ Из одного приходит Зло — из другого Добро…2011Формат: FB2,ТХТ.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF0648C3AC449D38E14EDF1783E9B814242C9097
+magnet:?xt=urn:btih:F383665E4189E016F3A496061BAB0A92D566E7FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,15 +32,15 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 492202   (247831) от 05.05.2012
+###  Публикация: 493936   (248724) от 08.05.2012
 
-[Wallpapers] Best HD Wallpapers Pack (04.05.12)
+[Wallpapers] Computer Desktop Wallpapers Collection (09.05.12)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248724.jpg" />
 </div>
 
 
@@ -574,7 +50,7 @@ https://mybot314.ru/tekegram_catalog/
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A1B8FFA0279799023262F28DC8465D45BE84532
+magnet:?xt=urn:btih:46060F1300AE2CB9A8B7E705BE701ED3DADDEE39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,25 +58,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833883   (247830) от 02.11.2025
+###  Публикация: 493821   (248721) от 08.05.2012
 
-Межзвёздное путешествие / Interstellar Wanderer / Xing ji yi you (2022) WEB-DL[H.264/1080p]  (сезон 1, серии 1-12 из 12) AniStar / официальный
+[Wallpapers] Computer Desktop Wallpapers Collection (08.05.12)
 
->>Мультфильмы
->>Зарубежные Мультсериалы
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Много лет назад Земля перестала быть пригодной для жизни. Люди мигрировали с Земли на другие планеты. Но на самом деле это был заговор. Таким образом, Тан Юэлян, как наследница Демонов-победителей, вместе со своими товарищами отправляется на запад, на Землю, чтобы найти артефакт, Мифический Кристалл, спасти вселенную и сражаться, чтобы вернуться на Землю!Производство: Китай / Yudubai AnimationЖанр: мультфильм, фантастика, комедия, приключения, фэнтезиПеревод: Многоголосый любительский (AniStar / официальный)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~ 00:09:00 серия
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4C6C1BFE85C758FEC0E7DBB3E75FD9D983876A3
+magnet:?xt=urn:btih:7A418000FD874C17139C9B80712F700274DE8DB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,25 +84,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833972   (247829) от 02.11.2025
+###  Публикация: 493822   (248720) от 08.05.2012
 
-Cleaner for WhatsApp / Очиститель для WhatsApp v3.0.0 Mod by TryRoom [Ru/Multi]
+[Wallpapers] Best HD Wallpapers Pack (08.05.12)
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cleaner for WhatsApp — это мощный инструмент для очистки полученных и отправленных медиафайлов через WhatsApp. Самая важная функция приложения Cleaner for WhatsApp; заключается в том, что вы можете автоматически очищать медиафайлы WhatsApp со своего телефона или планшета Android через регулярные промежутки времени или в соответствии с ограничением хранилища. Cleaner (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.11.2025Разработчик: LookAndFeel LabПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:302844EFDD64F6B72A12ADCD735E46B3230035BC
+magnet:?xt=urn:btih:F4EF000181267F432A868A1EC76A9216D499BB7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,25 +110,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833966   (247828) от 02.11.2025
+###  Публикация: 493826   (248719) от 08.05.2012
 
-ЯПлакалъ v2.129 Mod Alex.Strannik [Ru/En]
+[Wallpapers] Mixed Wallpapers (08.05.12)
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Yaplakal.com — популярное информационно-развлекательное сообщество. Мы любим обсуждать интересные события и весело проводить время. Все материалы добавляют и оценивают пользователи. Работаем с 2004 года. Трижды лауреат Премии Рунета в категории "Сообщество Рунета". Официальное приложение для Android. У нас вы найдете: громкие мировые события, обсуждение (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 02.11.2025Разработчик: Yaplakal.comПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Английский
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:029F9F284286BF656A4C315C4F253143CB252CA0
+magnet:?xt=urn:btih:8A5CD08A3D4B24DF3C538F5B69279426296B39F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,25 +136,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833953   (247827) от 02.11.2025
+###  Публикация: 493903   (248717) от 08.05.2012
 
-Долгая прогулка / The Long Walk (2025) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
+[Wallpapers] Nature Desktop Wallpapers Pack 16
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа мальчиков-подростков соревнуется в ежегодном соревновании, известном как «Долгая прогулка», где они должны поддерживать определенную скорость ходьбы, иначе их застрелят.Производство: США / Lionsgate UK, Media Capital Technologies, Vertigo EntertainmentЖанр: триллер, драмаРежиссер: Фрэнсис ЛоуренсАктеры: Купер Хоффман, Дэвид Джонссон, Гарретт Вэрэйнг, Тат Ньюот, Чарли Пламмер, Бен Ван, Джордан Гонсалес, Джошуа Оджик, Марк Хэмилл, Роман Гриффин ДэвисПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:48:04
+[Wallpapers] Nature Desktop Wallpapers Pack 16
+Название: Nature Desktop Wallpapers Pack 16
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: По возможности
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3D2646D7300AA87F9DEF009C812BDD3E9FCCF31
+magnet:?xt=urn:btih:A1130AD04C8FEF461133B0776BB41344B545CE10
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,21 +166,122 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833522   (247826) от 02.11.2025
+###  Публикация: 493187   (248716) от 08.05.2012
 
-Как не потерять доступ к своему Telegram из-за блокировки SMS с кодами
+VA - Русские Новинки Vol.51 from AGR (2012) [MP3|320 кб/с]<Pop>
 
->>
->>
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_247826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коллеги с портала «Код Дурова» подготовили инструкцию для пользователей Telegram, которая разъясняет, как сохранить доступ к мессенджеру при блокировке SMS с кодами подтверждения. Самый надёжный способ — поддерживать открытые сессии приложения одновременно на нескольких устройствах, чтобы код можно было получить на одном из них. Имеется возможность получить код на (   Читать дальше...   )
+01. Roman Gurov - Стань Для Меня (Aplex Remix)
+02. Dazzle Dreams - Що За Сила Мене Тягне
+03. Anton Pavlovsky feat. Basilio Baio - Крылатые Качели
+04. Земфира - Дождь
+05. НеАнгелы - Твоя (DJ Jedy Club Remix)
+06. Денис Майданов - Колька
+07. Юлия Морозова - Миллионы
+08. Dino MC 47 - Среда Обитания
+09. Алсу - Доченьки Мои
+10. Дрей Сонгз - Nothing2012Жанр: PopПродолжительность: 03:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25832DF06FACA3E5489EC2DBCAC4369D37CA527A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493398   (248712) от 08.05.2012
+
+[Wallpapers] Nature Desktop Wallpapers Pack 13
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248712.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Desktop Wallpapers Pack 13
+Название: Nature Desktop Wallpapers Pack 13
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: По возможности
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB5DB8319B2C35FD2190FC8F54B4DB7C19ABB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493539   (248711) от 08.05.2012
+
+VA - Клубные Новинки Vol.74 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joris Voorn – Spank the Maid (Original Mix)
+02. Evave feat. Aelyn - Hand To Hand (Anjey Olaf Remix)
+03. Beat Service feat. Ben Hague - Why Me (Original Mix)
+04. Karanda - Cloud Nine (Original Mix)
+05. Bartlett Bros. - Sweet Child (Fabio Xb Rework)
+06. Protoculture - Cobalt (Original Mix)
+07. Beto Dias, Felipe Wrechiski, Deep Nation - Price To Pay (G-Low Mix)
+08. Mike Newman - Violence Groove (Original Club Mix)
+09. Avicii feat. Salem Al Fakir - Silhouettes (Original Mix)
+10. Kat Graham - Put Your Graffiti On Me (Moto Blanco Club Mix)2012Жанр: Club, DanceПродолжительность: 04:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495E045C8CE4253C8BE7132FF757B665CCBC343F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493798   (248710) от 08.05.2012
+
+Google признали виновным в нарушении авторских прав Oracle
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248710.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Коллегия присяжных в Сан-Франциско 7 мая признала Google виновным в нарушении авторских прав Oracle при использовании языка программирования Java. Об этом сообщает Agence France-Presse.В общей сложности присяжные должны были установить наличие или отсутствие нарушений со стороны Google по четырем спорным пунктам. Коллегия смогла принять решения лишь по трем из них, и нашла вину Google только в одном случае: по мнению присяжных, корпорация нарушила авторские права Oracle на девять строчек кода на языке Java, использовав их в операционной системе для Android.При этом, как отмечается, присяжные не смогли вынести решение по ключевому пункту иска. Коллегии не удалось придти к единому мнению по поводу того, лежат ли действия Google в рамках закона, позволяющего заимствование стороннего кода при создании собственного материала.Как отмечает BBC News, решение присяжных дает Oracle право на компенсацию в размере от 200 долларов до 150 тысяч долларов. Между тем, при подаче судебного иска компания-истец требовала компенсации (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -712,26 +293,442 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833994   (247825) от 02.11.2025
+###  Публикация: 493905   (248708) от 08.05.2012
 
-3D print - Wicked - The Arbiter Portrait Bust [STL]
+[Wallpapers] Nature Desktop Wallpapers Pack 17
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наш ТЕРМИН видеоигры - это жемчужина мира Wicked, постоянный побочный квест, над которым мы работаем за кулисами, и как только он будет готов, мы выпустим его в качестве эксклюзивного подарка для всех наших активных сторонников этого месяца!!! Это наш способ сказать muchas gracias, мои парни, за вашу бесконечную поддержку, любовь и веру в наши безумные мечты!!!
- (   Читать дальше...   )Формат: STL
+[Wallpapers] Nature Desktop Wallpapers Pack 17
+Название: Nature Desktop Wallpapers Pack 17
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: По возможности
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6880236AAB1BBF55D8149FD7892E88D6F2C16C45
+magnet:?xt=urn:btih:8DF730874A80E36B9987CE01B7DCFCCD79AC423C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492555   (248702) от 08.05.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (06.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B98BDB82D6FE386BCCA8FFBD8D870EEFCC38DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493661   (248700) от 08.05.2012
+
+Al Cohn - Standards Of Excellence & Nonpareil (1998) [APE|Lossless]<Bop, Mainstream Jazz>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Russian Lullaby
+02. When Your Lover Has Gone
+03. O Grande Amor
+04. You Say You Care
+05. I Want To Be Happy
+06. Embraceable You
+07. I Remember You
+08. When Day Is Done
+09. Take Four
+10. Unless It`s You(   Читать дальше...   )1998Жанр: Bop, Mainstream JazzПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493835   (248698) от 08.05.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (08.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1280х960 - 3200х2134
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3DF29EA308BD4B7838A9DBC97DF3FD4A172E9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493834   (248696) от 08.05.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (08.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C98B514A994974CDD2C29ABCF135DE20CB94536A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493832   (248694) от 08.05.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (08.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 2760x1840
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A253B99F51912032361E530FB7E4824F62B39A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493942   (248693) от 08.05.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (09.05.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175C06F8FEC088BE034D6F4A01F3C83C32A2C2DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493897   (248689) от 08.05.2012
+
+[Wallpapers] Nature Desktop Wallpapers Pack 14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248689.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Desktop Wallpapers Pack 14
+Название: Nature Desktop Wallpapers Pack 14
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: По возможности
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C8A2F05394AFC74A84644AFAA8A3FEF5A254BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490515   (248685) от 07.05.2012
+
+Дедвуд / Deadwood (2005) (Сезон-2) [H.264/720p-LQ] BDRip
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248685.jpg" />
+</div>
+
+
+###  Подробнее
+
+1876 год. Городок Дедвуд в Южной Дакоте — настоящая выгребная яма, в которой собирается преступный сброд со всей Америки. Преступления и коррупция настолько прочно вошли в жизнь обитателей Дедвуда, что на них практически не обращают внимания. Убийства привлекают меньше внимания, чем танцы девочек в местном салуне.
+В этот, далекий от цивилизации, городишко и приезжают (   Читать дальше...   )Производство: США, CBS Paramount Network Television, Home Box Office (HBO), Paramount Network Television Productions, Red Board Productions, Roscoe ProductionsЖанр: Драма, Криминал, Вестерн, ИсторияРежиссер: Эдвард Бьянчи, Даниэль Минахан, Дэвис Гуггенхайм, Грегг Финберг, Марк Тинкер, Стив Шилл, Алан Тейлор, Майкл Алмерейда, Тимоти Ван ПаттенАктеры: Тимоти Олифант, Иэн МакШейн, Молли Паркер, Брэд Дуриф, У. Эрл Браун, Джон Хоукс, Паула Малкомсон, Дэйтон Калли, Леон Риппи, Уильям Сэндерсон ...Перевод: Одноголосый закадровый, профессиональныйОзвучка / Автор перевода: Юрий СербинЯзык субтитров: АнглийскиеПродолжительность: 55:00 мин. серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492919   (248680) от 07.05.2012
+
+Загрузочные картинки Grub4DOS by SKLYARAN74 1.0 [русский]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Архив содержит 112 интересных картинок для загрузчика Grub4DOS.
+Инструкция находится внутри архива.
+Архивы - это темы для Grub4DOS
+Картинки - как выглядит та или иная тема .
+Темы и картинки имеют одинаковые имена.Название программы: Загрузочные картинки Grub4DOS by SKLYARAN74 1.0Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493095   (248679) от 07.05.2012
+
+Перси Джексон и похититель молний / Percy Jackson & the Olympians: The Lightning Thief (2010) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юноша по имени Перси Джексон живет в обычном реальном мире. Он также как и все дети ходит в школу, посещает музеи… греческой мифологии. Но он даже не подозревает, что те боги и существа, о которых рассказывает гид-в-инвалидном-кресле на самом деле не выдумка, а полноценная реальность и он (Перси Джексон) не кто иной как сын самого Посейдона, бога морей и океанов и, как следствие, он полубог.
+Как и следует из названия картины «Перси Джексон и похититель молний» некто похитил те самые молнии. Естественно Зевс не может это просто так оставить, ведь молнии есть не что иное как самое могущественное орудия, принадлежащее Зевсу. И вот тут-то появляется невиновный Перси. Зевс обвиняет Посейдона в том, что это именно его сын (Посейдона, коим является Перси) украл молнии. Зевс дает две недели на то, чтобы Перси их вернул… любой ценой. Отсюда все и начинается...Жанр: Фэнтези, Приключения, СемейныйРежиссер: Крис КоламбусАктеры: Логан Лерман, Брэндон Т. Джексон, Александра Даддарио, Джэйк Абель, Шон Бин, Пирс Броснан, Стив Кугэн, Розарио Доусон, Мелина Канакаредес, Кэтрин Кинер и др.Перевод: 1 - Профессиональный (полное дублирование)
+2 - Профессиональный (полное дублирование)Продолжительность: 01:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCAA9DF31A47BA706B6FCB9885E53285A50A8F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493110   (248678) от 07.05.2012
+
+Вход в никуда / Enter Nowhere (2011) HDRip [VO]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248678.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета фильма — несколько человек, оказавшихся волей случая в безлюдном сверхъестественном лесу. Мистические обстоятельства приводят героев в пустующую сторожку, где их судьбы переплетаются самым жестоким образом.Производство: США, Caliber Media CompanyЖанр: Триллер, Детектив, ФантастикаРежиссер: Джек ХеллерАктеры: Кэтрин Уотерстон, Скотт Иствуд, Сара Пэкстон, Шон Сайпос, Кристофер Денэм, Джесси Перез, Лей Лезарк, Вик ФиналборгоПеревод: Одноголосый закадровый, любительскийСубтитры: ОтсутствуютПродолжительность: 01:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18526652E9A807885826B47F88B3083D3124C03F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493053   (248677) от 07.05.2012
+
+Профессиональное обучение C# | Курс C# Base [2011] PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс состоит из подробных видеоуроков по основам языка C# и платформы .Net Framework. Помимо видеозаписей в курсе вы также найдете исходные коды всех программ, сделанных в процессе прохождения очередного урока, методические материалы с теорией, видео с разбором наиболее сложной части курса и основной бонус - вебинар "Программа за час на C#”.
+Все материалы курса - уникальны, это абсолютно авторская информация, основанная на многолетнем опыте и переработанная с учетом текущих реалий.Жанр: ПрограммированиеПродолжительность: 07:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53CCCD03311CFE2435570F9D8C25317122A66912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493120   (248676) от 07.05.2012
+
+Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Персонажи из двух величайших серий файтингов, Street Fighter и Tekken, сойдутся вместе в одной игре. Проект основан на том же принципе, что и Street Fighter IV – трехмерные бойцы двигаются в 2D плоскости. Среди персонажей вы встретите Рью (Street Fighter), Чан-Ли (Street Fighter), Казую Мисима (Tekken), Нину Уильямс (Tekken) и многих других. Все бойцы сохранили свои уникальные характеристики и приемы.Тип издания: RePackЖанр: Arcade (Fighting) / 3DЯзык озвучки: Английский, ЯпонскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B1435AA311C6AAA0774EBB713D113BCF5DF026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492239   (248675) от 07.05.2012
+
+Специалист | M6430B Планирование серверов на базе Windows Server 2008 R2 [2010] PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2008 R2 — продукт, позволяющий построить современную информационную инфраструктуры предприятия.
+
+Курс рассчитан на профессионалов в области информационных технологий, специализирующихся на настройке, поддержке, обслуживании Windows Server 2008 R2. Курс входит в линейку профессиональных курсов, на которых даются расширенные знания по продуктам.Жанр: АдминистрированиеПродолжительность: 12:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B330D58A748C4786E26642CF8595385DD6C4C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493385   (248674) от 07.05.2012
+
+В.Г.Олифер, Н.А.Олифер | Компьютерные сети. Принципы, технологии, протоколы (4-е издание) [2010] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое издание одного из лучших российских учебников по сетевым технологиям можно считать юбилейным. Прошло ровно 10 лет с момента первой публикации книги "Компьютерные сети. Принципы, технологии, протоколы". За ето время книга приобрела широкую популярность в России, была издана на английском, испанском, португальском и китайском языках, и с каждым новым изданием она существенно обновлялась. Не стало исключением и это, четвертое издание, в котором появилось много новых разделов, посвященных самым актуальным направлениям сетевых технологий.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B96EBAB79368A0DC4E3132A4DC57817CCD21275
 ```
 
 https://mybot314.ru/tekegram_catalog/

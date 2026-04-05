@@ -1,3 +1,55 @@
+###  Публикация: 1168116   (411800) от 22.09.2017
+
+Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (1.0.1) License SKIDROW
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warhammer 40,000: Space Wolf представляет из себя уникальную смесь пошаговой тактической стратегии и карточной игры с ролевыми элементами. Игра включает в себя одиночную кампанию, режим выживания и режим дуэлей.Тип издания: LicenseРазработчик: HerocraftЖанр: Strategy (Turn-based, Tactical), IsometricЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1C843A593BCEB6D3C43DE1D9382B9EB475F0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138126   (411748) от 31.08.2022
+
+Сити-Айленд / City Island (2009) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья Риццо обитает на тихом и спокойном островке в Бронксе. Темперамента некоторым членам семьи не занимать, и у каждого свой «скелет в шкафу». А когда тайное станет явным, то последствия будут подобны урагану.Производство: США / CineSon Entertainment, Filmsmith Productions, Lucky Monkey PicturesЖанр: Комедия, Драма, МелодрамаРежиссер: Рэймонд Де ФелиттаАктеры: Алан Аркин, Энди Гарсиа, Стивен Стрейт, Джулианна Маргулис, Эмили Мортимер, Джордж Алой, Шарон Анджела, Вернон Кэмпбелл, Лора Кио, Джозеф Кинтрон, Кёртисс КукПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0265F4F44217D165CD4AFA4E543750625DAC2485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325348   (411578) от 15.09.2019
 
 Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 14.09.19 [Ru/En]
@@ -6,7 +58,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 14.09.19 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411578.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_411374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_411374.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_411183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_411183.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_411030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_411030.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411009.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_410753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_410753.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ SoftMaker Office Professional 2016 rev 745.1010 RePack (& portable) by KpoJIuK [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410692.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410652.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410646.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Life Is Strange (2015) [En/Fr] (1.0.0) License CODEX [Episode 1-5]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410638.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410631.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ Train Simulator 2016 (2015) [Ru/Multi] (53.9b) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410627.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Assassin's Creed 2 (2010) [Ru] (1.01/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410623.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410579.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ AAct 3.6 Portable  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409834.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409812.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Avira Phantom VPN Pro 2.28.5.20306 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409771.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ Windows 7 SP1 44in1 (x86/x64) +/- Office 2019 by Eagle123 (09.2019) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409767.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409327.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409117.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409019.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409016.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ Destroy Windows 10 Spying 1.5 Build 528 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408967.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ Life is Strange: Episodes 1-5 (2015) [PS3] [EUR] 3.41/3.55/4.21/4.60 [PSN] [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408926.jpg" />
 </div>
 
 
@@ -633,58 +685,6 @@ Life is Strange – эпизодическое приключение, собы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CB9A966FC6846304204DEEE5502C6293BA1212A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 17303   (408296) от 17.09.2019
-
-Барака / Baraka (2001) [HDTVRip] [1080i]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовый фильм. Шедевр невербального воздействия на бессознательное. Мир за гранью слов. Описать Бараку сложно, это нечто с захватывающим визуальным рядом и фантастическим звуковым оформлением. Это документальный фильм о природе, планете Земля и о нас с вами. Это непрерывный видеоряд, в который вошли потрясающие кадры красивейших мест Земли, это необычные ритуальные (   Читать дальше...   )Жанр: ДокументальныйПеревод: ОригинальныйПродолжительность: 1:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E3A9E7EACE419D092F58AB2C9BE236453BF77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325654   (408294) от 17.09.2019
-
-BELOFF 2019.9 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой на Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также установку Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E53F62063267250445064D3426655F521752D15
 ```
 
 https://mybot314.ru/tekegram_catalog/

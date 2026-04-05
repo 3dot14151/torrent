@@ -1,3 +1,119 @@
+###  Публикация: 1077021   (309079) от 27.11.2016
+
+VA - Merry Christmas: Love Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electrorchestra - The Night
+02. AOXA - Shining Aurora
+03. Stigma - Without a Smile
+04. Electrorchestra - Take Me Home(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED79E6171B7F55CFAFAC5B1AC6BD1770A3C3806A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076991   (309075) от 27.11.2016
+
+VA - Electro Lounge: Electronic Excursions In Hi-Fi Stereo (1999) [FLAC|Lossless|tracks + .cue] <Deep House, Breaks, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electro Lounge - Prologue (00:06)
+02. Martin Denny - Hypnotique (Uberzone Remix) (07:05)
+03. Dean Elliot - Lonesome Road (bit-ziq Remix) (03:41)
+04. King Curtis - Watermelon Man (Utah Saints Remix) (05:43)(   Читать дальше...   )Жанр: Deep House, Breaks, DowntempoПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89352BC727EA5D1B4F2A0F1F4C111ABDB229BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076682   (309072) от 27.11.2016
+
+VA - Amsterdam Trance Sessions Vol.7 (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Pearce - The Trip (Original Mix) 5:48
+02. Sean Tyas - Relentless (Radio Edit) 3:40
+03. Lange - Hacktivist (Radio Edit) 3:17
+04. UDM - Ignite (F.G. Noise Remix) 6:45(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6900406F406B11CEC6CF4ECCAEEDAC9BFA9E7943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076544   (308871) от 27.11.2016
+
+Pete Tong and The Heritage Orchestra - Classic House (2016) [MP3|320 Kbps] <Electronic, House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pete Tong - Right Here, Right Now (4:14)
+02. Pete Tong - Pjanoo (3:08)
+03. Pete Tong feat. Cookie - Lola's Theme (3:20)
+04. Pete Tong - Children (2:31)(   Читать дальше...   )Производство: Astralwerks (US1A)Жанр: Electronic, House, DanceПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A4D10BE4540457465D66BC09B7AC4F2A5A60CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 417904   (308766) от 04.12.2011
 
 666 - Дискография 28 Releases (22 Singles / 6 Albums) (1997-2010) [MP3|192-320 kbps]<House>
@@ -6,7 +122,7 @@
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308766.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Gamardah Fungus - Collection 8 Releases (2011-2020) [FLAC|Lossless|Web-DL|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308428.jpg" />
 </div>
 
 
@@ -65,7 +181,7 @@ VA - Club Beats 2017 (Compilation) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307870.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ VA - Deep Attraction (Deep House Grooves Selection) (2017) [MP3|320 Kbps] <Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307869.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ VA - Chilling Process Vol.02 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307867.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ Soulful-Cafe - Deep & Chill (2017) [MP3|320 Kbps] <Deep House, Downtempo>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307860.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ Falco - Nachtflug (1997) [FLAC|tracks+.cue]<Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307811.jpg" />
 </div>
 
 
@@ -210,7 +326,7 @@ VA - Spring Tube 9th Anniversary Compilation, Part 1 (2018) [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307789.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ VA - EDM 2018 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307788.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Mark Dwane - Cerebral Hemispheres (2017) [MP3|320 Kbps] <Electronic, Ambient, In
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307786.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ Gabriel & Dresden - Gabriel & Dresden - Live at Cielo (2015) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307781.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ Orla Wren - Moccasin Flowers (2015) silentSEED [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307704.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Astronautica - Discography 8 Releases (2013-2018) Alpha Pup Records [FLAC|Lossle
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307702.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ ScAnDroid Experiment's - A Trap For The Traveller (2017) Single, Авторск�
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307683.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ VA - Future Waves Vol. I (2017) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Retrowa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307653.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Trevor Something - Ultraparanoia (2018) In Your Brain LLC [FLAC|Lossless|WEB-DL|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307612.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ VA - Lounge Melodies Vol.2 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307500.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ Atrium Carceri & Cities Last Broadcast - Black Stage of Night (2019) Cryo Chambe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307484.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Guy Mantzur - Moments (2013) [MP3|320 кб/с]<Tech House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306893.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ DJ Dado - Greatest Hits & Future Bits (1998) [FLAC|Lossless]<House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306880.jpg" />
 </div>
 
 
@@ -578,7 +694,7 @@ VA - Lovely Mood Music presents: Smoking Lounge Series (Luxury Chill-Out & Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306549.jpg" />
 </div>
 
 
@@ -607,7 +723,7 @@ Prairie - And the Bird Said: Cut Me Open and Sing Me (2020) Denovali Records [FL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306288.jpg" />
 </div>
 
 
@@ -621,122 +737,6 @@ Prairie - And the Bird Said: Cut Me Open and Sing Me (2020) Denovali Records [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C44B07E681CDF1FBDFEA0446D0B4434987254BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422939   (306156) от 10.11.2020
-
-Shakti - Psychedelic Experience (2016) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brightlight - What Are You Looking For (8:15)
-02. Dr Hoffman - My Problem Child (6:01)
-03. Ganesha - Waiting For The Sun (6:20)
-04. Ganesha - Space love (5:22)(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18104D4889F6AC938112BF6449BD57BD8FCCBD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422894   (306139) от 10.11.2020
-
-Workout Music Tv - Pilates & Yoga 2020 Session [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Waiting - Pilates Version 90 Bpm (4:00)
-02. I'll Be Over You - Pilates Version 90 Bpm (3:36)
-03. Perfect - Pilates Version 90 Bpm (4:36)
-04. In The Air Tonight - Pilates Version 90 Bpm (4:02)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30ED1C2ADC889D3FEE5E04E459A6242E5032CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261298   (305657) от 10.11.2018
-
-VA - Markus Schulz & Fisherman - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Markus Schulz featuring Nikki Flores - We Are the Light (Live from Transmission in Prague)
-02. Yoel Lewis - Commando (World Premiere)
-03. Somna featuring Michele C - Love Your Scars Away (Dave Neven Remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A697AC1B688BD75ABB0C07D9A90BA3D9749199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261201   (305647) от 10.11.2018
-
-VA - 50 Ultimate House Tracks: Workout Edition (2018) [MP3|320 Kbps] <House, Funky, Groove, Future-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rinaldo Montezz & Pepper Mashay - Radioactive (Radio Edit)
-02. Alexdoparis - House Beat (Radio Mix)
-03. Grande Vue - Work Your Body 2.15 (Radio Mix)
-04. DJ Ricky da Dragon - How 2 Love U (Grande Vue Radio Mix) (feat. Fatty Blanco)(   Читать дальше...   )Жанр: House, Funky, Groove, Future-HouseПродолжительность: 04:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A1C51D8B254380A06E199762A4B0EA72842E05
 ```
 
 https://mybot314.ru/tekegram_catalog/

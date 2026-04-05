@@ -1,3 +1,56 @@
+###  Публикация: 944898   (221335) от 16.12.2015
+
+Ты, я и конец света / Ты, я и апокалипсис / You, Me and the Apocalypse (2015) HDTVRip (сезон 1, серии 1-10 из 10) AlexFilm [AD]
+
+>>След.
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда группа обычных людей узнаёт о комете, диаметром в тринадцать километров, которая летит навстречу Земле, они спускаются под город Слау, чтобы наблюдать за концом света по телевизору. Но кто эти люди, и как пересеклись их пути?Производство: Великобритания, США / Working Title Television, Big Balls FilmsЖанр: комедияРежиссер: Сауль Метцштайн, Тим Киркби, Майкл ЭнглерАктеры: Кайл Соллер, Эдвард Джадж, Мэтью Бэйнтон, Дженна Фишер, Джоэль Фрай, Роб Лоу, Меган Маллалли, Макс Браун, Найджел Барбер, Пол Блэкуэлл и др.Перевод: Многоголосый закадровый, профессиональный - AlexFilm
+Внимание! Присутствует ненормативная лексика.Озвучка: Татьяна Манетина, Евгения Тихонова, Пётр Гланц Иващенко, Александр Дасевич, Михаил Суслов, Михаил Шорыгин, Михаил АлексеевПродолжительность: ~00:43:00 серияРеклама: В начале каждой серии видео реклама ставок на спорт
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48172E0B8ED9C2990A9B597334F7B1ED929C4FC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503570   (220581) от 01.12.2021
+
+Чаки / Chucky (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) LakeFilms [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злобная кукла Чаки вновь начинает терроризировать жителей американских пригородов.Производство: Канада, США / David Kirschner Productions, Eat the Cat, Universal Content ProductionsЖанр: УжасыРежиссер: Самир Реэм, Дермотт Даунс, Дон МанчиниАктеры: Закари Артур, Брэд Дуриф, Карина Баттрик, Кристин Элиз, Давид Кольсмит, Яна Пек, Алекс Винсент, Бьоргвин Арнарсон, Тео Брионес, Эйвери ЭстевесПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:40:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E924E54A7F85A0DD5505A72D46AFFE0ADE5AEAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503571   (220293) от 01.12.2021
 
 Чаки / Chucky (2021) WEBRip (сезон 1, серии 1-8 из 8) LakeFilms [AD]
@@ -6,7 +59,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220293.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219744.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219541.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219489.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218493.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218451.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216557.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216119.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215429.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215315.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215301.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215292.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214952.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214877.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214814.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212784.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212425.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210930.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210908.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210432.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210333.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210114.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210091.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210065.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F2F5C93C341D3BE4AFEDC60F4294176C63CDCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604462   (210049) от 14.01.2023
-
-Охотники / Hunters (2023) WEBRip [H.264/1080p] (сезон 2, серии 1-8 из 8) LakeFilms [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа американских граждан в 1970-е занялась выслеживанием нацистов, проживающих на территории США. Им удалось найти и уничтожить несколько сотен человек, стараниями американского правительства избежавших наказания после Второй мировой войны.Производство: США / Big Indie Pictures, Monkeypaw Prodctions, Sonar EntertainmentЖанр: драма, криминал, детективРежиссер: Фил Абрахам, Нельсон МакКормик, Майкл АппендальАктеры: Аль Пачино, Логан Лерман, Джеррика Хинтон, Лена Олин, Сол Рубинек, Кэрол Кейн, Джош Рэднор, Грег Остин, Тиффани Бун, Луис Одзава Чжанцзянь и др.Перевод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~00:55:00 серияРеклама: присутствуют аудио и текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32FAD40CB6CEC309BA186F8CBF5A8458D410FE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445135   (210035) от 01.07.2023
-
-Расследования на Майорке / Дела Мальорки / The Mallorca Files (2021) WEBRip (сезон 2, серии 1-6 из 6) Ultradox [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет сериала переносит зрителей на остров Майорка. Здесь происходят главные события этого проекта. В центре внимания сюжета оказывается героиня, которая пытается поймать преступников. Ко всему прочему, главная героиня собирается к долгожданному переезду. Криминальный мир испанского острова цветет, однако главная героиня, натренированная британскими расследованиями, (   Читать дальше...   )Производство: Великобритания, Франция, Германия, Испания / Cosmopolitan Pictures, Clerkenwell Films, British Broadcasting Corporation (BBC)Жанр: драма, криминалРежиссер: Брин Хиггинс, Гордон Андерсон, Роб ЭвансАктеры: Элен Риз, Джулиан Лооман, María Fernández Ache, Tábata Cerezo, Алекс Хафнер, Нанси Нсуе, Начо Альдегуэр, Дэнис Шмидт, Карлос Олалья, Таня МудиПеревод: Многоголосый любительский (Ultradox)Язык озвучки: РусскийПродолжительность: ~00:45:00 серияРеклама: присутствуют вставки рекламы (аудио / видео / баннер)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7BD1EA36A0D6717E6CA33D65EABDE513BE2FBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

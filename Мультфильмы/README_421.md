@@ -1,3 +1,133 @@
+###  Публикация: 1798570   (17312) от 23.05.2025
+
+Бэтмен-ниндзя против лиги якудза / Batman Ninja vs. Yakuza League (2025) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бэтмен и Робин совершают путешествие через время и пространство, отправляясь в Японию эпохи Эдо. Темный Рыцарь и его верный напарник вынуждены сражаться с альтернативной версией Лиги Справедливости: Джокер и его приспешники теперь средневековые феодалы и зовут себя Лигой якудза.Производство: Япония / Kamikaze DougaЖанр: аниме, мультфильм, боевикРежиссер: Дзюнпэй Мидзусаки, Синдзи ТакагиАктеры: Акио Оцука, Юки Кадзи, Аянэ Сакура, Роми Пак, Коити Ямадэра, Даисукэ Оно, Риэ Кугимия, Хотю Оцука, Ватару Такаги, Акира ИсидаПеревод: Многоголосый (Red Head Sound, HDRezka Studio, 1win Studio, заКАДРЫ)Язык озвучки: Русский, английский, японскийСубтитры: Русские (Forced, Full), английские (Forced, SDH), китайские, датские и др.Продолжительность: 01:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD429E1EDC9E6B5B9726423A8FD43BF87E119C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798574   (17305) от 23.05.2025
+
+Дьявол может плакать / Devil May Cry (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Flarrow Films [Локализованная версия]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Злобные силы норовят распахнуть портал между мирами, а Данте оказывается посреди этой заварушки. Злодей по кличке Белый Кролик хочет установить новый порядок, где дьявол правит балом. На крыше небоскрёба главный герой пересекается с наёмницей с арсеналом оружия - Леди. Их короткая болтовня перерастает в нечто большее. Попутно бесстрашный охотник попадает под прицел (   Читать дальше...   )Производство: США, Япония, Корея Южная / Bootleg Universe, Capcom Company, Shankar Animation, Studio MirЖанр: мультфильм, фэнтези, боевик, детектив, приключенияРежиссер: Хан Сын-у, Пак Со-ён, Hong Ji-YoungАктеры: Джонни Йонг Бош, Скаут Тэйлор-Комптон, Хун Ли, Кевин Конрой, Крис Коппола, Бенжамин Абиола, Кари Уолгрен, Роджер Л. Джексон, Jason Marnocha, Эрика ЛиндбекПеревод: Дублированный (Flarrow Films)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4F552448E50C3E53438E97DC262F4324174AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798558   (17287) от 23.05.2025
+
+Падал прошлогодний снег (1983) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, в одной весьма пластилиновой местности, жил да был орёл-мужчина, которого как-то под новый год послала жена за ёлкой.Производство: СССР / ТО ЭкранЖанр: мультфильм, фэнтези, короткометражка, драма, комедия, семейныйРежиссер: Александр ТатарскийАктеры: Станислав СадальскийСубтитры: отсутствуютПродолжительность: 00:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3128B848EC338E08C726C354CD2299F0800F8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798663   (17257) от 23.05.2025
+
+Чудо-Дино из школы Эр / Wonder Dino (2018) WEB-DL [H.264/1080p] (сезон 1, серии 1-26 из 26)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое друзей-второклассников находят маленького дракончика Дино, обладающего невероятными способностями. С этого момента их школьная жизнь переворачивается, наполняясь приключениями, загадками и волшебством.Производство: КитайЖанр: мультфильм, детский, комедия, фэнтезиРежиссер: Чжао ЛяньхуаПеревод: Дублированный (Russian)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~ 00:13:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FAEF238B4A11ECA1666FD0FC539CFC14DF5D23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798577   (17249) от 23.05.2025
+
+Американский Папаша / American Dad! (2024) WEB-DL [H.264/1080p] (сезон 21, серии 1-22 из 22) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные герои сюжета всех сезонов и серий мультсериала «Американский папаша» — американская семья во главе с настоящим агентом ЦРУ Стэном. Стэн немного глуп, но это сполна компенсируется грудой мышц и воинственным выражением лица. У него и его жены Франсин двое детей-подростков. Дочка Хэйли с замашками хиппи и отчаянным либерализмом ничего не боится, а ее брат Стив (   Читать дальше...   )Производство: США / Turner Broadcasting System (TBS)Жанр: мультфильм, комедия, для взрослыхРежиссер: Шоун Мюррэй, Ральф Фернан, Тим Парзонс, Джо ДаниеллоАктеры: Сет МакФарлейн, Уэнди Шаал, Ди Брэдли Бэйкер, Скотт Граймз, Рэйчел МакФарлейн, Майк Баркер, Кёртис Армстронг, Патрик Стюарт, Эдди Кэй Томас, Даизуке Сузуки, Эрик Дарбин, Кевин Майкл Ричардсон, Джефф Фишер, Майк ГенриПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: ~00:21:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A3FA36EC2123D94BBC6C1089E49F96005368BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798583   (17242) от 23.05.2025
 
 Сказка о рыбаке и рыбке (1950) DVDRip [Полная реставрация изображения и звука]
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17242.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17182.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17159.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17095.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17071.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16959.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16942.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16754.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16731.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16691.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16658.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16554.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16465.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16366.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16321.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16313.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16312.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16278.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16244.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16242.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16216.jpg" />
 </div>
 
 
@@ -541,137 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96B3336054EE0D4245B3703C2FFAB676EFEAB0A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799853   (16211) от 30.05.2025
-
-Книга джунглей / The Jungle Book (1967) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выращенный волками человеческий детеныш Маугли по решению стаи должен вернуться к людям, чтобы не попасть в лапы к тигру-людоеду Шер Хану. Вместе с пантерой Багирой Маугли отправляется в путь, навстречу неожиданным знакомствам и опасным приключениям.
-Он подружится с беспечным медведем Балу, будет похищен обезьянами, станет пленником коварного удава Каа, и еще много (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: мультфильм, мюзикл, комедия, приключения, семейныйРежиссер: Вольфганг РайтерманАктеры: Фил Харрис, Себастьян Кабот, Брюс Рейтерман, Джордж Сандерс, Стерлинг Холлоуэй, Луи Прима, Дж. Пэт О’Мэлли, Верна Фелтон, Клинт Ховард, Чад Стюарт и другиеПеревод: Дублированный, многоголосый профессиональный, авторский (Blu-ray EUR, А.Михалев, Павел Прямостанов, Василий Горчаков)Язык озвучки: русский, английскийСубтитры: русские, английские, украинские и др.Продолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE73A6756C02786069C721F612A66F271133B059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799970   (16157) от 31.05.2025
-
-Царь царей / The King of Kings (2025) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец рассказывает сыну историю мира, и то, что начинается как сказка на ночь, становится повествованием, меняющим его жизнь. Благодаря своему воображению мальчик погружается в увлекательный мир чудес, который откроет для него непреходящую силу надежды и любви.Производство: Корея Южная, США / Blue Harbor Entertainment, Giantstep StudiosЖанр: мультфильм, фэнтезиРежиссер: Чан Сон-хоАктеры: Пирс Броснан, Ума Турман, Кеннет Брана, Оскар Айзек, Марк Хэмилл, Форест Уитакер, Бен Кингсли, Джим Каммингс, Роман Гриффин Дэвис, Ава СэнгерПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A65B3A5A387004721EFFDD3545859D067CE48A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799961   (16134) от 31.05.2025
-
-Планета сокровищ / Treasure Planet (2002) BDRip [AV1/1080p] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16134.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летний Джим Хоукинс отправляется на поиски таинственной Планеты Сокровищ в компании настоящих космических пиратов. Под руководством корабельного кока, киборга Джона Сильвера, он становится умелым «космоплавателем» и не раз спасает космический галеон от самых серьезных опасностей: черных дыр, взрывов сверхновых и космических штормов.Производство: США / Walt Disney Feature Animation, Walt Disney PicturesЖанр: мультфильм, фантастика, фэнтези, приключения, семейныйРежиссер: Рон Клементс, Джон МаскерАктеры: Роско Ли Браун, Кори Бертон, Дэйн А. Дэвис, Джозеф Гордон-Левитт, Тони Джей, Остин Мэйджерс, Патрик МакГуэн, Майкл МакШейн, Лори Меткаф, Брайан МюррейПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, Авторский, Одноголосый любительскийЯзык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH)Продолжительность: 01:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5457BDF24F15BE55737309F24CDE354CB846E423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505462   (16016) от 01.06.2025
-
-Маугли (1973) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая сказка о человеческом детеныше, попавшем в волчью стаю. Постепенно на наших глазах малыш Маугли превращается в могучего человека, которого не без оснований боится тот, кто не смог его убить в детстве. Он вместе с другими волчатами познает мир, взрослеет в гармонии с природой, изучает ее мудрость, учится дружить по-настоящему и соблюдать неприкосновенные (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, приключения, детский, семейныйРежиссер: Роман ДавыдовАктеры: Степан Бубнов, Людмила Касаткина, Юрий Хржановский, Лев Любецкий, Сергей Мартинсон, Александр Назаров, Люсьена Овчинникова, Анатолий Папанов, Юрий Пузырев, Владимир УшаковПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041EB2449211C9E0C61299D0DB766BA224C943EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800155   (16011) от 01.06.2025
-
-Затерявшись в звёздах / I Byeol-e Pil-yohan / Lost in Starlight (2025) WEB-DL [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нан-Ён, чья мать-астронавт не смогла вернуться на Землю, когда во время ее миссии на Марс произошла авария. Нан-Ён всегда мечтала исследовать космос и хотела полететь на Марс в надежде найти следы своей матери. Ее мечта сбывается, когда она становится одной из астронавтов, отобранных для участия в проекте по исследованию Марса. Однако перед стартом она встречает (   Читать дальше...   )Производство: Корея Южная / Climax Studio, NetflixЖанр: мультфильм, мелодрама, фантастикаРежиссер: Хан Джи-вонАктеры: Ким Тхэ-ри, Хон ГёнПеревод: Многоголосый любительский (LE-Production)Язык озвучки: Русский, Корейский, АнглийскийСубтитры: Русские (Forced, Full), Корейские, АнглийскиеПродолжительность: 01:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3D65DA3EBEFDEC82AB366136F6913F55476F48
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,161 @@
+###  Публикация: 1278475   (768206) от 26.01.2019
+
+Репродукция / Replicas (2018) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Талантливый учёный-биолог теряет в автокатастрофе свою семью. Одержимый желанием вернуть к жизни жену и детей, он преступает законы научной этики и самой природы.Производство: США, Company Films, Di Bonaventura Pictures, Riverstone PicturesЖанр: Фантастика, ТриллерРежиссер: Джеффри НачманоффАктеры: Киану Ривз, Элис Ив, Эмили Элин Линд, Эмджей Энтони, Джон Ортис, Томас Миддлдитч, Эмбер Таунсенд, Няша Хатенди, Ария Лайрик Либу, Эмбер Ривера ...Перевод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B36FAB6F095092795EDB43914862F840E312129C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277384   (768205) от 26.01.2019
+
+Бамблби / Bumblebee (2018) WEBRip [H.264/1080p-LQ] [MVO, AD]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768205.jpg" />
+</div>
+
+
+###  Подробнее
+
+1987 год. Скрываясь от преследования, Бамблби находит убежище на автомобильной свалке в калифорнийском городке, где живет Чарли. Девушке скоро исполнится 18, она стремится найти свое место в жизни. И именно она наталкивается на покореженного и сломленного Бамблби. Приведя его в чувство, Чарли моментально осознает: на ее пути оказался не простой желтый Фольксваген (   Читать дальше...   )Производство: США, Allspark Pictures, Bay Films, Di Bonaventura Pictures, Hasbro Inc., Paramount Pictures, Tencent Pictures, Tom DeSanto/Don Murphy ProductionЖанр: Фантастика, боевик, приключенияРежиссер: Трэвис НайтАктеры: Дилан О'Брайен, Хейли Стайнфелд, Хорхе Лендеборг мл., Джон Сина, Джейсон Йен Дракер, Памела Адлон, Стивен Шнайдер, Рикардо Хойос, Джон Ортис, Глинн ТёрменПеревод: Многоголосый закадровый (MUZOBOZ)Субтитры: Корейские (вшитые, неотключаемые)Продолжительность: 01:53:36Реклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36529D59CE949FF5E5EC51F97E0933A4C6E337DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278430   (768204) от 26.01.2019
+
+Богемская рапсодия / Bohemian Rhapsody (2018) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чествование группы Queen, их музыки и их выдающегося вокалиста Фредди Меркьюри, который бросил вызов стереотипам и победил условности, чтобы стать одним из самых любимых артистов на планете. Фильм прослеживает головокружительный путь группы к успеху благодаря их культовым песням и революционному звуку, практически распад коллектива, поскольку образ жизни Меркьюри (   Читать дальше...   )Производство: Великобритания, США / GK Films, New Regency Pictures, Queen Films Ltd.Жанр: Драма, биография, музыкаРежиссер: Брайан СингерАктеры: Рами Малек, Люси Бойнтон, Гвилим Ли, Бен Харди, Джозеф Маццелло, Майк Майерс, Эйден Гиллен, Том Холландер, Аллен Лич, Аарон МакКаскерПеревод: Дублированный (iTunes)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские, украинские, английскиеПродолжительность: 02:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6796DE5431798C2C0D661FD8D5C025E9C7FB4A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213200   (768027) от 17.03.2018
+
+«Яндекс» встроил голосовой помощник «Алиса» в браузер
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_768027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голосовой помощник «Алиса», разработанный поисковиком «Яндекс», ранее доступный только в мобильном приложении, теперь встроили в «Яндекс.Браузер». Об этом сообщается в официальном блоге компании.«Наш голосовой помощник расширил ареал обитания. С сегодняшнего дня «Алиса» доступна не только на смартфонах, но и в «Яндекс. Браузере» для Windows», — говорится в сообщении.Пользователи (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213052   (767971) от 17.03.2018
+
+Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 14.03.18 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767971.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 редакций Windows 8.1 (русские и английские) с обновлениями по март 2018 и интегрированными системными библиотеками + 10 таких же редакций со встроенным Office 2016 Pro Plus VL x86 (можно выбрать, ставить ли Office. Галочка перед началом установки, см. 1-й скриншот). Язык офиса зависит от выбранного языка ОС.
+
+Ничего не вырезано и не изменено, кроме: см. спойлер (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3246587635E388F9337A5E9B4EDD516C51FB5D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212927   (767966) от 17.03.2018
+
+Windows 10 в апреле ждет масштабное обновление
+
+>>3
+>>11
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное "большое" обновление Windows 10, в последнее время случающееся примерно каждые полгода, запланировано на апрель. Об этом сообщает The Verge со ссылкой на публикацию в блоге Microsoft.Компания пока не опубликовала название обновления, следующего за вышедшим прошлой осенью Fall Creators Update. Однако, по информации издания, ничего нового в Редмонде (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213681   (767964) от 17.03.2018
 
 ITVDN | Django (2018) PCRec [H.264/720p-LQ]
@@ -6,7 +164,7 @@ ITVDN | Django (2018) PCRec [H.264/720p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767964.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Adobe InDesign CC 2018 13.1.0.76 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767962.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Grass Valley Edius 9.10.3086 Pro x64 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767961.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767806.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767799.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_767579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767579.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767570.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [13.04.2017] [Ru]
 >>24
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767501.jpg" />
 </div>
 
 
@@ -218,7 +376,7 @@ Titanium Backup Pro 8.0.0.1 [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767500.jpg" />
 </div>
 
 
@@ -244,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_767437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767437.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ Viber разрывает все деловые отношения с Facebook, �
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_767428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767428.jpg" />
 </div>
 
 
@@ -296,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_767417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767417.jpg" />
 </div>
 
 
@@ -322,7 +480,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.9.6-404-504e/dlc) SteamRip =nemos
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767415.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_767392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767392.jpg" />
 </div>
 
 
@@ -374,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_767385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767385.jpg" />
 </div>
 
 
@@ -400,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_767383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767383.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ Windows 7 SP1 2in1 (x64) Elgujakviso Edition (v.25.01.19) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767381.jpg" />
 </div>
 
 
@@ -455,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767374.jpg" />
 </div>
 
 
@@ -481,7 +639,7 @@ Microsoft® Windows 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy® 01.20
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767373.jpg" />
 </div>
 
 
@@ -507,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_767227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_767227.jpg" />
 </div>
 
 
@@ -518,165 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 202633   (767011) от 20.05.2010
-
-[Repack] Split Second [Multi-5] 2010 | R.G. ReCoding
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Arcade / Racing (Cars) / 3D
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125916   (766772) от 16.04.2017
-
-Российский гуманоидный робот "Федор" обрел навыки точной стрельбы из пистолета с двух рук
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_766772.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прошлом году мы рассказывали нашим читателям о российском гуманоидном роботе, получившем название "Федор" (от англ. FEDOR - Final Experimental Demonstration Object Research), который должен стать одним из членов экипажа, который отправится в пилотируемую экспедицию на Луну. Благодаря своей механической природе этот робот может действовать как внутри помещений (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845532   (766711) от 16.04.2017
-
-Ray Orion (Playing Space) - Collection (2014-2017) [MP3|320 кб/с]<Spacesynth>
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start Melody (03:01)
-02. Barnaul Live (03:09)
-03. Singing Soul (03:11)
-04. Work Station (03:16)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 05:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B622FA42377135CE699557F2725FFCD6D08ED8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125963   (766709) от 16.04.2017
-
-Symantec Endpoint Protection 14.0 MP1 Build 2349 (14.0.2349.0100) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symantec Endpoint Protection, использующий технологию Insight, обеспечивает эффективную и надежную защиту конечных систем. Он предлагает усиленную защиту от всех типов атак для физических и виртуальных систем.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069C8ADFF949941BDC1AD7121E36AAC981478A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126023   (766698) от 16.04.2017
-
-Mindjet MindManager 2017 17.2.208 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия MindManager 2017 для Windows позволяет преодолеть любые коммуникативные барьеры. Делитесь своими идеями с другими, представив их в виде карт и диаграмм. Обменивайтесь информацией посредством более 700 облачных приложений, среди которых Google Docs, Trello и Slack. Благодаря новым инструментам для управления проектами и работы с картами, упрощенному управлению (   Читать дальше...   )Язык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88CD3A475DA4A1DAF430201EBA2F460C02F9DCA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990629   (766697) от 16.04.2017
-
-Евгений Старухин | Цикл «Лесовик» [4 книги. Обновляемая] (2015-2017) [FB2]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евгению не было еще и восемнадцати лет, когда умер его дедушка. Дедушка был человеком странным, предпочитавшим растить внука в тайге и прививать ему навыки выживания, вместо того чтобы позволить мальчишке проводить сутки напролет за компьютером. Но виртуальная реальность Евгения не миновала. Сразу после смерти деда, его забрали в специальный детский дом, где объяснили, (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87FE71ACA7FFF861AED2AFF71A125FE966F7BA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

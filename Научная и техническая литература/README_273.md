@@ -1,136 +1,3 @@
-###  Публикация: 909360   (624087) от 19.06.2015
-
-В. Петров | Рассказы о поделочном камне (1982) [FB2, EPUB]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поделочный камень издавна привлекал внимание человека. И сейчас он широко используется как для украшений, так и для изделий различного хозяйственного назначения. Цель книги - познакомить читателя с важнейшими поделочными камнями.
-В рассказе о каждом минерале автор подробно описывает историю его использования, природу и свойства, условия образования и места нахождения. (   Читать дальше...   )Жанр: Геология и география, НаучпопФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CF6C85FCFF62F1076827A5E0CBEDDE3F0556B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909535   (624085) от 19.06.2015
-
-А. Т. Синюк | Бронзовый век бассейна Дона (1996) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624085.jpg" />
-</div>
-
-
-###  Подробнее
-
-На основе обобщения имеющихся научных разработок по эпохе бронзы (середина III - начало I тыс. до н.э.) в книге рассматриваются проблемы целого ряда этнокультурных образований в бассейне Дона.
-Сопоставление донских материалов с широким кругом археологических источников Евразийского ареала, а также привлечение данных палеогеографии, этнографии и ранних письменных (   Читать дальше...   )Жанр: Археология, ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CF11C15CEBE51D6382141D6BEBE6536BFF5EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909516   (624077) от 19.06.2015
-
-Михаил Маслов | Тяжелый бомбардировщик ТБ-1 (2008) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иллюстрированное издание посвящено истории создания и службы советского тяжелого бомбардировщика ТБ-1. В книге рассматриваются модификации самолета, его серийное производство, участие в боевых действиях, применение в Полярной авиации.
-Издание рассчитано на широкий круг читателей, интересующихся историей отечественной авиации.Жанр: Военная техникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7753B2C264278044326F22566EEBC5C90238E810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909436   (624075) от 19.06.2015
-
-Владимир Шигин | Герои русского броненосного флота (2012) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга известного российского писателя-мариниста Владимира Шигина посвящена офицерам и адмиралам эпохи парового и броненосного флота России второй половины XIX века. Эти люди совершили немало подвигов во имя России, но ныне незаслуженно забыты потомками. Среди героев книги: командир «спецназа» Первой Севастопольской обороны 1854–1855 годов лейтенант Н. Бирилев, (   Читать дальше...   )Жанр: История, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF189868A96D63E9AED784B357C131D5760FA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909330   (624074) от 19.06.2015
-
-Ю. Г. Мизун | Полярное сияние (1983) [FB2, EPUB]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624074.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказано об одном из интереснейших явлений природы — полярных сияниях. Автор рассматривает причины их возникновения, связь с солнечной активностью, ближним и дальним космосом, влияние полярных сияний на жизнь и деятельность людей в высоких широтах. Использованы результаты исследований, проведенных в последнее время с помощью геофизических ракет и искусственных (   Читать дальше...   )Жанр: Геология и география, НаучпопФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB14DDB6DB2FB00915DB942531D0CDDEEC9CC34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909362   (624072) от 19.06.2015
 
 Робер де Клари | Завоевание Константинополя (1986) [FB2, EPUB]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624072.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624071.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624064.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623983.jpg" />
 </div>
 
 
@@ -244,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623951.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623945.jpg" />
 </div>
 
 
@@ -299,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623943.jpg" />
 </div>
 
 
@@ -325,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623940.jpg" />
 </div>
 
 
@@ -352,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623934.jpg" />
 </div>
 
 
@@ -379,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623933.jpg" />
 </div>
 
 
@@ -406,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623930.jpg" />
 </div>
 
 
@@ -432,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623858.jpg" />
 </div>
 
 
@@ -459,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623850.jpg" />
 </div>
 
 
@@ -487,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623848.jpg" />
 </div>
 
 
@@ -513,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623847.jpg" />
 </div>
 
 
@@ -539,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623845.jpg" />
 </div>
 
 
@@ -566,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623844.jpg" />
 </div>
 
 
@@ -594,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623841.jpg" />
 </div>
 
 
@@ -621,7 +488,7 @@ Tektronix | Генераторы сигналов от А до Я (2008) [PDF]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623839.jpg" />
 </div>
 
 
@@ -648,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623732.jpg" />
 </div>
 
 
@@ -674,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623714.jpg" />
 </div>
 
 
@@ -685,6 +552,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC373A84146C5DD70D5D75254D0C1C76971B0F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909357   (623712) от 19.06.2015
+
+Н. И. Гродеков | Хивинский поход 1873 года. Действия кавказских отрядов (1883) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Упорство хивинского хана в исполнении справедливых и умеренных требований нашего правительства немедленно освободить находящихся в Хиве русских пленных и дать туркестанскому генерал-губернатору объяснение своих прежних поступков, когда на дружественные сношения, с которыми обращался к нему ген.-ад. Фон-Кауфман, Сеид-Магомет Рахим-хан давал уклончивые ответы — было (   Читать дальше...   )Жанр: Военная историяФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58967BAAD48FED2E84E4A91D7080FA40898F6C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910083   (623708) от 19.06.2015
+
+Д. Дардари и др. (ред.) | Методы спутникового и наземного позиционирования (2012) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит обзор последних результатов научных исследований в области обработки сигналов для определения местоположения и навигации, в ней впервые объединены спутниковое и наземное позиционирование.В обзоре рассматриваются как «классические» технологии позиционирования с помощью спутниковых систем, так и новые темы: нахождение конечных пределов точности систем (   Читать дальше...   )Жанр: Электроника, навигацияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E339B529D7089671DFC4EEE4C7811234D998A17E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909715   (623546) от 19.06.2015
+
+Tektronix | Пробники от А до Я (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это пособие ответит на вопросы: Что такое пробник? Какие пробники бывают? Как правильно выбрать пробник? Как правильно проводить измерения с помощью пробников? и на многие другие.Жанр: Электроника, измеренияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B158F512EA53AC85DE9A388419E6E121A7965562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909593   (623535) от 19.06.2015
+
+Л. Н. Заблотский, А. И. Сальников | МБР-2 - первый гидросамолет Г.М. Бериева (2003) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга знакомит читателя с первым самолетом, созданным Г.М. Бериевым - МБР-2, ставшим самым массовым отечественным гидросамолетом.
+Изложена история разработки и испытания самолета, освоения серийного производства и совершенствования конструкции. Приводятся малоизвестные подробности службы и боевого применения МБР-2. Издание содержит большое количество фотографий, (   Читать дальше...   )Жанр: Военная техника, АвиацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8644CD36E232E2622525D85E0009A62D18B3684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909706   (623531) от 19.06.2015
+
+Tektronix | Осциллографы. Основные принципы измерений (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осциллографы – незаменимый инструмент для тех, кто проектирует, производит или ремонтирует электронное оборудование. В современном быстро изменяющемся мире специалистам необходимо иметь самое лучшее оборудование для быстрого и точного решения своих насущных, связанных с измерениями задач. Будучи “глазами” инженеров в мир электроники, осциллографы являются ключевым (   Читать дальше...   )Жанр: Электроника, измеренияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F34A7332CF1EA73B0FD0F4AE23960815626A45
 ```
 
 https://mybot314.ru/tekegram_catalog/

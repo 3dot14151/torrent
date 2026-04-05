@@ -1,3 +1,55 @@
+###  Публикация: 1551445   (234694) от 17.05.2022
+
+Google показала очки дополненной реальности, показывающие перевод речи собеседника
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google завершила свою конференцию I/O интересным сюрпризом – компания показала свои новые очки дополненной реальности. Ключевой особенностью, которую продемонстрировала Google, была возможность видеть переводы с других языков прямо перед глазами.К сожалению, компания не поделилась подробностями об этих очках. Google лишь продемонстрировала видео, демонстрирующее (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578389   (233358) от 24.09.2022
+
+В сети появились фейковые вакансии от ушедших зарубежных IT-компаний
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233358.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России появились фейковые объявления с предложениями работы в крупных зарубежных IT-компаниях. Мошенники полностью копируют описания должностей с зарубежных порталов и делают так, чтобы они индексировались поисковиком Google при соответствующем запросе. Вместо ожидаемой работы соискателя ждет обман на крупную сумму, сообщает издание "Известия".Так, например, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553422   (233078) от 25.05.2022
 
 Windows 11 21H2 x64 Rus by OneSmiLe [22000.708]
@@ -6,7 +58,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.708]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233078.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232312.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232130.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231438.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231408.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230359.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230125.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229927.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229926.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229676.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229667.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229437.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Corel VideoStudio Ultimate X8 18.6.06 SP3 (x64) + Content [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229020.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228888.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228880.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.813 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228851.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Geekbrains | Профессия Программист Java (2015) PCRec [H.264/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228771.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228460.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228310.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Xiaomi вслед за Apple позволит ремонтировать сма�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228252.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228107.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228084.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ Microsoft Operating Systems on One Flash Drive Release by StartSoft 09-2021 [Ru/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228013.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227962.jpg" />
 </div>
 
 
@@ -631,58 +683,6 @@ IMDB Rating: 7.3/10 (69,936 votes)Формат: MKVПродолжительно�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341667   (227830) от 29.11.2019
-
-uTorrent 3.5.5 Build 45449 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227830.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от трекера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2CB318A76E2FD05301753BA83503D5428B2ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341691   (227754) от 29.11.2019
-
-Ирландец / The Irishman (2019) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227754.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о Фрэнке Ширэне по прозвищу Ирландец, которому приписывают убийство 25 гангстеров, включая самого Джимми Хоффу.Производство: США / Fabrica de Cine, STX Entertainment, Sikelia Productions, Tribeca ProductionsЖанр: Драма, криминал, биографияРежиссер: Мартин СкорсезеАктеры: Роберт Де Ниро, Анна Пакуин, Аль Пачино, Джо Пеши, Алекса Палладино, Джесси Племонс, Харви Кейтель, Бобби Каннавейл, Стивен Грэм, Джек ХьюстонПеревод: Дублированный (Netflix)Субтитры: Русские (Forced, full), английские (Forced, Full)Продолжительность: 03:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63905CCA538732B8C8AEF28694CC68938A657D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

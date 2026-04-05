@@ -6,7 +6,7 @@ Buster Williams - Dreams Come True (1978) 2020, Solid Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233590.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ David Newman - Heads Up (1987) Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233530.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jacques Loussier - Four Classic Albums (1960 - 1962) 2CD, 2013, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233404.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Richie Cole With Phil Woods - Side By Side (1980) 1991, Muse Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233330.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lucky Thompson - I Offer You (1973) 2018, Solid Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233327.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ George Shearing - Conception (1944 - 1958) 2015, Sound Of Yester Year [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233322.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kenny Barron & Mulgrew Miller - The Art of Piano Duo: Live (2005, 2011) 3CD, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233291.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Brian Culbertson - The Trilogy, Pt. 3: White (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233178.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sonny Rollins - Milestone Profiles (1972 - 2000) 2CD, 2006, Milestone [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233165.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Charlie Byrd - Four Classic Albums (1957 - 1960) 2CD, 2014, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233142.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bill McGee - The Tree of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233118.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Rob Zinn - Anything Can Happen (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233105.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Illinois Jacquet & His Big Band - Jacquet's Got It! (1987) Atlantic [WavPack|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233093.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Roberto Tola - Under The Leo Sign (2023) [FLAC|Lossless|WEB-DL|tracks] <Smoonth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233087.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Count Basie & Joe Williams - The Greatest!! Count Basie Plays... Joe Williams Si
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233065.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dave Erickson Project - JAMB (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233058.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dick Hyman - From The Age of Swing (1994) Reference Recordings [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233022.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Chick Corea - 5 Original Albums (1973 - 1976) 5CD, 2016, Verve Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232944.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Tri-Fi - 3 (2010) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232916.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Sidney Bechet - 1949, Vol. 3 (2002) Classics [FLAC|Lossless|tracks + .cue] <Dixi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232901.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lionel Hampton - The Complete Lionel Hampton Victor Sessions (1937 - 1941) 5CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232882.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Count Basie Orchestra directed by Scotty Barnhart - Live At Birdland (2021) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232864.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Eddie Condon - Bixieland (1955) 2005, Membran Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232820.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Jimmy Giuffre 3 - The Easy Way (1959) 2003, Verve Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232800.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Kenny Drew Jr. Trio - Portraits Of Charles Mingus & Thelonious Monk (1995) Clave
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232797.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Dizzy Gillespie Quintet featuring Lalo Schifrin - A Musical Safari (1961) 2015, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232761.jpg" />
 </div>
 
 

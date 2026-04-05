@@ -1,3 +1,61 @@
+###  Публикация: 1206308   (782569) от 13.02.2018
+
+VA - Nothing But Lounge (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Brass  -  Lounge Night  5:24
+02.  Jon Bax  -  Ruby Lips  2:30
+03.  Stephan Sin Roza  -  Sweet Hop  2:47
+04.  Simon Di & Olivier Portal  -  Over The Tracks  3:47(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08192ED6CDECEAA502A88AC7AE5ABDAD8670D959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206328   (782568) от 13.02.2018
+
+VA - Chilling Sounds Vol. 3 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex DJ Zeya - Hear Your Heartbeat (Out Of Smile Mix) 2:36
+02. Amok404 - City of Stars 7:03
+03. Andrew Riqueza - Living the Dream 4:31
+04. ArcticA - Last Kindom 6:39(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA58E0626A68E7F1E0F26D2A3EFB3C7F97101CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206447   (782566) от 13.02.2018
 
 Rukirek - Voices Of Unknown (2018) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
@@ -6,7 +64,7 @@ Rukirek - Voices Of Unknown (2018) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782566.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Chillhouse Factory (Discover Deephouse Rhythms) (2018) [MP3|320 Kbps] <Chil
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782564.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Trance In Space 3 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782560.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Sunrise Mood Vol.11 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782559.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Melodic Beats Vol.1 (2018) [MP3|320 Kbps] <House, Progressive House. Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782557.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Private Chilling Carnival (2018) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782554.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Cold Rush - Collected (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782543.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Laurent Colson - Emptiness (2018) [MP3|320 Kbps] <Downtempo, Electronica>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782542.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Ferry Corsten - Blueprint (Remixed) (2018) [MP3|320 Kbps] <Trance, Progressive T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782535.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Cube - Can Can In The Garden (1983) 2017, Ltd, Num, RE, RM [FLAC|Lossless|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782516.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Ferry Corsten - Blueprint (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782498.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Brume Records - Label-Pack 26 Releases (2001-2015) [FLAC|Lossless|tracks+.cue, t
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782486.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Andromeda - 2 Albums (2004-2005) [APE|Lossless|image + .cue] <Psy-Trance, Progre
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782362.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Min-Y-Llan - Snagged (2020) Min-Y-LlanMusic [FLAC|Lossless|WEB-DL|tracks] <IDM, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782301.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Javier Marimon - General Noise (2020) Oslated [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782299.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ J. Albert - Measuring Things Up (2020) EXTRO jp [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782271.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Best Workout Love Boy (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782262.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Workout Music 2020 [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782261.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ James Grant - The Anjunadeep Edition 300 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782260.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Quadrophobia V.1 (1998) Pendragon Records [FLAC|Lossless|tracks+.cue] <IDM,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782259.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Club Music (2020) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782251.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - House Life Vol.19 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782168.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Delicihouse (The Sound Of Deep House) (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782167.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Music Lovers 2018 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782163.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Music Lovers 2018 [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83377B49FE08887186AD0BECF5E7B783AA907B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206465   (782158) от 14.02.2018
-
-VA - Progressive Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer & Roxanne Emery  -  Lullaby (Original Mix)  3:56
-02.  WeareD  -  Through The Universe (Original Mix)  3:04
-03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
-04.  Huem  -  Ryzen (Original Mix)  3:34(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A7382E7CD40CF685449156091D32C1089E48C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206535   (782157) от 14.02.2018
-
-VA - Club Masters Vol.15 (2018) [MP3|320 Kbps] <Future House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  BAZZFLOW  -  Lost In You (Bragaa Remix)  4:21
-02.  Menshee  -  All Night (Original Mix)  4:06
-03.  Jean Beatz  -  Future (Original Mix)  5:54
-04.  Terri B! & Slippy Beats  -  Deep In The Night (Original Mix)  5:56(   Читать дальше...   )Жанр: Future House, ProgressiveПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127C4E26F6B74D4C60A54BFF8414F87E1FC1982C
 ```
 
 https://mybot314.ru/tekegram_catalog/

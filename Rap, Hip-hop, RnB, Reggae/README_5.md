@@ -1,32 +1,3 @@
-###  Публикация: 1365790   (927269) от 09.03.2020
-
-Scarlxrd - SCARHXURS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PERFECT. [02:20]
-02. YXU’VE BEEN CANCELLED. [02:24]
-03. GRAVESTXNE. [02:41]
-04. MAKING A KILLING. [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17AD8022D3F6DDD1086D848F7521BB948FC67ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987227   (925900) от 17.02.2016
 
 VA - Hip To The Hop: 30th Anniversary Of Hip Hop (2009) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
@@ -35,7 +6,7 @@ VA - Hip To The Hop: 30th Anniversary Of Hip Hop (2009) 2CD, Compilation [FLAC|L
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925900.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Twista - Lifetime (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925815.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ $uicideBoy$ - STOP STARING AT THE SHADOWS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925744.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Usher - Confessions (2004) [FLAC|Lossless|tracks + .cue] <RnB, Swing>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924183.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Noize MC - Царь Горы (2016) [FLAC|Lossless|image + .cue] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920380.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ King Iso - World War Me (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919142.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Creation Rebel - Close Encounters Of The Third World (1978) LP [MP3|320 Kbps] <D
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918841.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Tveth - Caps Lokk (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917561.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Redo - Underated 2 (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917551.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VELIAL SQUAD - Голову на плаху (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917521.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Jeembo & Tveth - PAINKILLER III (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917507.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ XIII - Город 13 (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917504.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ DOPE D.O.D. - Do Not Enter (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917426.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Token - Between Somewhere (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917425.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Muppy - Burn This Place (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917424.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Lord Infamous x T-Rock x C-Rock - Scarecrow & Da Roc-a-Fellaz (2020) [MP3|320 Kb
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917416.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ GSPD - Музло (2019) [MP3|320 Kbps] <Rave, Dance, Pop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917312.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Ghostemane - N / O / I / S / E (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917311.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ SharOn - Шарашка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915821.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ P Money - Money Over Everyone 3 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Grime>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915793.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Slimus x ВесЪ - Улей (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915783.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ RAM (Грязный Рамирес) - Traumatix (2019) [FLAC|Lossless|WEB-DL|tra
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915561.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ RAM (Грязный Рамирес) - Traumatix Ultimate (2019) [FLAC|Lossless|W
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915558.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Die Antwoord - House Of Zef (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Hi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915508.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914250.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29907E441613CA0D0235917DC45FB9B76337FF0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368030   (914245) от 17.03.2020
+
+Czarface - The Odd Czar Against Us (2019) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bizarro (2:49)
+02. Call Me (2:09)
+03. The Gift That Keeps On... (2:36)
+04. Me's Company (2:15)(   Читать дальше...   )Производство: Silver Age – SIL 011-CDЖанр: Hip-HopПродолжительность: 00:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7235EB08FB8ABC3CBA3EF9AEA7CDCD58C418FFD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

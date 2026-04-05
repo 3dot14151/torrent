@@ -6,7 +6,7 @@ Organic Loops - Frontline Producer: Studio Bass [Ableton Live|WAV|AIFF|REX/RMX|N
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_630455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630455.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626164.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Sound Ideas The Series 6000 "The General" Sound Effect Library [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_616152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616152.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615538.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Boom Library - HOT ROD – REV UPS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614981.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Boom Library - TOONS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614886.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613861.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609771.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Boom Library - ASSAULT WEAPONS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606426.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598990.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583609.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583077.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Boom Library - TROPICAL FORESTS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582629.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Boom Library - PRAIRIES [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582628.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582053.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Mattias Westlund - Sonatina Symphonic Orchestra (2011)
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580677.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ XLN Audio - Addictive Drums Indie ADpak[xpack|presets][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_570156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_570156.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ NNM-Club Sound Cleaner - Чистые музыкальные треки с Audio
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568390.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567005.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567004.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567001.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565124.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Boom Library - TRANSPORTATION [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563277.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561707.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556991.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555783.jpg" />
 </div>
 
 

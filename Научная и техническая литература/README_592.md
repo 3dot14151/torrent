@@ -1,136 +1,3 @@
-###  Публикация: 1697076   (119160) от 05.02.2024
-
-Д.А. Жолобов | Введение в математическое программирование (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены методы решения задач линейного и дискретного программирования. Теория линейного программирования содержит обоснование симплекс-метода, теорию двойственности. Рассмотрены методы увеличения вычислительной эффективности решения задач большой размерности. Раздел, посвященный дискретному программированию, включает в себя транспортную задачу, методы решения (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МИФИФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39454A27CD1B4D63DD7F42F16E1F020CDB57EDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697204   (119153) от 05.02.2024
-
-А.Х. Шеуджен, Л.М. Онищенко, Х.Д. Хурум | Люцерна (2007) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119153.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии изложены народно-хозяйственное значение и история возделывания люцерны, ее ботаническая классификация и биологические особенности. Рассмотрены вопросы агротехники люцерны: место в севообороте, обработка почвы, посевные качества семян, сроки и способы посева, приемы ухода за посевами. Особое внимание обращено на системы удобрения и защиты посевов от вредителей (   Читать дальше...   )Жанр: Учебное пособиеИздательство: ОАО "Полиграфиздат "Адыгея"Формат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C349E4F9C75E0602B6AEF259568E19292E5A4D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697091   (119133) от 05.02.2024
-
-Н. Г. Бутейкис | Организация производства предприятий общест­венного питания (1990) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены вопросы организации производства предприятий общест­венного питания, прогрессивные формы обслуживания потребителей.
-Особое внимание уделено организации работы столовых на промышленных предприятиях. В 3-м издании (2-е - 1985 г.) рассмотрены новые виды оборудования, используемого на предприятиях общественного питания.
-Для  учащихся  ПТУ и лиц, обучаемых на производстве.Жанр: Учебная литератураИздательство: Высшая школаФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAADC48066B8AE82477503FFF2367B7F67B66D54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697085   (119126) от 05.02.2024
-
-С.В. Гаркуша, Н.П. Иващенко и др. | Система земледелия Краснодарского края (Методические  рекомендации) (2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о системах земледелия Краснодарского края станет настольной книгой каждого земледельца  Кубани,  поможет повысить эффективность  агрономического  бизнеса,  за  счет универсализации  агрономических,  технологических  приемов  в земледелии,  отличающихся  оптимальными  энергозатратами и высокой  производительностью.Жанр: МетодичкаИздательство: КраснодарФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D765E0748E6F726481F1A31CE78CE02E46FBDF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697219   (119115) от 05.02.2024
-
-М. Маслинков | Технология производства люцерны (1985) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119115.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге болгарских авторов обобщается опыт выращивания основной белковой кормовой культуры в НРБ и других странах. Особое внимание обращено на системы удобрения, орошения и борьбу с болезнями, вредителями и сорняками. Описаны способы уборки люцерны на зеленый корм, сено, сенаж и силос, приготовление белково-витаминных концентратов из люцерны.
-Для агрономов и руководителей (   Читать дальше...   )Жанр: Учебная литератураИздательство: АгропромиздатФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5F5CC1A303B642AFF3EA5050ACB603784E76D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697199   (119100) от 05.02.2024
 
 А. П. Джулай и др. | Культура риса на Кубани (1980) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119100.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119090.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118961.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118960.jpg" />
 </div>
 
 
@@ -246,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118959.jpg" />
 </div>
 
 
@@ -273,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118954.jpg" />
 </div>
 
 
@@ -299,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118888.jpg" />
 </div>
 
 
@@ -325,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118860.jpg" />
 </div>
 
 
@@ -353,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118828.jpg" />
 </div>
 
 
@@ -379,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118827.jpg" />
 </div>
 
 
@@ -405,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118814.jpg" />
 </div>
 
 
@@ -431,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118788.jpg" />
 </div>
 
 
@@ -457,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118783.jpg" />
 </div>
 
 
@@ -483,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118778.jpg" />
 </div>
 
 
@@ -510,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118763.jpg" />
 </div>
 
 
@@ -536,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118753.jpg" />
 </div>
 
 
@@ -563,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118743.jpg" />
 </div>
 
 
@@ -590,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118655.jpg" />
 </div>
 
 
@@ -616,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118644.jpg" />
 </div>
 
 
@@ -642,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118628.jpg" />
 </div>
 
 
@@ -671,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118619.jpg" />
 </div>
 
 
@@ -683,6 +550,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8066BA7A39AF10BBC67B9D078D62BD13E3D4C39E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698457   (118477) от 09.02.2024
+
+Ю.Г. Антонов и др. | Радиотехнические цепи и сигналы. Лабораторный практикум (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены описания 14 лабораторных работ, выполняемых при изучении курсов цикла «Радиотехнические цепи и сигналы». Предназначен для студентов факультета радиотехники и телекоммуникаций направлений 210400 «Радиотехника», 210700 «Инфокоммуникационные технологии и системы связи» и 211000 «Конструирование и технология электронных средств».Жанр: РадиотехникаИздательство: СПбГЭТУ «ЛЭТИ»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F4AAB4DABE03B17F189F95276D8CB3C12B748F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698556   (118470) от 09.02.2024
+
+Я. Б. Мордкович, Е. А. Соколов | Справочник-определитель карантинных и других опасных вредителей сырья, продуктов запаса и посевного матери­ала (1999) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дано морфологическое описание жуков-вредителей промышленного сырья и продуктов запаса (более 400 видов, представителей 24 семейств), а также гусениц-вредителей промышленного сырья растительного и живот­ного происхождения, пищевых продуктов, в том числе свежих фруктов и овощей, цветочной рассады, черенков и саженцев плодовых деревьев и кус­тарников (всего 158 видов (   Читать дальше...   )Жанр: Справочник-определительИздательство: КолосФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A5D95F39648C8F9C7F93E9F672F6AE02C422E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698542   (118430) от 09.02.2024
+
+Н. В. Парахин,  И. В. Кобозев и др. | Кормопроизводство (2006) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены биологические и экологические основы лугового и полевого кормопроизводства. Приведены классификация и характеристика природных кормовых угодий. Рассмотрены ресурсосберегающие технологии со­здания и использования высокопродуктивных сенокосов и пастбищ, заго­товки и хранения различных видов кормов. Уделено особое внимание основам семеноводства кормовых культур. (   Читать дальше...   )Жанр: УчебникИздательство: КолосСФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC612225DEFC52469ED6435E4BFF15980387A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698635   (118300) от 10.02.2024
+
+Н. Коновалова и др. | От ЭР-200 до "Сапсана" (2023) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118300.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматривается история развития скоростного железнодорожного сообщения в СССР и России. Рассказывается о создании и развитии техники для высокоскоростного движения.
+И конечно о людях, которые рарабатывали ее, внедряли и обеспечивали ее эксплуатацию.
+Книга может быть использована как учебное пособие для дополнительного образования по истории железных дорог.Жанр: история техникиИздательство: Издательский дом "ОМ-Экспресс"Формат: DJVU, PDFКачество: Обработанный скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7E977DF9B40BC5DCB085F4AADF86DEBC244C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699146   (118160) от 11.02.2024
+
+Г.Б. Белоцерковский | Радиолокационные устройства (1961) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118160.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге описаны общие принципы работы, электрические схемы и конструктивные особенности нескольких образцов наземных и самолетных радиолокационных станций различного назначения.
+При этом автор не ограничивается простым описанием выбранных образцов аппаратуры, а расширяет сведения о них на основе анализа характеристик и параметров станций, критической оценки и сопоставления (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ОборонгизФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047717DF0078CB3E77E538887AB28C450498B8E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

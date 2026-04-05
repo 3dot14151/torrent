@@ -1,3 +1,32 @@
+###  Публикация: 1091907   (941199) от 10.01.2017
+
+Daniil Trifonov - Transcendental - Daniil Trifonov Plays Franz Liszt (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.1 Prélude (Presto) [00:00:50]
+02. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.2 Molto vivace [00:02:05]
+03. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.3 Paysage (Poco adagio) [00:05:20]
+04. Liszt: 12 Etudes d'exécution transcendante, S.139 - No.4 Mazeppa (Presto) (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562C8EDFB085DF87804A54F6F2FFE1D763A54189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984116   (940059) от 08.02.2016
 
 Federico Albanese - The Blue Hour (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
@@ -6,7 +35,7 @@ Federico Albanese - The Blue Hour (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940059.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Strato-Vani - Ballroom 1 (2015) [MP3|320 кб/с] <Classical, Pop>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938597.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Khatia Buniatishvili - Kaleidoscope - Mussorgsky, Ravel, Stravinsky (2016) [MP3|
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938263.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Escala - Quadrasonic (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935143.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Rick Wakeman - Piano Portraits (2017) [MP3|320 Kbps] <Classical, Piano>
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933324.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Dan Laurin - Telemann, Corelli & Bach (2017) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932082.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Chopin - Piano Concertos nos. 1 & 2 (2005) Davidovich, Marriner - LSO [FLAC|Loss
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928904.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Joe Hisaishi - Symphonic Best Selection (1992) [FLAC|Lossless|tracks] <Score, Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927592.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Richard Wagner - Neuschwanstein (2001) [FLAC|Lossless|image + .cue] <Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925955.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - 100 Classical Music for Babies (2015) [MP3|320 кб/с]<Classic>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925114.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924529.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Russian National Orchestra, Mikhail Pletnev - Russian Overtures (1994) [FLAC|Los
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924331.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Georg Solti & Wiener Philharmoniker - Edward Elgar,Zoltan Kodaly,Boris Blacher -
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920655.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Holly Bowling - Better Left Unsung (2016) [FLAC|Lossless|tracks] <Piano, Classic
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920630.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ The Royal Philharmonic Orchestra - Plays The Music Of Rush (2012) [MP3|320 Kbps]
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919047.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Zodiac - Ars Nova and Ars Subtilior in the Low Countries and Europe - Capilla Fl
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911964.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Arthur Rubinstein - The Complete Album Collection 001-142 (2011) 142CD  Box Set 
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909698.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909585.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Wolfgang Amadeus Mozart-The Symphonies: The English Concert conductor Trevor Pin
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909155.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Alexis Ffrench - Dreamland (2020) Sony Classical [FLAC|Lossless|WEB-DL|tracks] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908972.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Vivaldi - II Pomo d'Oro, Riccardo Minasi, Dmitry Sinkovsky - Concerti Per Due Vi
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907905.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [FLAC|Lossless|tr
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905898.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905779.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Franz Schubert - Fantaisie (David Fray feat. Jacques Rouvier) (2015) [FLAC 2.0|9
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904448.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Pascal Roge - Debussy: Clair de lune (1978 - 1981) VIRTUOSO, 2013, Decca [FLAC|L
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904032.jpg" />
 </div>
 
 
@@ -723,35 +752,6 @@ The Suite bergamasque, состоящая из четырех частей, яв
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1DDF113A246D0FF840258BDC8D950ADB611CD4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099737   (903069) от 02.02.2017
-
-Emika - Melanfonie (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electronic, Classical, Orchestral>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grief (Prelude) (5:58)
-02. The Miracle (9:51)
-03. Letting Go (9:08)
-04. Love (5:06)(   Читать дальше...   )Жанр: Electronic, Classical, OrchestralПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1373B8E2569E7750FB416BE70093F923E10B3B66
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 566716   (775445) от 09.05.2016
+
+Аты-баты, шли солдаты... (1976) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Широкоформатный фильм. Последний фильм Леонида Быкова и его последняя роль в кино...
+Они погибли 18 марта 1944 года, их было всего восемнадцать человек – комсомольский взвод, остановивший колонну немецких танков. Трагическое и комедийное, героическое и лирическое сплелись на экране в необычную ткань повествования об отцах, навсегда оставшихся молодыми, и о детях, (   Читать дальше...   )Производство: СССР / Киностудия имени А.П. ДовженкоЖанр: Драма, ВоенныйРежиссер: Леонид БыковАктеры: Леонид Быков, Владимир Конкин, Елена Шанина, Леонид Бакштаев, Евгения Уралова, Гия Авалишвили, Богдан Бенюк, Николай Гринько, Отабек Ганиев, Иван Гаврилюк, Владимир ГерасимовПродолжительность: 01:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F93E68C9F9D27A86C2390F4DE850BA7AFD29E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657270   (775360) от 22.05.2013
+
+Трое суток после бессмертия (1963) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идет 250-й день обороны Севастополя. На окраине разбомбленного города, без рации и с горсткой боеприпасов, из последних сил держатся 12 бойцов Советской армии. С ними в укрытии — раненые, женщины и дети. Сообщение Совинформбюро о том, что Севастополь оставлен советскими войсками, открывает им суровую правду — теперь они один на один с врагом. Их единственная надежда (   Читать дальше...   )Жанр: Военный, ДрамаРежиссер: Владимир ДовганьАктеры: Владимир Заманский, Николай Крюков, Георгий Юматов, Геннадий Юхтин, Александр Мовчан, Альберт Акчурин, Леонид Данчишин, Лилия Калачёва, Генаят Кенжехан-улы, Виктор КолодныйПродолжительность: 1:20:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E28DB54F8F240770D07660BB9AF3A371FAA9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 658894   (774604) от 23.05.2013
 
 Журналист (2 серии) (1967) DVDRip
@@ -6,7 +59,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774604.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773423.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773331.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772626.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771522.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770941.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770577.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769767.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769678.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769027.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767481.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765574.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765246.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763936.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763815.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763160.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762261.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762245.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762143.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761957.jpg" />
 </div>
 
 
@@ -542,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760945.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760845.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760308.jpg" />
 </div>
 
 
@@ -623,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758808.jpg" />
 </div>
 
 
@@ -635,61 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C62D6AB4415C5A59018247CA2B515F206EE71D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279488   (758343) от 04.02.2019
-
-Город зажигает огни (1958) DVBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам повести Виктора Некрасова «В родном городе».
-Бывший разведчик капитан Николай Митясов после ранения возвращается в разрушенный город и узнает, что его жена Шура изменила ему.
-Лучший друг — летчик-истребитель Сергей Ерошин, потерявший в бою ногу, — занимается спекуляцией. Горечь и растерянность сменили надежду. Но вернулся мир, началась новая (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Драма, ЭкранизацияРежиссер: Владимир ВенгеровАктеры: Николай Погодин, Елена Добронравова, Олег Борисов, Лилиана Алешникова, Павел Усовниченко, Юрий Любимов, Александр Соколов, Валентин Грудинин, Борис Аракелов, Вячеслав Воронин, Алиса ФрейндлихПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2B2E2B46089C690BA38157796704E01E64B9014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 714446   (758336) от 08.07.2020
-
-До свидания, мальчики! (1964) DVDRip [H.264]
-
->>След.
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименной повести Бориса Балтера.
-В приморском городе живут три друга. Целыми днями они пропадают на море, невольно наблюдая жизнь порта, пляжные радости отдыхающих и с юношеским максимализмом размышляя о дружбе, первой любви и смысле их молодой жизни, которую совсем скоро перевернет война…Жанр: ДрамаРежиссер: Михаил КаликАктеры: Евгений Моргунов, Евгений Стеблов, Борис Сичкин, Наталья Богунова, Аня Родионова, Николай Досталь, Виктория Фёдорова, Михаил Кононов, Ангелина Степанова, Ефим Копелян, Эльза Леждей, Евгения Мельникова, Евгений Перов,  Николай Граббе, Эммануил ГеллерПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6199B7CFFB502A29E8EA4D0BB56C04CE16365E3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

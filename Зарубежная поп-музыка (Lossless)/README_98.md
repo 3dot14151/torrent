@@ -6,7 +6,7 @@ Queen Latifah - Trav'lin' Light (2007) CD, Album, Club Edition [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15550.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Sunny Day 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15547.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - 100 Greatest Pop Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15397.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Classic Soul Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15054.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Some Great 20s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14924.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Magical Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14744.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ The Veronicas - Hook Me Up (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14728.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14714.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Some Great 90s Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14502.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Thomas Anders - …Sings Modern Talking - Ready for Romance (Thomas' Version) (2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13931.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Petula Clark - Solitude & Sunshine -The Songs of Rod McKuen (2025) Expanded Edit
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13252.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Summer Hits 2025 - Songs of the Summer (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12767.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Pupo - Insieme (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12351.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - #1 Hits of the 50s, Vol. 2 (2001) CD, Compilation [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12143.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Elton John - Greatest Hits 1974 (1992) CD, Compilation, Reissue [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12135.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Summer House Music 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12007.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Thomas Anders - …Sings Modern Talking - Ready For Romance - Thomas' Version (2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11530.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Sandra - Paintings In Yellow (1990) 1st German Press [APE|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10395.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sade - Love Deluxe (1992) 1st Austrian Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10364.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Roxette - Joyride (1991) 1st UK Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10362.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Sandra - Into A Secret Land (1988) 1st German Press [APE|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10357.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Let's Talk About Sex (1992) [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10079.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ A-HA - Album Collection 5CDs (1985-1993) 1st German Press [APE|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10073.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Global Pop Fusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10060.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Rick Astley - Whenever You Need Somebody (1987) 1st German Press [APE|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9746.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Rick Astley - Hold Me In Your Arms (1988) 1st German Press [APE|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9739.jpg" />
 </div>
 
 

@@ -1,3 +1,161 @@
+###  Публикация: 993583   (893066) от 06.03.2016
+
+Кунг-фу Панда 3 / Kung Fu Panda 3 (2016) WEBRip [H.264/1080p-LQ] [Line]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воссоединившись со своим давно потерянным отцом, По отправляется в тайный рай для панд, где его ожидает встреча с множеством веселых сородичей. Однако вскоре злодей Кай начинает зачистку — он уничтожает кунг-фу мастеров по всему Китаю.
+По предстоит сделать невозможное — обучить боевому искусству деревню, полную его веселых, неуклюжих собратьев, и тем самым превратить (   Читать дальше...   )Производство: Китай, СШАЖанр: Боевик, Комедия, Приключения, СемейныйРежиссер: Алессандро Карлони, Дженнифер ЮПерсонажи: Джек Блэк, Брайан Крэнстон, Дастин Хоффман, Анджелина Джоли, Дж.К. Симмонс, Джеки Чан, Сет Роген, Люси Лью, Дэвид Кросс, Кейт ХадсонПеревод: ДублированныйСубтитры: корейские (вшитые, не отключаемые)Продолжительность: 01:35:00Реклама: Внимание, присутствуют вставки голосовой и текстовой рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FD2F36A0E77156195B7FC35BEFC555283CD719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993515   (893063) от 06.03.2016
+
+Малыш / Little Boy (2015) BDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это военная драма, рассказывающая о судьбе небольшой семьи, которую как и тысячи других, затронули трагические события Второй мировой войны. Маленький мальчик растет, окруженный любовью и лаской своих родителей. Его воображение постоянно рисует ему необычные захватывающие приключения, которые они вместе с отцом с легкостью претворяют в жизнь. За это часто им попадает (   Читать дальше...   )Производство: Мексика, США, Metanoia FilmsЖанр: Драма, Комедия, ВоенныйРежиссер: Алехандро Гомес МонтевердеАктеры: Кевин Джеймс, Эли Ландри, Дэвид Хенри, Эмили Уотсон, Майкл Рапапорт, Тед Левайн, Том Уилкинсон, Абрахам Бенруби, Кэри-Хироюки Тагава, Бен ЧаплинПеревод: Многоголосый закадровый, профессиональный (FocusStudio)Субтитры: ОтсутствуютПродолжительность: 01:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714B59180E878D4766029FFCB9229AAE72A0F34C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370901   (893060) от 29.03.2020
+
+Кроха Tweaker 1.0.0.1 [Ru] (авторская раздача)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кроха Твикер позволяет даже самому неискушенному пользователю без знаний и труда  увеличить производительность системы WINDOWS 2000, XP, Vista, 7, 8, 10. Наиболее актуален для слабых ПК. Набор твиков пока невелик, но, если программа найдет свою аудиторию, буду расширять функционал.
+Программа написана на C# с использованием .NET 2.0, для универсальности и невысокой (   Читать дальше...   )Язык интерфейса: русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6193555DF6C7F158283DCDC321E62C3AD4711DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993748   (893052) от 06.03.2016
+
+Игра на понижение / The Big Short (2015) BDRip [Line]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда речь идет о деньгах, совесть молчит. А уж если речь об огромных деньгах!.. Это основанная на реальных событиях история нескольких провидцев, которые независимо друг от друга предсказали мировой экономический кризис 2008 года задолго до того, как о нем зашептались в кулуарах на Уолл-стрит. И предсказав, стали на нем зарабатывать. Сами того не желая.Производство: США, Plan B Entertainment, Regency EnterprisesЖанр: Драма, БиографияРежиссер: Адам МакКейАктеры: Кристиан Бэйл, Стив Карелл, Райан Гослинг, Брэд Питт, Мелисса Лео, Хамиш Линклэйтер, Джон Магаро, Рейф Сполл, Джереми Стронг, Мариса ТомейПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DE89EA2D77CC64315935D56F62BFCD6797C68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993648   (893049) от 06.03.2016
+
+Омерзительная восьмерка / The Hateful Eight (2015) BDRip [H.264/1080p] [Line]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893049.jpg" />
+</div>
+
+
+###  Подробнее
+
+США после Гражданской войны. Легендарный охотник за головами Джон Рут по кличке Вешатель конвоирует заключенную. По пути к ним прибивается еще один охотник. Снежная буря вынуждает всех троих искать укрытие в лавке на отшибе, где уже расположилась весьма пестрая компания: генерал, шериф, мексиканец, француз и ковбой… И один из них — не тот, за кого себя выдает.Производство: США, The Weinstein CompanyЖанр: ВестернРежиссер: Квентин ТарантиноАктеры: Курт Рассел, Сэмюэл Л. Джексон, Тим Рот, Майкл Мэдсен, Дженнифер Джейсон Ли, Ченнинг Татум, Уолтон Гоггинс, Зои БеллПеревод: Профессиональный многоголосый, Одноголосый закадровый x3, Двухголосый закадровыйСубтитры: Русский (ненорматив), АнглийскийПродолжительность: 02:47:00Реклама: В дубляже есть голосовые вставки рекламы! удалил две вставки рекламы из DVO (Паровоз Продакшн)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64BD4E0524861F793A9AF7E1638327D22B4B77E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370069   (892981) от 29.03.2020
+
+Китай откажется от Windows в госсекторе через три года. Ее замена почти готова
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Власти Китая инициировали разработку новой системы Unity Operating System в рамках постепенного отказа от иностранного ПО, в частности, ОС Windows. Система создается в версиях для ПК и серверов и базируется на китайском Linux-дистрибутиве, в основе которого лежит Debian. Стабильная версия UOS вышла в январе 2020 г. Вместе с UOS и Deepin Китай разрабатывает еще несколько (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 426182   (892972) от 29.03.2020
 
 Заражение / Contagion (2011) BDRip [H.264/720p-LQ]
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892972.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892970.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>21
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892968.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Windows 8 занимает 3,2 % рынка настольных ОС
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892439.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892012.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ Armed Assault 2 Gold Edition / ArmA 2 Gold Edition [Ru/En] (RePack) 2010 | Fenix
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891919.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ Microsoft Windows 7 SP1 RUS-ENG x86-x64 -16in1- Alt Activated (AIO)
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891916.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891868.jpg" />
 </div>
 
 
@@ -215,7 +373,7 @@ Symantec Endpoint Protection 12.1.6 MP7 Build 7166 (12.1.7166.6700) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891837.jpg" />
 </div>
 
 
@@ -241,7 +399,7 @@ Windows 10 Cloud - первая информация о новой систем�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891836.jpg" />
 </div>
 
 
@@ -267,7 +425,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/upd3/dlc) Rip R.G. Revenants [Digi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891834.jpg" />
 </div>
 
 
@@ -293,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891831.jpg" />
 </div>
 
 
@@ -319,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891829.jpg" />
 </div>
 
 
@@ -345,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891828.jpg" />
 </div>
 
 
@@ -372,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891827.jpg" />
 </div>
 
 
@@ -398,7 +556,7 @@ Sea Dogs: City of Abandoned Ships / Корсары: Город потерянн�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891826.jpg" />
 </div>
 
 
@@ -424,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891825.jpg" />
 </div>
 
 
@@ -450,7 +608,7 @@ ESET NOD32 Antivirus / Smart Security 10.0.390.0 RePack by KpoJIuK [Ru/En]
 >>13
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891824.jpg" />
 </div>
 
 
@@ -477,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891787.jpg" />
 </div>
 
 
@@ -503,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891761.jpg" />
 </div>
 
 
@@ -514,165 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614060   (891750) от 04.04.2013
-
-Dead Space 3 (2013) [Ru/En] (1.0.0.1/8dlc) Repack Fenixx [Limited Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891750.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Dead Space 3 Айзек Кларк и не знающий жалости солдат Джон Карвер отправятся далеко в космос, чтобы найти источник нашествия некроморфов. Совершив аварийную посадку на заснеженной планете, Айзек вынужден преодолевать суровые условия окружающей среды в поисках ресурсов и деталей для оружия. Чтобы выжить, придется задействовать все свои инженерные навыки. На холодной (   Читать дальше...   )Тип издания: RePackРазработчик: Visceral GamesЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7D634714A08DFE8E23088F5B4BD315907B2FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561353   (891748) от 04.04.2013
-
-Ходячие мертвецы / The Walking Dead (Сезон 3 полный (16)) (2012) WEB-DLRip (Кубик в кубе)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891748.jpg" />
-</div>
-
-
-###  Подробнее
-
-После страшной болезни, превратившей жителей Земли в зомби, небольшая группа пока еще живых людей изо дня в день борется за выживание в новом, враждебном мире. Под предводительством бывшего полицейского Рика они ищут безопасное для жизни место, но зомби — это не самое страшное, что их ждет, основная опасность — это жестокое внутреннее соперничество среди выживших...Производство: США, AMCЖанр: Ужасы, триллер, драмаРежиссер: Фрэнк Дарабонт, Эрнест Р. Дикерсон, Гай ФерлендПеревод: Профессиональный двухоголосый закадровый - Кубик в кубеПродолжительность: ~ 45:00 мин серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562436   (891745) от 04.04.2013
-
-Ходячие мертвецы / The Walking Dead (Сезон 3 полный (16 серий)) (2012) WEB-DLRip (LostFilm)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891745.jpg" />
-</div>
-
-
-###  Подробнее
-
-После страшной болезни, превратившей жителей Земли в зомби, небольшая группа пока ещё живых людей изо дня в день борется за выживание в новом, враждебном мире. Под предводительством бывшего полицейского Рика они ищут безопасное для жизни место, но зомби — это не самое страшное, что их ждёт, основная опасность — это жестокое внутреннее соперничество среди выживших.Жанр: Ужасы, триллер, драмаПеревод: Профессиональный многоголосый закадровый - LostFilmОзвучка: Студия "LostFilm"Формат: AVIПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24F37A61A7869A1F81310BA76D11356DD920390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638225   (891743) от 04.04.2013
-
-WINDOWS 7 ULTIMATE x64 REACTOR FULL 04.13 [Russian]
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891743.jpg" />
-</div>
-
-
-###  Подробнее
-
-За основу взят оригинальный образ
-ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso
-Оставлена одна, полная редакция Ultimate
-Компоненты не удалялись(   Читать дальше...   )Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 7866   (891726) от 05.09.2021
-
-Classic Albums: Nirvana - Nevermind (2005) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безумно интересный фильм. Большую часть фильма показывают Батча Вига, который сидит за пультом и просто до мозга костей разбирает записи с альбома NEVERMIND, параллельно комментируя звучание голоса, гитар и всего звука в целом. Он по отдельности разбирает все партии гитар и вокала. Показывает, как бы это звучало без наложения двойного голоса Курта, без добавления (   Читать дальше...   )Жанр: Видеоклипы, концертыПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0706F18C6B82BFAF08D387CB4DADF142BB2602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299507   (891720) от 05.09.2021
-
-Миссия невыполнима / Mission: Impossible (1971) DVDRip (Сезон 6, серии 01-22 из 22) В.Белов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа оперативников, подчиняющаяся таинственному «министру», выполняет крайне сложные задания: предотвращение убийства политиков и ученых, срыв планов мафиози, мошенников, шпионов и диктаторов, возврат украденных ценностей, секретных документов и приборов… и множество других заданий. Много операций проводится в странах Восточной Европы, в которых у руля стоят коммунисты.Производство: США, Desilu Productions (1966-1968), Paramount Television (1968-1973)Жанр: Боевик, Приключения, ТриллерРежиссер: Реза Бадии, Бэрри Крэйн, Пол Красны и др.Актеры: Питер Грейвз, Барбара Бэйн, Грег Моррис и др.Перевод: Одноголосый закадровый, любительский - В.БеловПродолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2364BAF96C3420D2DB583FF398DC307200087CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

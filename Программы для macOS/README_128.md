@@ -1,3 +1,56 @@
+###  Публикация: 1642905   (234335) от 29.06.2023
+
+JustStream PRO 2.8 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234335.jpg" />
+</div>
+
+
+###  Подробнее
+
+JustStream — отличное приложение, которое может отображать изображение с Mac на телевизор, Mac — на Chromecast, Mac — на Apple TV и так далее. Вы можете транслировать видео на телевизор и наслаждаться им на большом экране без каких-либо проводов, кабелей или какого-либо дополнительного оборудования.Тип издания: macOS SoftwareРелиз состоялся: 29.06.2023Разработчик: © 2022 Electronic Team, IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54EE6B1E12E48B2AB23EB478E64C2E5786595A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577886   (234126) от 20.09.2022
+
+ForkLift 3.5.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234126.jpg" />
+</div>
+
+
+###  Подробнее
+
+ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента.
+На ForkLift стоит обратить внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2022Разработчик: © 2022 BinaryNights LLCПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2E11F0C137378E0DBD19231EECEF477C2E4B3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622994   (234094) от 31.03.2023
 
 UctoX 2.9.8 U2B [Multi]
@@ -6,7 +59,7 @@ UctoX 2.9.8 U2B [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234094.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Website Watchman 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234076.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Memory Pictures 4.3.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234059.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ Nik Complete 5 Collection by DxO v.5.2.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234027.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ RAR Extractor - Unzip ZIP 7Z 7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233938.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Tidy Up 6.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233894.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ EazyDraw 10.12.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233880.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ Black Out 2.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233609.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ Trickster 3.8.1 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233573.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ Backgrounds 10.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233556.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ Service Station Pro 2020.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233460.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ Eassiy Android Data Recovery for Mac 5.1.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233290.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ Superkey 0.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233285.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ AnyDroid 7 v.7.5.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233271.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ Rogue Amoeba Farrago 1.6.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233214.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ Sound Siphon 3.4.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233205.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ Aiseesoft HD Converter for Mac 9.2.26 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232855.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ HitPaw Screen Recorder for Mac 1.0.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232789.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ Steinberg Nuendo Pro for Mac 12 v.12.0.70 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232674.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ AssetsGen 4.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232640.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ AutoSwitchInput Pro 2.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232634.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ BusyCal 2023.1.2 U2B [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232549.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ camLAPSE 3.10 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232543.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ iCollections 8.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232508.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ iCollections 8.0.3 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50332134660927BDED988F26E3DBE5D3FD993C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643755   (232406) от 03.07.2023
-
-Tipard Blu-ray Converter for Mac 10.0.56 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой и удобный конвертер Blu-ray и DVD в популярные форматы, с поддержкой мощных функций редактирования, которые помогут вам создавать персонализированные видео для просмотра практически на любых мобильных устройствах - iPhone, iPad, Samsung Galaxy и многие др. Приятный дизайн, удобный и интуитивно понятный интерфейс, высокая скорость преобразования - что еще (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.05.2023Разработчик: © 2021 Tipard StudioПоддерживаемая ОС: Mac OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C489DB098947BFE6C9E20BF96DEBB5C20DA2972D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643744   (232399) от 03.07.2023
-
-AnyMP4 Blu-ray Ripper for Mac 9.0.36 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232399.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Blu-ray Ripper разработан с наиболее эффективными решениями для копирования дисков Blu-ray в любой популярный видеоформат, такой, как MP4, TS, MKV, MOV, M4V, AVI, WMV, VOB, DivX, XviD, MPEG, F4V, WebM. и даже больше, и даже конвертировать Blu-ray в HD-видео 4K и 1080p с кодеком H.265, H.264, MPEG4, XviD, VP8, VP9 и другими. Он также извлекает фоновую музыку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.05.2023Разработчик: © 2023 AnyMP4 StudioПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский,  Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB4D1867F9B55D0D40F97BB87EA20D0DF3447DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

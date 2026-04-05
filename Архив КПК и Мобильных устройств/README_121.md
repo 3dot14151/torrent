@@ -6,7 +6,7 @@ Melon VPN - Secure Proxy VPN 7.9.612 Mod By AzadNet [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132592.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Psiphon Pro 391 Mod by AzadNet [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132581.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ SoundHound∞ 10.2.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132362.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132332.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Fitify: Фитнес тренировки дома 1.61.1 Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132313.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Soul Browser 1.3.89 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132067.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Soul Browser 1.3.89 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132051.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Speedtest от Ookla 5.2.4 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131173.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Speedtest от Ookla 5.2.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131089.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130565.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Speedtest от Ookla 4.6.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130462.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Music Folder Player v2.6.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130459.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ RainViewer: Метеорадары, ДМРЛ v2.13.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130408.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Easy Voice Recorder - Pro / Простой диктофон - Про v2.8.1 [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130406.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Adobe Acrobat Reader для PDF 21.11.1.20710 Mod by Rajat [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130202.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Duolingo Plus: изучение иностранных языков 5.41.1 XML-M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130137.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Duolingo Plus: изучение иностранных языков 5.41.1 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130084.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Soul Browser v1.2.93 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129896.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ IPTV Pro v7.1.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129592.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Purvpn 10.0 [En/Farsi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128884.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ SHAREit Premium: Pure Share v1.1.18.2 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128793.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128789.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ PDF Extra PDF Editor & Scanner v10.8.2228 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128764.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Smart AudioBook Player 10.3.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128732.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Adobe Photoshop Express 11.8.192 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128731.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Duolingo: изучай языки 5.131.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128721.jpg" />
 </div>
 
 

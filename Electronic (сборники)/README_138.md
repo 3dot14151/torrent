@@ -1,3 +1,67 @@
+###  Публикация: 548968   (467789) от 18.09.2012
+
+VA - Dance for Summer Party (2012) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She - Timebomb (A. R. Mix)
+02. MC Joe & The Vanillas - Goin in (R. N. Remix)
+03. Masquerade - Boys Boys Boys (Summertime Love R. P. Remix)
+04. Kate Project - Wide Awake (A. R. Remix)
+05. Lanfranchi, Farina & Walter Master J - My Freedom (Club Radio Edit)
+06. MC Joe & The Vanillas - Whistle (R. P. Remix)
+07. Hanna - End of Time
+08. Sergio Mauri, Andrea Vinai & Alessandro Vinai - All My Love
+09. MC Ya - Va Va Voom (A. R. Remix)
+10. Simone Farina, Alessandro Vinai & Andrea Vinai - Make Me Feeling(   Читать дальше...   )Жанр: DanceПродолжительность: 01:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CEB1ADE7F9EA7C1231CE4906AFAEEA232348CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161325   (467477) от 28.08.2017
+
+VA - The Sound Of Chill House (2017) [MP3|320 Kbps] <The Sound Of Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467477.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stone Van Brooken feat. Tyler Sjostrom - The Way You Are
+002. Tom Budin Ft. Jack Wilby - Price On Love (Original Mix)
+003. Nora En Pure - Make Me Love You
+004. DJ Dmitry Bezin Feat The Sun - Air Love(   Читать дальше...   )Жанр: The Sound Of Chill HouseПродолжительность: 13:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9BE5B4FE73D1713CD6DA49522EBE4E014D45F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940611   (467186) от 25.09.2015
 
 VA - Top 30 Lounge Music Selections Club Summer Sessions (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -6,7 +70,7 @@ VA - Top 30 Lounge Music Selections Club Summer Sessions (2015) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467186.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ VA - Eulogy Of Dreams (2019) [MP3|320 Kbps] <Downtempo, Ambient, Relax>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467127.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ VA - Record Super Chart 600 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466941.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ VA - Top 150 Deep House Vol.4 (2019) [MP3|320 Kbps] <House, Deep House, Club Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466610.jpg" />
 </div>
 
 
@@ -122,7 +186,7 @@ VA - Club Dance Ambience Vol.88 (2016) [MP3|320 Kbps] <House, Electro House, Mas
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465661.jpg" />
 </div>
 
 
@@ -151,7 +215,7 @@ VA - Top 100 Deep House: September 2016 (2016) [MP3|320 Kbps] <Deep House, Club 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465654.jpg" />
 </div>
 
 
@@ -180,7 +244,7 @@ VA - Burst Of Emotion (2019) [MP3|320 Kbps] <Electro, Dance, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465509.jpg" />
 </div>
 
 
@@ -209,7 +273,7 @@ VA - Expression Progressive House (2017) [MP3|320 Kbps] <House, Progressive, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465240.jpg" />
 </div>
 
 
@@ -238,7 +302,7 @@ VA - Absolutely Chillhouse Chillout and Lounge (2015) [MP3|320 кб/с]<Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465062.jpg" />
 </div>
 
 
@@ -267,7 +331,7 @@ VA - Repeat Of Bliss (2015) [MP3|320 кб/с]<Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465058.jpg" />
 </div>
 
 
@@ -296,7 +360,7 @@ VA - До утра (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Disco Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464889.jpg" />
 </div>
 
 
@@ -325,7 +389,7 @@ VA - Ultimate Sexy Beats Vol. 1 (2015) [MP3|320 кб/с]<Drum & Bass, Jungle>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464760.jpg" />
 </div>
 
 
@@ -354,7 +418,7 @@ VA - Beatport Trance Pack (02.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emoti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464471.jpg" />
 </div>
 
 
@@ -383,7 +447,7 @@ VA - LUXEmusic: Dance Super Chart Vol.88 (2016) [MP3|320 Kbps] <House, Electro H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464469.jpg" />
 </div>
 
 
@@ -412,7 +476,7 @@ VA - 2016 EDM Underground (2016) [MP3|320 Kbps] <House, Funky, Tropical, Indie D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464467.jpg" />
 </div>
 
 
@@ -441,7 +505,7 @@ VA - Summer House Sessions Desire (2016) [MP3|224-320 Kbps] <Funky, Tropical, Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464292.jpg" />
 </div>
 
 
@@ -470,7 +534,7 @@ VA - After Office: Clubbing Techno Set (2020) [MP3|320 Kbps] <Techno, Tech House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464263.jpg" />
 </div>
 
 
@@ -499,7 +563,7 @@ VA - Sunset Chillout Party (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464261.jpg" />
 </div>
 
 
@@ -528,7 +592,7 @@ VA - Beatport Electro House: Sound Pack #171 (2020) [MP3|320 Kbps] <Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464122.jpg" />
 </div>
 
 
@@ -557,7 +621,7 @@ Kofie Anon & United Nations - Best Of In The Mix (2022) Mixed by aQuaLuna [MP3|3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464102.jpg" />
 </div>
 
 
@@ -586,7 +650,7 @@ VA - I'm Listening Now 2 (2022) [MP3|320 Kbps] <Club, House, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463958.jpg" />
 </div>
 
 
@@ -615,7 +679,7 @@ VA - Techno Cloud Top September 2015 (Compiled And Mixed By Deeper82) (2015) [MP
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463119.jpg" />
 </div>
 
 
@@ -644,7 +708,7 @@ VA - Ultimate Sexy Beats Vol.3 (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463011.jpg" />
 </div>
 
 
@@ -673,7 +737,7 @@ VA - Chill in Chill Out Sensual Lounge Music for Relaxation (2015) [MP3|320 кб
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463009.jpg" />
 </div>
 
 
@@ -687,70 +751,6 @@ VA - Chill in Chill Out Sensual Lounge Music for Relaxation (2015) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3AE43EDAC3D431E4D35D2E22BA2598013611773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941367   (462995) от 27.09.2015
-
-Guilty by Innocence - Temple of Love feat Samira K [Erotic Vocal Pop Lounge and Oriental Chillout Cafe Sessions] (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning (Twilight)
-02. Temple of Light - Intimate India and Asian Erotic Mix
-03. Mantra - Buddha Lounge Cafe World Pop Chant Mix
-04. I Feel You (In My Mind) - Erotic Bondage Moment Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D63F9D8806E872619A4FC24D3AA2C0C1ABC4ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549566   (462746) от 20.09.2012
-
-VA - Into The Music Vol. 56 (2012) [MP3|320 кб/с]<Dubstep, Brostep, Ambient Dubstep, Chillstep, Drumstep, Vocal Dubstep, Drum and Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462746.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 12Th Planet & Skrillex & Kill The Noisie - Burst (2:47)
-2. 501 Feat. Belle Humble - Headrush (Radio Mix) (4:31)
-3. Avicii - Levels (Skrillex Remix) (31:34)
-4. Borgore - Kiss My Lips (Original Mix) (4:06)
-5. Britney Spears - Till The World Ends (Catex Remix) (4:36)
-6. Camo & Krooked - Watch It Burn (Ft. Ayah Marar) (3:29)
-7. Cassius, Jay-Z & Kanye West - Why I Love You (Schoolboy Remix) (4:20)
-8. Celldweller - Elara (2:57)
-9. Chase & Status - Flashing Lights (Feat. Sub Focus & Takura) (26:22)
-10. Chase & Status - Hypest Hype (Feat. Tempa T) (3:30)(   Читать дальше...   )Жанр: Dubstep, Brostep, Ambient Dubstep, Chillstep, Drumstep, Vocal Dubstep, Drum and BassПродолжительность: 05:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB25B5FE9EB80AFB6CD71465989B30A2B4FB8E0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

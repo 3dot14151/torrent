@@ -1,3 +1,56 @@
+###  Публикация: 907553   (637619) от 12.06.2015
+
+С. Постников, Л. Искров | Альбом моделей и самоделок [2-е дополненное издание] (1931) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637619.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Альбом моделей самоделок» дает описание постройки основных моделей радио, фото, летающих моделей,паровых машин и рассчитан главным образом на технические кружки пионеротрядов, школ, ДТС и Дома техники комсомола.Жанр: СамоделкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6AAD5B4A8A0CD7C4C556775BCC0EAEC2A11F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 348110   (637607) от 09.06.2011
+
+Валерий Шульжик | Неуловимый Фунтик [2005] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте себе, ребята: ваши любимые герои знаменитого мультфильма "Неуловимый Фунтик", удирая от сыщиков, продолжают свое путешествие по страницам новых книг.
+Книг с этими героями - целых десять. Они красочны, полны приключений, да вот беда: их на всех может не хватить. Так что, дорогие читатели, не зевайте! Следите за выходом каждой новой книги! Только (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:463617E7A85F95A29FC01BE49828C9784561225A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143240   (637482) от 17.06.2017
 
 Владимир Грусланов, Михаил Лободин | По дорогам прошлого (1967) [FB2]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637482.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637475.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637408.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637261.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637256.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637106.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636955.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636939.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636356.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636280.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636279.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636256.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636150.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636148.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636132.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636054.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636053.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636033.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635975.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635970.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635957.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635945.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635844.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635817.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC915443D9F7B4C75EE7D52DF42D66152D1C5980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033961   (635813) от 12.07.2016
-
-В.Г. Борисов | Юный радиолюбитель (5-е изд.) (1972) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635813.jpg" />
-</div>
-
-
-###  Подробнее
-
-В форме популярных бесед книга знакомит читателей с историей и развитием радио, с элементарной электро- и радиотехникой, с современным применением радиоэлектроники. Она содержит около 50 описаний различных по сложности конструкций приемников и усилителей низкой частоты, радиоузла, аппаратуры для радиоспорта, электромузыкальных инструментов, автоматически действующих (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D515EC4062C4B17BD378882F088C26851ECD7BD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907958   (635729) от 13.06.2015
-
-Л. Киселев | Ремонт жилья и школы (1948) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелкий ремонт жилья и школы - дело нетрудное, его может выполнить бригада школьников при помощи самых простых приспособлений, инструментов и материалов.Жанр: Строительство, ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3496A4486A3B20CEE8A7F5E2437EEC030A196CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

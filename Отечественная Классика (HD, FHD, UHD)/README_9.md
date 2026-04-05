@@ -1,3 +1,57 @@
+###  Публикация: 1146966   (610896) от 01.07.2017
+
+Солярис (1972) BDRip [H.264/1080p] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в неопределённом будущем.
+Три человека на планете Солярис оказываются в предельной, нечеловеческой ситуации. Окруженные своими «гостями», они должны решать, что делать. Для доктора Сарториуса главное — долг перед наукой, истиной, которая выше жалости и морали. Снаут гнется под тяжестью обрушившихся на него проблем — научных и нравственных.Производство: СССР, киностудия: "Мосфильм"Жанр: Фантастика, ДрамаРежиссер: Андрей ТарковскийАктеры: Донатас Банионис, Юри Ярвет, Владислав Дворжецкий, Наталья Бондарчук, Николай Гринько, Анатолий Солоницын, Ольга Барнет, Виталик Кердимун, Ольга Кизилова, Татьяна МалыхПродолжительность: 02:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB25F7D25C7417192760919B3E188B59D136AF2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911303   (610292) от 26.06.2015
+
+Три плюс два (1963) BDRemux [H.264/1080p] [Реставрация]
+
+>>След.
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое друзей из Москвы живут «дикарями» в замечательном месте с песчаным пляжем, пресной водой, тенью и дровами у самого моря. Отдыхают.
+Внезапно приезжают две незнакомки и заявляют, что это их старое место. Более того, они доказывают свое первенство, выкопав бутылку с письмом. Но уезжать ребята отказываются. Дамы же от своего места отказываться тоже не собираются (   Читать дальше...   )Производство: СССР, Киностудия им. М.ГорькогоЖанр: КомедияРежиссер: Генрих ОганисянАктеры: Наталья Кустинская, Наталья Фатеева, Андрей Миронов, Евгений Жариков, Геннадий Нилов, Бэзил РэтбоунПродолжительность: 01:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD55060F40E372333B175C68F299D94C693EEC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 354239   (610090) от 23.06.2011
 
 Мой ласковый и нежный зверь (1978) BDRip [H.264/1080p]
@@ -6,7 +60,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610090.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608979.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607933.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604710.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603877.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601522.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600796.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599478.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597589.jpg" />
 </div>
 
 
@@ -241,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590460.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567434.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566801.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556338.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556325.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556009.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541739.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540335.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540109.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533632.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531805.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531803.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531126.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529385.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527895.jpg" />
 </div>
 
 
@@ -624,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0D0426A12EA0A76667FF7EC768C285613432FC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 651852   (524755) от 13.08.2015
-
-Небесный тихоход (1945) BDRip [1080p] [Цветная версия]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три друга, летчики-офицеры, поклялись не любить до конца войны. Однако военная служба познакомила их с летчицами женской эскадрильи. И друзья один за другим начали сдавать свои позиции.
-После тяжелого ранения летчик Булочкин вынужден летать не на скоростном истребителе, а на «тихоходе» У-2. Привыкший к опасностям Булочкин с трудом привыкает к спокойной жизни в эскадрилье, (   Читать дальше...   )Жанр: Военный, КомедияРежиссер: Семен ТимошенкоАктеры: Николай Крючков, Василий Меркурьев, Василий Нещипленко, Алла Парфаньяк, Людмила Глазова, Тамара Алешина, Яков Гудкин, Фаина Раневская, Константин Скоробогатов, Семен ТимошенкоПродолжительность: 01:23:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08118771F9D6AD021A5ED4576A4A6616EF269EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930658   (514985) от 23.08.2015
-
-Испытание верности (1954) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кинодрама о непростых человеческих судьбах, о любви и разлуке, измене и преданности, происходящих в семье потомственного рабочего Егора Кузьмича Лутонина. Старый потомственный рабочий, Егор Кузьмич Лутонин, мастер дела и уважаемый на заводе человек, в один прекрасный день вдруг понял, что его дочери не вполне счастливы: Ольга развелась с мужем, Варя полюбила недостойного (   Читать дальше...   )Производство: СССР, МосфильмЖанр: МелодрамаРежиссер: Иван ПырьевАктеры: Сергей Ромоданов, Марина Ладынина, Леонид Галлис, Василий Топорков, Нина Гребешкова, Александр Михайлов, Станислав Чекан, Олег Голубицкий, Зинаида Руднева, Николай ТимофеевПродолжительность: 01:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2F44C7FA166BB2AD51F12716541323D9FA62B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

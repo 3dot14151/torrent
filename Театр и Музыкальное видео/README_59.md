@@ -6,7 +6,7 @@ Guf (Гуф) - клипы (2006-2013 )/ Guf - all video (2006-2013) HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651227.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Police: Certifiable - Live in Buenos Aires (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651205.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651129.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651128.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Muse - BBC Radio 1's Big Weekend (2015) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651102.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ David Gilmour - Live in Wroclaw (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650914.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ BRUTTO - Live in Atlas (2016) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649416.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Metallica - Orion Music Festival - The Black Album (2012) HDTVRip 720 [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_648930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648930.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648863.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647137.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647047.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647017.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Flying Dutchman / Andre Rieu -  The Flying Dutchman (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_646969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_646969.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ AC/DC - Backtracks [Deluxe Edition] "Live At The Circus Krone" (2003/2009) DVDRi
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_646967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_646967.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ W.A.S.P. - Live At The Lyceum, London (1984) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646380.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Doobie Brothers - Live at Wolf Trap (2013) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645459.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Vaya Con Dios - Live 2005 & 2006 (2016) TVRip>DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645449.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645032.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644799.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644561.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643732.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Realm Of Napalm Records Vol. III (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643617.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Dream Theater - Live at Budokan (2004/2011) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642821.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_641810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641810.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ The Rolling Stones - The Stones In The Park (1969/2012) [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641658.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_639619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639619.jpg" />
 </div>
 
 

@@ -1,3 +1,110 @@
+###  Публикация: 1794895   (19689) от 01.05.2025
+
+Stellarium Plus - Star Map v1.14.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stellarium Plus - Star Map — это приложение-планетарий, которое показывает именно то, что вы видите, когда смотрите на звезды.
+Идентифицируйте звезды, созвездия, планеты, кометы, спутники (например, МКС) и другие объекты глубокого космоса в режиме реального времени в небе над вами всего за несколько секунд, просто наведя телефон на небо!
+Это астрономическое приложение (   Читать дальше...   )Тип издания: PaidРазработчик: Stellarium LabsПоддерживаемая ОС: Android 6.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4B82960E99F20CDE838A6E8B3C010F4BB0E280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794859   (19688) от 01.05.2025
+
+Ocean Match / Рыбки: Три в ряд v3.1.3 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19688.jpg" />
+</div>
+
+
+###  Подробнее
+
+🐠 Добро пожаловать в Рыбки: Три в ряд (Ocean Match)! Совершенно новая игра от компании LinkDesks!
+Бесплатно играть! Попробуйте украшать уникальный аквариум, вы всегда можете зайти в игру и полюбоваться на пестрых рыбок, плавающих туда-сюда!Тип издания: ModРелиз состоялся: 01.05.2025Разработчик: LinkDesks Classic Puzzle GamesПоддерживаемая ОС: Android 5.1+Жанр: ГоловоломкаЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28F9D2A5443BD1AD8AE70F86F522F4A078ED1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795121   (19594) от 02.05.2025
+
+Zen Life: игры с плитками v3.258 Mod by Viktorovich31 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы ищите способ отдохнуть и потренировать свой мозг, то Zen Life определенно для вас. Zen Life — это игра-медитация, сочетающая в себе жанр сопоставления плиток с механикой «три в ряд». В игре представлены головоломки с различной степенью сложности, как и полагается игре в маджонг с сопоставлением плиток. Вам нужно соединять красивые плитки на доске поверх великолепного (   Читать дальше...   )Тип издания: ModРелиз состоялся: 02.05.2025Разработчик: Unico Games StudioПоддерживаемая ОС: Android 6.0+Жанр: ГоловоломкаЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF4D0AC2E560B45827A2AB7545DF8347466F495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795604   (19286) от 05.05.2025
+
+Timelie v1.0.2 Mod by LITEAPKS [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте временем, как треком в проигрывателе, вместе с загадочным котом разгадывайте головоломки и проникайте в тайны необычного сюрреалистичного мира. Крадитесь, думайте и спасайтесь… вместе.Тип издания: UnlockedРелиз состоялся: 29.04.2025Разработчик: SnapbreakПоддерживаемая ОС: Android 5.1+Жанр: ГоловоломкиЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DF4CA7C2EE7418FBB718C48371C8B80D01C3C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795511   (19278) от 05.05.2025
 
 Cuphead v1.60 [En]
@@ -6,7 +113,7 @@ Cuphead v1.60 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19278.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Follow the meaning v1.1.39 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19267.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Garmin: City Navigator Europe NTU 2026.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19251.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ GIF Maker - GIF Editor v3.0.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19241.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ Way of the Hunter Wild America v1.0.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19173.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ Eastern Exorcist v1.00.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18973.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ TMNT: Shredder's Revenge v1.2.15 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18958.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ Voodoo Detective v0.0.33 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18952.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ Brave People WW2 Point & click / Храбрые люди vBuild 265 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18950.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ Sunset Hills v1.0.22 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18949.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ Through the Darkest of Times v1.0.18 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18944.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ Garage: Bad Dream Adventure v1.1.263 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18864.jpg" />
 </div>
 
 
@@ -326,7 +433,7 @@ WeNote: заметки блокнот планер v6.32 Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18819.jpg" />
 </div>
 
 
@@ -352,7 +459,7 @@ CCleaner Pro: ПО для очистки 25.08.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18752.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ WPS Office + PDF v18.17.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18738.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ EPIK - AI Photo & Video Editor 5.6.22 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18724.jpg" />
 </div>
 
 
@@ -430,7 +537,7 @@ Blaze - Виртуальный Камин 4K v1.8.0 Mod by SurvivalHorror [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18674.jpg" />
 </div>
 
 
@@ -456,7 +563,7 @@ TickTick: Список дел и задачи v7.6.6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18652.jpg" />
 </div>
 
 
@@ -482,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18604.jpg" />
 </div>
 
 
@@ -508,7 +615,7 @@ Squid - рукописные заметки v4.4.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18598.jpg" />
 </div>
 
 
@@ -534,7 +641,7 @@ Darts Club: PvP Multiplayer v6.0.3 Mod by Viktorovich31 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18452.jpg" />
 </div>
 
 
@@ -560,7 +667,7 @@ TestMaker / Создатель запоминания v10.5.1 Mod by PieMods [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18326.jpg" />
 </div>
 
 
@@ -571,114 +678,6 @@ TestMaker / Создатель запоминания v10.5.1 Mod by PieMods [Ru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA1519D83B8C34FAFF8936A15EA054D940059CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797023   (18325) от 14.05.2025
-
-Электробезопасность тесты 2025 v1.0.16 Mod by vedserega [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18325.jpg" />
-</div>
-
-
-###  Подробнее
-
-В приложении представлены тесты с вопросами и ответами по следующим темам:
-- Эксплуатация электроустановок потребителей
-- Электросетевые организации (обслуживающие)
-- Эксплуатация электроустановок потребителей выше 6000В.(   Читать дальше...   )Тип издания: FullРелиз состоялся: 13.05.2025Разработчик: Данила ДаниленкоПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD91C27BB1D15D3CD7EA53D21B164309F153643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797075   (18321) от 14.05.2025
-
-Motivation - Каждый день v4.79.2 Mod by PieMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переживаете трудные времена? Вам нужен дополнительный толчок, чтобы выполнить трудную задачу? Любите делиться вдохновляющими цитатами в социальных сетях? Тогда Motivation идеально вам подойдет.
-Позитивные напоминания — один из самых простых и мощных инструментов для психического роста. Секрет в том, чтобы каждый день с самого утра держать правильные мысли в голове. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.05.2025Разработчик: Monkey Taps LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D22D022A3930BD7360B7D4AB8A1CA38B32A5E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797627   (18005) от 17.05.2025
-
-Fitness Online / Фитнес онлайн v2.20.5 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fitness Online - фитнес приложение, с помощью которого вы сможете похудеть, накачать пресс, накачать ягодицы, набрать мышечную массу, найти множество 3D упражнений и использовать готовые тренировки с диетой от чемпионов. Также сможете вести личный дневник тренировок или найти себе лучшего персонального тренера из любого города для онлайн занятий фитнесом и бодибилдингом. (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 17.05.2025Разработчик: Fitness Online LLCПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6881C43D4583C2BF1166E262B4E2198E33E01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797661   (18001) от 17.05.2025
-
-Adguard Pro 4.10.35 Mod by FreeApkexe [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный интернет-фильтр и блокировщик рекламы для Android-смартфонов и планшетов, который предоставляет пользователю эффективную защиту от вредоносных, фишинговых и мошеннических веб-сайтов.Тип издания: ProПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9BA10903447E7254DFC31C0685D09EC1342632
 ```
 
 https://mybot314.ru/tekegram_catalog/

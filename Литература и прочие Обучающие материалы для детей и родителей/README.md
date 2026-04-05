@@ -1,4 +1,59 @@
 https://t.me/izofen
+###  Публикация: 1863301   (1063973) от 
+
+В. Воловик | Давай воспитаем ребенка (2024) [PDF, EPUB, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга доктора психологии Вадима Воловика — это ответы на вопросы родителей, которые у них возникли, возникнут или могут возникнуть.
+
+Это практические рекомендации как общаться с ребенком любого возраста.
+Это конкретные примеры, «фишки» и идеи, превращающие воспитание в увлекательный процесс.(   Читать дальше...   )Жанр: Воспитание и развитиеФормат: PDF, EPUB, FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECC45457D9631C05A9A9293BC8A3856F12D97AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862261   (1063232) от 
+
+Книжная серия | Моя первая книга обо всем на свете [29 книг] (2019-2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063232.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серию познавательной и развивающей литературы вошли работы, предназначенные для младшего школьного возраста. Доступные несложные тексты с веселыми картинками отлично подойдут для первого самостоятельного чтения. Каждая книга, как маленькая тематическая энциклопедия, дает базовое понятие о предмете. В серию входят как работы отечественных авторов, так и переводные (   Читать дальше...   )Жанр: Детское, научно-популярноеИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5D7EA75E561388354AA0E16B6EDE35533930D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861890   (1062738) от 
 
 Книжная серия | Школа юного инженера [4 книги] (2021-2024) [PDF]
@@ -7,7 +62,7 @@ https://t.me/izofen
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062738.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062268.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062267.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061981.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061894.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061849.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061680.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061650.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061246.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061071.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061012.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061011.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060801.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060800.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060036.jpg" />
 </div>
 
 
@@ -400,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059704.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059272.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059271.jpg" />
 </div>
 
 
@@ -480,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059203.jpg" />
 </div>
 
 
@@ -506,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058401.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058373.jpg" />
 </div>
 
 
@@ -562,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058372.jpg" />
 </div>
 
 
@@ -590,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058010.jpg" />
 </div>
 
 
@@ -617,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057671.jpg" />
 </div>
 
 
@@ -628,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04F62E20FFB1934DACA8ABC9C9A4D932D7AA0AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854123   (1057566) от 18.02.2026
-
-Анна Клейбурн | Атлас мифических существ (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга с невероятно красивыми иллюстрациями для всех, кто увлекается волшебными существами и всем таинственным. Вы узнаете о самых популярных мифических существах со всего света, услышите истории и легенды про них и даже сможете себе их представить! Кто принес в мир сказки? Как победить страшнейшего василиска? Что за дракон сидит на шпиле Казанского вокзала в Москве? (   Читать дальше...   )Жанр: Мифология, научно-популярноеПеревод: Надежда КончаИздательство: МИФФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33BB9D109DF600B97965DB8B0A041B2AB5A462A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854443   (1057419) от 18.02.2026
-
-Книжная серия | Большая страшная книга [9 книг] (2020-2022) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много-много лет назад замечательный детский писатель Эдуард Успенский написал первую авторскую страшилку — повесть «Красная Рука, Черная Простыня, Зеленые Пальцы». Написана она была по мотивам «детских страшилок». Тогда небольшие страшные фольклорные истории были невероятно популярны. Их рассказывали в летних лагерях, больницах, по вечерам в школе. Эдуард Успенский, (   Читать дальше...   )Жанр: Детское, хоррорИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E4209C72BB4AECB400B2B1304D09C0E318BB84
 ```
 
 https://mybot314.ru/tekegram_catalog/

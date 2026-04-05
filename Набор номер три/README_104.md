@@ -1,3 +1,161 @@
+###  Публикация: 989262   (916335) от 22.02.2016
+
+Француз / Un Francais (2015) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марко — настоящий скинхед. Вместе со своими приятелями, Брагетом, Гран-Ги и Марвеном, он дубасит арабов и расклеивает плакаты ультраправых. Это продолжается до тех пор, пока он не начинает чувствовать, что вся эта ненависть улетучилась. Но как избавиться от жестокости, злости и глупости, которая в нас живет? Это пример пути человека, который был подонком, но захотел (   Читать дальше...   )Производство: Франция / Fin Aot Productions, Mars Films, France 3 CinmaЖанр: ДрамаРежиссер: ДьястемАктеры: Элбан Ленуар, Поль Ами, Джинн Роза, Патрик Пино, Рено Леба, Бландин Пелиссье, Алекс МартинПеревод: Многоголосый закадровый, любительский (Paradox & Omskbird records)Субтитры: отсутствуютПродолжительность: 01:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981F24A9C4A13CD18C8E4A58EDA85708EC0ABA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989149   (916334) от 22.02.2016
+
+Пятьдесят оттенков черного / Fifty Shades of Black (2016) WEBRip [Line]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неискушенная студентка колледжа знакомится с состоятельным бизнесменом, чьи сексуальные предпочтения омрачают их отношения.Производство: США, IM GlobalЖанр: КомедияРежиссер: Майкл ТиддесАктеры: Марлон Уайанс, Кали Хоук, Фред Уиллард, Майк Эппс, Эффион Крокетт, Джейн Сеймур, Флоренс Хендерсон, Эндрю Бэчелор, Дженни Зигрино, Кейт Лэнг Джонсон, Сидни Кастилло, Ирен Чои, Расселл Питерс, Д.С. Эрвин, Шонте Вайанс, Винсент Ошана, Ховард Алонсо, Брэд Шмидт, Джои Ромэйн, Дейв ШериданПеревод: Дублированный (Чистый звук)Продолжительность: 01:24:22Реклама: Присутствуют голосовые и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F2D6E1277C1DD95D609BDE849D22F7857A7FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138888   (916259) от 31.01.2015
+
+Разжалованный (2009) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой – незаметный человек, в звании рядового, бывший комбриг, приговоренный к расстрелу. Волей случая он спасается и под чужим именем продолжает воевать. Два бойца комендантской роты получают приказ доставить в военный трибунал разжалованного лейтенанта, обвиненного в трусости. По пути следования группа наталкивается на тяжелых раненных, оставленных в лесу (   Читать дальше...   )Производство: РоссияЖанр: Военный, драмаРежиссер: Владимир ТумаевАктеры: Александр Михайлов, Филипп Бажин, Ольга Лапшина, Николай Козак, Марина Куделинская, Денис Карасев, Андрей Межулис, Михаил Солодко, Никита ТезинПеревод: Не требуется (русский)Продолжительность: 01:32:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 633166   (915927) от 22.03.2013
+
+Virtual Audio Cable 4.10 RePack [Английский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Virtual Audio Cable - виртуальный звуковой кабель (VAC) представляет собой звуковой (Wave) драйвер Windows, создающий в системе два звуковых устройства (порта): Virtual Cable n In и Virtual Cable n Out, где n — номер кабеля начиная с 1. К каждому из портов может быть присоединено любое количество приложений (клиентов); эта возможность в зарубежных документах носит (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593573   (915923) от 22.03.2013
+
+Aliens vs. Predator [Ru/En] (RePack/2.27/DLC) 2010 | R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый боевик от известного разработчика — компании Rebellion, в 1999 году выпустившей знаменитую игру, в которой люди, Чужие и Хищники впервые сошлись в бескомпромиссных сражениях.
+
+Битва продолжается — разные формы жизни снова сойдутся в непримиримой борьбе. В Aliens vs Predator игроков ждут три захватывающие сюжетные кампании, а также незабываемые многопользовательские (   Читать дальше...   )Тип издания: RePackРазработчик: RebellionЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A37A2D499C60E5FD83B2CB4BA780FCE49CC9E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 633573   (915881) от 22.03.2013
+
+Recovery USB-flash for Acer Aspire V3-571G / Windows 8 (х64) [Русский]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915881.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Acer_V3_571G_W8.tib записанной на ноутбуке Acer v3-571g-53218g75Maii с помощью программы Acer Recovery Management. Образ флешки создан программой Acronis True Image Home 2013.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096842   (915264) от 26.01.2017
 
 Мягкий имплантат-робот, оборачиваемый вокруг сердца, поможет ему биться после кризисных ситуаций
@@ -6,7 +164,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915264.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Native Instruments Komplete 9 Ultimate [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915253.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 4 in 1 Origin-Upd 02.2014 by OVGorskiy® 2DVD
 >>13
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915250.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Cent Browser 2.3.7.50 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915120.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Malwarebytes Anti-Malware Premium 3.0.6.1469 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914994.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ Max Payne (2001) [Ru] (1.05) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914990.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ Doom 3 (2004) [Ru/En] (1.3.1/dlc) Repack R.G. Механики [Gold Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914989.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914985.jpg" />
 </div>
 
 
@@ -214,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914982.jpg" />
 </div>
 
 
@@ -241,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914961.jpg" />
 </div>
 
 
@@ -267,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914960.jpg" />
 </div>
 
 
@@ -294,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914775.jpg" />
 </div>
 
 
@@ -320,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914773.jpg" />
 </div>
 
 
@@ -347,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914764.jpg" />
 </div>
 
 
@@ -373,7 +531,7 @@ Kaspersky Cleaner 1.0.0.106 Beta (Веб-установщик) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914606.jpg" />
 </div>
 
 
@@ -400,7 +558,7 @@ OS X 10.9.4 Installer USB for Win [BDU]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914578.jpg" />
 </div>
 
 
@@ -428,7 +586,7 @@ OS X 10.10.3 Installer USB for Win [BDU]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914568.jpg" />
 </div>
 
 
@@ -456,7 +614,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель (2011) [Ru/En] (1.1.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914563.jpg" />
 </div>
 
 
@@ -482,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914553.jpg" />
 </div>
 
 
@@ -508,7 +666,7 @@ Windows 8.1 (x86/x64) +/- Office 2016 32in1 by SmokieBlahBlah 21.02.16 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914548.jpg" />
 </div>
 
 
@@ -522,170 +680,6 @@ Windows 8.1 (x86/x64) +/- Office 2016 32in1 by SmokieBlahBlah 21.02.16 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:514EDCE51D380421703313315278638C1F35DD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989759   (914543) от 23.02.2016
-
-Мария Струтинская | Новый урок по обработке (2016) PCRec [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый урок по обработке фотографий от Марии Струтинской.
-
-15 фотографий, которые вызвали наибольший интерес у зрителей.
-(   Читать дальше...   )Жанр: Обработка фотографийПродолжительность: 06:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1048D101D892005C88B7B8FC659AC66847D90754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977468   (914538) от 23.02.2016
-
-Scrap Mechanic (2016) [En] (beta 0.1.17) Steam Early Access
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrap Mechanic – креативный симулятор выживания, в котором нужно строить различные механизмы, добывать ресурсы и сражаться против «ретробайтов» - сумасшедших роботов. Фабула игры такова: вы – механик-робототехник, которого послали на полностью автоматизированную сельскохозяйственную планету для обслуживания и ремонта техники.Тип издания: Steam Early AccessРазработчик: Axolot GamesЖанр: Инди, Экшн, ПесочницаЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9801CEDF0CC651A64335DA9B566DA0A4DB53241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979513   (914533) от 23.02.2016
-
-Секретные материалы / The X-Files (2016) WEB-DL [H.264/1080p-LQ] (сезон 10, серии 1-6 из 6) ТВ3
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальные агенты ФБР, Фокс Малдер и Дана Скалли, снова работают вместе, чтобы расследовать странные и необъяснимые дела, связанные с паранормальными явлениями.Производство: США / 20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пилледжи, Уильям Б. Дэвис, Робби Амелл, Джоэл МакХэйл, Эндрю Моргадо, Лорен Эмброуз, Ализа Веллани, Даниэла Диб и др.Перевод: Дублированный - ТВ3Субтитры: NotabenoidЯзык субтитров: русский (полные - 1, 2 серии, форсированные - 3-6 серии), английскийПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62060B0273FB672C5DCFEC9FF524D086937447C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537323   (914401) от 01.02.2015
-
-Секретные материалы + бонусы / The X-Files + bonuses + «Борьба за будущее» / Fight the Future (сезон 1-9, серий 201) (1993-2002) DVD-Remux
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914401.jpg" />
-</div>
-
-
-###  Подробнее
-
-В девятом сезоне «Секретных материалов» 19 эпизодов. Для того чтобы обеспечить безопасность Дане Скалли и их сыну Уильяму, экс-спецагенту Фоксу Малдеру приходится их покинуть. В проекте «Секретные Материалы» тоже перемены – новой напарницей Джона Доггета становится Моника Рейс. Зрители увидят как за сыном Скалли и Малдера продолжают охотиться суперсолдаты – результат (   Читать дальше...   )Производство: 20th Century FoxЖанр: ФантастикаРежиссер: Крис Картер/Chris CarterАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пилегги, Уильям Б. Дэвис, Том Брэйдвуд, Дин Хаглунд, Брюс ХарвудСубтитры: Формат: MKV
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633047   (913992) от 23.03.2013
-
-Очередное достижение: 2000 релизов от nikollo2013
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913992.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вот и еще один виновник торжества, благодаря которому по сетям проходит все больше и больше трафика.
-Уважаемый член клуба, Покровитель Талантов - nikollo2013 создал свой 2000 релиз.
-Благодаря таким энтузиастам наш ресурс получает свежие и интересные фильмы, игры, музыку, книги.  Мы от всей души желаем Николаю не терять бодрости, задора и инициативы, не останавливаться на достигнутом и продолжать дарить радость сотням тысяч людей. Честь, хвала и наш низкий поклон новому члену элитного клуба 2000+!!!
-Браво, Николай!
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525556   (913978) от 23.03.2013
-
-Обычное Шоу / Regular Show (2010-2011) WEB-DL [H.264/720p-LQ] (Сезон: 1, серии 1-12 из 12, Сезон: 2 серии: 19 из 28) (Обновляемая раздача)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о приключениях двух 23х-летних приятелей-раздолбаев — голубой сойки по имени Мордекай и енота Ригби.
-Устроившись в парк смотрителями, они целыми днями отлынивают от работы и ищут новые способы себя развлечь, что часто влечет за собой непредсказуемые (и сюрреалистические) последствия. За это они часто попадают под немилость своего босса Бенсона (живой автомат с жевательной резинкой), однако с помощью мудрого йети Скипса практически все проблемы удается разрешить.Жанр: мультфильм, комедия, приключенияПеревод: Любительский (дублированный)Формат: MKVПродолжительность: ~ 00:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B81ADD05E82F8771CC02EB32EF12080DD6A0D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

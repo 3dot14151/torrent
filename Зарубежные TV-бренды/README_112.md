@@ -6,7 +6,7 @@ Discovery: Современные Шерлок Холмсы / In the Mind of Cri
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180053.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Джереми Уэйд: Тайны океана / Mysteries of the D
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179597.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. Московская осада / The Moscow Siege (2002) SatRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178719.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Мир природы. Лосось: Серебряный прилив / Th
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178671.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Discovery: Будущее с Джеймсом Вудсом / Futurescape with Ja
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178004.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NG: Момент смерти / Moment of Death (2008) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177918.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Discovery: Тайна убийства Наполеона / The Napoleon Murder 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177294.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BBC: Невероятные приключения температуры / From
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177266.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_177224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177224.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176495.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery: Техногенная катастрофа: Японская тра�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176454.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG: Чужие миры / Alien Worlds (2009) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176313.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176295.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176159.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175993.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Discovery: Высадка союзников - цветная съемка / D-d
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175485.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Discovery: Идеальный путеводитель: Змеи / The Ultimate 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175481.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ BBC. Секреты древних. Каменные головы Ольмеко
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175421.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ BBC: Мир природы: Болота. В ад и обратно / The Natura
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174904.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NG. С Точки Зрения Науки: Полёт в систему Юпит
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174885.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BBC. Параллельные Вселенные / BBC: Parallel Universes (2002
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174818.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ NG: Последствия: Мир без нефти / Aftermath: World without 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174690.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174129.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ History Channel: Злой гений / Evil Genius (2016-2017) HDTVRip (8 сер
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173882.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NGW: 700 Акул / 700 Sharks (2018) WEBRip [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173770.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172783.jpg" />
 </div>
 
 

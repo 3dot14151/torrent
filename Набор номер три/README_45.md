@@ -1,3 +1,161 @@
+###  Публикация: 548820   (1005353) от 25.07.2021
+
+Left 4 Dead (2008) [Ru/En] (1.0.3.8/dlc) Repack l4dzone.ru
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический survival-horror, действие которого разворачивается в современном мире, пораженном смертельным вирусом. В режиме совместного прохождения четверо «Выживших» будут сражаться с полчищами плотоядных зомби и боссами-мутантами. В игре доступно четыре больших кампании, нежно называемых разработчиками "Кино".Тип издания: RepackРазработчик: Valve SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EDC3A895BC36A4A665A5B7F0904B07B073E13E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484849   (1005235) от 26.07.2021
+
+Google удалила из поисковой выдачи сотни тысяч ссылок из-за российского «закона о VPN»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскомнадзор заставляет Google удалять неугодные ссылки из своей российской поисковой выдачи, объясняя это требованиями «закона о VPN». Google вынуждена удалять десятки тысяч URL-адресов ежемесячно, а за последние два года это число достигло полумиллиона и продолжает расти.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485408   (1005146) от 27.07.2021
+
+Способы защититься от слежки по фотографиям
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005146.jpg" />
+</div>
+
+
+###  Подробнее
+
+С развитием цифровых камер получили распространение стандарты, позволяющие присоединять к изображениям дополнительную информацию. К ним относятся технические показатели, дата и место съемки. Однако эти метаданные, как и любая цифровая информация, могут попасть в руки злоумышленников.При загрузке фотографии в социальную сеть, ее отправке по электронной почте или через (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485623   (1005134) от 27.07.2021
+
+Китай создал первый в мире 512-ядерный процессор
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005134.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Китае силами компании Ziguang создан уникальный чип, в котором больше 500 вычислительных ядер. Его массовое производство начнется в 2022 г. по 7-нанометровой топологии. В процессорах Intel число ядер не превышает 56, AMD работает над 128-ядерным чипом, тогда как в распоряжении Ziguang есть 256-ядерный CPU.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485742   (1005059) от 28.07.2021
+
+Intel объявила новый план: переименовать техпроцессы и перегнать TSMC за четыре года
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005059.jpg" />
+</div>
+
+
+###  Подробнее
+
+На прошедшем  мероприятии Intel Accelerated компания Intel объявила о масштабном переименовании разрабатываемых техпроцессов, а также представила форсированный план по возвращению себе лидерства в сфере полупроводникового производства. Среди прочего в плане фигурируют производственные нормы с размерностью узлов, которые впервые в отрасли заданы в ангстремах, а не (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485726   (1005032) от 28.07.2021
+
+Microsoft не позволит устанавливать Windows 11 на несовместимые устройства
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стало известно, что Microsoft намерена блокировать обходные пути установки новой операционной системы Windows 11 на устройства, которые не удовлетворяют минимальным системным требованиям. Разработчики сообщили об этом в ответах на вопросы пользователей касательно новой программной платформы и способах обновления устройств до Windows 11.В настоящее время Microsoft (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485900   (1004915) от 29.07.2021
 
 SpaceX построила сотый «превосходящий» РД-180 двигатель
@@ -6,7 +164,7 @@ SpaceX построила сотый «превосходящий» РД-180 д�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004915.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ VPN-сервис Windscribe не использовал шифрование д�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004914.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004816.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 07.2021 by OVGorskiy 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004781.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ The Ascent (2021) [Ru/Multi] (Build 7106737/dlc/tr) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004780.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004653.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>16
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004619.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004616.jpg" />
 </div>
 
 
@@ -215,7 +373,7 @@ Farming Simulator 19 (2018) [Ru/Multi] (1.7.1.0/dlc) Repack Other s [Platinum Ed
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004455.jpg" />
 </div>
 
 
@@ -241,7 +399,7 @@ System software for Windows v.3.5.3 [Ru]
 >>95
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004454.jpg" />
 </div>
 
 
@@ -267,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004417.jpg" />
 </div>
 
 
@@ -293,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004400.jpg" />
 </div>
 
 
@@ -320,7 +478,7 @@ WebForMySelf | Премиум-уроки (2014-2019) PCRec [H.264] [Обновл
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004389.jpg" />
 </div>
 
 
@@ -346,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004231.jpg" />
 </div>
 
 
@@ -372,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004200.jpg" />
 </div>
 
 
@@ -398,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004189.jpg" />
 </div>
 
 
@@ -424,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004183.jpg" />
 </div>
 
 
@@ -450,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>17
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004168.jpg" />
 </div>
 
 
@@ -477,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004166.jpg" />
 </div>
 
 
@@ -503,7 +661,7 @@ MX Player Pro v1.15.9 with AC3/DTS Mod by Balatan, OsitKP [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004165.jpg" />
 </div>
 
 
@@ -514,163 +672,6 @@ MX Player — видео-плеер для Android-смартфонов и пл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ABA7E390EB5FB51D777C2D8940DC7C91BAEE33D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486825   (1003968) от 03.08.2021
-
-Смартфон на выброс. Почему техника стала неремонтопригодной
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все чаще некритичные поломки смартфона, например треснувший экран, оборачиваются не ремонтом, а покупкой новой модели. Эксперты усматривают в этом особую тактику производителей. Внакладе остаются покупатели и сервисы. Почему так происходит — мы расскажем в этом материале.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487055   (1003955) от 03.08.2021
-
-Судьба диверсанта (2020) WEBRip [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина посвящена подвигам советских подпольщиков и партизан, героически сражавшихся с немецкими оккупантами в годы Великой Отечественной войны. Образ главного героя железнодорожника Алеся Арловича собирательный, но в его основе — судьба советского подпольщика Федора Крыловича, совершившего самую крупную сухопутную диверсию Второй мировой войны на железнодорожной (   Читать дальше...   )Производство: Россия, Беларусь / БеларусьфильмЖанр: драма, биографияРежиссер: Дмитрий АстраханАктеры: Алексей Суренский, Андрей Смоляков, Александр Семчев, Владимир Тимофеев, Виктор Васильев, Валентина Ляпина, Лиана Гриба, Михаил Жмако, Олег Коц, Александр ТкаченокЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3555B77CF6A7CEE99401EEE5555EC13762A95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645250   (1003953) от 03.08.2021
-
-Вызов / Непокорная Земля / Defiance (2013) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13) BaibaKo
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет сериала "Вызов" рассказывает о Земле, какой она стала после Бледных войн: противостояния землян и прилетевших "на поселение" инопланетян, чья система бинарных солнц превратилась в сверхновую. После того, как потери с обеих сторон достигли ужасных размеров и на Землю по ошибке попали терраформирующие машины инопланетян, горстка солдат осознала (   Читать дальше...   )Производство: США / Five & Dime Productions, Universal Cable ProductionsЖанр: фантастика, боевик, драмаРежиссер: Майкл Нанкин, Аллен Крокер, Энди ВолкАктеры: Грант Боулер, Джули Бенц, Стефани Леонидас, Тони Кёрран, Джейми Мюррэй, Грэм Грин, Миа Киршнер, Дьюшэйн Уильямс, Николь Муньос, Джастин РэйнПеревод: Многоголосый профессиональный (BaibaKo)Язык озвучки: Русский, английскийСубтитры: английские (форсированные hardsub)Продолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92D6F1B0A9D51470E38005710B7AD2C5012ADDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349197   (1003913) от 03.01.2020
-
-В России появился собственный «Cybertruck» – стоимостью всего 10800 долларов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из четырех российских ютуберов Пушка Гараж из подмосковных Химок сделали то, что от них вряд ли кто ожидал. Специалисты по малобюджетному гаражному тюнингу старых российских автомобилей, приложив немалые усилия, создали из подручных материалов российскую версию нашумевшего «Tesla Cybertruck».Проект обошелся его создателям в скромные 1300 долларов (включая (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330004   (1003910) от 03.01.2020
-
-Bokutachi wa Benkyou ga Dekinai! | We Never Learn: Bokuben Season 2 | Мы не можем учиться! [ТВ-2] [2019, TV, 13] WEBRip 720p raw
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003910.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Нариюки Юйга последний и самый трудный год в старшей школе. Чтобы получить «особую рекомендацию VIP», которая предоставит ему полную стипендию для обучения в колледже, он должен теперь обучать своих одноклассников, которые пытаются подготовиться к вступительным экзаменам. Среди его учеников «спящая красавица литературного леса» Фумино Фурухаси и «суперкомпьютер (   Читать дальше...   )Производство: SilverЖанр: комедия, романтикаРежиссер: Ивасаки ЁсиакиПеревод: AniLibria (rus); Cranchroll (остальное)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Испанские, ПортугальскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E194B081B2C3E39ACCCC0155EEF4419051319E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001512   (1003894) от 03.01.2020
-
-Онлайн Радио Yo!Tuner v1.11.8 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы цените свое время и музыкальные вкусы, скорее скачивайте это «умное радио»! Это практически искусственный интеллект, да еще полностью БЕСПЛАТНЫЙ — все функции доступны сразу после установки, ни за что доплачивать не нужно! В базе 6500+ радиостанций, и она постоянно пополняется. Вот ещё веские причины, почему это онлайн-радио нужно скачать прямо сейчас:Тип издания: Пиратка (открыт Premium)Релиз состоялся: 26.11.2019Разработчик: SoftInvent, LLCПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6053D7230AE453F03A09EADA4E2A867C685A84
 ```
 
 https://mybot314.ru/tekegram_catalog/

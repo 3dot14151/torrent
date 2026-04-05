@@ -6,7 +6,7 @@ MacBooster 4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470718.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aurora HDR 2017 v1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470701.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EdgeView 3 v3.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470320.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ TS Calc 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470317.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DB-Text 1.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470316.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Folder Tidy 2.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470315.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Soulver 3 v3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470310.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Zoc Terminal 7.09.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470226.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Sketch 91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470190.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Wondershare Data Recovery 6.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469796.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Audirvana Plus 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469668.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Stellaris v2.3.3.1 (30871) GOG (2016) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468891.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ MacX Video Converter Pro 5.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468663.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Hands Off! 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468541.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ AirServer 6.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468498.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Apimac Secret Folder (8 (Build 084)) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468307.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Pyre v50427.17438 (2017) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467548.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Things 3.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467468.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Kaleidoscope 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467230.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ ForkLift 2.5.2 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467223.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Navicat Premium 12.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467198.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ iA Writer 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466857.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Pixelmator 3.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466853.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Elmedia Player Pro 6.0 (740) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466731.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Lyn 1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466565.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ iStat Menus 5.11 (628) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466299.jpg" />
 </div>
 
 

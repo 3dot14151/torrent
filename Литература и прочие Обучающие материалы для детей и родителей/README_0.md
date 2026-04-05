@@ -1,3 +1,55 @@
+###  Публикация: 1854123   (1057566) от 18.02.2026
+
+Анна Клейбурн | Атлас мифических существ (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга с невероятно красивыми иллюстрациями для всех, кто увлекается волшебными существами и всем таинственным. Вы узнаете о самых популярных мифических существах со всего света, услышите истории и легенды про них и даже сможете себе их представить! Кто принес в мир сказки? Как победить страшнейшего василиска? Что за дракон сидит на шпиле Казанского вокзала в Москве? (   Читать дальше...   )Жанр: Мифология, научно-популярноеПеревод: Надежда КончаИздательство: МИФФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33BB9D109DF600B97965DB8B0A041B2AB5A462A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854443   (1057419) от 18.02.2026
+
+Книжная серия | Большая страшная книга [9 книг] (2020-2022) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много-много лет назад замечательный детский писатель Эдуард Успенский написал первую авторскую страшилку — повесть «Красная Рука, Черная Простыня, Зеленые Пальцы». Написана она была по мотивам «детских страшилок». Тогда небольшие страшные фольклорные истории были невероятно популярны. Их рассказывали в летних лагерях, больницах, по вечерам в школе. Эдуард Успенский, (   Читать дальше...   )Жанр: Детское, хоррорИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E4209C72BB4AECB400B2B1304D09C0E318BB84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854445   (1057415) от 18.02.2026
 
 Александр Волков | Урфин Джюс и его деревянные солдаты (2026) [PDF]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057415.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057328.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057327.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057317.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057229.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057227.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057198.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057197.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057182.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056284.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056282.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056281.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056280.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056212.jpg" />
 </div>
 
 
@@ -386,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056210.jpg" />
 </div>
 
 
@@ -412,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056126.jpg" />
 </div>
 
 
@@ -438,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056125.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055708.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055703.jpg" />
 </div>
 
 
@@ -518,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055702.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055701.jpg" />
 </div>
 
 
@@ -574,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055700.jpg" />
 </div>
 
 
@@ -603,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055697.jpg" />
 </div>
 
 
@@ -631,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055353.jpg" />
 </div>
 
 
@@ -644,63 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9627F73D56E60782010918564F9BBAB42598BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851880   (1055352) от 04.02.2026
-
-Д.М. Ушаков | ЕГЭ 2025. Информатика. 20 тренировочных вариантов экзаменационных работ (2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию школьников и абитуриентов предлагается пособие для подготовки к ЕГЭ, которое содержит 20 тренировочных вариантов экзаменационных работ.
-
-Каждый экзаменационный вариант в сборнике составлен в соответствии с требованиями единого государственного экзамена, включает задания разных типов и сложности по основным разделам курса информатики. ЕГЭ по информатике проводится (   Читать дальше...   )Жанр: Учебное пособиеИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB0971EC29FC627E2302BA97455DF2A538200E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851878   (1055351) от 04.02.2026
-
-С.С. Крылов, Т.Е. Чуркина | ЕГЭ-2025. Информатика. Типовые экзаменационные варианты. 20 вариантов (2025) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия подготовлена разработчиками контрольных измерительных материалов (КИМ) единого государственного экзамена.
-
-В сборнике представлены:
-• 20 типовых экзаменационных вариантов, составленных в соответствии с демоверсией КИМ ЕГЭ по информатике 2025 года;(   Читать дальше...   )Жанр: Учебное пособиеИздательство: Национальное образованиеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6779B4AE929DC1FC8AC5925A3FDCEB38111302
 ```
 
 https://mybot314.ru/tekegram_catalog/

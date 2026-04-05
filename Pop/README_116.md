@@ -1,177 +1,3 @@
-###  Публикация: 1219037   (717410) от 12.04.2018
-
-Donna Summer - The Dance Collection (1987) Reissue, Mercury, 2013 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717410.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Compilation Of Twelve Inch Singles (Сборник двенадцатидюймовых синглов)01. I Feel Love (8:15)
-02. With Your Love (7:34)
-03. Last Dance (8:14)
-04. MacArthur Park Suite (17:35):(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FF6FA137FD6A9CDCC8D33FC4AB29D408A73AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218973   (717175) от 12.04.2018
-
-Инна Маликова & Новые Самоцветы - 12 (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717175.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Склеим
-2. Зелёные глаза
-3. Раны
-4. Ты моей никогда не будешь(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B34CF810522EC79B6824A4A23814BAA51256DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285964   (717063) от 28.02.2019
-
-Los Valentinos - High Voltage (1977) LP [MP3|320 Kbps] <Disco, Pop Rock, Instrumental >
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sqwack (2:23)
-02. Spanish Boogie (3:19)
-03. Never My Love (2:42)
-04. Porto Rico (2:33)(   Читать дальше...   )Жанр: Disco, Pop Rock, InstrumentalПродолжительность: 00:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EE8B693ACC677871D340450B3B1727BB8FFD68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130385   (716658) от 01.05.2017
-
-Dekad - 6 Albums (2005-2015) CD [MP3|320 Kbps] <Electronic, Synth-pop, Electro-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французская электро-поп группа с названием в переводе - Десятилетие. Совпадение или нет - их дискография и умещается в указанный период. Созвучны с тоже французской группой Foretaste.Список альбомов:
-2005 - Sin_Lab
-2008 - Confidential Tears
-2011 - Monophonic(   Читать дальше...   )Жанр: Electronic, Synth-pop, Electro-popПродолжительность: 05:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18932B5C6D02B158FE38E9F63F37B3C731E1247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130405   (716527) от 01.05.2017
-
-Viola Valentino - Un Angelo Dal Cielo (1991) Compilation [APE|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Un Angelo Dal Cielo  (03:35) 
-02.  Romantici  (03:53) 
-03.  Arriva Arriva  (04:29) 
-04.  Sotto La Pioggia  (03:32) (   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A7F16B33C32DB57B204A43BD3C01FD4D039DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130480   (716514) от 01.05.2017
-
-VA - Planet Italo Disco Vol. 6 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716514.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Emy Care – Read My Mind (Radio instrumental Disco mix) (04:13)
-2. Robert Hill – Hold Me Again (instrumental Radio Love mix) (04:31)
-3. Boris Zhivago – Russian Fantasy (Short instrumental) (04:10)
-4. Ranger – Time (Radio Smack instrumental mix) (04:20)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F549651ABDEEA508E2D26D860EE117BB5CF07C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532099   (716399) от 18.02.2022
 
 Tina Charles - 5 Albums (1976-1980) LP [MP3|320 Kbps] <Pop, Boogie, Funk Soul, Disco>
@@ -180,7 +6,7 @@ Tina Charles - 5 Albums (1976-1980) LP [MP3|320 Kbps] <Pop, Boogie, Funk Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716399.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ VA - The Sun Shines Here (The Roots Of Indie-Pop 1980-1984) (2021) 3xCD, Compila
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716398.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716246.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716235.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716155.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ VA - В русском ресторане. Романсы. (Выпуск 2) (200
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716144.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ VA - В русском ресторане.Оригинальные записи 
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716047.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ Kaija Koo - Kuka sen opettaa (2014) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716036.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Laid Back - Happy Dreamer (2007) [FLAC|Lossless|image + .cue] <Electronic, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716026.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ Auto Reverse - Surfing On Dream Waves (2015) [MP3|320 кб/с] <Electronic, Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715955.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ Tina Turner - The Best (2018) 2CD, Compilation [MP3|320 Kbps] <Pop, Rock, Soul, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715603.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715567.jpg" />
 </div>
 
 
@@ -529,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715448.jpg" />
 </div>
 
 
@@ -558,7 +384,7 @@ C.C. Catch - The Best of (2018) [MP3|320 Kbps] <Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715238.jpg" />
 </div>
 
 
@@ -587,7 +413,7 @@ VA - ZYX Italo Disco Spacesynth Collection 6 (2020) 2CD, Compilation [MP3|320 Kb
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715013.jpg" />
 </div>
 
 
@@ -616,7 +442,7 @@ Texas - The Conversation (2CD) (2013) Deluxe Edition [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715012.jpg" />
 </div>
 
 
@@ -645,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714810.jpg" />
 </div>
 
 
@@ -674,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714766.jpg" />
 </div>
 
 
@@ -703,7 +529,7 @@ Falco – Falco - The Box (4CD) (2022) [MP3|320 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714521.jpg" />
 </div>
 
 
@@ -732,7 +558,7 @@ Michael Larsen - Solang es deine Sehnsucht gibt (1987) [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714488.jpg" />
 </div>
 
 
@@ -746,6 +572,180 @@ Michael Larsen - Solang es deine Sehnsucht gibt (1987) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BDD512016814F7437515193BF11FF15E5FA1C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532479   (714468) от 19.02.2022
+
+Agnetha Faltskog (ABBA) - 12 Studio Albums + 2 Compilations (1968-2013) Collection, CD [MP3|320 Kbps] <Soft Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агнета Осе Фельтског (род. 5 апреля 1950, Йёнчёпинг) - шведская певица, автор песен, музыкальный продюсер. В 1968 году, выпустив успешную дебютную пластинку, Агнета Фельтског стала известна в родной стране, а мировую славу певице принесло участие в одной из самых успешных групп всех времён - ABBA.Список альбомов:
+1968 - Agnetha Faltskog
+1969 - Agnetha Faltskog Vol. 2
+1970 - Som Jag Ar(   Читать дальше...   )Жанр: Soft Rock, PopПродолжительность: 09:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01AEB8F92EA875CD7C591E0F6C7105D37AD1A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130661   (714339) от 02.05.2017
+
+Jeanne Mas - PH (2017) [FLAC|Lossless|tracks + .cue] <Chanson, Pop, Rock, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Désir en désirs (04:07)
+02. Autre que moi (03:30)
+03. Desperado (02:43)
+04. Demi-tour (03:58)(   Читать дальше...   )Жанр: Chanson, Pop, Rock, Female VocalПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4CD1D8389FBA8477FDECE3D05CFD13EF3A89CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130635   (714329) от 02.05.2017
+
+Sylvan Esso - What Now (2017) [FLAC|Lossless|tracks + .cue] <Electropop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound
+02. The Glow
+03. Die Young
+04. Radio(   Читать дальше...   )Жанр: Electropop, Indie PopПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A7E47077F3CB4CCD208A54F46F08DFF190EB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082050   (714125) от 02.05.2017
+
+Ritual (Jillian Ann) - The Code Album (2015) [MP3|320 Kbps] <Alternative Pop, Ethereal, Symphonic Bass>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Code
+02. The Code (feat. Jillian Ann)
+03. I:Root
+04. La Petite Mort (feat. Jillian Ann)(   Читать дальше...   )Жанр: Alternative Pop, Ethereal, Symphonic BassПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3DC97A6616390B3CAE1FC438D5BAAE75EE08D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025014   (714080) от 10.06.2016
+
+Matia Bazar - Brivido Caldo (2000) [FLAC|Lossless|tracks] <Pop, Italo-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brivido Caldo    04:08
+02. Vorrei Averti Qui    04:15
+03. Non Abbassare Gli Occhi    04:14
+04. Solo Tu    03:33(   Читать дальше...   )Жанр: Pop, Italo-pop, DiscoПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73F6D9D0D02751FD3CCDA09058D19C0BEAABB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219515   (714022) от 14.04.2018
+
+VA - Maxi Disco (1979) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M - Pop Muzik (5:00)
+02. Amii Stewart - Knock On Wood (6:01)
+03. Ganymed - It Takes Me Higher (4:53)
+04. Patrick Juvet - Lady Night (6:46)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F1E15A09CD72D7AA0AC5BB7D6A76E8AA391C28
 ```
 
 https://mybot314.ru/tekegram_catalog/
